@@ -26,11 +26,8 @@ jobs:
         warp-cli --accept-tos set-mode proxy
         warp-cli --accept-tos set-proxy-port 50000
         warp-cli --accept-tos connect
-      id: install-warp
-        
-        
+
     - name: 檢出代碼
-      if: success() && steps.install-warp.outcome == 'success'
       uses: actions/checkout@v4
 
     - name: 設置 Python 環境
@@ -48,7 +45,6 @@ jobs:
         python code/rthk.py
 
     - name: 上傳 RSS 文件
-      if: success()
       run: |
         git config --global user.email "github-actions@github.com"
         git config --global user.name "github-actions"
