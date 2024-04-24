@@ -9,8 +9,8 @@ on:
       - '.github/workflows/*'
       - 'code/*'
       - 'hk_rthk_*.rss'
-  #schedule:
-    #- cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
+  schedule:
+    - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
 
 jobs:
   deploy:
@@ -47,6 +47,7 @@ jobs:
 
     - name: 上傳 RSS 文件
       run: |
+        git pull
         git config --global user.email "github-actions@github.com"
         git config --global user.name "github-actions"
         git add *.rss
