@@ -11,9 +11,9 @@ import html
 import json
 
 print()
-proxies = {'http':'http://localhost:50000', 'https':'http://localhost:50000'}
-session = niquests.Session(multiplexed=True)
-# session = niquests.Session()
+proxies = {'http':'socks5://localhost:50000', 'https':'socks5://localhost:50000'}
+# session = niquests.Session(multiplexed=True)
+session = niquests.Session()
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 session.headers['User-Agent'] = 'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0'
