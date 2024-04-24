@@ -19,10 +19,6 @@ jobs:
     - name: 檢出代碼
       uses: actions/checkout@v4
 
-    - name: Run RSSHub docker
-      run: |
-        docker run -d --name rsshub -p 1200:1200 diygod/rsshub:chromium-bundled
-
     - name: 設置 Python 環境
       uses: actions/setup-python@v5
       with:
@@ -31,7 +27,7 @@ jobs:
 
     - name: 安裝依賴
       run: |
-        python -m pip install --upgrade pip niquests niquests[speedups] qh3 feedgen bs4 
+        python -m pip install --upgrade pip niquests niquests[speedups] qh3 feedgen bs4 tqdm
 
     - name: 執行 Python 腳本
       run: |
