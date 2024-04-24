@@ -26,7 +26,8 @@ jobs:
         warp-cli --accept-tos set-mode proxy
         warp-cli --accept-tos set-proxy-port 50000
         warp-cli --accept-tos connect
-        warp-cli --accept-tos enable-always-on
+      id: install-warp
+        
         
     - name: 檢出代碼
       if: success() && steps.install-warp.outcome == 'success'
