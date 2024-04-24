@@ -11,7 +11,7 @@ import html
 import json
 
 print()
-proxies = {'http':'socks5://localhost:50000', 'https':'socks5://localhost:50000'}
+proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
 # session = niquests.Session(multiplexed=True)
 session = niquests.Session(resolver=["doh://9.9.9.9", "doh://149.112.112.112"])
 session.headers['Cache-Control'] = 'no-cache'
