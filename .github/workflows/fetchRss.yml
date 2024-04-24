@@ -17,6 +17,9 @@ jobs:
     runs-on: ubuntu-latest
 
     steps:
+    - name: 檢出代碼
+      uses: actions/checkout@v4
+      
     - name: Install Cloudflare Warp
       run: |
         git pull
@@ -28,9 +31,6 @@ jobs:
         warp-cli --accept-tos set-mode proxy
         warp-cli --accept-tos set-proxy-port 50000
         warp-cli --accept-tos connect
-
-    - name: 檢出代碼
-      uses: actions/checkout@v4
 
     - name: 設置 Python 環境
       uses: actions/setup-python@v5
@@ -48,7 +48,6 @@ jobs:
 
     - name: 上傳 RSS 文件
       run: |
-        git pull
         git config --global user.email "github-actions@github.com"
         git config --global user.name "github-actions"
         git add *.rss
