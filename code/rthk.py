@@ -11,8 +11,8 @@ import html
 import json
 
 print()
-# session = niquests.Session(multiplexed=True)
-session = niquests.Session()
+session = niquests.Session(multiplexed=True)
+# session = niquests.Session()
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 session.headers['User-Agent'] = 'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0'
