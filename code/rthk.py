@@ -123,7 +123,6 @@ for category, url in urls_list:
         response = session.get(url)
         
         if response.ok:
-            doWeContinue = False
             break
             
         tryCount += 1
