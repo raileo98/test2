@@ -104,6 +104,7 @@ print()
 count = 1
 
 for category, url in urls_list:
+    doWeContinue = True
     fg = FeedGenerator()
     rss_filename = f'{category}.rss'
 
@@ -111,6 +112,25 @@ for category, url in urls_list:
     print()
 
     response = session.get(url)
+    
+    tryCount = 0
+
+    while True:
+        if tryCount >= 5:
+            doWeContinue = False
+            break
+        
+        response = session.get(url)
+        
+        if response.ok:
+            doWeContinue = False
+            break
+            
+        tryCount += 1
+    
+    if doWeContinue == False:
+        continue
+    
     web_content = response.content
 
     soup = BeautifulSoup(web_content, 'html.parser')
@@ -130,6 +150,10 @@ for category, url in urls_list:
     articles = soup.select('.ns2-page')
 
     articles_list = list(articles)
+
+    if len(articles_list) == 0:
+        break
+    
     secrets.SystemRandom().shuffle(articles_list)
 
     for article in tqdm(articles_list):
