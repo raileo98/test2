@@ -47,11 +47,20 @@ jobs:
       run: |
         python code/rthk.py
 
-    - name: 獲取 Git 版本號
-      id: get_version
+    - name: 檢查是否存在版本號
+      id: check_version
       run: |
-        VERSION=$(git describe --tags --abbrev=0)
-        echo "version=$VERSION" >> $GITHUB_OUTPUT
+        if git describe --tags --abbrev=0 &> /dev/null; then
+          echo "version_exists=true" >> $GITHUB_OUTPUT
+        else
+          echo "version_exists=false" >> $GITHUB_OUTPUT
+        fi
+
+    - name: 設置初始版本號
+      id: set_initial_version
+      if: steps.check_version.outputs.version_exists == 'false'
+      run: |
+        echo "version=v1.0.0" >> $GITHUB_OUTPUT
 
     - name: 上傳 RSS 文件
       run: |
@@ -59,12 +68,11 @@ jobs:
         git config --global user.name "github-actions"
         git add *.rss
         git commit -m "Upload RSS file"
-        # git stash
         
     - name: 建立 Git 標籤
       run: |
         # 將版本號加 1
-        NEW_VERSION=$(echo ${{ steps.get_version.outputs.version }} | awk -F'.' -v OFS='.' '{$NF+=1; print}')
+        NEW_VERSION=$(echo ${{ steps.set_initial_version.outputs.version }} | awk -F'.' -v OFS='.' '{$NF+=1; print}')
         git tag v$NEW_VERSION
         git push origin v$NEW_VERSION
       # env:
