@@ -10,6 +10,7 @@ from tqdm import tqdm
 import html
 import json
 import re
+import lxml
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
@@ -205,7 +206,8 @@ for category, url in urls_list:
     # rss_str = fg.rss_str(pretty=True)
     rss_str = fg.rss_str()
 
-    soup_rss = BeautifulSoup(rss_str, 'xml')
+    # soup_rss = BeautifulSoup(rss_str, 'xml')
+    soup_rss = BeautifulSoup(rss_str, 'lxml')
 
     for item in soup_rss.find_all('item'):
         if item.description is not None:
