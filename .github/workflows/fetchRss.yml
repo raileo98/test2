@@ -10,8 +10,8 @@ on:
       - 'code/*'
       - 'hk_rthk_*.rss'
   schedule:
-    # - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
-    - cron: '*/20 * * * *'  # 每隔 20 分鐘運行一次
+    - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
+    # - cron: '*/20 * * * *'  # 每隔 20 分鐘運行一次
 
 jobs:
   deploy:
@@ -47,11 +47,25 @@ jobs:
       run: |
         python code/rthk.py
 
+    - name: 獲取 Git 版本號
+      id: get_version
+      run: |
+        VERSION=$(git describe --tags --abbrev=0)
+        echo "version=$VERSION" >> $GITHUB_OUTPUT
+
     - name: 上傳 RSS 文件
       run: |
         git config --global user.email "github-actions@github.com"
         git config --global user.name "github-actions"
         git add *.rss
         git commit -m "Upload RSS file"
-        git stash
-        git push
+        # git stash
+        
+    - name: 建立 Git 標籤
+      run: |
+        # 將版本號加 1
+        NEW_VERSION=$(echo ${{ steps.get_version.outputs.version }} | awk -F'.' -v OFS='.' '{$NF+=1; print}')
+        git tag v$NEW_VERSION
+        git push origin v$NEW_VERSION
+      # env:
+        # GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
