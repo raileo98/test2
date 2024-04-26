@@ -1,68 +1,60 @@
-<?xml version="1.0" encoding="utf-8"?>
-<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
- <channel>
-  <title>
-   rthk - 財經
-  </title>
-  <link>
-   https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=5&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  </link>
-  <description>
-   rthk - 財經
-  </description>
-  <copyright>
-   © 香港電台 RTHK
-  </copyright>
-  <docs>
-   http://www.rssboard.org/rss-specification
-  </docs>
-  <generator>
-   python-feedgen
-  </generator>
-  <image>
-   <url>
-    <![CDATA[https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fip3%2Fnews.rthk.hk.ico]]>
-   </url>
-   <title>
-    rthk - 財經
-   </title>
-   <link>
+<?xml version='1.0' encoding='UTF-8'?>
+<html>
+ <body>
+  <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+   <channel>
+    <title>
+     rthk - 財經
+    </title>
+    <link/>
     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=5&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-   </link>
-  </image>
-  <language>
-   zh-HK
-  </language>
-  <lastBuildDate>
-   Fri, 26 Apr 2024 06:40:07 +0000
-  </lastBuildDate>
-  <webMaster>
-   webmaster@rthk.hk
-  </webMaster>
-  <item>
-   <title>
-    日股全日升逾300點
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750669-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日經指數收報37934點，升306點，升幅0.81%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750669_1_L_20240426142535.jpg" style="width:100%;height:auto"/>
+    <description>
+     rthk - 財經
+    </description>
+    <copyright>
+     © 香港電台 RTHK
+    </copyright>
+    <docs>
+     http://www.rssboard.org/rss-specification
+    </docs>
+    <generator>
+     python-feedgen
+    </generator>
+    <image>
+     <url>
+      <![CDATA[https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fip3%2Fnews.rthk.hk.ico]]>
+     </url>
+     <title>
+      rthk - 財經
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=5&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
+    </image>
+    <language>
+     zh-HK
+    </language>
+    <lastbuilddate>
+     Fri, 26 Apr 2024 06:57:11 +0000
+    </lastbuilddate>
+    <webmaster>
+     webmaster@rthk.hk
+    </webmaster>
+    <item>
+     <title>
+      韓股低收約1.8%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750484-20240425.htm
+     <description>
+      <![CDATA[<img alt="首爾綜合指數收報2628點，跌47點，跌幅1.76%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750484_1_L_20240425143311.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 東京股市上升。
- <br>
-  <br/>
-  日經指數收報37934點，升306點，升幅0.81%。
-  <br/>
-  <br/>
-  總結全星期，日股升2.3%。
- </br>
+ 南韓股市低收1.76%，首爾綜合指數收報2628點，跌47點。
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750669-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750669-20240426.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750484-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750484-20240425.htm
  </a>
 </p>
 <p>
@@ -75,38 +67,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 14:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    本港去年私人寫字樓空置率升至14.9%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750664-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="截至去年底，本港私人寫字樓空置率升至14.9%，按年升0.5個百分點。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750664_1_L_20240426131800.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 15:05:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      Alphabet首季盈利升近60%　公布派息及股份回購
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750610-20240426.htm
+     <description>
+      <![CDATA[<img alt="Alphabet公布首次派息每股20美仙，並且推出700億美元股份回購計劃。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750610_1_L_20240426075702.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 差餉物業估價署最新《香港物業報告》公布，截至去年底，本港私人寫字樓空置率升至14.9%，按年升0.5個百分點。空置量按年升逾5%，升至196萬平方米。去年第4季整體寫字樓租金按年下跌0.7%，售價下跌7.8%。
+ Alphabet首季盈利236.62億美元，增長逾57%。公司公布首次派息每股20美仙，並且推出700億美元股份回購計劃。
  <br>
   <br/>
-  至去年底，甲級寫字樓空置率升至16%，按年增加0.9個百分點；空置量亦升近8%至137.7萬平方米。
+  集團首季收入805.4億美元，增長逾15%，高過市場預期，受惠於人工智能應用增加，以及穩定的廣告開支帶動雲服務需求增長。廣告業務收入增長13%，達到617億美元；雲服務收入增長28%。
   <br/>
   <br/>
-  去年整體寫字樓落成量15.9萬平方米，按年回落近55%。報告預計，今年落成量將回落至15.6萬平方米，當中甲級寫字樓佔94%；按地區劃分，中西區佔43%。
-  <br/>
-  <br/>
-  另外，包括零售物業在內的私人商業樓宇，去年空置率輕微回落至10.3%，空置量降至121.7萬平方米。報告指，去年第4季零售物業租金按年升3.7%，售價則下跌6.8%。
+  集團資本開支120億美元，按年增加91%。集團表示，隨著進一步打造人工智能產品，預計今年餘下時間資本開支將保持或高於首季水平，但全年營業利潤按年仍會增長。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750664-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750664-20240426.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750610-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750610-20240426.htm
  </a>
 </p>
 <p>
@@ -119,269 +107,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 13:38:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    陳文博：內地市場仍大有增長空間和發展機會
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750665-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="陳啟宗（右）稱內地樓市或出現旺市時未見的發展機會；陳文博（左）稱會否在香港投地視乎回報。（張詩民攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750665_1_L_20240426134841.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 恒隆地產及恒隆集團今早舉行股東周年大會，陳啟宗在會後退任兩家公司董事長、執行董事及執行委員會主席職務，由兒子陳文博接替董事長及執行委員會主席。陳啟宗則擔任榮譽董事長。
- <br>
-  <br/>
-  新任董事長陳文博認為，香港及內地市場都有發展機遇，集團發展重心在內地市場，雖然近期經營環境略有困難，但仍然相信未來大有增長空間和發展機會，視乎如何去把握，相信集團管理團隊及策略足以捕捉機會，特別是高端零售方面。
-  <br/>
-  <br/>
-  他又提到，集團在香港持有不少物業，會否投地則要視乎回報，又指現時利率高企，投資機會相對少過之前，但仍會繼續留意市場。
-  <br/>
-  <br/>
-  另外，陳啟宗表示，目前內地房地產市場不暢旺，在這種環境下，政府期望有更多經濟活動，造就旺市時未能見到的發展機會。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750665-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750665-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 13:24:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    分析員預期美國今季經濟表現有改善
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750662-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="溫灼培認為美國首季經濟增長放緩主要由於政府投資減少，相信今季經濟會有改善。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750662_1_L_20240426130127.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國今年首季經濟增長按季年率放緩至1.6%，遠低於市場預期，亦不及去年第4季增速的一半。首季個人消費開支（PCE）物價指數升至3.4%，遠高於聯儲局2%目標。數字引發市場關注美國出現滯脹風險。
- <br>
-  <br/>
-  恒生投資首席市場策略員溫灼培認為，美國首季經濟增長放緩，主要由於政府投資減少。他相信，今季經濟表現會有改善。
-  <br/>
-  <br/>
-  至於首季PCE物價指數反映美國通脹率仍然高企，溫灼培同意，將影響聯儲局減息時間，今晚公布的3月PCE物價指數會是市場焦點。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750662-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750662-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 13:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股下午開市後升約2%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750663-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="恒生指數較早時報17624點，升339點，升幅1.96%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750663_1_L_20240426130707.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 港股下午早段造好。恒生指數較早時報17624點，升339點，升幅1.96%。
- <br>
-  <br/>
-  科技指數報3689點，升134點，升幅3.79%。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750663-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750663-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 13:08:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股半日升近2%　科指急升近4%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750654-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="港股半日升幅擴大至近2%，恒生指數中午報17626點，升342點，半日主板成交額724億元。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750654_1_L_20240426121519.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 港股連續5日造好，再創近5個月新高，上試250天移動平均線，半日升幅擴大至近2%。
- <br>
-  <br/>
-  恒生指數最多曾升逾350點，半日收報17626點，升342點，升幅1.98%，半日主板成交額724億元。
-  <br/>
-  <br/>
-  科技指數半日報3684點，升129點，升幅3.65%。ATMXJ全線上升，京東集團升近5%，小米升4%。
-  <br/>
-  <br/>
-  內房及內需股上升，龍湖及中海外分別升逾9%及近7%，是半日表現最好兩隻藍籌股。海底撈及李寧升近5%或以上。
-  <br/>
-  <br/>
-  多隻藍籌股創52周新高，其中，中海油績後升近5%，最高曾突破20元水平。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750654-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750654-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 12:20:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    本港樓價結束10個月連跌　上月私人住宅售價指數按月升逾1%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750652-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="本港樓價結束10個月連跌。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750652_1_L_20240426122751.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 本港樓價結束10個月連跌。3月私人住宅售價指數按月回升逾1%，按年仍跌逾13%。不過，今明兩年新供應將會增加，差餉物業估價署預測，今明兩年住宅落成量每年將超過兩萬個。
- <br>
-  <br/>
-  有測量師認為，面對一手市場大量供應，政府撤辣對樓價回升的作用短暫，估計今年以二手為主的樓價指數有機會最多跌5%。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750652-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750652-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 12:12:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日圓兌跌穿156兌1美元　每百日圓兌港元跌穿5.02
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750646-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日本央行議息後，日圓跌勢加劇，跌穿156兌1美元，再創34年新低。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750646_1_L_20240426114012.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 日本央行議息後，日圓跌勢加劇，跌穿156兌1美元，再創34年新低，較早時徘徊156.1附近，跌幅約0.3%。
- <br>
-  <br/>
-  每百日圓兌港元跌穿5.02，較早時跌至5.014附近。
-  <br/>
-  <br/>
-  央行結束一連兩日政策會議，維持短期利率目標於零至0.1厘不變，但在聲明刪去「目前每月購買約6萬億日圓國債」的字眼，並指將按3月的決定買債。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750646-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750646-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 12:04:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    滬股半日升約0.8%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750647-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="滬深股市半日升幅擴大至近1%至逾2%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750647_1_L_20240426114735.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 08:18:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      滬股半日升約0.8%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750647-20240426.htm
+     <description>
+      <![CDATA[<img alt="滬深股市半日升幅擴大至近1%至逾2%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750647_1_L_20240426114735.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  滬深股市半日升幅擴大至近1%至逾2%，算力、黃金、量子科技概念股造好，銀行、鋼鐵、煤炭、航運股偏軟。
@@ -412,41 +150,31 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 11:57:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日央行維持利率不變　日圓兌美元失守156
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750645-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日本央行在政策聲明刪去「目前每月購買約6萬億日圓國債」的字眼。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750645_1_L_20240426113701.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 11:57:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      土耳其央行維持利率不變
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750549-20240425.htm
+     <description>
+      <![CDATA[<img alt="土耳其央行維持利率在50厘不變，重申將繼續高度關注通脹風險。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750549_1_L_20240425192007.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 日本央行維持短期利率目標於零至0.1厘不變，但在聲明中刪去「目前每月購買約6萬億日圓國債」的字眼，並指將按3月的決定買債。
+ 土耳其央行維持利率在50厘不變，考慮貨幣緊縮的滯後效應，又重申將繼續高度關注通脹風險。
  <br>
   <br/>
-  議息結果公布後，美元兌日圓升穿156，較早時報156.1左右。
-  <br/>
-  <br/>
-  央行將2024財政年度核心通脹率預測中值上調至2.8%，高於1月時預測的2.4%；2025財年預測輕微上調至1.9%，2026財年估計維持於1.9%。
-  <br/>
-  <br/>
-  央行表示，必須密切關注金融及外匯市場波動，以及對日本經濟及物價的影響，強調經濟與物價前景存在極高不確定。
-  <br/>
-  <br/>
-  央行指，經濟風險大致平衡，預計經濟增速繼續高於潛在增長率。基礎通脹或會逐步上升，接近央行2%的通脹目標。
+  央行表示，一旦通脹持續嚴重惡化，貨幣政策立場將會收緊。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750645-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750645-20240426.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750549-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750549-20240425.htm
  </a>
 </p>
 <p>
@@ -459,989 +187,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 11:40:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    本港去年底住宅空置率回落至4.1%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750637-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="截至去年底，本港私人住宅單位空置率降至4.1%，按年減少0.3個百分點，相當約5.2萬個單位。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750637_1_L_20240426105233.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 差餉物業估價署最新《香港物業報告》公布，去年私人住宅落成量有約1.39萬個單位，按年下跌35%，預測今年及明年的落成量，分別回升至約2.23萬個和2.55萬個單位。當中，九龍城的供應量將佔今年新落成單位26%，元朗則佔16%。
- <br>
-  <br/>
-  另外，去年底的住宅入住量升12%至約1.57萬個單位。
-  <br/>
-  <br/>
-  報告指出，截至去年底，本港私人住宅單位總存量的空置率降至4.1%，按年減少0.3個百分點，相當約5.2萬個單位。
-  <br/>
-  <br/>
-  另外，去年底本港合計有4.23萬個中小型單位空置，空置率回落至3.6%。大型單位空置量則升至9867個，空置率升至10%。
-  <br/>
-  <br/>
-  報告指，展望未來外圍環境複雜，但隨着內地經濟穩步增長，加上政府加大力度吸引和留住資本、企業和人才，並推出一系列盛事活動，以及中央政府支持擴大個人遊計劃，預計這些正面發展將帶動和惠及整體樓市。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750637-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750637-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 11:12:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日股半日升0.4%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750638-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日經指數半日升151點，報37780點，升幅0.4%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750638_1_L_20240426105735.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 東京股市上升。日經指數半日升151點，報37780點，升幅0.4%。
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750638-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750638-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 10:58:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    內地股市造好　創業板指數升近2%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750635-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="內地股市造好　創業板指數升近2%" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750635_1_L_20240426102856.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 滬深股市向好。
- <br>
-  <br/>
-  上證綜合指數較早時報3067點，升14點，升幅0.47%。
-  <br/>
-  <br/>
-  深證成份指數報9348點，升84點，升幅0.91%。
-  <br/>
-  <br/>
-  創業板指數報1795點，升30點，升幅1.72%。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750635-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750635-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 10:29:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    本港3月私人住宅樓價按月升逾1%　結束10個月連跌
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750634-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="差餉物業估價署公布，3月私人住宅售價按月升逾1%，但按年仍跌逾13%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750634_1_L_20240426102313.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 本港樓價結束10個月連跌。
- <br>
-  <br/>
-  差餉物業估價署公布，3月私人住宅售價指數回升至305.7，按月升逾1%，但按年仍跌逾13%。樓價仍較2021年歷史高位回落逾23%。
-  <br/>
-  <br/>
-  上月中小型單位和大型單位售價，按月分別升逾1%及近1%，按年則分別跌逾13%和約11%。
-  <br/>
-  <br/>
-  租金指數亦按月反彈0.5%，按年則升5.6%，結束2個月連跌。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750634-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750634-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 10:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    東京4月核心通脹率顯著減慢至1.6%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750624-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日本東京地區4月核心消費物價指數按年升幅顯著減慢至1.6%，低於市場預期，亦低於央行2%的通脹目標。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750624_1_L_20240426094203.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 日本東京地區4月核心消費物價指數(CPI)按年升1.6%，升幅比3月的2.4%顯著放緩，並遠低於市場預期的2.2%，亦低於央行2%的通脹目標。
- <br>
-  <br/>
-  期內，服務價格按年升幅減慢至1.6%，由於東京都政府決定部分學費免費。
-  <br/>
-  <br/>
-  至於剔除生鮮食品及燃料成本的通脹指標，亦放緩至1.8%，是2022年9月以來最慢增速。
-  <br/>
-  <br/>
-  數據顯示，日本央行加息時機及步伐仍有不確定。而央行即將結束為期兩日的政策會議，並將公布直至2027年初的最新通脹預測。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750624-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750624-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 10:00:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    人行再度逆回購20億元人民幣　完全對沖到期量
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750623-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="人行公開市場再度開展20億元人民幣7日期逆回購操作，完全對沖今日到期量。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750623_1_L_20240426093243.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 人民銀行公開市場再度開展20億元人民幣7日期逆回購操作，連續19日相同操作量，中標利率維持1.8厘。人行公開市場單日操作量完全對沖到期量。
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750623-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750623-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 09:41:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股競價時段升51點
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750622-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="恒生指數競價時段報17336點，升51點。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750622_1_L_20240426092554.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 恒生指數競價時段報17336點，升51點。
- <br>
-  <br/>
-  科技指數報3568點，升14點。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750622-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750622-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 09:27:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    人民幣兌美元中間價上調2點子
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750621-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="人民幣兌美元中間價報7.1056，較上日中間價升2點子。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750621_1_L_20240426092322.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 人民幣兌美元中間價報7.1056，較上日中間價升2點子。
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750621-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750621-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 09:24:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    英特爾上季虧損收窄　今季收入預測遜預期
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750619-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="英特爾預計第2季收入125億至135億美元，經調整後每股盈利10美仙，兩者都少過市場預期。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750619_1_L_20240426085849.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 英特爾首季虧損4億美元，按年收窄86%；經調整後盈利8億美元，轉虧為盈，經調整後每股盈利18美仙。
- <br>
-  <br/>
-  上季收入127億美元，上升9%。當中數據中心收入增長5%，達到30億美元，代工業務收入下跌10%。
-  <br/>
-  <br/>
-  集團預計第2季收入125億至135億美元，低於市場預期；經調整後每股盈利10美仙，少過市場預期。
-  <br/>
-  <br/>
-  管理層對下半年個人電腦銷售持樂觀態度，認為微軟推出新版Windows操作系統及其他軟件供應商推出新一代產品，將提升個人電腦及公司晶片需求。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750619-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750619-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 09:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    台股開市後升逾1%　重上20000點
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750620-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="台股開市後升逾1%　重上20000點" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750620_1_L_20240426090643.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 台灣股市重上20000點關口。
- <br>
-  <br/>
-  加權指數較早時報20154點，升297點，升幅1.5%。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750620-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750620-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 09:08:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    微軟上季盈利勝預期
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750614-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="微軟上季收入增長17%，達到619億美元，受惠雲服務採用人工智能帶來的收益。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750614_1_L_20240426083054.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 微軟本財政年度第3季盈利219.4億美元，增長近20%，每股盈利2.94美元，多過市場預期。
- <br>
-  <br/>
-  集團上季收入增長17%，達到619億美元，高過市場預期，受惠於雲服務採用人工智能帶來的收益。季內資本開支升至140億美元，多過市場預期，受人工智能投資推動。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750614-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750614-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 08:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    韓股開市後靠穩
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750613-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="韓股開市後靠穩" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750613_1_L_20240426081808.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 南韓股市向好。首爾綜合指數較早時報2644點，升15點，升幅0.6%。
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750613-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750613-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 08:20:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日股開市後靠穩
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750612-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日股開市後靠穩" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750612_1_L_20240426081700.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 東京股市靠穩。日經指數較早時報37706點，升78點。
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750612-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750612-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 08:19:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    Alphabet首季盈利升近60%　公布派息及股份回購
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750610-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Alphabet公布首次派息每股20美仙，並且推出700億美元股份回購計劃。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750610_1_L_20240426075702.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- Alphabet首季盈利236.62億美元，增長逾57%。公司公布首次派息每股20美仙，並且推出700億美元股份回購計劃。
- <br>
-  <br/>
-  集團首季收入805.4億美元，增長逾15%，高過市場預期，受惠於人工智能應用增加，以及穩定的廣告開支帶動雲服務需求增長。廣告業務收入增長13%，達到617億美元；雲服務收入增長28%。
-  <br/>
-  <br/>
-  集團資本開支120億美元，按年增加91%。集團表示，隨著進一步打造人工智能產品，預計今年餘下時間資本開支將保持或高於首季水平，但全年營業利潤按年仍會增長。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750610-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750610-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 08:18:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股美國預託證券較本港收市個別發展
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750603-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="滙控美國預託證券較本港收市升逾1%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750603_1_L_20240426062227.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 滙控美國預託證券折合65.46港元，較本港收市升逾1%。
- <br>
-  <br/>
-  阿里巴巴美國預託證券較本港收市升近1%。
-  <br/>
-  <br/>
-  多隻內銀股的美國預託證券較本港收市都下跌。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750603-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750603-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 06:46:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美元兌日圓再創34年新高　兌其他主要貨幣下跌
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750602-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美元匯價下跌，但兌日圓繼續上升。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750602_1_L_20240426060935.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美元匯價下跌，但兌日圓繼續上升。美國首季經濟表現較預期遜色，但通脹仍然高企，市場關注聯儲局會否進一步推遲減息時間。利率期貨顯示，市場預期美國6月減息的機會約10%，9月減息的機會低於60%，預期今年減息幅度降至約35點子。
- <br>
-  <br/>
-  日圓兌美元再創34年新低，1美元曾升至155.75日圓，較早時報155.6水平。歐元兌日圓亦觸及16年高位。
-  <br/>
-  <br/>
-  歐元兌美元較早時升至1.073，英鎊兌美元報1.251左右。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750602-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750602-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 06:46:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    布蘭特期油高收逾1%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750601-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="原油期貨價格上升。以色列加強對拉法的空襲行動，推高油價。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750601_1_L_20240426055509.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 原油期貨價格上升。以色列加強對加沙南部城市拉法的空襲行動，市場對中東緊張局勢影響原油供應的憂慮再度升溫，推高油價。
- <br>
-  <br/>
-  紐約6月期油收市報每桶83.57美元，升76美仙，升幅0.92%。
-  <br/>
-  <br/>
-  布蘭特6月期油收市報每桶89.01美元，升99美仙，升幅1.12%。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750601-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750601-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 06:45:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美股下跌　道指跌近1%　投資者憂慮經濟及通脹前景
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750600-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美股下跌。美國首季經濟增長按季年率放緩至1.6%，創近兩年最低。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750600_1_L_20240426053212.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 紐約股市下跌。美國首季經濟增長按季年率放緩至1.6%，創近兩年最低，不及去年第4季增速的一半；同時通脹高企，首季個人消費開支物價指數上升3.4%，核心指數上升3.7%，兩個數字都高過市場預期，打擊投資者信心。
- <br>
-  <br/>
-  道瓊斯指數收市報38085點，跌375點，跌幅0.98%。
-  <br/>
-  <br/>
-  納斯達克指數報15611點，跌100點，跌幅0.64%。
-  <br/>
-  <br/>
-  標準普爾500指數報5048點，跌23點，跌幅0.46%。
-  <br/>
-  <br/>
-  部分企業消息令市場失望，股價向下。Meta收市跌逾10%。
-  <br/>
-  <br/>
-  工業股Caterpillar下調第2季銷售預測，股價跌7%。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750600-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750600-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 05:33:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    紐約期金高收逾4美元
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750597-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="金價靠穩，因美元下跌。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750597_1_L_20240426051111.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 外圍金價靠穩，因美元下跌。
- <br>
-  <br/>
-  紐約6月期金收市報每盎士2342.5美元，升4.1美元，升幅約0.18%。
-  <br/>
-  <br/>
-  現貨金在2332美元附近。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750597-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750597-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 05:33:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    耶倫：美國經濟繼續表現得非常好
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750594-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="耶倫指出，經濟基本面與通脹繼續回落到正常水平保持一致。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750594_1_L_20240426045425.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國今年首季經濟增長按季年率放緩至1.6%，遠低於市場預期，創近兩年最低，不及去年第4季增速的一半。美國財長耶倫表示，不排除數據將被向上修訂。
- <br>
-  <br/>
-  她接受外電專訪時表示，美國經濟繼續表現得非常良好，消費開支及投資開支表現強勁，亦與去年增長率一致，反映美國仍具潛在實力，但可能存在特殊因素，令潛在實力未能反映。
-  <br/>
-  <br/>
-  美國首季個人消費開支（PCE）物價指數升至3.4%，遠高於聯儲局2%目標。耶倫指出，經濟基本面與通脹繼續回落到正常水平保持一致，不認為經濟其他領域，尤其是就業市場需要轉弱，才能令通脹降到2%目標。
-  <br/>
-  <br/>
-  另外，耶倫承認，美元強勢與其他國家貨幣走勢有分歧，認為強美元反映美國經濟實力及高利率，重申只有在極少數情況下，政府才可以干預外匯市場，重申匯率由市場決定符合七國集團的承諾，亦是美國對主要國家的期望。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750594-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750594-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 05:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    法德股市低收近1%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750595-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="法德股市低收近1%" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750595_1_L_20240426045936.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 歐洲主要股市個別發展。
- <br>
-  <br/>
-  倫敦富時指數收市報8078點，升38點，升幅0.48%。
-  <br/>
-  <br/>
-  巴黎CAC40指數報8016點，跌75點，跌幅0.93%。
-  <br/>
-  <br/>
-  法蘭克福DAX指數報17917點，跌171點，跌幅0.95%。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750595-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750595-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 05:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    耶倫：經濟表現強勁增長　通脹正向下行
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750576-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="耶倫表示，GDP數據反映消費和投資支出強勁，認為經濟表現強勁增長。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750576_1_L_20240425225921.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國上季國內生產總值(GDP)，按季年率初值增長1.6%，差過預期。
- <br>
-  <br/>
-  美國財長耶倫表示，GDP數據反映消費和投資支出強勁，認為經濟表現強勁增長。 她指，有關數據之後可能會有修訂，經濟活動的潛在核心驅動力相當強勁。
-  <br/>
-  <br/>
-  她表示，就業市場強勁，沒有證據表明工資壓力是通脹的源頭。
-  <br/>
-  <br/>
-  她認為，通脹正向下行，但聯儲局希望看到持續下降的額外證據，又指毫不懷疑房地產對通脹的貢獻將在今年減少。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750576-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750576-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 23:40:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美國3月二手樓臨時買賣合約指數按月升3.4%　高於預期
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750572-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國3月二手樓臨時買賣合約指數按月上升3.4%，高過市場預期。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750572_1_L_20240425220621.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國3月二手樓臨時買賣合約指數按月上升3.4%，高過市場預期及2月。
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750572-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750572-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 22:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    連鎖超市售賣壽司惹關注　食環署正聯絡說明食物業牌照規定
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750573-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="食環署表示，署方正主動聯絡該集團負責人，說明有關食物業牌照的規定。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750573_1_L_20240425221748.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 食環署表示，近日有連鎖超級市場出售壽司的安排受到關注，署方正主動聯絡該集團負責人，說明有關食物業牌照的規定。
- <br>
-  <br/>
-  署方說，包括超級市場在內的店舖，如果只售賣預先製造和包裝食品，只須持有相關牌照及許可證，售賣預先製造和包裝的壽司及刺身須持有「限制出售食物許可證」。如要在店舖內進行食品製作工序，例如即場製作或包裝食物，須持有食物製造廠牌照；如店舖以餐廳形式提供堂食服務，則須持有食肆牌照。
-  <br/>
-  <br/>
-  食環署舉例，不少商場內設有美食廣場，由商場提供座位供訪客休息或進食外賣食品，由於附近店舖只是製作食物供外賣，故只須持有食物製造廠牌照。至於超級市場，有不同的經營模式，有些設有桌椅供顧客享用在超級市場內購買的外賣食品，亦有超級市場設有持牌食肆為顧客提供堂食服務。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750573-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750573-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 22:08:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    首季經濟遜預期　道指急跌逾500點　10年期債息升至4.7厘
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750570-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="道瓊斯指數較早時報37952點，跌508點，跌幅1.32%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750570_1_L_20240425213854.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:21:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      首季經濟遜預期　道指急跌逾500點　10年期債息升至4.7厘
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750570-20240425.htm
+     <description>
+      <![CDATA[<img alt="道瓊斯指數較早時報37952點，跌508點，跌幅1.32%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750570_1_L_20240425213854.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  美股初段跌逾1%至2%以上。美國上季經濟增長差過市場預期，加上部分企業業績表現亦較差，都令大市受壓。
@@ -1478,225 +236,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 21:40:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    環保署指零售為主業務場所貨架上食物視作外賣可用膠杯膠盒
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750566-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="環保署強調顧客在任何情況下，都不會因購買及使用某些即棄塑膠產品而觸犯法例。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750566_1_L_20240425214545.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 環保署表示，一些以零售為主的業務場所例如超級市場、百貨公司，會銷售已預先包裝可供即時食用的食物例如盒裝壽司、三文治。有關貨品放置在貨架上，供顧客選購，並便利顧客帶離場所，有關業務模式視作外賣，因此可使用膠杯及膠食物盒，顧客在甚麼地方進食，並無關係。
- <br>
-  <br/>
-  商場或大型百貨公司內的美食廣場，食店一般會按顧客下單而即時製備和提供食物，亦有用餐區供顧客堂食，業務模式基本上與一般餐廳無異，因此美食廣場內的食店須遵守就堂食的餐具管制規定，但如果顧客是購買食品作外賣，則不會被視為提供堂食服務，可使用膠杯和膠食物盒。美食廣場如提供預先包裝可供即時食用的食物例如盒裝壽司、三文治，放置在貨架上，或是透過自動售賣機供顧客選購，同樣視作外賣，亦可使用膠食物盒包裝。
-  <br/>
-  <br/>
-  環保署指出，如果超市在店內的熟食部提供按顧客下單而即時製備的食物例如炒粉麵，並有用餐區供顧客堂食，情況與美食廣場的經營模式相似，亦與一般餐廳無異，因此須遵守就堂食的餐具管制規定，並強調顧客在任何情況下都不會因購買及使用某些即棄塑膠產品而觸犯法例。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750566-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750566-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 21:18:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    運輸署指城巴輸入司機只限非專營巴士服務　署方會繼續監察
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750565-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="運輸署表示，會詳細及嚴格審視所有申請，以確保每宗申請均符合計劃內的所有要求。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750565_1_L_20240425214343.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 城巴獲當局批准輸入20名內地車長，首批5人會陸續抵港，並準備接受本地駕駛考試。運輸署說，去年6月推出的運輸業輸入勞工計劃，涵蓋公共小巴行業及非專營巴士行業，並不適用於專營巴士車長，有關計劃的申請人必須是公共小巴營辦商或非專營巴士營辦商。
- <br>
-  <br/>
-  運輸署指出，城巴除了經營兩個巴士專營權外，同時亦持有相關客運營業證提供非專營巴士服務，營運包括居民服務、僱員服務等路線，因此符合資格透過計劃輸入司機駕駛旗下的非專營巴士路線。城巴早前申請並獲批輸入20名非專營巴士司機，輸入司機數目符合每位僱主輸入勞工和本地勞工不高於1：2的人手比例。
-  <br/>
-  <br/>
-  運輸署已清晰地向城巴表示，在計劃下輸入的非專營巴士司機，不可以擔任計劃外的其他工作，包括不可以駕駛專營巴士路線，署方日後會加強監察，如發現有關公司違規，所獲得的輸入司機批准會被撤銷，而隨後兩年內亦不會獲准參與計劃。
-  <br/>
-  <br/>
-  運輸署重申，會詳細及嚴格審視所有申請，以確保每宗申請均符合計劃內的所有要求，包括有否優先聘用本地司機及未能在本港聘得合適司機等情況，最後經考慮跨部門聯絡小組提供的意見後，作出批准或拒絕配額的申請。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750565-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750565-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 21:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美國上周新申領失業救濟人數減至20.7萬人　少於預期
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750561-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國上星期首次申領失業救濟人數按星期減少5000人，減至20.7萬人。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750561_1_L_20240425210316.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國上星期首次申領失業救濟人數按星期減少5000人，減至20.7萬人，少過市場預期的21.5萬人。
- <br>
-  <br/>
-  4星期平均值為21.3萬人，按星期減少1250人。
-  <br/>
-  <br/>
-  截至4月13日止一星期，持續申領失業救濟人數減少1.5萬人，減至178.1萬人，少過市場預期的180.5萬人。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750561-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750561-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 20:47:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美國首季經濟增長1.6%　遜預期
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750558-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國首季GDP按季年率初值增長1.6%，低於市場預期的2.4%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750558_1_L_20240425210014.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國首季國內生產總值(GDP)，按季年率初值增長1.6%，低於市場預期的2.4%，以及去年第4季的3.4%。
- <br>
-  <br/>
-  上季消費者支出增長2.5%。個人消費支出(PCE)物價指數上升3.4%，核心PCE物價指數上升3.7%，高於市場預期。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750558-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750558-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 20:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    聯交所對中國生態旅遊7名董事採取紀律行動　證監會聯手調查
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750557-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="證監會與聯交所聯手採取行動，令聯交所最終成功對中國生態旅遊集團，及7名現任和前任董事採取紀律行動。（證監會圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750557_1_L_20240425195552.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 證監會與聯交所聯手採取行動，令聯交所最終成功對中國生態旅遊集團，及7名現任和前任董事採取紀律行動。
- <br>
-  <br/>
-  有關調查主要針對其干犯失當行為，當中涉及向9名借款人授出13筆約3.63億港元和9100萬元人民幣的貸款，及以3500萬港元收購一家區塊鏈技術公司的37.5%權益。
-  <br/>
-  <br/>
-  聯交所最初在中國生態旅遊截至2019年12月31日止年度業績中，發現與該交易有關的重大減值，並轉介證監會跟進，經調查後有數項重大發現，考慮所有證據後，上市委員會作出裁定，包括紀律行動。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750557-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750557-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 20:03:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    商務部稱會更好統籌消費促進年各項工作為五一假期營造良好氣氛
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750556-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="何亞東表示會認真貫徹落實黨中央及國務院關於消費促進工作的決策部署。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750556_1_L_20240425213933.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 21:40:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      商務部稱會更好統籌消費促進年各項工作為五一假期營造良好氣氛
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750556-20240425.htm
+     <description>
+      <![CDATA[<img alt="何亞東表示會認真貫徹落實黨中央及國務院關於消費促進工作的決策部署。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750556_1_L_20240425213933.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  內地「五一」假期將至，商務部發言人何亞東在例行記者會表示，會認真貫徹落實黨中央及國務院關於消費促進工作的決策部署，更好統籌「消費促進年」各項工作，為「五一假期」營造良好氛圍，滿足群眾節假日消費需求，推動消費持續擴大。
@@ -1724,38 +276,31 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:48:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    商務部稱從全球範圍看不是產能過剩而是產能短缺
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="商務部回應部分國家對中國產能過剩問題表達關切的提問。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750555_1_L_20240425213839.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:48:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      微軟上季盈利勝預期
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750614-20240426.htm
+     <description>
+      <![CDATA[<img alt="微軟上季收入增長17%，達到619億美元，受惠雲服務採用人工智能帶來的收益。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750614_1_L_20240426083054.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 在北京，商務部回應部分國家對中國「產能過剩」問題表達關切的提問，發言人何亞東形容炒作毫無道理，中方堅決反對，並指出對新能源來說，從全球範圍看不是產能過剩，而是產能短缺。
+ 微軟本財政年度第3季盈利219.4億美元，增長近20%，每股盈利2.94美元，多過市場預期。
  <br>
   <br/>
-  何亞東說，新能源產品的需求不斷增長，未來發展潛力巨大。中國新能源產業持續提供可負擔的優質產能，對全球綠色發展作出重要貢獻。他認為有關國家和地區不能一邊高舉綠色發展的大旗，一邊揮舞保護主義的大棒，這是典型的自相矛盾和雙重標準，可以說是一種「雙標主義」。
-  <br/>
-  <br/>
-  何亞東說這樣的做法既會阻滯全球綠色轉型，動搖氣變合作的信心，也會挫傷企業開展對外貿易投資合作的決心。他希望相關國家客觀、理性、全面看待全球新能源市場的需求和中國新能源產業的發展，公正評價中國新能源產品在全球綠色轉型中發揮的重要作用。
-  <br/>
-  <br/>
-  何亞東說願意在堅持市場化原則的基礎上，與各方加強溝通協調，推動產業合作，實現互利共贏，共同推動全球綠色發展。
+  集團上季收入增長17%，達到619億美元，高過市場預期，受惠於雲服務採用人工智能帶來的收益。季內資本開支升至140億美元，多過市場預期，受人工智能投資推動。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750614-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750614-20240426.htm
  </a>
 </p>
 <p>
@@ -1768,32 +313,31 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:46:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    中興通訊上季盈利升近4%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750552-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="中興通訊首季盈利27.4億元人民幣，按年升近4%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750552_1_L_20240425192912.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 08:43:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      台股低收約1.4%　回落至2萬點以下
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750482-20240425.htm
+     <description>
+      <![CDATA[<img alt="加權指數回落至2萬點以下，收報19857點，跌274點，跌幅1.36%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750482_1_L_20240425141633.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 中興通訊首季盈利27.4億元人民幣，按年升近4%。
+ 台股連升兩日後回軟，回落至2萬點以下。
  <br>
   <br/>
-  期內，營業收入升近5%，305.8億元。
+  加權指數收報19857點，跌274點，跌幅1.36%。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750552-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750552-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750482-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750482-20240425.htm
  </a>
 </p>
 <p>
@@ -1806,102 +350,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    土耳其央行維持利率不變
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750549-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="土耳其央行維持利率在50厘不變，重申將繼續高度關注通脹風險。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750549_1_L_20240425192007.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 土耳其央行維持利率在50厘不變，考慮貨幣緊縮的滯後效應，又重申將繼續高度關注通脹風險。
- <br>
-  <br/>
-  央行表示，一旦通脹持續嚴重惡化，貨幣政策立場將會收緊。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750549-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750549-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    香港快運：五一黃金周北亞地區航線預訂率逾9成
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750537-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="香港快運表示，五一黃金周北亞地區的航線預訂率已超過9成，其中部分南韓航線的預訂率更超過95%。（公司圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750537_1_L_20240425182159.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 香港快運表示，今年首3個月客運業務表現理想，復活節假期間航班平均載客率超過97%。五一黃金周臨近，北亞地區的航線預訂率已超過9成，其中部分南韓航線預訂率更超過95%。
- <br>
-  <br/>
-  行政總裁毛潔瓊表示，臨近五一黃金周，留意到從內地前往香港，及經香港轉機前往亞洲其他城市的需求穩步增加，又預計在7月傳統暑期旅遊旺季，本地及亞洲其他城市的出行需求將進一步增強。她指，公司將增加東南亞地區航班，包括從周日起將香港與峴港之間的航班從每周10班增加至14班。
-  <br/>
-  <br/>
-  另外，香港快運即日起新增往返泰國曼谷廊曼機場航班，毛潔瓊表示，曼谷廊曼是香港快運於泰國繼蘇凡納布米、清邁及布吉的第4個航點。隨著內地與泰國於今年3月起實施互免簽證政策，預計前往泰國旅遊的需求將有可觀增長，相信可帶動相關航線的銷售。
-  <br/>
-  <br/>
-  她又指，東南亞一直是香港快運重點市場之一，目前東南亞航班班次佔整體的4分1，未來香港快運將繼續擴展亞洲航點，將東北亞、東南亞和內地的航班網絡發展得更平衡，為多元化的客戶群提供全面的航點網絡。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750537-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750537-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:08:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    中海油料OPEC+減產及地緣政治問題支持短線油價
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750541-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="王欣表示，OPEC+將額外自願減產協議延長至今季，對油價帶來一定支持，地緣政治風險頻發，亦支持短線油價。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750541_1_L_20240425182642.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 14:26:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      中海油料OPEC+減產及地緣政治問題支持短線油價
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750541-20240425.htm
+     <description>
+      <![CDATA[<img alt="王欣表示，OPEC+將額外自願減產協議延長至今季，對油價帶來一定支持，地緣政治風險頻發，亦支持短線油價。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750541_1_L_20240425182642.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  中海油首席財務官王欣表示，石油輸出國組織及盟國（OPEC+）將額外自願減產協議延長至今季，在供應端對油價帶來一定支持，地緣政治風險頻發，亦支持短線油價。她說，今年市場主流預測油價將處於每桶80美元以上，但未來走勢則難以預測，因為受到宏觀經濟供求、加息或減息等政策影響。
@@ -1932,38 +393,31 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 18:32:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    謝家曦：隨著內地經濟企穩　有利香港今季貿易表現
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750534-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="謝家曦表示，內地佔香港出口比重達6成至7成，隨著內地經濟進一步企穩，將有利香港第2季貿易表現。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750534_1_L_20240425181510.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 18:32:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      本港樓價結束10個月連跌　上月私人住宅售價指數按月升逾1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750652-20240426.htm
+     <description>
+      <![CDATA[<img alt="本港樓價結束10個月連跌。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750652_1_L_20240426122751.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 本港3月出口和進口貨值重拾增長，按年分別升4.7%和5.3%；2月則分別按年跌0.8%和1.8%。首季出口及進口，分別按年上升11.9%和8%。
+ 本港樓價結束10個月連跌。3月私人住宅售價指數按月回升逾1%，按年仍跌逾13%。不過，今明兩年新供應將會增加，差餉物業估價署預測，今明兩年住宅落成量每年將超過兩萬個。
  <br>
   <br/>
-  星展香港經濟研究部經濟師謝家曦表示，受到2月農曆新年的季節性因素影響，貿易商提早或延遲出貨，導致2月貿易數據按年下跌，但3月已回復增長。
-  <br/>
-  <br/>
-  他表示，內地佔香港出口比重達6成至7成，隨著內地經濟進一步企穩，將有利香港第2季貿易表現。
-  <br/>
-  <br/>
-  他又指，美國經濟表現不錯，對中國貨品出口有需求，亦會帶動本港轉口貿易。
+  有測量師認為，面對一手市場大量供應，政府撤辣對樓價回升的作用短暫，估計今年以二手為主的樓價指數有機會最多跌5%。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750534-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750534-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750652-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750652-20240426.htm
  </a>
 </p>
 <p>
@@ -1976,20 +430,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 18:15:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    在岸人民幣兌美元低收11點子　創逾5個月新低
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750520-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="在岸人民幣收報7.2471兌1美元，較昨日收市價跌11點子，創逾5個月新低。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750520_1_L_20240425165928.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 12:12:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      在岸人民幣兌美元低收11點子　創逾5個月新低
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750520-20240425.htm
+     <description>
+      <![CDATA[<img alt="在岸人民幣收報7.2471兌1美元，較昨日收市價跌11點子，創逾5個月新低。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750520_1_L_20240425165928.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  在岸人民幣收報7.2471兌1美元，較昨日收市價跌11點子，創逾5個月新低，匯價一度距離交易區間下限僅1點子。
@@ -2014,41 +467,27 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 18:01:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    中海油首季盈利升近24%　油氣淨產量升約10%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750523-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="中海油今年首季盈利397.2億元人民幣，創新高，按年升近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750523_1_L_20240425171023.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 18:01:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日股半日升0.4%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750638-20240426.htm
+     <description>
+      <![CDATA[<img alt="日經指數半日升151點，報37780點，升幅0.4%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750638_1_L_20240426105735.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 中海油公布，按中國企業會計準則，今年首季盈利397.2億元人民幣，創新高，按年升近24%。
- <br>
-  <br/>
-  期內，營業收入升逾14%至1114.7億元，油氣銷售收入升逾21%至近900億元，受惠銷量及實現油價上升。
-  <br/>
-  <br/>
-  石油銷售收入升近24%至782億元，平均實現價格每桶78.75美元，按年升逾6%。天然氣銷售收入升近8%至117.7億元，平均實現價格按年跌近8%。
-  <br/>
-  <br/>
-  首季油氣合計的總淨產量升10%至1.8億桶油當量，按年升約10%。其中，中國淨產量升約7%至1.23億桶油當量，海外淨產量升約17%至5690萬桶油當量。
-  <br/>
-  <br/>
-  首季資本支出按年升逾17%至逾290億元。
- </br>
+ 東京股市上升。日經指數半日升151點，報37780點，升幅0.4%。
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750523-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750523-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750638-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750638-20240426.htm
  </a>
 </p>
 <p>
@@ -2061,38 +500,37 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 17:16:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    本港3月出口按年回升4.7%　進口轉升5.3%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750516-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="政府統計處公布，本港上月整體出口按年升4.7%，進口升5.3%，兩者均重拾增長。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750516_1_L_20240425165019.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 10:58:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      本港3月私人住宅樓價按月升逾1%　結束10個月連跌
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750634-20240426.htm
+     <description>
+      <![CDATA[<img alt="差餉物業估價署公布，3月私人住宅售價按月升逾1%，但按年仍跌逾13%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750634_1_L_20240426102313.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 本港3月出口和進口貨值按年重拾增長。政府統計處公布，上月整體出口按年升4.7%，進口升5.3%；2月則分別按年跌0.8%和1.8%。3月錄得有形貿易逆差450億元，相等於商品進口貨值的10.5%。
+ 本港樓價結束10個月連跌。
  <br>
   <br/>
-  首季出口按年升11.9%，進口升8%，有形貿易逆差836億元，相等於商品進口貨值的7.3%。首季出口按季升5.7%，進口升3.1%。
+  差餉物業估價署公布，3月私人住宅售價指數回升至305.7，按月升逾1%，但按年仍跌逾13%。樓價仍較2021年歷史高位回落逾23%。
   <br/>
   <br/>
-  首季輸往泰國的整體出口貨值升近39%，輸往阿聯酋和內地均升逾20%；但輸往荷蘭的出口跌約28%。期內，來自南韓的進口貨值升逾58%，越南和泰國分別升約38%和約20%，美國和內地分別升約14%和約10%；但來自印度的進口跌約12%。
+  上月中小型單位和大型單位售價，按月分別升逾1%及近1%，按年則分別跌逾13%和約11%。
   <br/>
   <br/>
-  政府發言人表示，地緣政治局勢緊張和偏緊的金融狀況維持更久，仍會繼續影響香港的出口表現。不過，外在需求較預期好，或會提供一些支持，政府會密切留意情況。
+  租金指數亦按月反彈0.5%，按年則升5.6%，結束2個月連跌。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750516-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750516-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750634-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750634-20240426.htm
  </a>
 </p>
 <p>
@@ -2105,20 +543,601 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 16:53:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    恒指高收83點　連升4日　再創近5個月收市新高
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750506-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="恒生指數再創近5個月新高，收市報17284點，升83點，升幅0.48%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750506_1_L_20240425161622.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 10:23:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國3月二手樓臨時買賣合約指數按月升3.4%　高於預期
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750572-20240425.htm
+     <description>
+      <![CDATA[<img alt="美國3月二手樓臨時買賣合約指數按月上升3.4%，高過市場預期。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750572_1_L_20240425220621.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國3月二手樓臨時買賣合約指數按月上升3.4%，高過市場預期及2月。
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750572-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750572-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 22:42:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      台股開市後升逾1%　重上20000點
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750620-20240426.htm
+     <description>
+      <![CDATA[<img alt="台股開市後升逾1%　重上20000點" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750620_1_L_20240426090643.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 台灣股市重上20000點關口。
+ <br>
+  <br/>
+  加權指數較早時報20154點，升297點，升幅1.5%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750620-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750620-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 09:08:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      連鎖超市售賣壽司惹關注　食環署正聯絡說明食物業牌照規定
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750573-20240425.htm
+     <description>
+      <![CDATA[<img alt="食環署表示，署方正主動聯絡該集團負責人，說明有關食物業牌照的規定。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750573_1_L_20240425221748.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 食環署表示，近日有連鎖超級市場出售壽司的安排受到關注，署方正主動聯絡該集團負責人，說明有關食物業牌照的規定。
+ <br>
+  <br/>
+  署方說，包括超級市場在內的店舖，如果只售賣預先製造和包裝食品，只須持有相關牌照及許可證，售賣預先製造和包裝的壽司及刺身須持有「限制出售食物許可證」。如要在店舖內進行食品製作工序，例如即場製作或包裝食物，須持有食物製造廠牌照；如店舖以餐廳形式提供堂食服務，則須持有食肆牌照。
+  <br/>
+  <br/>
+  食環署舉例，不少商場內設有美食廣場，由商場提供座位供訪客休息或進食外賣食品，由於附近店舖只是製作食物供外賣，故只須持有食物製造廠牌照。至於超級市場，有不同的經營模式，有些設有桌椅供顧客享用在超級市場內購買的外賣食品，亦有超級市場設有持牌食肆為顧客提供堂食服務。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750573-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750573-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 22:08:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      內地股市收市變動不大
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750492-20240425.htm
+     <description>
+      <![CDATA[<img alt="上證綜合指數收市報3052點，升8點，升幅0.27%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750492_1_L_20240425151210.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 滬深股市走勢反覆，收市變動不大。化工、減肥藥、物流相關股份上升；軍工和家電板塊則向下。
+ <br>
+  <br/>
+  上證綜合指數收市報3052點，升8點，升幅0.27%。
+  <br/>
+  <br/>
+  深證成份指數報9264點，升13點，升幅0.14%。
+  <br/>
+  <br/>
+  創業板指數報1764點，跌不足1點。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750492-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750492-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 15:14:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國首季經濟增長1.6%　遜預期
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750558-20240425.htm
+     <description>
+      <![CDATA[<img alt="美國首季GDP按季年率初值增長1.6%，低於市場預期的2.4%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750558_1_L_20240425210014.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國首季國內生產總值(GDP)，按季年率初值增長1.6%，低於市場預期的2.4%，以及去年第4季的3.4%。
+ <br>
+  <br/>
+  上季消費者支出增長2.5%。個人消費支出(PCE)物價指數上升3.4%，核心PCE物價指數上升3.7%，高於市場預期。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750558-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750558-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 20:42:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      投資基金公會冀全面取消ETF平均資產管理規模要求
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750494-20240425.htm
+     <description>
+      <![CDATA[<img alt="黃王慈明預料，新措施落地後，未必有很多新產品立即加入ETF通，認為不應再將ETF通局限於股票通的框架內。（羅煒皓攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750494_1_L_20240425153610.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 中國證監會推出5項資本市場對港合作措施，包括優化滬深港通機制，放寬滬深港通交易所買賣基金（ETF）資格門檻，將最近6個月日均資產規模要求，由不低於17億元放寬至不低於5.5億元等。
+ <br>
+  <br/>
+  香港投資基金公會行政總裁黃王慈明表示，目前仍未清楚ETF產品的實際擴充範圍，期望監管機構釐清涉及人民幣櫃台股票的基金產品能否納入，暫時難以估算新措施可吸納的資金規模。她又希望，全面取消ETF的平均資產管理規模要求。
+  <br/>
+  <br/>
+  黃王慈明估計，新措施落地後，未必有很多新產品立即加入，因為目前ETF的主要投資目標，仍是港股及大中華相關產品。她認為，內地投資者本身已經在大中華區配置大量資產，監管機構不應再將ETF通局限於股票通的框架內，特別需要將產品覆蓋範圍擴展至多幣種、環球股票及固定收益等產品種類，才能配合投資者的多元化配置需求。
+  <br/>
+  <br/>
+  她強調，香港的基金產品種類齊全，若互聯互通要進一步發展，需要政策方向轉變，才能令機制「起飛」。她以跨境理財通為例，自從銷售限制放寬後，基金銷售表現在數月內以倍數增長，相信若當局大幅放寬ETF通的局限，有助擴大機制的發展空間，令香港成為海外機構服務內地投資者的首選地。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750494-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750494-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 15:48:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      聯交所對中國生態旅遊7名董事採取紀律行動　證監會聯手調查
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750557-20240425.htm
+     <description>
+      <![CDATA[<img alt="證監會與聯交所聯手採取行動，令聯交所最終成功對中國生態旅遊集團，及7名現任和前任董事採取紀律行動。（證監會圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750557_1_L_20240425195552.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 證監會與聯交所聯手採取行動，令聯交所最終成功對中國生態旅遊集團，及7名現任和前任董事採取紀律行動。
+ <br>
+  <br/>
+  有關調查主要針對其干犯失當行為，當中涉及向9名借款人授出13筆約3.63億港元和9100萬元人民幣的貸款，及以3500萬港元收購一家區塊鏈技術公司的37.5%權益。
+  <br/>
+  <br/>
+  聯交所最初在中國生態旅遊截至2019年12月31日止年度業績中，發現與該交易有關的重大減值，並轉介證監會跟進，經調查後有數項重大發現，考慮所有證據後，上市委員會作出裁定，包括紀律行動。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750557-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750557-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 20:03:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      英特爾上季虧損收窄　今季收入預測遜預期
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750619-20240426.htm
+     <description>
+      <![CDATA[<img alt="英特爾預計第2季收入125億至135億美元，經調整後每股盈利10美仙，兩者都少過市場預期。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750619_1_L_20240426085849.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 英特爾首季虧損4億美元，按年收窄86%；經調整後盈利8億美元，轉虧為盈，經調整後每股盈利18美仙。
+ <br>
+  <br/>
+  上季收入127億美元，上升9%。當中數據中心收入增長5%，達到30億美元，代工業務收入下跌10%。
+  <br/>
+  <br/>
+  集團預計第2季收入125億至135億美元，低於市場預期；經調整後每股盈利10美仙，少過市場預期。
+  <br/>
+  <br/>
+  管理層對下半年個人電腦銷售持樂觀態度，認為微軟推出新版Windows操作系統及其他軟件供應商推出新一代產品，將提升個人電腦及公司晶片需求。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750619-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750619-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 09:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日股低收約2.2%　結束3日升勢
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750481-20240425.htm
+     <description>
+      <![CDATA[<img alt="日經指數收報37628點，跌831點，跌幅2.16%，結束3日升勢。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750481_1_L_20240425140629.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 日股結束3日升勢，日經指數收報37628點，跌831點，跌幅2.16%。
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750481-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750481-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 14:28:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美元兌日圓再創34年新高　兌其他主要貨幣下跌
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750602-20240426.htm
+     <description>
+      <![CDATA[<img alt="美元匯價下跌，但兌日圓繼續上升。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750602_1_L_20240426060935.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美元匯價下跌，但兌日圓繼續上升。美國首季經濟表現較預期遜色，但通脹仍然高企，市場關注聯儲局會否進一步推遲減息時間。利率期貨顯示，市場預期美國6月減息的機會約10%，9月減息的機會低於60%，預期今年減息幅度降至約35點子。
+ <br>
+  <br/>
+  日圓兌美元再創34年新低，1美元曾升至155.75日圓，較早時報155.6水平。歐元兌日圓亦觸及16年高位。
+  <br/>
+  <br/>
+  歐元兌美元較早時升至1.073，英鎊兌美元報1.251左右。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750602-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750602-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 06:46:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      中興通訊上季盈利升近4%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750552-20240425.htm
+     <description>
+      <![CDATA[<img alt="中興通訊首季盈利27.4億元人民幣，按年升近4%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750552_1_L_20240425192912.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 中興通訊首季盈利27.4億元人民幣，按年升近4%。
+ <br>
+  <br/>
+  期內，營業收入升近5%，305.8億元。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750552-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750552-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:43:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      法德股市低收近1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750595-20240426.htm
+     <description>
+      <![CDATA[<img alt="法德股市低收近1%" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750595_1_L_20240426045936.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 歐洲主要股市個別發展。
+ <br>
+  <br/>
+  倫敦富時指數收市報8078點，升38點，升幅0.48%。
+  <br/>
+  <br/>
+  巴黎CAC40指數報8016點，跌75點，跌幅0.93%。
+  <br/>
+  <br/>
+  法蘭克福DAX指數報17917點，跌171點，跌幅0.95%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750595-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750595-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 05:11:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      基金界冀ETF通增加投資選擇
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750501-20240425.htm
+     <description>
+      <![CDATA[<img alt="趙善德表示，自從當局計劃放寬ETF通限制後，正研究能否加入更多產品，期望當局能容許加入更多不同類型的產品選擇。（羅煒皓攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750501_1_L_20240425155930.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 惠理基金ETF業務高級策略師趙善德表示，目前旗下只有幾隻基金產品符合滬深港通交易所買賣基金（ETF）資格，自從當局計劃放寬限制後，正研究能否加入更多產品。他期望，當局在未來3個月制訂落實細節時，能加入更多不同類型的產品，例如固定收益及商品，為投資者提供更多選擇。
+ <br>
+  <br/>
+  趙善德說，雖然過去兩年香港及內地市場氣氛不理想，但恒生指數及科技指數ETF仍錄得極大規模淨流入，反映當前疲弱市況下，ETF成為個股以外的投資選擇之一。
+  <br/>
+  <br/>
+  貝萊德Global Product Solutions iShares股票產品策略主管吳宇熙指，近年內地ETF市場出現資金流出，但過去兩個月已見到逆轉，資金開始回流內地ETF產品。他又指，目前機構投資者對投資ETF的接受程度愈來愈高，用作建立投資組合的一部分，估計2030年全球ETF市場規模有機會升至25萬億美元。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750501-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750501-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 16:16:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國上周新申領失業救濟人數減至20.7萬人　少於預期
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750561-20240425.htm
+     <description>
+      <![CDATA[<img alt="美國上星期首次申領失業救濟人數按星期減少5000人，減至20.7萬人。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750561_1_L_20240425210316.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國上星期首次申領失業救濟人數按星期減少5000人，減至20.7萬人，少過市場預期的21.5萬人。
+ <br>
+  <br/>
+  4星期平均值為21.3萬人，按星期減少1250人。
+  <br/>
+  <br/>
+  截至4月13日止一星期，持續申領失業救濟人數減少1.5萬人，減至178.1萬人，少過市場預期的180.5萬人。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750561-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750561-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 20:47:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      人民幣兌美元中間價上調2點子
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750621-20240426.htm
+     <description>
+      <![CDATA[<img alt="人民幣兌美元中間價報7.1056，較上日中間價升2點子。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750621_1_L_20240426092322.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 人民幣兌美元中間價報7.1056，較上日中間價升2點子。
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750621-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750621-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 09:24:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      恒指高收83點　連升4日　再創近5個月收市新高
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750506-20240425.htm
+     <description>
+      <![CDATA[<img alt="恒生指數再創近5個月新高，收市報17284點，升83點，升幅0.48%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750506_1_L_20240425161622.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  港股連升4個交易日，再創近5個月收市新高。恒生指數低開高走，最多曾升近240點，收市報17284點，升83點，升幅0.48%，主板成交額逾1199億元。
@@ -2155,35 +1174,37 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 16:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    基金界冀ETF通增加投資選擇
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750501-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="趙善德表示，自從當局計劃放寬ETF通限制後，正研究能否加入更多產品，期望當局能容許加入更多不同類型的產品選擇。（羅煒皓攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750501_1_L_20240425155930.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 16:21:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      耶倫：經濟表現強勁增長　通脹正向下行
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750576-20240425.htm
+     <description>
+      <![CDATA[<img alt="耶倫表示，GDP數據反映消費和投資支出強勁，認為經濟表現強勁增長。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750576_1_L_20240425225921.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 惠理基金ETF業務高級策略師趙善德表示，目前旗下只有幾隻基金產品符合滬深港通交易所買賣基金（ETF）資格，自從當局計劃放寬限制後，正研究能否加入更多產品。他期望，當局在未來3個月制訂落實細節時，能加入更多不同類型的產品，例如固定收益及商品，為投資者提供更多選擇。
+ 美國上季國內生產總值(GDP)，按季年率初值增長1.6%，差過預期。
  <br>
   <br/>
-  趙善德說，雖然過去兩年香港及內地市場氣氛不理想，但恒生指數及科技指數ETF仍錄得極大規模淨流入，反映當前疲弱市況下，ETF成為個股以外的投資選擇之一。
+  美國財長耶倫表示，GDP數據反映消費和投資支出強勁，認為經濟表現強勁增長。 她指，有關數據之後可能會有修訂，經濟活動的潛在核心驅動力相當強勁。
   <br/>
   <br/>
-  貝萊德Global Product Solutions iShares股票產品策略主管吳宇熙指，近年內地ETF市場出現資金流出，但過去兩個月已見到逆轉，資金開始回流內地ETF產品。他又指，目前機構投資者對投資ETF的接受程度愈來愈高，用作建立投資組合的一部分，估計2030年全球ETF市場規模有機會升至25萬億美元。
+  她表示，就業市場強勁，沒有證據表明工資壓力是通脹的源頭。
+  <br/>
+  <br/>
+  她認為，通脹正向下行，但聯儲局希望看到持續下降的額外證據，又指毫不懷疑房地產對通脹的貢獻將在今年減少。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750501-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750501-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750576-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750576-20240425.htm
  </a>
 </p>
 <p>
@@ -2196,38 +1217,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 16:16:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    投資基金公會冀全面取消ETF平均資產管理規模要求
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750494-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="黃王慈明預料，新措施落地後，未必有很多新產品立即加入ETF通，認為不應再將ETF通局限於股票通的框架內。（羅煒皓攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750494_1_L_20240425153610.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 23:40:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日圓兌跌穿156兌1美元　每百日圓兌港元跌穿5.02
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750646-20240426.htm
+     <description>
+      <![CDATA[<img alt="日本央行議息後，日圓跌勢加劇，跌穿156兌1美元，再創34年新低。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750646_1_L_20240426114012.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 中國證監會推出5項資本市場對港合作措施，包括優化滬深港通機制，放寬滬深港通交易所買賣基金（ETF）資格門檻，將最近6個月日均資產規模要求，由不低於17億元放寬至不低於5.5億元等。
+ 日本央行議息後，日圓跌勢加劇，跌穿156兌1美元，再創34年新低，較早時徘徊156.1附近，跌幅約0.3%。
  <br>
   <br/>
-  香港投資基金公會行政總裁黃王慈明表示，目前仍未清楚ETF產品的實際擴充範圍，期望監管機構釐清涉及人民幣櫃台股票的基金產品能否納入，暫時難以估算新措施可吸納的資金規模。她又希望，全面取消ETF的平均資產管理規模要求。
+  每百日圓兌港元跌穿5.02，較早時跌至5.014附近。
   <br/>
   <br/>
-  黃王慈明估計，新措施落地後，未必有很多新產品立即加入，因為目前ETF的主要投資目標，仍是港股及大中華相關產品。她認為，內地投資者本身已經在大中華區配置大量資產，監管機構不應再將ETF通局限於股票通的框架內，特別需要將產品覆蓋範圍擴展至多幣種、環球股票及固定收益等產品種類，才能配合投資者的多元化配置需求。
-  <br/>
-  <br/>
-  她強調，香港的基金產品種類齊全，若互聯互通要進一步發展，需要政策方向轉變，才能令機制「起飛」。她以跨境理財通為例，自從銷售限制放寬後，基金銷售表現在數月內以倍數增長，相信若當局大幅放寬ETF通的局限，有助擴大機制的發展空間，令香港成為海外機構服務內地投資者的首選地。
+  央行結束一連兩日政策會議，維持短期利率目標於零至0.1厘不變，但在聲明刪去「目前每月購買約6萬億日圓國債」的字眼，並指將按3月的決定買債。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750494-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750494-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750646-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750646-20240426.htm
  </a>
 </p>
 <p>
@@ -2240,38 +1257,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 15:48:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    內地股市收市變動不大
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750492-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="上證綜合指數收市報3052點，升8點，升幅0.27%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750492_1_L_20240425151210.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 12:04:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      布蘭特期油高收逾1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750601-20240426.htm
+     <description>
+      <![CDATA[<img alt="原油期貨價格上升。以色列加強對拉法的空襲行動，推高油價。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750601_1_L_20240426055509.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 滬深股市走勢反覆，收市變動不大。化工、減肥藥、物流相關股份上升；軍工和家電板塊則向下。
+ 原油期貨價格上升。以色列加強對加沙南部城市拉法的空襲行動，市場對中東緊張局勢影響原油供應的憂慮再度升溫，推高油價。
  <br>
   <br/>
-  上證綜合指數收市報3052點，升8點，升幅0.27%。
+  紐約6月期油收市報每桶83.57美元，升76美仙，升幅0.92%。
   <br/>
   <br/>
-  深證成份指數報9264點，升13點，升幅0.14%。
-  <br/>
-  <br/>
-  創業板指數報1764點，跌不足1點。
+  布蘭特6月期油收市報每桶89.01美元，升99美仙，升幅1.12%。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750492-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750492-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750601-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750601-20240426.htm
  </a>
 </p>
 <p>
@@ -2284,28 +1297,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 15:14:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    韓股低收約1.8%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750484-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="首爾綜合指數收報2628點，跌47點，跌幅1.76%。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750484_1_L_20240425143311.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 06:45:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      分析員預期美國今季經濟表現有改善
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750662-20240426.htm
+     <description>
+      <![CDATA[<img alt="溫灼培認為美國首季經濟增長放緩主要由於政府投資減少，相信今季經濟會有改善。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750662_1_L_20240426130127.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 南韓股市低收1.76%，首爾綜合指數收報2628點，跌47點。
+ 美國今年首季經濟增長按季年率放緩至1.6%，遠低於市場預期，亦不及去年第4季增速的一半。首季個人消費開支（PCE）物價指數升至3.4%，遠高於聯儲局2%目標。數字引發市場關注美國出現滯脹風險。
+ <br>
+  <br/>
+  恒生投資首席市場策略員溫灼培認為，美國首季經濟增長放緩，主要由於政府投資減少。他相信，今季經濟表現會有改善。
+  <br/>
+  <br/>
+  至於首季PCE物價指數反映美國通脹率仍然高企，溫灼培同意，將影響聯儲局減息時間，今晚公布的3月PCE物價指數會是市場焦點。
+ </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750484-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750484-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750662-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750662-20240426.htm
  </a>
 </p>
 <p>
@@ -2318,20 +1337,884 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 15:05:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    禤惠儀：美息或維持高位一段較長時間
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750490-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="禤惠儀（右2）表示，近期數據顯示，市場預期減息速度或會放慢，美息或會在高位維持一段較長時間。（張詩民攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750490_1_L_20240425145842.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 13:23:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      謝家曦：隨著內地經濟企穩　有利香港今季貿易表現
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750534-20240425.htm
+     <description>
+      <![CDATA[<img alt="謝家曦表示，內地佔香港出口比重達6成至7成，隨著內地經濟進一步企穩，將有利香港第2季貿易表現。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750534_1_L_20240425181510.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 本港3月出口和進口貨值重拾增長，按年分別升4.7%和5.3%；2月則分別按年跌0.8%和1.8%。首季出口及進口，分別按年上升11.9%和8%。
+ <br>
+  <br/>
+  星展香港經濟研究部經濟師謝家曦表示，受到2月農曆新年的季節性因素影響，貿易商提早或延遲出貨，導致2月貿易數據按年下跌，但3月已回復增長。
+  <br/>
+  <br/>
+  他表示，內地佔香港出口比重達6成至7成，隨著內地經濟進一步企穩，將有利香港第2季貿易表現。
+  <br/>
+  <br/>
+  他又指，美國經濟表現不錯，對中國貨品出口有需求，亦會帶動本港轉口貿易。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750534-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750534-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 18:15:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      香港快運：五一黃金周北亞地區航線預訂率逾9成
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750537-20240425.htm
+     <description>
+      <![CDATA[<img alt="香港快運表示，五一黃金周北亞地區的航線預訂率已超過9成，其中部分南韓航線的預訂率更超過95%。（公司圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750537_1_L_20240425182159.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 香港快運表示，今年首3個月客運業務表現理想，復活節假期間航班平均載客率超過97%。五一黃金周臨近，北亞地區的航線預訂率已超過9成，其中部分南韓航線預訂率更超過95%。
+ <br>
+  <br/>
+  行政總裁毛潔瓊表示，臨近五一黃金周，留意到從內地前往香港，及經香港轉機前往亞洲其他城市的需求穩步增加，又預計在7月傳統暑期旅遊旺季，本地及亞洲其他城市的出行需求將進一步增強。她指，公司將增加東南亞地區航班，包括從周日起將香港與峴港之間的航班從每周10班增加至14班。
+  <br/>
+  <br/>
+  另外，香港快運即日起新增往返泰國曼谷廊曼機場航班，毛潔瓊表示，曼谷廊曼是香港快運於泰國繼蘇凡納布米、清邁及布吉的第4個航點。隨著內地與泰國於今年3月起實施互免簽證政策，預計前往泰國旅遊的需求將有可觀增長，相信可帶動相關航線的銷售。
+  <br/>
+  <br/>
+  她又指，東南亞一直是香港快運重點市場之一，目前東南亞航班班次佔整體的4分1，未來香港快運將繼續擴展亞洲航點，將東北亞、東南亞和內地的航班網絡發展得更平衡，為多元化的客戶群提供全面的航點網絡。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750537-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750537-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:08:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      韓股開市後靠穩
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750613-20240426.htm
+     <description>
+      <![CDATA[<img alt="韓股開市後靠穩" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750613_1_L_20240426081808.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 南韓股市向好。首爾綜合指數較早時報2644點，升15點，升幅0.6%。
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750613-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750613-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 08:20:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      內地股市造好　創業板指數升近2%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750635-20240426.htm
+     <description>
+      <![CDATA[<img alt="內地股市造好　創業板指數升近2%" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750635_1_L_20240426102856.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 滬深股市向好。
+ <br>
+  <br/>
+  上證綜合指數較早時報3067點，升14點，升幅0.47%。
+  <br/>
+  <br/>
+  深證成份指數報9348點，升84點，升幅0.91%。
+  <br/>
+  <br/>
+  創業板指數報1795點，升30點，升幅1.72%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750635-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750635-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 10:29:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日央行維持利率不變　日圓兌美元失守156
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750645-20240426.htm
+     <description>
+      <![CDATA[<img alt="日本央行在政策聲明刪去「目前每月購買約6萬億日圓國債」的字眼。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750645_1_L_20240426113701.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 日本央行維持短期利率目標於零至0.1厘不變，但在聲明中刪去「目前每月購買約6萬億日圓國債」的字眼，並指將按3月的決定買債。
+ <br>
+  <br/>
+  議息結果公布後，美元兌日圓升穿156，較早時報156.1左右。
+  <br/>
+  <br/>
+  央行將2024財政年度核心通脹率預測中值上調至2.8%，高於1月時預測的2.4%；2025財年預測輕微上調至1.9%，2026財年估計維持於1.9%。
+  <br/>
+  <br/>
+  央行表示，必須密切關注金融及外匯市場波動，以及對日本經濟及物價的影響，強調經濟與物價前景存在極高不確定。
+  <br/>
+  <br/>
+  央行指，經濟風險大致平衡，預計經濟增速繼續高於潛在增長率。基礎通脹或會逐步上升，接近央行2%的通脹目標。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750645-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750645-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 11:40:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      韓股升1%收市
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750672-20240426.htm
+     <description>
+      <![CDATA[<img alt="首爾綜合指數收報2656點，升27點，升1%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750672_1_L_20240426144845.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 南韓股市上升。
+ <br>
+  <br/>
+  首爾綜合指數收報2656點，升27點，升1%。
+  <br/>
+  <br/>
+  總結全星期，韓股升2.5%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750672-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750672-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 14:53:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股下午開市後升約2%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750663-20240426.htm
+     <description>
+      <![CDATA[<img alt="恒生指數較早時報17624點，升339點，升幅1.96%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750663_1_L_20240426130707.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 港股下午早段造好。恒生指數較早時報17624點，升339點，升幅1.96%。
+ <br>
+  <br/>
+  科技指數報3689點，升134點，升幅3.79%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750663-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750663-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 13:08:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      環保署指零售為主業務場所貨架上食物視作外賣可用膠杯膠盒
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750566-20240425.htm
+     <description>
+      <![CDATA[<img alt="環保署強調顧客在任何情況下，都不會因購買及使用某些即棄塑膠產品而觸犯法例。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750566_1_L_20240425214545.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 環保署表示，一些以零售為主的業務場所例如超級市場、百貨公司，會銷售已預先包裝可供即時食用的食物例如盒裝壽司、三文治。有關貨品放置在貨架上，供顧客選購，並便利顧客帶離場所，有關業務模式視作外賣，因此可使用膠杯及膠食物盒，顧客在甚麼地方進食，並無關係。
+ <br>
+  <br/>
+  商場或大型百貨公司內的美食廣場，食店一般會按顧客下單而即時製備和提供食物，亦有用餐區供顧客堂食，業務模式基本上與一般餐廳無異，因此美食廣場內的食店須遵守就堂食的餐具管制規定，但如果顧客是購買食品作外賣，則不會被視為提供堂食服務，可使用膠杯和膠食物盒。美食廣場如提供預先包裝可供即時食用的食物例如盒裝壽司、三文治，放置在貨架上，或是透過自動售賣機供顧客選購，同樣視作外賣，亦可使用膠食物盒包裝。
+  <br/>
+  <br/>
+  環保署指出，如果超市在店內的熟食部提供按顧客下單而即時製備的食物例如炒粉麵，並有用餐區供顧客堂食，情況與美食廣場的經營模式相似，亦與一般餐廳無異，因此須遵守就堂食的餐具管制規定，並強調顧客在任何情況下都不會因購買及使用某些即棄塑膠產品而觸犯法例。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750566-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750566-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 21:18:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      陳文博：內地市場仍大有增長空間和發展機會
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750665-20240426.htm
+     <description>
+      <![CDATA[<img alt="陳啟宗（右）稱內地樓市或出現旺市時未見的發展機會；陳文博（左）稱會否在香港投地視乎回報。（張詩民攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750665_1_L_20240426134841.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 恒隆地產及恒隆集團今早舉行股東周年大會，陳啟宗在會後退任兩家公司董事長、執行董事及執行委員會主席職務，由兒子陳文博接替董事長及執行委員會主席。陳啟宗則擔任榮譽董事長。
+ <br>
+  <br/>
+  新任董事長陳文博認為，香港及內地市場都有發展機遇，集團發展重心在內地市場，雖然近期經營環境略有困難，但仍然相信未來大有增長空間和發展機會，視乎如何去把握，相信集團管理團隊及策略足以捕捉機會，特別是高端零售方面。
+  <br/>
+  <br/>
+  他又提到，集團在香港持有不少物業，會否投地則要視乎回報，又指現時利率高企，投資機會相對少過之前，但仍會繼續留意市場。
+  <br/>
+  <br/>
+  另外，陳啟宗表示，目前內地房地產市場不暢旺，在這種環境下，政府期望有更多經濟活動，造就旺市時未能見到的發展機會。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750665-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750665-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 13:24:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股競價時段升51點
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750622-20240426.htm
+     <description>
+      <![CDATA[<img alt="恒生指數競價時段報17336點，升51點。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750622_1_L_20240426092554.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 恒生指數競價時段報17336點，升51點。
+ <br>
+  <br/>
+  科技指數報3568點，升14點。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750622-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750622-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 09:27:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      商務部稱從全球範圍看不是產能過剩而是產能短缺
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
+     <description>
+      <![CDATA[<img alt="商務部回應部分國家對中國產能過剩問題表達關切的提問。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750555_1_L_20240425213839.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在北京，商務部回應部分國家對中國「產能過剩」問題表達關切的提問，發言人何亞東形容炒作毫無道理，中方堅決反對，並指出對新能源來說，從全球範圍看不是產能過剩，而是產能短缺。
+ <br>
+  <br/>
+  何亞東說，新能源產品的需求不斷增長，未來發展潛力巨大。中國新能源產業持續提供可負擔的優質產能，對全球綠色發展作出重要貢獻。他認為有關國家和地區不能一邊高舉綠色發展的大旗，一邊揮舞保護主義的大棒，這是典型的自相矛盾和雙重標準，可以說是一種「雙標主義」。
+  <br/>
+  <br/>
+  何亞東說這樣的做法既會阻滯全球綠色轉型，動搖氣變合作的信心，也會挫傷企業開展對外貿易投資合作的決心。他希望相關國家客觀、理性、全面看待全球新能源市場的需求和中國新能源產業的發展，公正評價中國新能源產品在全球綠色轉型中發揮的重要作用。
+  <br/>
+  <br/>
+  何亞東說願意在堅持市場化原則的基礎上，與各方加強溝通協調，推動產業合作，實現互利共贏，共同推動全球綠色發展。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:46:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股半日升近2%　科指急升近4%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750654-20240426.htm
+     <description>
+      <![CDATA[<img alt="港股半日升幅擴大至近2%，恒生指數中午報17626點，升342點，半日主板成交額724億元。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750654_1_L_20240426121519.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 港股連續5日造好，再創近5個月新高，上試250天移動平均線，半日升幅擴大至近2%。
+ <br>
+  <br/>
+  恒生指數最多曾升逾350點，半日收報17626點，升342點，升幅1.98%，半日主板成交額724億元。
+  <br/>
+  <br/>
+  科技指數半日報3684點，升129點，升幅3.65%。ATMXJ全線上升，京東集團升近5%，小米升4%。
+  <br/>
+  <br/>
+  內房及內需股上升，龍湖及中海外分別升逾9%及近7%，是半日表現最好兩隻藍籌股。海底撈及李寧升近5%或以上。
+  <br/>
+  <br/>
+  多隻藍籌股創52周新高，其中，中海油績後升近5%，最高曾突破20元水平。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750654-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750654-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 12:20:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      紐約期金高收逾4美元
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750597-20240426.htm
+     <description>
+      <![CDATA[<img alt="金價靠穩，因美元下跌。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750597_1_L_20240426051111.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 外圍金價靠穩，因美元下跌。
+ <br>
+  <br/>
+  紐約6月期金收市報每盎士2342.5美元，升4.1美元，升幅約0.18%。
+  <br/>
+  <br/>
+  現貨金在2332美元附近。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750597-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750597-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 05:33:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      耶倫：美國經濟繼續表現得非常好
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750594-20240426.htm
+     <description>
+      <![CDATA[<img alt="耶倫指出，經濟基本面與通脹繼續回落到正常水平保持一致。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750594_1_L_20240426045425.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國今年首季經濟增長按季年率放緩至1.6%，遠低於市場預期，創近兩年最低，不及去年第4季增速的一半。美國財長耶倫表示，不排除數據將被向上修訂。
+ <br>
+  <br/>
+  她接受外電專訪時表示，美國經濟繼續表現得非常良好，消費開支及投資開支表現強勁，亦與去年增長率一致，反映美國仍具潛在實力，但可能存在特殊因素，令潛在實力未能反映。
+  <br/>
+  <br/>
+  美國首季個人消費開支（PCE）物價指數升至3.4%，遠高於聯儲局2%目標。耶倫指出，經濟基本面與通脹繼續回落到正常水平保持一致，不認為經濟其他領域，尤其是就業市場需要轉弱，才能令通脹降到2%目標。
+  <br/>
+  <br/>
+  另外，耶倫承認，美元強勢與其他國家貨幣走勢有分歧，認為強美元反映美國經濟實力及高利率，重申只有在極少數情況下，政府才可以干預外匯市場，重申匯率由市場決定符合七國集團的承諾，亦是美國對主要國家的期望。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750594-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750594-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 05:11:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      運輸署指城巴輸入司機只限非專營巴士服務　署方會繼續監察
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750565-20240425.htm
+     <description>
+      <![CDATA[<img alt="運輸署表示，會詳細及嚴格審視所有申請，以確保每宗申請均符合計劃內的所有要求。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750565_1_L_20240425214343.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 城巴獲當局批准輸入20名內地車長，首批5人會陸續抵港，並準備接受本地駕駛考試。運輸署說，去年6月推出的運輸業輸入勞工計劃，涵蓋公共小巴行業及非專營巴士行業，並不適用於專營巴士車長，有關計劃的申請人必須是公共小巴營辦商或非專營巴士營辦商。
+ <br>
+  <br/>
+  運輸署指出，城巴除了經營兩個巴士專營權外，同時亦持有相關客運營業證提供非專營巴士服務，營運包括居民服務、僱員服務等路線，因此符合資格透過計劃輸入司機駕駛旗下的非專營巴士路線。城巴早前申請並獲批輸入20名非專營巴士司機，輸入司機數目符合每位僱主輸入勞工和本地勞工不高於1：2的人手比例。
+  <br/>
+  <br/>
+  運輸署已清晰地向城巴表示，在計劃下輸入的非專營巴士司機，不可以擔任計劃外的其他工作，包括不可以駕駛專營巴士路線，署方日後會加強監察，如發現有關公司違規，所獲得的輸入司機批准會被撤銷，而隨後兩年內亦不會獲准參與計劃。
+  <br/>
+  <br/>
+  運輸署重申，會詳細及嚴格審視所有申請，以確保每宗申請均符合計劃內的所有要求，包括有否優先聘用本地司機及未能在本港聘得合適司機等情況，最後經考慮跨部門聯絡小組提供的意見後，作出批准或拒絕配額的申請。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750565-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750565-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 21:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      東京4月核心通脹率顯著減慢至1.6%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750624-20240426.htm
+     <description>
+      <![CDATA[<img alt="日本東京地區4月核心消費物價指數按年升幅顯著減慢至1.6%，低於市場預期，亦低於央行2%的通脹目標。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750624_1_L_20240426094203.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 日本東京地區4月核心消費物價指數(CPI)按年升1.6%，升幅比3月的2.4%顯著放緩，並遠低於市場預期的2.2%，亦低於央行2%的通脹目標。
+ <br>
+  <br/>
+  期內，服務價格按年升幅減慢至1.6%，由於東京都政府決定部分學費免費。
+  <br/>
+  <br/>
+  至於剔除生鮮食品及燃料成本的通脹指標，亦放緩至1.8%，是2022年9月以來最慢增速。
+  <br/>
+  <br/>
+  數據顯示，日本央行加息時機及步伐仍有不確定。而央行即將結束為期兩日的政策會議，並將公布直至2027年初的最新通脹預測。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750624-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750624-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 10:00:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      本港去年私人寫字樓空置率升至14.9%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750664-20240426.htm
+     <description>
+      <![CDATA[<img alt="截至去年底，本港私人寫字樓空置率升至14.9%，按年升0.5個百分點。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750664_1_L_20240426131800.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 差餉物業估價署最新《香港物業報告》公布，截至去年底，本港私人寫字樓空置率升至14.9%，按年升0.5個百分點。空置量按年升逾5%，升至196萬平方米。去年第4季整體寫字樓租金按年下跌0.7%，售價下跌7.8%。
+ <br>
+  <br/>
+  至去年底，甲級寫字樓空置率升至16%，按年增加0.9個百分點；空置量亦升近8%至137.7萬平方米。
+  <br/>
+  <br/>
+  去年整體寫字樓落成量15.9萬平方米，按年回落近55%。報告預計，今年落成量將回落至15.6萬平方米，當中甲級寫字樓佔94%；按地區劃分，中西區佔43%。
+  <br/>
+  <br/>
+  另外，包括零售物業在內的私人商業樓宇，去年空置率輕微回落至10.3%，空置量降至121.7萬平方米。報告指，去年第4季零售物業租金按年升3.7%，售價則下跌6.8%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750664-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750664-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 13:38:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      中海油首季盈利升近24%　油氣淨產量升約10%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750523-20240425.htm
+     <description>
+      <![CDATA[<img alt="中海油今年首季盈利397.2億元人民幣，創新高，按年升近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750523_1_L_20240425171023.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 中海油公布，按中國企業會計準則，今年首季盈利397.2億元人民幣，創新高，按年升近24%。
+ <br>
+  <br/>
+  期內，營業收入升逾14%至1114.7億元，油氣銷售收入升逾21%至近900億元，受惠銷量及實現油價上升。
+  <br/>
+  <br/>
+  石油銷售收入升近24%至782億元，平均實現價格每桶78.75美元，按年升逾6%。天然氣銷售收入升近8%至117.7億元，平均實現價格按年跌近8%。
+  <br/>
+  <br/>
+  首季油氣合計的總淨產量升10%至1.8億桶油當量，按年升約10%。其中，中國淨產量升約7%至1.23億桶油當量，海外淨產量升約17%至5690萬桶油當量。
+  <br/>
+  <br/>
+  首季資本支出按年升逾17%至逾290億元。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750523-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750523-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 17:16:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      台股高收逾1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750670-20240426.htm
+     <description>
+      <![CDATA[<img alt="加權指數收報20120點，升 263點，升幅1.32%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750670_1_L_20240426144018.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 台灣股市上升。
+ <br>
+  <br/>
+  加權指數收報20120點，升 263點，升幅1.32%。
+  <br/>
+  <br/>
+  全星期計，台股升3%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750670-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750670-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 14:41:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日股全日升逾300點
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750669-20240426.htm
+     <description>
+      <![CDATA[<img alt="日經指數收報37934點，升306點，升幅0.81%。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750669_1_L_20240426142535.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 東京股市上升。
+ <br>
+  <br/>
+  日經指數收報37934點，升306點，升幅0.81%。
+  <br/>
+  <br/>
+  總結全星期，日股升2.3%。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750669-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750669-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 14:39:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      人行再度逆回購20億元人民幣　完全對沖到期量
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750623-20240426.htm
+     <description>
+      <![CDATA[<img alt="人行公開市場再度開展20億元人民幣7日期逆回購操作，完全對沖今日到期量。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750623_1_L_20240426093243.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 人民銀行公開市場再度開展20億元人民幣7日期逆回購操作，連續19日相同操作量，中標利率維持1.8厘。人行公開市場單日操作量完全對沖到期量。
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750623-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750623-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 09:41:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      禤惠儀：美息或維持高位一段較長時間
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750490-20240425.htm
+     <description>
+      <![CDATA[<img alt="禤惠儀（右2）表示，近期數據顯示，市場預期減息速度或會放慢，美息或會在高位維持一段較長時間。（張詩民攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750490_1_L_20240425145842.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  日本央行前副總裁兼亞太經合組織商貿諮詢理事會(ABAC)日本代表中曾宏表示，市場預期美國利率將會較長時間處於高位，令美元強勢，部分國家因應經濟情況實施寬鬆貨幣政策，導致美國和亞洲新興市場的匯率差異。
@@ -2362,66 +2245,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 14:58:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日股低收約2.2%　結束3日升勢
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750481-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日經指數收報37628點，跌831點，跌幅2.16%，結束3日升勢。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750481_1_L_20240425140629.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 14:58:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股美國預託證券較本港收市個別發展
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750603-20240426.htm
+     <description>
+      <![CDATA[<img alt="滙控美國預託證券較本港收市升逾1%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750603_1_L_20240426062227.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 日股結束3日升勢，日經指數收報37628點，跌831點，跌幅2.16%。
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750481-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750481-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 14:28:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    台股低收約1.4%　回落至2萬點以下
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750482-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="加權指數回落至2萬點以下，收報19857點，跌274點，跌幅1.36%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750482_1_L_20240425141633.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 台股連升兩日後回軟，回落至2萬點以下。
+ 滙控美國預託證券折合65.46港元，較本港收市升逾1%。
  <br>
   <br/>
-  加權指數收報19857點，跌274點，跌幅1.36%。
+  阿里巴巴美國預託證券較本港收市升近1%。
+  <br/>
+  <br/>
+  多隻內銀股的美國預託證券較本港收市都下跌。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750482-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750482-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750603-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750603-20240426.htm
  </a>
 </p>
 <p>
@@ -2434,32 +2285,73 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 14:26:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股下午初段升幅進一步收窄
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750479-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="恒生指數升幅進一步收窄，較早時報17261點，升60點。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750479_1_L_20240425130209.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 06:46:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日股開市後靠穩
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750612-20240426.htm
+     <description>
+      <![CDATA[<img alt="日股開市後靠穩" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750612_1_L_20240426081700.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 港股下午初段靠穩，但恒生指數升幅進一步收窄，較早時報17261點，升60點。
+ 東京股市靠穩。日經指數較早時報37706點，升78點。
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750612-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750612-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 08:19:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      本港去年底住宅空置率回落至4.1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750637-20240426.htm
+     <description>
+      <![CDATA[<img alt="截至去年底，本港私人住宅單位空置率降至4.1%，按年減少0.3個百分點，相當約5.2萬個單位。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750637_1_L_20240426105233.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 差餉物業估價署最新《香港物業報告》公布，去年私人住宅落成量有約1.39萬個單位，按年下跌35%，預測今年及明年的落成量，分別回升至約2.23萬個和2.55萬個單位。當中，九龍城的供應量將佔今年新落成單位26%，元朗則佔16%。
  <br>
   <br/>
-  科技指數變動不大，較早時報3559點，跌13點，跌幅0.38%。
+  另外，去年底的住宅入住量升12%至約1.57萬個單位。
+  <br/>
+  <br/>
+  報告指出，截至去年底，本港私人住宅單位總存量的空置率降至4.1%，按年減少0.3個百分點，相當約5.2萬個單位。
+  <br/>
+  <br/>
+  另外，去年底本港合計有4.23萬個中小型單位空置，空置率回落至3.6%。大型單位空置量則升至9867個，空置率升至10%。
+  <br/>
+  <br/>
+  報告指，展望未來外圍環境複雜，但隨着內地經濟穩步增長，加上政府加大力度吸引和留住資本、企業和人才，並推出一系列盛事活動，以及中央政府支持擴大個人遊計劃，預計這些正面發展將帶動和惠及整體樓市。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750479-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750479-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750637-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750637-20240426.htm
  </a>
 </p>
 <p>
@@ -2472,35 +2364,43 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 13:07:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    有策略師料日圓兌美元跌至158日本當局將出手干預
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750475-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="湯麗鴻估計日圓跌至158兌1美元時，日本當局就會出手干預，以免日圓貶值過急推高通脹。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750475_1_L_20240425124421.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 11:12:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美股下跌　道指跌近1%　投資者憂慮經濟及通脹前景
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750600-20240426.htm
+     <description>
+      <![CDATA[<img alt="美股下跌。美國首季經濟增長按季年率放緩至1.6%，創近兩年最低。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750600_1_L_20240426053212.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 日圓跌穿155兌1美元關口，再創34年新低，在亞洲時段較早時報155.5日圓。每百日圓兌港元在5.04附近徘徊。
+ 紐約股市下跌。美國首季經濟增長按季年率放緩至1.6%，創近兩年最低，不及去年第4季增速的一半；同時通脹高企，首季個人消費開支物價指數上升3.4%，核心指數上升3.7%，兩個數字都高過市場預期，打擊投資者信心。
  <br>
   <br/>
-  日本央行今日開始一連兩日議息，市場關注議息結果。央行總裁植田和男早前表示，如果日圓貶值影響到通脹，不排除會加息。
+  道瓊斯指數收市報38085點，跌375點，跌幅0.98%。
   <br/>
   <br/>
-  光大證券國際環球市場及外匯策略師湯麗鴻認為，當日圓跌至158兌1美元時，日本當局就會出手干預，以免日圓貶值過急，推高通脹，又相信160關口是容忍頂點，但目前仍預計最快要到7月才會加息。
+  納斯達克指數報15611點，跌100點，跌幅0.64%。
+  <br/>
+  <br/>
+  標準普爾500指數報5048點，跌23點，跌幅0.46%。
+  <br/>
+  <br/>
+  部分企業消息令市場失望，股價向下。Meta收市跌逾10%。
+  <br/>
+  <br/>
+  工業股Caterpillar下調第2季銷售預測，股價跌7%。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750475-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750475-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750600-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750600-20240426.htm
  </a>
 </p>
 <p>
@@ -2513,10 +2413,55 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 12:44:00 +0800
-   </pubDate>
-  </item>
- </channel>
-</rss>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 05:33:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      本港3月出口按年回升4.7%　進口轉升5.3%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750516-20240425.htm
+     <description>
+      <![CDATA[<img alt="政府統計處公布，本港上月整體出口按年升4.7%，進口升5.3%，兩者均重拾增長。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750516_1_L_20240425165019.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 本港3月出口和進口貨值按年重拾增長。政府統計處公布，上月整體出口按年升4.7%，進口升5.3%；2月則分別按年跌0.8%和1.8%。3月錄得有形貿易逆差450億元，相等於商品進口貨值的10.5%。
+ <br>
+  <br/>
+  首季出口按年升11.9%，進口升8%，有形貿易逆差836億元，相等於商品進口貨值的7.3%。首季出口按季升5.7%，進口升3.1%。
+  <br/>
+  <br/>
+  首季輸往泰國的整體出口貨值升近39%，輸往阿聯酋和內地均升逾20%；但輸往荷蘭的出口跌約28%。期內，來自南韓的進口貨值升逾58%，越南和泰國分別升約38%和約20%，美國和內地分別升約14%和約10%；但來自印度的進口跌約12%。
+  <br/>
+  <br/>
+  政府發言人表示，地緣政治局勢緊張和偏緊的金融狀況維持更久，仍會繼續影響香港的出口表現。不過，外在需求較預期好，或會提供一些支持，政府會密切留意情況。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750516-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750516-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 16:53:00 +0800
+     </pubdate>
+    </item>
+   </channel>
+  </rss>
+ </body>
+</html>

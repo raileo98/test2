@@ -1,53 +1,499 @@
-<?xml version="1.0" encoding="utf-8"?>
-<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
- <channel>
-  <title>
-   rthk - 國際
-  </title>
-  <link>
-   https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=4&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  </link>
-  <description>
-   rthk - 國際
-  </description>
-  <copyright>
-   © 香港電台 RTHK
-  </copyright>
-  <docs>
-   http://www.rssboard.org/rss-specification
-  </docs>
-  <generator>
-   python-feedgen
-  </generator>
-  <image>
-   <url>
-    <![CDATA[https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fip3%2Fnews.rthk.hk.ico]]>
-   </url>
-   <title>
-    rthk - 國際
-   </title>
-   <link>
+<?xml version='1.0' encoding='UTF-8'?>
+<html>
+ <body>
+  <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+   <channel>
+    <title>
+     rthk - 國際
+    </title>
+    <link/>
     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=4&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-   </link>
-  </image>
-  <language>
-   zh-HK
-  </language>
-  <lastBuildDate>
-   Fri, 26 Apr 2024 06:49:32 +0000
-  </lastBuildDate>
-  <webMaster>
-   webmaster@rthk.hk
-  </webMaster>
-  <item>
-   <title>
-    美國大學校園挺巴人示威再爆衝突　數十人被捕
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750656-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="學生繼續在哥倫比亞大學紥營，以示支持巴勒斯坦人。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750656_1_L_20240426123322.jpg" style="width:100%;height:auto"/>
+    <description>
+     rthk - 國際
+    </description>
+    <copyright>
+     © 香港電台 RTHK
+    </copyright>
+    <docs>
+     http://www.rssboard.org/rss-specification
+    </docs>
+    <generator>
+     python-feedgen
+    </generator>
+    <image>
+     <url>
+      <![CDATA[https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fexternal-content.duckduckgo.com%2Fip3%2Fnews.rthk.hk.ico]]>
+     </url>
+     <title>
+      rthk - 國際
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=4&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
+    </image>
+    <language>
+     zh-HK
+    </language>
+    <lastbuilddate>
+     Fri, 26 Apr 2024 07:13:47 +0000
+    </lastbuilddate>
+    <webmaster>
+     webmaster@rthk.hk
+    </webmaster>
+    <item>
+     <title>
+      《環看天下》：英國會通過盧旺達計劃但歐洲人權法院或再挑戰
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750451-20240425.htm
+     <description>
+      <![CDATA[<img alt="辛偉誠表示英國政府已經訂好飛機，培訓了工作人員，將在10至12個星期內開始遣送非法入境者。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750451_1_L_20240425092808.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 英國國會通過「盧旺達計劃」法案，即是將尋求庇護的非法入境者遣送到盧旺達，在當地辦理庇護申請及重新安置手續。
+ <br>
+  <br/>
+  「盧旺達計劃」在英國朝野及國際間都有爭議。分析指執政保守黨政府民調落後，希望藉著選民對移民問題的焦慮及上馬「盧旺達計劃」，收窄與在野工黨的民意差距。
+  <br/>
+  <br/>
+  分析又指曾阻撓計劃的歐洲人權法院可能會再出手，英國首相辛偉誠表明會無視。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750451-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750451-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 09:28:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      王文濤與西雅爾多共同主持召開中匈經濟聯委會會議
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750419-20240425.htm
+     <description>
+      <![CDATA[<img alt="王文濤與西雅爾多共同主持召開中國匈牙利政府間經濟聯委會第二十次會議。（商務部網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750419_1_L_20240425012256.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 商務部部長王文濤與匈牙利外交與對外經濟部部長西雅爾多，在北京共同主持召開中國匈牙利政府間經濟聯委會第二十次會議。
+ <br>
+  <br/>
+  王文濤表示，今年是兩國建交75周年，中方願與匈方一起，加強發展戰略對接，共同維護自由貿易，反對保護主義，繼續推進高質量共建「一帶一路」，挖掘雙邊經貿合作潛力，加強新能源、基礎設施、交通物流、數字經濟、金融等領域合作。
+  <br/>
+  <br/>
+  西雅爾多表示，匈方高度重視對華關係，將對華合作視為重要機遇，反對「脫鉤斷鏈」和「去風險」。匈方希望推動匈牙利優質農食產品對華出口，鼓勵中國企業赴匈投資，匈方將為中國企業提供開放、公平的營商環境，期待與中方加強新能源、基礎設施和金融等領域務實合作。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750419-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750419-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 01:17:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      俄羅斯國防部副部長伊萬諾夫涉嫌受賄被拘留
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750253-20240424.htm
+     <description>
+      <![CDATA[<img alt="塔斯社報道，伊萬諾夫可能涉嫌收受賄賂至少100萬盧布。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750253_1_L_20240424043314.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 俄羅斯國防部副部長伊萬諾夫涉嫌受賄被拘留。俄羅斯偵查委員會在社交平台公布這個消息時，未有透露細節。
+ <br>
+  <br/>
+  克里姆林宮發言人佩斯科夫說，總統普京和國防部長紹伊古已獲悉有關情況。
+  <br/>
+  <br/>
+  塔斯社報道，伊萬諾夫可能涉嫌收受賄賂至少100萬盧布，將面臨最高15年監禁。
+  <br/>
+  <br/>
+  伊萬諾夫在2016年5月獲任命為國防部副部長，負責武裝部隊財產管理、部隊駐紮、住房和醫療支持等工作。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750253-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750253-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 04:33:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      IAEA調查團首次在日本核污水排海期間實地驗證
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750155-20240423.htm
+     <description>
+      <![CDATA[<img alt="IAEA調查團首次在日本核污水排海期間實地驗證。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750155_1_L_20240423152423.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 國際原子能機構（IAEA）調查團開始實地驗證日本福島第一核電站核污水排海的安全性，是去年8月啟動排海後，調查團第二次到日本。
+ <br>
+  <br/>
+  東京電力公司本月19日開始第五輪排海，在排放作業期間進行驗證屬於首次。調查團在今日至周五的行程中，會與東電及日本政府相關人士開會，並到福島第一核電站實地調查。
+  <br/>
+  <br/>
+  調查團團長、國際原子能機構協調官卡魯索強調，希望這樣的做法和支持機制能再持續數年。
+  <br/>
+  <br/>
+  去年10月調查團到訪日本時，第二輪排海已經結束。國際原子能機構在今年1月的排海作業驗證報告中表示，未發現有不符合國際安全標準要求事項的地方。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750155-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750155-20240423.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 15:17:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      報道指以軍已完成地面進攻拉法的準備　將在接到命令後行動
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750579-20240426.htm
+     <description>
+      <![CDATA[<img alt="以軍周四繼續空襲拉法多間房屋，造成多人死亡，死者包括一名記者。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750579_1_L_20240426005042.jpg" style="width:100%;height:auto"/>
+<img alt="汗尤尼斯市馬瓦西正架設多個帳蓬，一旦以軍對拉法地面行動，將安排被疏散的加沙居民。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750579_2_L_20240426005042.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 以色列戰時內閣星期四再開會，討論如何摧毀巴勒斯坦武裝組織哈馬斯的最後幾個營。
+ <br>
+  <br/>
+  以色列傳媒報道，以軍在戰時內閣會議上表示，已完成針對拉法地面行動的準備工作。以軍總參謀長哈萊維指，在拉法的作戰計劃已提交上「政治層面」，軍方將在接到命令後行動。另有報道指，以軍在拉法的地面行動將分為四個階段。而以軍之前指，一旦命令下達，將撤離拉法的民眾。
+  <br/>
+  <br/>
+  巴勒斯坦傳媒報道，以軍當天早上繼續空襲拉法多間房屋，造成至少8人死亡，死者包括當地一名記者。加沙衛生部門就指，以軍的行動至今已造成超過3萬4300人死亡。
+  <br/>
+  <br/>
+  另一方面，聯合國人員證實，星期三在以軍陪同下視察以美國為首、在加沙中部沿海興建臨時碼頭的工地時遭到迫擊炮襲擊，無人受傷。以軍指責是恐怖分子所為。暫時未有組織承認責任，但哈馬斯之前表示，會抵制任何參與這個項目的外國軍事存在。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750579-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750579-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 00:43:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      布林肯：美中學生彼此交流是兩國避免誤判最好方法
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750499-20240425.htm
+     <description>
+      <![CDATA[<img alt="布林肯上午到上海紐約大學，與師生交流。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750499_1_L_20240425155044.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國國務卿布林肯表示，美中學生彼此交流，是兩國避免誤判的最好方法。
+ <br>
+  <br/>
+  中方過去多次指美國邊境執法人員持續無端滋擾、盤查、遣返中國赴美人員，特別是留學生及學者。正在訪華的美國國務卿布林肯上午到上海紐約大學，與師生交流時表示，支持美中兩國學生交流。他說，美中關係非常複雜，但雙方可以互相交流，例如學生、商業、團體、兩國人民，尤其是在美國學習的中國學生及在中國學習的美國學生，能夠藉此了解對方，了解彼此的國家。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750499-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750499-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 16:26:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      董軍出席於哈薩克舉行的上海合作組織成員國國防部長會議
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750403-20240424.htm
+     <description>
+      <![CDATA[<img alt="董軍應邀出席在哈薩克舉行的上海合作組織成員國國防部長會議。 （國防部網頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750403_1_L_20240424223843.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 國防部長董軍今日起至周五，應邀出席在哈薩克首都阿斯塔納舉行的上海合作組織成員國國防部長會議，並訪問哈薩克。
+ <br>
+  <br/>
+  董軍出席會議期間，將作大會發言，並會見有關國家代表團團長，就國際和地區形勢，以及防務安全合作等議題進行溝通交流。
+  <br/>
+  <br/>
+  訪哈期間，董軍亦將與哈薩克國家和防務部門領導人會面及會談。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750403-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750403-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 21:54:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      妻子涉貪受查　西班牙首相取消公務幾日強調妻子清白
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750486-20240425.htm
+     <description>
+      <![CDATA[<img alt="桑切斯宣布暫停公務決定時強調妻子無做任何違法事情，將捍衛自身榮譽。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750486_1_L_20240425144130.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 西班牙首相桑切斯宣布取消參與公務幾日，考慮是否繼續領導政府，下星期一宣布決定，消息震撼政壇。
+ <br>
+  <br/>
+  當地一個法庭較早時表示，啟動對桑切斯妻子戈麥斯的初步調查，涉及以權謀利及貪腐指控。法庭方面未就事件提供進一步細節，但西班牙一個名為「清白之手」的反貪腐組織，之前指控戈麥斯擔任一間商學院的非洲研究中心主管期間，接受歐洲航空及其控股公司款待，又指控她利用首相夫人的影響力，為課程爭取贊助。
+  <br/>
+  <br/>
+  「清白之手」的領導人被指與西班牙極右翼勢力有聯繫。桑切斯宣布暫停公務決定時強調妻子無做任何違法事情，將捍衛自身榮譽，配合調查及訴訟程序。他形容妻子遭攻擊，對此表示遺憾，他需要停下來反思，是否應該在遭受右翼勢力攻擊的情況下，繼續擔任首相。
+  <br/>
+  <br/>
+  桑切斯獲政壇盟友聲援，但最大在野黨、中右翼人民黨批評桑切斯扮演受害者角色，他需要做的事不是消失幾日，而是坦白交代這次醜聞。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750486-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750486-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 14:38:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      中方籲各國盡快對近東救濟工程處恢復提供資金
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750513-20240425.htm
+     <description>
+      <![CDATA[<img alt="汪文斌表示，中方支持聯合國不斷改進工程處工作，反對針對工程處的攻擊和打壓。（外交部網頁截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750513_1_L_20240425164347.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在北京，外交部回應聯合國近日發布獨立審查組對近東巴勒斯坦難民救濟和工程處的審查報告，當中指出工程處有大量確保機構中立性的機制，而以色列仍未提供工程處員工涉恐的證據。
+ <br>
+  <br/>
+  發言人汪文斌表示，審查報告為聯合國近東巴勒斯坦難民救濟和工程處遵守中立性正名，並就完善工程處工作提出建議。中方支持聯合國不斷改進工程處工作，反對針對工程處的攻擊和打壓，呼籲尚未恢復對工程處供資的國家盡快恢復供資。中方將加大對工程處的支持，為緩解加沙人道危機作出應有貢獻。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750513-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750513-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 16:48:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      5人疑非法橫越英倫海峽期間死亡　英內政大臣形容是悲劇
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750209-20240423.htm
+     <description>
+      <![CDATA[<img alt="祁湛明說英國政府正盡一切努力結束人口販運的勾當。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750209_1_L_20240423194850.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 5人坐船懷疑非法橫越英倫海峽期間死亡，包括3名男子、一名婦女及一名兒童。法國當局指他們試圖從當地渡海前往英國時，船隻遇險。海岸防衛隊就說，事發在當地周二凌晨5時左右，涉事船隻載有110人，屬於超載，出海後船上發生事故，導致有人遇難。
+ <br>
+  <br/>
+  海岸防衛隊及警方未有透露救起幾多人或有多少人失蹤，有傳媒拍攝到英國邊防部隊船隻，載著超過20名穿著救生衣的懷疑非法移民。
+  <br/>
+  <br/>
+  英國內政大臣祁湛明形容事件是悲劇，又說政府正盡一切努力結束人口販運的勾當。事發在英國國會兩院通過將非法入境者，遣送至非洲國家盧旺達的計劃。政府指法案具里程碑意義，生效後可阻止人口販運。不過惹來人權組織批評，聯合國及歐盟委員會等機構亦呼籲英國三思。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750209-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750209-20240423.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 19:30:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      俄羅斯傳媒報道普京表示計劃下月訪問中國
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750578-20240425.htm
+     <description>
+      <![CDATA[<img alt="普京出席俄羅斯工業家和企業家聯盟活動。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750578_1_L_20240425235558.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 俄羅斯傳媒報道，俄羅斯總統普京在出席俄羅斯工業家和企業家聯盟活動時表示，他計劃於下月訪問中國。
+ <br>
+  <br/>
+  報道指，普京沒有明確說明訪華的具體日期，但考慮到他提到的月份，這次訪問可能會是普京開啟新任期後的首次出訪。
+  <br/>
+  <br/>
+  克里姆林宮發言人佩斯科夫之前被問到，普京連任後首次出訪的國家是否中國時表示，俄方會及時公布有關消息。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750578-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750578-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 23:55:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國大學校園挺巴人示威再爆衝突　數十人被捕
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750656-20240426.htm
+     <description>
+      <![CDATA[<img alt="學生繼續在哥倫比亞大學紥營，以示支持巴勒斯坦人。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750656_1_L_20240426123322.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  美國大學校園支持巴勒斯坦的示威蔓延，學生與到場驅散的警察再次發生衝突，再有數十人被捕。
@@ -72,20 +518,420 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 12:20:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    金正恩視察多管火箭炮試射
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750611-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="金正恩昨天視察240毫米多管火箭炮試射情況。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750611_1_L_20240426081720.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 12:20:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國阿拉斯加州載有2人飛機墜毀　當局稱未找到生還者
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750273-20240424.htm
+     <description>
+      <![CDATA[<img alt="美國阿拉斯加州載有2人飛機墜毀　當局稱未找到生還者" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750273_1_L_20240424084332.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國阿拉斯加州一架載有兩人的飛機墜毀，當地警方表示，目前未找到生還者。
+ <br>
+  <br/>
+  事發在當地星期二上午，當局說，一架道格拉斯DC-4型飛機在費爾班克斯市附近一條河上墜毀。報道說，事發時飛機衝上河岸的一個陡峭山坡並起火，美國國家運輸安全委員會正調查墜機原因。
+  <br/>
+  <br/>
+  據了解，道格拉斯DC-4型是四引擎螺旋槳飛機，在第二次世界大戰期間廣泛使用，戰爭結束後改為民航飛機，現時多被用作貨機。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750273-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750273-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 08:37:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      一名中國公民在菲律賓潛水時遇溺身亡
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750671-20240426.htm
+     <description>
+      <![CDATA[<img alt="一名中國公民在菲律賓潛水時遇溺身亡" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750671_1_L_20240426144128.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 中國駐菲律賓大使館證實，一名中國公民昨日在菲律賓首都馬尼拉以南的八打雁省馬比尼鎮附近海域潛水時，遇溺身亡。
+ <br>
+  <br/>
+  使館方面表示，已經與當地警局確認情況，並與當事人的家屬取得聯繫，將全力協助家屬處理後事。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750671-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750671-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 14:54:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      非洲偷渡船事故頻發　吉布提21死23失蹤　突尼斯19死
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750258-20240424.htm
+     <description>
+      <![CDATA[<img alt="非洲偷渡船事故頻發　吉布提21死23失蹤　突尼斯19死" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750258_1_L_20240424053951.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在非洲東北部國家吉布提附近海域，一艘載有非法移民的船隻傾覆，造成至少21人死亡、23人失蹤。
+ <br>
+  <br/>
+  事發在當地星期一晚間，當時船上共載有77名非法移民，當中33人獲救。國際移民組織駐吉布提的工作人員正協助當地相關部門展開搜救工作。
+  <br/>
+  <br/>
+  另外，位於非洲北端的突尼斯亦有偷渡船沉沒，當地海岸警衛隊表示，過去24小時，在東南部斯法克斯省海域和中部地區海域發現19具非法移民的遺體，現已拘捕5人，他們涉嫌組織偷渡活動。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750258-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750258-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 05:39:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      俄羅斯警告若資產被沒收　將考慮降低俄美外交關係
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750580-20240426.htm
+     <description>
+      <![CDATA[<img alt="俄羅斯警告，如果俄方資產被沒收，將考慮降低與美國的外交關係。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750580_1_L_20240426012138.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 俄羅斯警告，如果俄方資產被沒收，將考慮降低與美國的外交關係。
+ <br>
+  <br/>
+  俄羅斯外交部副部長里亞布科夫表示，美方認為有必要在七國集團框架下，討論如何處置被凍結的俄羅斯主權資產，俄方正研究制定反制措施，包括降低外交關係等級，以及對西方國家在俄資產採取行動。
+  <br/>
+  <br/>
+  另一名副外長潘金亦表示，如果西方國家沒收俄羅斯資產，俄方會動用所有機制和工具來回應。他指出，俄方也凍結了足夠多的西方企業資產。如果歐洲和美國朝著這個方向前進，將產生後果。
+  <br/>
+  <br/>
+  俄烏衝突在2022年2月爆發以來，西方凍結了俄羅斯央行約3000億美元資產，其中大部分在歐洲。美國國會日前通過法案，授權美國政府沒收被凍結的俄方資產，用於支持烏克蘭。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750580-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750580-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 01:16:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      中方冀德方有關人員停止借所謂「間諜風險」搞反華政治操弄
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750179-20240423.htm
+     <description>
+      <![CDATA[<img alt="汪文斌說，中方希望德方有關人員摒棄冷戰思維，停止借所謂的「間諜風險」搞反華的政治操弄。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750179_1_L_20240423170750.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在北京，外交部回應有關德國逮捕涉嫌為中國從事間諜活動人士的提問，發言人汪文斌說，注意到有關報道和相關的炒作，近一段時期，所謂的「中國間諜威脅論」在歐洲輿論場並不新鮮。近年來更是每每在中歐雙方高層互動的前後，就會出現新一輪的炒作，這種炒作意圖十分明顯，就是要抹黑打壓中國，破壞中歐的合作氛圍。
+ <br>
+  <br/>
+  汪文斌強調，中方一貫堅持在相互尊重互不干涉內政的原則基礎上，同包括歐洲在內的世界各國開展合作，也在遵守法律法規的基礎上，推進同相關方的互利合作，希望德方有關人員摒棄冷戰思維，停止借所謂的「間諜風險」搞反華的政治操弄。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750179-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750179-20240423.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 17:07:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      拜登簽署援助撥款法案後　美方隨即宣布向烏克蘭提供新一批武器
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750429-20240425.htm
+     <description>
+      <![CDATA[<img alt="拜登稱對外援助撥款法案簽署成法，將令到美國和世界更安全。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750429_1_L_20240425053832.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國總統拜登將國會通過的對外援助撥款法案簽署成為法律，當中包括向烏克蘭提供610億美元援助。
+ <br>
+  <br/>
+  拜登說，這套法律將令到美國和世界更安全，並繼續保持美國在世界上的領導地位。在拜登發表演說幾分鐘後，美國國防部隨即宣布利用這筆新資金，向烏克蘭提供價值10億美元的武器。烏克蘭總統澤連斯基感謝美方的支援，強調這是減少對自由的威脅的唯一途徑。
+  <br/>
+  <br/>
+  另外，美國官員證實，美方上月向烏克蘭秘密付運長程的陸軍戰術導彈，烏方已兩度使用這款導彈，先後攻擊俄軍在克里米亞的機場和在烏克蘭東南部的俄軍。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750429-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750429-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 05:38:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      印度東部有酒店大火至少6死18傷　警方憂死亡人數增加
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750562-20240425.htm
+     <description>
+      <![CDATA[<img alt="印度東部有酒店大火至少6死18傷　警方憂死亡人數增加" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750562_1_L_20240425204824.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 印度東部一間酒店發生大火，至少6人死亡、18人受傷，當局正調查事故起因。
+ <br>
+  <br/>
+  酒店位於比哈爾邦首府帕特納，中午左右起火後，火勢迅速蔓延至鄰近建築物，消防花了3個多小時才將火撲滅，多人被救出後送院治理。
+  <br/>
+  <br/>
+  搜救持續進行，警方憂慮傷亡人數會上升。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750562-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750562-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 21:56:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      朔爾茨稱不能接受針對德國間諜行為　應提高警惕
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750397-20240424.htm
+     <description>
+      <![CDATA[<img alt="朔爾茨（右）與辛偉誠（左）會面，兩人之後共同舉行記者會。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750397_1_L_20240424223445.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 德國總理朔爾茨在柏林與到訪的英國首相辛偉誠會面，兩人之後共同舉行記者會。朔爾茨說不能接受針對德國的間諜行為，無論是來自甚麼國家，又指不應因近期成功拘捕涉嫌從事間諜活動的人而感到自滿，而應該提高警惕，並繼續追查。
+ <br>
+  <br/>
+  報道指朔爾茨與辛偉誠會面時，討論國防與安全合作。在會談開始前，德國政府為辛偉誠舉行歡迎儀式。
+  <br/>
+  <br/>
+  一名參加6月歐盟選舉的德國政客的助理，被指為中方從事間諜活動被捕。在北京，外交部發言人昨日說注意到有關報道及相關炒作，強調所謂中國間諜威脅論在歐洲輿論場不新鮮，炒作意圖十分明顯，就是要抹黑打壓中國，破壞中歐合作氣氛。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750397-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750397-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 20:59:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      外交部：中方一貫依法依規對兩用物項出口進行管制
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750169-20240423.htm
+     <description>
+      <![CDATA[<img alt="外交部稱，中方一貫依法依規，對兩用物項出口進行管制。 （港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750169_1_L_20240423163535.jpg" style="width:100%;height:auto"/>
+<img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在北京，外交部發言人汪文斌說，美方一邊出台大規模援助烏克蘭法案，一邊又對中俄正常的經貿往來進行無端指責，這種做法極其虛偽，也十分不負責任。中方對此堅決反對。
+ <br>
+  <br/>
+  他說，在烏克蘭問題上，中方始終秉持客觀公正立場，積極勸和促談，推動政治解決。中方一貫依法依規，對兩用物項出口進行管制。中國不是烏克蘭危機的製造者和當事方，從不拱火澆油，更不趁機漁利，也不接受甩鍋推責。
+  <br/>
+  <br/>
+  汪文斌強調，中方在平等互利基礎上，同包括俄羅斯在內的世界各國開展正常經貿往來的權利不容干擾和破壞，中方正當權益不容侵犯。奉勸美方只有兼顧各方合理安全關切，通過對話談判建立均衡有效可持續的歐洲安全框架，才是唯一正確選擇。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750169-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750169-20240423.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 16:35:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      也門胡塞武裝在亞丁灣和印度洋襲擊美國和以色列船隻
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750437-20240425.htm
+     <description>
+      <![CDATA[<img alt="也門胡塞武裝持續向途經商隻作出攻擊。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750437_1_L_20240425081828.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 也門胡塞武裝在亞丁灣和印度洋襲擊美國和以色列船隻。
+ <br>
+  <br/>
+  胡塞武裝表示，使用導彈和無人機襲擊在亞丁灣的一艘美國船隻及美軍驅逐艦。另外，亦向印度洋航行的以色列船隻，並聲稱成功造成直接損失。
+  <br/>
+  <br/>
+  美國和以色列暫時未作出回應。
+  <br/>
+  <br/>
+  去年10月新一輪巴以衝突爆發後，也門胡塞武裝使用無人機和導彈多次襲擊紅海水域目標。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750437-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750437-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 08:01:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      金正恩視察多管火箭炮試射
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750611-20240426.htm
+     <description>
+      <![CDATA[<img alt="金正恩昨天視察240毫米多管火箭炮試射情況。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750611_1_L_20240426081720.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  北韓領導人金正恩視察多管火箭炮試射。
@@ -113,20 +959,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 08:10:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    字節跳動稱沒有出售TikTok計劃
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750609-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="拜登已將法案簽署成法，若TikTok不剝離字節跳動，應用程式將被禁上架。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750609_1_L_20240426075652.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 08:10:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      字節跳動稱沒有出售TikTok計劃
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750609-20240426.htm
+     <description>
+      <![CDATA[<img alt="拜登已將法案簽署成法，若TikTok不剝離字節跳動，應用程式將被禁上架。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750609_1_L_20240426075652.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  中國互聯網企業字節跳動表示，有關探討出售TikTok的消息不實，公司沒有任何出售計劃。
@@ -160,903 +1005,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 07:56:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    以總理據報已批准地面進攻拉法計劃　哈馬斯稱以軍無法實現目標
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750593-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="以軍威脅對拉法開展地面進攻行動的同時，繼續空襲拉法多處住宅。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750593_1_L_20240426065428.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 以色列傳媒報道，以色列總理內塔尼亞胡已經批准以軍在加沙南部城市拉法開展地面行動的計劃，預計以色列將很快開始從拉法撤離平民，為發動地面行動做準備。不過，報道指出，內塔尼亞胡仍未下達執行計劃的命令。
- <br>
-  <br/>
-  另外，以軍據報在戰時內閣會議上表示，已完成針對拉法地面行動的準備工作。以軍總參謀長哈萊維指，在拉法的作戰計劃已提交上「政治層面」，軍方將在接到命令後行動。
-  <br/>
-  <br/>
-  巴勒斯坦武裝組織哈馬斯的高級官員哈馬德表示，即使以軍攻入拉法市，亦無法實現擊敗哈馬斯和釋放人質的既定目標。他又說，哈馬斯已與各方對話，討論進攻拉法的嚴重性，而進攻拉法將毫無疑問威脅談判，因為這表示以色列有意繼續戰爭和侵略，並且無意繼續談判並達成協議。
-  <br/>
-  <br/>
-  多家阿拉伯傳媒就報道，埃及代表團今天將抵達以色列，推動以色列與哈馬斯達成停火協議。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750593-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750593-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 04:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    王小洪晤雅畢　冀中緬深化執法安全合作　打擊賭詐等跨境犯罪
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750587-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="王小洪在北京會見緬甸內政部部長雅畢。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750587_1_L_20240426024707.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 國務委員、公安部部長王小洪在北京，會見緬甸內政部部長雅畢。
- <br>
-  <br/>
-  王小洪表示，中緬聯合打擊電信網絡詐騙犯罪取得標誌性重大戰果。中方始終從戰略高度看待和發展中緬關係，願同緬方一起，全面深化執法安全合作，深入開展打擊賭詐、毒品等跨境犯罪行動，加強人員項目安保合作，深化執法能力建設合作，持續推進中緬命運共同體建設，為兩國及本地區安全穩定和繁榮發展作出更大貢獻。
-  <br/>
-  <br/>
-  雅畢表示，願推動兩國執法安全合作取得更加豐碩成果。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750587-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750587-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 02:47:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    耶倫稱不排除任何應對中國產能過剩的選項
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750586-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="耶倫稱中方官員承認存在工業產能過剩的問題。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750586_1_L_20240426023912.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國財長耶倫表示，中國透過出口方式實現充分就業的做法，是世界其他國家所不能接受。她本月出訪中國時，已成功地向中方官員，就中國電動汽車、太陽能電池板和其他清潔能源產品充斥全球市場，威脅美國就業，提出美方的關切。
- <br>
-  <br/>
-  耶倫在接受路透社訪問時又表示，中方官員承認存在工業產能過剩的問題，但他們需要解決這個問題。她說，這個問題不會在短時間內得到解決，重要的是中方認識到有關關切，並開始採取行動予以解決。而在此期間，美方不希望美國的產業被徹底摧毀，所以她不想排除任何選項。
-  <br/>
-  <br/>
-  中國商務部昨日就一些國家指責中國產能過剩時說，這種炒作毫無道理，中方堅決反對，批評有關國家不能一邊高舉綠色發展的大旗，一邊揮舞保護主義的大棒，這是典型的自相矛盾和雙重標準，是一種雙標主義。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750586-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750586-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 02:37:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    董軍晤哈薩克總統稱三股勢力趨於活躍　冀中哈加強戰略協作
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750584-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="董軍晤哈薩克總統稱三股勢力趨於活躍　冀中哈加強戰略協作" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750584_1_L_20240426024218.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 國防部長董軍在阿斯塔納與哈薩克總統托卡耶夫會面時表示，當前，地區安全形勢面臨複雜局面，「三股勢力」趨於活躍。中方願與哈方加強戰略協作，支持彼此核心利益和重大關切，堅定維護國家安全，並為地區熱點問題政治解決發揮建設性作用。中國軍隊願與哈方繼續拓展合作領域，推動兩軍關係深入發展。
- <br>
-  <br/>
-  托卡耶夫表示，哈方將與中方加強戰略溝通協調，攜手應對風險挑戰，共同維護國際及地區和平穩定。哈方重視上海合作組織地位作用，將秉持「上海精神」，積極推進該組織的機制建設與務實合作。
-  <br/>
-  <br/>
-  哈薩克國防部長扎克瑟雷科夫亦為董軍舉行歡迎儀式，雙方就兩軍務實合作、地區安全形勢等深入交換意見。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750584-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750584-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 02:08:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    俄羅斯警告若資產被沒收　將考慮降低俄美外交關係
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750580-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="俄羅斯警告，如果俄方資產被沒收，將考慮降低與美國的外交關係。（Shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750580_1_L_20240426012138.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 俄羅斯警告，如果俄方資產被沒收，將考慮降低與美國的外交關係。
- <br>
-  <br/>
-  俄羅斯外交部副部長里亞布科夫表示，美方認為有必要在七國集團框架下，討論如何處置被凍結的俄羅斯主權資產，俄方正研究制定反制措施，包括降低外交關係等級，以及對西方國家在俄資產採取行動。
-  <br/>
-  <br/>
-  另一名副外長潘金亦表示，如果西方國家沒收俄羅斯資產，俄方會動用所有機制和工具來回應。他指出，俄方也凍結了足夠多的西方企業資產。如果歐洲和美國朝著這個方向前進，將產生後果。
-  <br/>
-  <br/>
-  俄烏衝突在2022年2月爆發以來，西方凍結了俄羅斯央行約3000億美元資產，其中大部分在歐洲。美國國會日前通過法案，授權美國政府沒收被凍結的俄方資產，用於支持烏克蘭。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750580-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750580-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 01:16:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    報道指以軍已完成地面進攻拉法的準備　將在接到命令後行動
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750579-20240426.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="以軍周四繼續空襲拉法多間房屋，造成多人死亡，死者包括一名記者。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750579_1_L_20240426005042.jpg" style="width:100%;height:auto"/>
-<img alt="汗尤尼斯市馬瓦西正架設多個帳蓬，一旦以軍對拉法地面行動，將安排被疏散的加沙居民。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750579_2_L_20240426005042.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 以色列戰時內閣星期四再開會，討論如何摧毀巴勒斯坦武裝組織哈馬斯的最後幾個營。
- <br>
-  <br/>
-  以色列傳媒報道，以軍在戰時內閣會議上表示，已完成針對拉法地面行動的準備工作。以軍總參謀長哈萊維指，在拉法的作戰計劃已提交上「政治層面」，軍方將在接到命令後行動。另有報道指，以軍在拉法的地面行動將分為四個階段。而以軍之前指，一旦命令下達，將撤離拉法的民眾。
-  <br/>
-  <br/>
-  巴勒斯坦傳媒報道，以軍當天早上繼續空襲拉法多間房屋，造成至少8人死亡，死者包括當地一名記者。加沙衛生部門就指，以軍的行動至今已造成超過3萬4300人死亡。
-  <br/>
-  <br/>
-  另一方面，聯合國人員證實，星期三在以軍陪同下視察以美國為首、在加沙中部沿海興建臨時碼頭的工地時遭到迫擊炮襲擊，無人受傷。以軍指責是恐怖分子所為。暫時未有組織承認責任，但哈馬斯之前表示，會抵制任何參與這個項目的外國軍事存在。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750579-20240426.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750579-20240426.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Fri, 26 Apr 2024 00:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    俄羅斯傳媒報道普京表示計劃下月訪問中國
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750578-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="普京出席俄羅斯工業家和企業家聯盟活動。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750578_1_L_20240425235558.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 俄羅斯傳媒報道，俄羅斯總統普京在出席俄羅斯工業家和企業家聯盟活動時表示，他計劃於下月訪問中國。
- <br>
-  <br/>
-  報道指，普京沒有明確說明訪華的具體日期，但考慮到他提到的月份，這次訪問可能會是普京開啟新任期後的首次出訪。
-  <br/>
-  <br/>
-  克里姆林宮發言人佩斯科夫之前被問到，普京連任後首次出訪的國家是否中國時表示，俄方會及時公布有關消息。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750578-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750578-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 23:55:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    印度東部有酒店大火至少6死18傷　警方憂死亡人數增加
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750562-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="印度東部有酒店大火至少6死18傷　警方憂死亡人數增加" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750562_1_L_20240425204824.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 印度東部一間酒店發生大火，至少6人死亡、18人受傷，當局正調查事故起因。
- <br>
-  <br/>
-  酒店位於比哈爾邦首府帕特納，中午左右起火後，火勢迅速蔓延至鄰近建築物，消防花了3個多小時才將火撲滅，多人被救出後送院治理。
-  <br/>
-  <br/>
-  搜救持續進行，警方憂慮傷亡人數會上升。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750562-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750562-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 21:56:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    商務部稱從全球範圍看不是產能過剩而是產能短缺
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="商務部回應部分國家對中國產能過剩問題表達關切的提問。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750555_1_L_20240425213839.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 在北京，商務部回應部分國家對中國「產能過剩」問題表達關切的提問，發言人何亞東形容炒作毫無道理，中方堅決反對，並指出對新能源來說，從全球範圍看不是產能過剩，而是產能短缺。
- <br>
-  <br/>
-  何亞東說，新能源產品的需求不斷增長，未來發展潛力巨大。中國新能源產業持續提供可負擔的優質產能，對全球綠色發展作出重要貢獻。他認為有關國家和地區不能一邊高舉綠色發展的大旗，一邊揮舞保護主義的大棒，這是典型的自相矛盾和雙重標準，可以說是一種「雙標主義」。
-  <br/>
-  <br/>
-  何亞東說這樣的做法既會阻滯全球綠色轉型，動搖氣變合作的信心，也會挫傷企業開展對外貿易投資合作的決心。他希望相關國家客觀、理性、全面看待全球新能源市場的需求和中國新能源產業的發展，公正評價中國新能源產品在全球綠色轉型中發揮的重要作用。
-  <br/>
-  <br/>
-  何亞東說願意在堅持市場化原則的基礎上，與各方加強溝通協調，推動產業合作，實現互利共贏，共同推動全球綠色發展。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:46:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    陳吉寧晤布林肯　稱支持各類企業不斷深耕上海
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750550-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="上海市委書記陳吉寧與布林肯會面。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750550_1_L_20240425192344.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 訪華的美國國務卿布林肯由上海轉抵北京。他今早與上海市委書記陳吉寧會面。
- <br>
-  <br/>
-  內地傳媒報道，陳吉寧說，作為中國的經濟中心城市，開放、創新、包容是上海這座城市最鮮明的品格，上海堅持以人民為中心的發展思想，正奮力把中國式現代化的宏偉藍圖一步步變為美好現實，讓老百姓過上更好的日子。隨著上海產業加速轉型、消費加速升級、科技創新加速發力，為包括美資企業在內的中外企業帶來新的發展機遇、拓展新的合作空間。上海將始終堅持市場化、法治化、國際化方向，持續優化營商環境，提供高效便利服務，支持各類企業不斷深耕上海、實現共贏發展。
-  <br/>
-  <br/>
-  報道說，雙方就經貿往來、科技創新、人文交流等交換意見。布林肯表示，很高興來到上海這座美麗的城市訪問，這裡繁榮的商業商貿和經濟活力令人印象深刻。中國發展有利於世界，美方樂見中國發展富裕。保持對話溝通十分重要，有助避免誤判、管控分歧，促進互利合作。支持美中各層面在有共同利益的領域持續開展合作。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750550-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750550-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美國多校支持巴人的示威蔓延　示威者與執法者及校方陷緊張對峙
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750545-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="警方到南加州大學校園內，試圖驅散不斷聚集的人群，雙方衝突。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750545_1_L_20240425191338.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國大學校園支持巴勒斯坦的示威蔓延，當地星期三多間大學都有學生示威聲援巴勒斯坦人，部分更爆發衝突，示威者與執法人員及校方陷入緊張對峙，多人被捕。
- <br>
-  <br/>
-  紐約州哥倫比亞大學的抗議活動持續約一個星期，幾百名學生露宿校園，警方在校園大門外監視。得克薩斯大學奧斯汀分校爆發新衝突，數百名學生走出課室抗議， 要求校方撤走與以色列有業務往來公司的資金。執法官員說在州長阿博特命令下，身穿防暴裝備的州警拘捕最少20人。在南加州大學，警方到校園內驅散不斷聚集的人群，雙方衝突，緊張對峙形勢不斷加劇。
-  <br/>
-  <br/>
-  報道又指截至當地星期三，爆發示威的院校有幾十間，包括東岸的長春藤聯盟高校、中西部及南部的大型公立學校，以及加州多所大學。學生譴責加沙地帶發生的流血事件，要求以色列結束針對巴勒斯坦人的行動。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750545-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750545-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 19:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美方稱布林肯關切中國非市場經濟行為　中方稱全面履行世貿規則
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750530-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="布林肯飛抵北京首都國際機場。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750530_1_L_20240425181859.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 訪華的美國國務卿布林肯由上海轉抵北京，預料明日與中共中央政治局委員、外長王毅會晤，商討中東危機、俄烏衝突、兩岸關係及南海局勢等議題。
- <br>
-  <br/>
-  美國國務院發言人米勒表示，布林肯早上與上海市委書記陳吉寧會面時，對中國的貿易政策和非市場經濟行為表達關切，強調美國尋求與中國進行健康的經濟競爭，並為在華美國工人及公司提供公平的競爭環境。
-  <br/>
-  <br/>
-  在北京，外交部發言人汪文斌回應時表示，中方一貫依照市場原則進行經貿合作，始終堅定支持多邊貿易體制，全面履行世貿組織規則，希望美方亦切實尊重公平競爭原則，遵守世貿組織規則，同中方相向而行，為推動中美經貿關係健康穩定發展創造有利條件。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750530-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750530-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 18:31:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    布林肯轉抵北京　傍晚與學者閉門會面
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750522-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="
-
-布林肯轉抵北京　傍晚與學者閉門會面
-" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750522_1_L_20240425183147.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國國務卿布林肯由上海轉抵北京訪問，傍晚與學者閉門會面，明日將與中共中央政治局委員、外長王毅會談。
- <br>
-  <br/>
-  布林肯上午與上海市委書記陳吉寧會面。陳吉寧表示，中美關係是當今世界最重要的雙邊關係，雖然並不是一帆風順，但總體上取得歷史性發展。中美選擇對抗或合作，關乎兩國人民的福祉，對世界、人類的前途命運都是一個重大的選擇。
-  <br/>
-  <br/>
-  布林肯強調拜登政府致力與中國直接、持續對話，呼籲中美負責任管理分歧。美方指布林肯向陳吉寧提出關注中國貿易和非市場經濟行為。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750522-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750522-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 17:10:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    中方籲各國盡快對近東救濟工程處恢復提供資金
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750513-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="汪文斌表示，中方支持聯合國不斷改進工程處工作，反對針對工程處的攻擊和打壓。（外交部網頁截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750513_1_L_20240425164347.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 在北京，外交部回應聯合國近日發布獨立審查組對近東巴勒斯坦難民救濟和工程處的審查報告，當中指出工程處有大量確保機構中立性的機制，而以色列仍未提供工程處員工涉恐的證據。
- <br>
-  <br/>
-  發言人汪文斌表示，審查報告為聯合國近東巴勒斯坦難民救濟和工程處遵守中立性正名，並就完善工程處工作提出建議。中方支持聯合國不斷改進工程處工作，反對針對工程處的攻擊和打壓，呼籲尚未恢復對工程處供資的國家盡快恢復供資。中方將加大對工程處的支持，為緩解加沙人道危機作出應有貢獻。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750513-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750513-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 16:48:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    布林肯：美中學生彼此交流是兩國避免誤判最好方法
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750499-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="布林肯上午到上海紐約大學，與師生交流。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750499_1_L_20240425155044.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國國務卿布林肯表示，美中學生彼此交流，是兩國避免誤判的最好方法。
- <br>
-  <br/>
-  中方過去多次指美國邊境執法人員持續無端滋擾、盤查、遣返中國赴美人員，特別是留學生及學者。正在訪華的美國國務卿布林肯上午到上海紐約大學，與師生交流時表示，支持美中兩國學生交流。他說，美中關係非常複雜，但雙方可以互相交流，例如學生、商業、團體、兩國人民，尤其是在美國學習的中國學生及在中國學習的美國學生，能夠藉此了解對方，了解彼此的國家。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750499-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750499-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 16:26:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    國防部：美英澳三方安全伙伴關係擴員嚴重衝擊亞太地區和平穩定
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750496-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="吳謙說，中方堅決反對有關國家拼湊排他性小圈子。（國防部網站）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750496_1_L_20240425154250.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 在北京，國防部發言人吳謙說，美英澳不顧地區國家和國際社會普遍擔憂，不斷釋放擴員信號，嚴重衝擊亞太地區和平穩定，不少地區國家對此深感憂慮。
- <br>
-  <br/>
-  日本正式宣布加入美英澳三方安全伙伴關係。加拿大亦表示，就加入三方安全伴關係展開談判。
-  <br/>
-  <br/>
-  在國防部記者會上，吳謙說，中方此表示嚴重關切，堅決反對有關國家拼湊排他性小圈子，堅決反對任何針對中方的雙邊或多邊軍事同盟，堅決反對製造分裂對抗、搞陣營對立。亞太是和平發展的大舞台，不應成為地緣博弈的競技場，中國是各國合作的伙伴，不是任何國家的挑戰。
-  <br/>
-  <br/>
-  吳謙又說，日方應當深刻汲取歷史教訓，在軍事安全領域謹言慎行。其他國家也應當切實履行國際義務，不要做破壞地區和世界和平穩定的事。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750496-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750496-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 15:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    中巴海上安全部門會晤　稱要共同維護海上安全秩序
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750489-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="中國海警局與巴基斯坦海上安全局在北京舉行第二次高級別會晤。（中國海警局網頁圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750489_1_L_20240425145815.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 中國海警局與巴基斯坦海上安全局在北京舉行第二次高級別會晤，由中國海警局局長郁忠及巴基斯坦海上安全局局長阿里共同主持。
- <br>
-  <br/>
-  雙方共同回顧近年合作成果，對雙方有關加強海上執法合作與交流諒解備忘錄的有效落實給予積極評價，就下一步開展人員互訪、信息交換、培訓交流、艦船訪問、聯合演練等合作，以及共同打擊海上跨國犯罪等議題進行深入交流，並就共同關心的話題交換意見。
-  <br/>
-  <br/>
-  雙方表示，要進一步深化海上務實合作，共同維護海上安全秩序，為推動中巴全天候戰略合作伙伴關係邁向更高水平發揮積極作用。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750489-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750489-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 15:02:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    妻子涉貪受查　西班牙首相取消公務幾日強調妻子清白
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750486-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="桑切斯宣布暫停公務決定時強調妻子無做任何違法事情，將捍衛自身榮譽。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750486_1_L_20240425144130.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 西班牙首相桑切斯宣布取消參與公務幾日，考慮是否繼續領導政府，下星期一宣布決定，消息震撼政壇。
- <br>
-  <br/>
-  當地一個法庭較早時表示，啟動對桑切斯妻子戈麥斯的初步調查，涉及以權謀利及貪腐指控。法庭方面未就事件提供進一步細節，但西班牙一個名為「清白之手」的反貪腐組織，之前指控戈麥斯擔任一間商學院的非洲研究中心主管期間，接受歐洲航空及其控股公司款待，又指控她利用首相夫人的影響力，為課程爭取贊助。
-  <br/>
-  <br/>
-  「清白之手」的領導人被指與西班牙極右翼勢力有聯繫。桑切斯宣布暫停公務決定時強調妻子無做任何違法事情，將捍衛自身榮譽，配合調查及訴訟程序。他形容妻子遭攻擊，對此表示遺憾，他需要停下來反思，是否應該在遭受右翼勢力攻擊的情況下，繼續擔任首相。
-  <br/>
-  <br/>
-  桑切斯獲政壇盟友聲援，但最大在野黨、中右翼人民黨批評桑切斯扮演受害者角色，他需要做的事不是消失幾日，而是坦白交代這次醜聞。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750486-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750486-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 14:38:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美國國務卿布林肯與上海市委書記陳吉寧會晤
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750464-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="布林肯與陳吉寧會晤強調美中需要溝通。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750464_1_L_20240425111108.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國國務卿布林肯繼續訪華行程。他早上與上海市委書記陳吉寧會晤。
- <br>
-  <br/>
-  陳吉寧對布林肯表示歡迎。外電引述陳吉寧表示，兩國元首對話有助中美兩國關係穩定和健康發展，中美選擇合作還是對抗，影響兩國人民的福祉、兩個國家和人類未來，期望布林肯對上海有深切了解和印象。
-  <br/>
-  <br/>
-  布林肯說，美中雙方要負責任地管理分歧。他重申，兩國元首共識是希望繼續保持溝通，直接面對分歧，尋求建立合作。
-  <br/>
-  <br/>
-  布林肯今日在上海亦會與商界領袖會晤。預料布林肯明日會到北京與中共中央政治局委員、外長王毅會晤。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750464-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750464-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 11:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    《環看天下》：英國會通過盧旺達計劃但歐洲人權法院或再挑戰
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750451-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="辛偉誠表示英國政府已經訂好飛機，培訓了工作人員，將在10至12個星期內開始遣送非法入境者。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750451_1_L_20240425092808.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 英國國會通過「盧旺達計劃」法案，即是將尋求庇護的非法入境者遣送到盧旺達，在當地辦理庇護申請及重新安置手續。
- <br>
-  <br/>
-  「盧旺達計劃」在英國朝野及國際間都有爭議。分析指執政保守黨政府民調落後，希望藉著選民對移民問題的焦慮及上馬「盧旺達計劃」，收窄與在野工黨的民意差距。
-  <br/>
-  <br/>
-  分析又指曾阻撓計劃的歐洲人權法院可能會再出手，英國首相辛偉誠表明會無視。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750451-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750451-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 09:28:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    也門胡塞武裝在亞丁灣和印度洋襲擊美國和以色列船隻
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750437-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="也門胡塞武裝持續向途經商隻作出攻擊。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750437_1_L_20240425081828.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 也門胡塞武裝在亞丁灣和印度洋襲擊美國和以色列船隻。
- <br>
-  <br/>
-  胡塞武裝表示，使用導彈和無人機襲擊在亞丁灣的一艘美國船隻及美軍驅逐艦。另外，亦向印度洋航行的以色列船隻，並聲稱成功造成直接損失。
-  <br/>
-  <br/>
-  美國和以色列暫時未作出回應。
-  <br/>
-  <br/>
-  去年10月新一輪巴以衝突爆發後，也門胡塞武裝使用無人機和導彈多次襲擊紅海水域目標。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750437-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750437-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 08:01:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    周受資稱會尋求法庭推翻要求TikTok從母公司剝離的法律
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750435-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="周受資稱會尋求法庭推翻要求TikTok從母公司剝離的法律，並預計TikTok會獲勝。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750435_1_L_20240425072124.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 07:56:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      周受資稱會尋求法庭推翻要求TikTok從母公司剝離的法律
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750435-20240425.htm
+     <description>
+      <![CDATA[<img alt="周受資稱會尋求法庭推翻要求TikTok從母公司剝離的法律，並預計TikTok會獲勝。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750435_1_L_20240425072124.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  美國總統拜登簽署一籃子法案，當中包括要求短片分享平台TikTok在270天內從母公司中國字節跳動剝離，否則將面臨被禁制。
@@ -1087,35 +1048,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 07:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    拜登簽署援助撥款法案後　美方隨即宣布向烏克蘭提供新一批武器
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750429-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="拜登稱對外援助撥款法案簽署成法，將令到美國和世界更安全。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750429_1_L_20240425053832.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 07:21:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      汗尤尼斯醫院發現逾三百具遺體　以軍否認殺害並稱指控毫無依據
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750255-20240424.htm
+     <description>
+      <![CDATA[<img alt="加沙民防部門指過去三天，在汗尤尼斯的納賽爾醫院發現近340具遺體。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750255_1_L_20240424051707.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 美國總統拜登將國會通過的對外援助撥款法案簽署成為法律，當中包括向烏克蘭提供610億美元援助。
+ 以色列和巴勒斯坦武裝組織哈馬斯在加沙爆發的戰爭踏入第200天，當地至今有超過3萬4千人死於以軍行動，而被扣押在加沙的以色列人質估計仍然有129人，但以軍之前指當中34名人質已經死亡。
  <br>
   <br/>
-  拜登說，這套法律將令到美國和世界更安全，並繼續保持美國在世界上的領導地位。在拜登發表演說幾分鐘後，美國國防部隨即宣布利用這筆新資金，向烏克蘭提供價值10億美元的武器。烏克蘭總統澤連斯基感謝美方的支援，強調這是減少對自由的威脅的唯一途徑。
+  在過去三天，加沙南部汗尤尼斯的納賽爾醫院發現近340具遺體，加沙民防部門指，死者是被以軍殺害和埋葬，又指部分死者被發現時雙手雙腳被綁，存在被處決的跡象。以軍回應時就指，有關說法是毫無依據，但指出以軍為搜尋人質，曾檢查被巴勒斯坦人掩埋的遺體，其後已放回原處。
   <br/>
   <br/>
-  另外，美國官員證實，美方上月向烏克蘭秘密付運長程的陸軍戰術導彈，烏方已兩度使用這款導彈，先後攻擊俄軍在克里米亞的機場和在烏克蘭東南部的俄軍。
+  聯合國人權事務高級專員圖爾克呼籲對有關死亡事件展開獨立調查，強調醫療設施受國際法特別保護。美國白宮表示，美方將同以色列討論有關問題，指出醫院的亂葬崗令人深感擔憂，但美方沒有證據證實這些亂葬崗的真實性。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750429-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750429-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750255-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750255-20240424.htm
  </a>
 </p>
 <p>
@@ -1128,41 +1088,198 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 05:38:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    同方威視證實荷蘭和波蘭辦事處遭歐盟競爭監管機構突擊搜查
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750423-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 05:17:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美卿布林肯抵上海　開啟任內第二次訪華行程
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750410-20240424.htm
+     <description>
+      <![CDATA[<img alt="布林肯（左）與美國駐華大使伯恩斯（右）到訪上海豫園。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750410_1_L_20240424225230.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國國務卿布林肯抵達上海，開啟他任內第二次訪華行程。
+ <br>
+  <br/>
+  外界關注布林肯此行會否接力之前訪華的美國財長耶倫，談論所謂的中國產能過剩論。在北京，外交部發言人強調，為中國新能源產業扣上產能過剩帽子，只是為保護主義提供藉口。
+  <br/>
+  <br/>
+  。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750410-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750410-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 22:49:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      董軍晤哈薩克總統稱三股勢力趨於活躍　冀中哈加強戰略協作
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750584-20240426.htm
+     <description>
+      <![CDATA[<img alt="董軍晤哈薩克總統稱三股勢力趨於活躍　冀中哈加強戰略協作" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750584_1_L_20240426024218.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 國防部長董軍在阿斯塔納與哈薩克總統托卡耶夫會面時表示，當前，地區安全形勢面臨複雜局面，「三股勢力」趨於活躍。中方願與哈方加強戰略協作，支持彼此核心利益和重大關切，堅定維護國家安全，並為地區熱點問題政治解決發揮建設性作用。中國軍隊願與哈方繼續拓展合作領域，推動兩軍關係深入發展。
+ <br>
+  <br/>
+  托卡耶夫表示，哈方將與中方加強戰略溝通協調，攜手應對風險挑戰，共同維護國際及地區和平穩定。哈方重視上海合作組織地位作用，將秉持「上海精神」，積極推進該組織的機制建設與務實合作。
+  <br/>
+  <br/>
+  哈薩克國防部長扎克瑟雷科夫亦為董軍舉行歡迎儀式，雙方就兩軍務實合作、地區安全形勢等深入交換意見。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750584-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750584-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 02:08:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      外交部：美方年復一年炮製所謂人權報告　涉華內容充斥政治謊言
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750168-20240423.htm
+     <description>
+      <![CDATA[<img alt="外交部表示，美方年復一年炮製所謂人權報告，涉華內容充斥著政治謊言。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750168_1_L_20240423162435.jpg" style="width:100%;height:auto"/>
+<img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在北京，外交部回應美國國務院發表年度各國人權報告的涉華內容，發言人汪文斌說，美方年復一年炮製所謂「人權報告」，涉華內容充斥著政治謊言和意識形態偏見，中方對此強烈不滿，堅決反對。
+ <br>
+  <br/>
+  他說，美國哈佛大學連續十多年的民調顯示，中國百姓對中國政府的滿意度超過9成。反觀美方的這份所謂人權報告，對全球近200個國家和地區的人權狀況指指點點、說三道四，唯獨漏掉了對方自己，再次暴露出美國霸權霸道霸凌的自私本性和說一套做一套的虛偽雙標。
+  <br/>
+  <br/>
+  汪文斌強調，美方應該做的是反躬自省，首先解決好自身的問題，停止以「人權教師爺」自居，停止對他國人權狀況指指點點，停止打著人權、民主旗號肆意干涉他國內政、侵犯他國人權，對外輸出衝突動亂。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750168-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750168-20240423.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 16:24:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美方稱布林肯關切中國非市場經濟行為　中方稱全面履行世貿規則
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750530-20240425.htm
+     <description>
+      <![CDATA[<img alt="布林肯飛抵北京首都國際機場。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750530_1_L_20240425181859.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 訪華的美國國務卿布林肯由上海轉抵北京，預料明日與中共中央政治局委員、外長王毅會晤，商討中東危機、俄烏衝突、兩岸關係及南海局勢等議題。
+ <br>
+  <br/>
+  美國國務院發言人米勒表示，布林肯早上與上海市委書記陳吉寧會面時，對中國的貿易政策和非市場經濟行為表達關切，強調美國尋求與中國進行健康的經濟競爭，並為在華美國工人及公司提供公平的競爭環境。
+  <br/>
+  <br/>
+  在北京，外交部發言人汪文斌回應時表示，中方一貫依照市場原則進行經貿合作，始終堅定支持多邊貿易體制，全面履行世貿組織規則，希望美方亦切實尊重公平競爭原則，遵守世貿組織規則，同中方相向而行，為推動中美經貿關係健康穩定發展創造有利條件。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750530-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750530-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 18:31:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      布林肯轉抵北京　傍晚與學者閉門會面
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750522-20240425.htm
+     <description>
+      <![CDATA[<img alt="
 
-同方威視證實荷蘭和波蘭辦事處遭歐盟競爭監管機構突擊搜查
-" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750423_1_L_20240425031124.jpg" style="width:100%;height:auto"/>
+布林肯轉抵北京　傍晚與學者閉門會面
+" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750522_1_L_20240425183147.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 中國安檢設備生產商同方威視證實，公司位於荷蘭和波蘭的辦事處，遭到歐盟競爭監管機構的突擊搜查，指調查與外國補貼法規有關，公司正與歐盟委員會合作，並會致力捍衛同方威視作為完全獨立、自給自足的營運商的聲譽。
+ 美國國務卿布林肯由上海轉抵北京訪問，傍晚與學者閉門會面，明日將與中共中央政治局委員、外長王毅會談。
  <br>
   <br/>
-  歐盟中國商會表示，他們獲悉被查企業的資訊科技設備和員工的手機被歐盟監管機構人員扣押，歐盟監管機構人員亦要求取得相關數據。
+  布林肯上午與上海市委書記陳吉寧會面。陳吉寧表示，中美關係是當今世界最重要的雙邊關係，雖然並不是一帆風順，但總體上取得歷史性發展。中美選擇對抗或合作，關乎兩國人民的福祉，對世界、人類的前途命運都是一個重大的選擇。
   <br/>
   <br/>
-  中國商務部批評歐盟委員會的突襲調查，違反正當程序原則，凸顯了歐盟營商環境的進一步惡化，並向所有在歐經營的外國企業傳遞出極其負面的信號。中方對此表示嚴正關切和強烈反對，敦促歐方立即停止和糾正錯誤做法。中方將密切關注歐方後續動向，並採取一切必要措施，堅決維護中國企業的正當權益。
-  <br/>
-  <br/>
-  中國駐歐盟使團亦對事件表示嚴正關切和強烈反對，敦促歐方恪守市場開放承諾和公平競爭原則，停止以各種借口無端打壓和限制中國企業的行為。
+  布林肯強調拜登政府致力與中國直接、持續對話，呼籲中美負責任管理分歧。美方指布林肯向陳吉寧提出關注中國貿易和非市場經濟行為。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750423-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750423-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750522-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750522-20240425.htm
  </a>
 </p>
 <p>
@@ -1175,37 +1292,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 03:08:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    布林肯指這次訪華將致力解決芬太尼等問題並期待會談富有成效
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750422-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="布林肯在美國駐華大使伯恩斯陪同下，到豫園和外灘參觀。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750422_1_L_20240425022807.jpg" style="width:100%;height:auto"/>
-<img alt="布林肯在美國駐華大使伯恩斯陪同下觀看籃球賽。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750422_2_L_20240425022807.jpg" style="width:100%;height:auto"/>
-<img alt="布林肯在外灘拍攝片段，提到此行會與中方討論阻截芬太尼進入美國的問題。（社交網站截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750422_3_L_20240425022807.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 17:10:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國多校支持巴人的示威蔓延　示威者與執法者及校方陷緊張對峙
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750545-20240425.htm
+     <description>
+      <![CDATA[<img alt="警方到南加州大學校園內，試圖驅散不斷聚集的人群，雙方衝突。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750545_1_L_20240425191338.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 美國國務卿布林肯昨日下午抵達上海，展開為期三天的訪華行程。在首天行程中，他在美國駐華大使伯恩斯陪同下，到豫園和外灘參觀，並觀看籃球比賽。
+ 美國大學校園支持巴勒斯坦的示威蔓延，當地星期三多間大學都有學生示威聲援巴勒斯坦人，部分更爆發衝突，示威者與執法人員及校方陷入緊張對峙，多人被捕。
  <br>
   <br/>
-  布林肯晚上在社交網站發布片段，表示他此行將會致力解決對美國人民很重要的問題，包括合成鴉片類藥物芬太尼的問題，指芬太尼是18至49歲美國人的頭號殺手，而總統拜登和國家主席習近平去年年底在三藩市會面時已同意合作，阻止芬太尼和生產原料進入美國。
+  紐約州哥倫比亞大學的抗議活動持續約一個星期，幾百名學生露宿校園，警方在校園大門外監視。得克薩斯大學奧斯汀分校爆發新衝突，數百名學生走出課室抗議， 要求校方撤走與以色列有業務往來公司的資金。執法官員說在州長阿博特命令下，身穿防暴裝備的州警拘捕最少20人。在南加州大學，警方到校園內驅散不斷聚集的人群，雙方衝突，緊張對峙形勢不斷加劇。
   <br/>
   <br/>
-  布林肯又說，訪華期間，他除了與中國政府官員會面之外，亦會與學生、學者、商界領袖、以及為美中兩國建立橋樑和聯繫的人士對話。他說，美方會與中方直接和清晰地溝通，處理美中之間的分歧，強調面對面的外交接觸，對避免誤解、誤判和促進美國人民的利益非常重要。他期待在上海和北京舉行的會議富有成效。
+  報道又指截至當地星期三，爆發示威的院校有幾十間，包括東岸的長春藤聯盟高校、中西部及南部的大型公立學校，以及加州多所大學。學生譴責加沙地帶發生的流血事件，要求以色列結束針對巴勒斯坦人的行動。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750422-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750422-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750545-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750545-20240425.htm
  </a>
 </p>
 <p>
@@ -1218,35 +1332,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 02:22:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    王文濤與西雅爾多共同主持召開中匈經濟聯委會會議
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750419-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="王文濤與西雅爾多共同主持召開中國匈牙利政府間經濟聯委會第二十次會議。（商務部網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750419_1_L_20240425012256.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:11:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      中巴海上安全部門會晤　稱要共同維護海上安全秩序
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750489-20240425.htm
+     <description>
+      <![CDATA[<img alt="中國海警局與巴基斯坦海上安全局在北京舉行第二次高級別會晤。（中國海警局網頁圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750489_1_L_20240425145815.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 商務部部長王文濤與匈牙利外交與對外經濟部部長西雅爾多，在北京共同主持召開中國匈牙利政府間經濟聯委會第二十次會議。
+ 中國海警局與巴基斯坦海上安全局在北京舉行第二次高級別會晤，由中國海警局局長郁忠及巴基斯坦海上安全局局長阿里共同主持。
  <br>
   <br/>
-  王文濤表示，今年是兩國建交75周年，中方願與匈方一起，加強發展戰略對接，共同維護自由貿易，反對保護主義，繼續推進高質量共建「一帶一路」，挖掘雙邊經貿合作潛力，加強新能源、基礎設施、交通物流、數字經濟、金融等領域合作。
+  雙方共同回顧近年合作成果，對雙方有關加強海上執法合作與交流諒解備忘錄的有效落實給予積極評價，就下一步開展人員互訪、信息交換、培訓交流、艦船訪問、聯合演練等合作，以及共同打擊海上跨國犯罪等議題進行深入交流，並就共同關心的話題交換意見。
   <br/>
   <br/>
-  西雅爾多表示，匈方高度重視對華關係，將對華合作視為重要機遇，反對「脫鉤斷鏈」和「去風險」。匈方希望推動匈牙利優質農食產品對華出口，鼓勵中國企業赴匈投資，匈方將為中國企業提供開放、公平的營商環境，期待與中方加強新能源、基礎設施和金融等領域務實合作。
+  雙方表示，要進一步深化海上務實合作，共同維護海上安全秩序，為推動中巴全天候戰略合作伙伴關係邁向更高水平發揮積極作用。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750419-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750419-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750489-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750489-20240425.htm
  </a>
 </p>
 <p>
@@ -1259,20 +1372,183 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 01:17:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    商務部批評歐盟突襲調查中資企業嚴重損害外國企業在歐運營信心
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750418-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="商務部批評歐盟突襲調查中資企業，將採取一切必要措施，堅決維護中國企業的正當權益。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750418_1_L_20240425013341.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 15:02:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      外交部：貿易戰沒有贏家　中方促美方取消對華加徵關稅
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750182-20240423.htm
+     <description>
+      <![CDATA[<img alt="外交部稱，中方將採取一切必要措施捍衛自身權益。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750182_1_L_20240423171204.jpg" style="width:100%;height:auto"/>
+<img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國貿易代表辦公室日前宣布，發起針對中國海事、物流、造船業的301調查。
+ <br>
+  <br/>
+  在北京的外交部例行記者會上，發言人汪文斌再次重申，中方一貫認為，中美經貿關係的本質是互惠互利，貿易戰沒有贏家，美國對華加徵301關稅嚴重干擾中美正常經貿往來，損害兩國企業，特別是美國消費者的利益，已經被世貿組織裁定違反規則。
+  <br/>
+  <br/>
+  汪文斌說，中方敦促美方切實遵守世貿組織規則，取消全部對華加徵的關稅，不得進一步增加關稅。中方將採取一切必要措施捍衛自身權益。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750182-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750182-20240423.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 17:12:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      耶倫稱不排除任何應對中國產能過剩的選項
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750586-20240426.htm
+     <description>
+      <![CDATA[<img alt="耶倫稱中方官員承認存在工業產能過剩的問題。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750586_1_L_20240426023912.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國財長耶倫表示，中國透過出口方式實現充分就業的做法，是世界其他國家所不能接受。她本月出訪中國時，已成功地向中方官員，就中國電動汽車、太陽能電池板和其他清潔能源產品充斥全球市場，威脅美國就業，提出美方的關切。
+ <br>
+  <br/>
+  耶倫在接受路透社訪問時又表示，中方官員承認存在工業產能過剩的問題，但他們需要解決這個問題。她說，這個問題不會在短時間內得到解決，重要的是中方認識到有關關切，並開始採取行動予以解決。而在此期間，美方不希望美國的產業被徹底摧毀，所以她不想排除任何選項。
+  <br/>
+  <br/>
+  中國商務部昨日就一些國家指責中國產能過剩時說，這種炒作毫無道理，中方堅決反對，批評有關國家不能一邊高舉綠色發展的大旗，一邊揮舞保護主義的大棒，這是典型的自相矛盾和雙重標準，是一種雙標主義。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750586-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750586-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 02:37:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      以總理據報已批准地面進攻拉法計劃　哈馬斯稱以軍無法實現目標
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750593-20240426.htm
+     <description>
+      <![CDATA[<img alt="以軍威脅對拉法開展地面進攻行動的同時，繼續空襲拉法多處住宅。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750593_1_L_20240426065428.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 以色列傳媒報道，以色列總理內塔尼亞胡已經批准以軍在加沙南部城市拉法開展地面行動的計劃，預計以色列將很快開始從拉法撤離平民，為發動地面行動做準備。不過，報道指出，內塔尼亞胡仍未下達執行計劃的命令。
+ <br>
+  <br/>
+  另外，以軍據報在戰時內閣會議上表示，已完成針對拉法地面行動的準備工作。以軍總參謀長哈萊維指，在拉法的作戰計劃已提交上「政治層面」，軍方將在接到命令後行動。
+  <br/>
+  <br/>
+  巴勒斯坦武裝組織哈馬斯的高級官員哈馬德表示，即使以軍攻入拉法市，亦無法實現擊敗哈馬斯和釋放人質的既定目標。他又說，哈馬斯已與各方對話，討論進攻拉法的嚴重性，而進攻拉法將毫無疑問威脅談判，因為這表示以色列有意繼續戰爭和侵略，並且無意繼續談判並達成協議。
+  <br/>
+  <br/>
+  多家阿拉伯傳媒就報道，埃及代表團今天將抵達以色列，推動以色列與哈馬斯達成停火協議。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750593-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750593-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 04:50:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      德國再拘一人涉為中國做間諜　中方批評抹黑打壓
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750194-20240423.htm
+     <description>
+      <![CDATA[<img alt="
+
+德國再拘一人涉為中國做間諜　中方批評抹黑打壓
+" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750194_1_L_20240423183314.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 德國再拘捕一人涉嫌為中國做間諜。聯邦檢察院公布，在德累斯頓拘捕一名國會議員助理，指控他監視反華人士，並與中國情報部門分享有關歐洲議會的資訊。德國傳媒報道，該人是德國極右另類選擇黨議員克拉的助理。
+ <br>
+  <br/>
+  在北京，外交部回應德國和英國拘捕或起訴多人涉為中國做間諜，批評兩國炒作中國在歐洲進行間諜活動，意在抹黑打壓，破壞中歐的合作氛圍。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750194-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750194-20240423.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 17:46:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      商務部批評歐盟突襲調查中資企業嚴重損害外國企業在歐運營信心
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750418-20240425.htm
+     <description>
+      <![CDATA[<img alt="商務部批評歐盟突襲調查中資企業，將採取一切必要措施，堅決維護中國企業的正當權益。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750418_1_L_20240425013341.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  歐盟委員會日前突襲在歐中資企業辦公場所，以企業接受外國補貼為名進行檢查。
@@ -1303,38 +1579,36 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 00:47:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    王毅晤西雅爾多　冀匈牙利推動歐盟理性看待中國發展
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750416-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="王毅在北京同匈牙利外長西雅爾多舉行會談。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750416_1_L_20240425012024.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 00:47:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      布林肯指這次訪華將致力解決芬太尼等問題並期待會談富有成效
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750422-20240425.htm
+     <description>
+      <![CDATA[<img alt="布林肯在美國駐華大使伯恩斯陪同下，到豫園和外灘參觀。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750422_1_L_20240425022807.jpg" style="width:100%;height:auto"/>
+<img alt="布林肯在美國駐華大使伯恩斯陪同下觀看籃球賽。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750422_2_L_20240425022807.jpg" style="width:100%;height:auto"/>
+<img alt="布林肯在外灘拍攝片段，提到此行會與中方討論阻截芬太尼進入美國的問題。（社交網站截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750422_3_L_20240425022807.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 中共中央政治局委員、外長王毅在北京，同匈牙利外長西雅爾多舉行會談。
+ 美國國務卿布林肯昨日下午抵達上海，展開為期三天的訪華行程。在首天行程中，他在美國駐華大使伯恩斯陪同下，到豫園和外灘參觀，並觀看籃球比賽。
  <br>
   <br/>
-  王毅說，今年是中匈建交75周年，兩國關係面臨新的重要契機。中方願同匈方保持密切溝通，深化兩國政治互信，推進共建「一帶一路」合作，推動雙邊關係邁向更高水平。王毅又表示，中方讚賞匈方排除干擾和壓力，堅定深化對華合作。匈牙利將接任歐盟輪值主席國，希望匈方推動歐盟理性、友善看待中國發展，奉行更為積極、務實的對華政策，加強中歐戰略溝通，推動中歐關係持續穩定健康發展。
+  布林肯晚上在社交網站發布片段，表示他此行將會致力解決對美國人民很重要的問題，包括合成鴉片類藥物芬太尼的問題，指芬太尼是18至49歲美國人的頭號殺手，而總統拜登和國家主席習近平去年年底在三藩市會面時已同意合作，阻止芬太尼和生產原料進入美國。
   <br/>
   <br/>
-  西雅爾多表示，在當前動蕩的國際形勢下，匈中、歐中關係保持強勁有力發展尤為重要。匈牙利反對「脫鉤斷鏈」，始終認為視中國為威脅只會錯失機遇，把中國當伙伴才是正確選擇。匈牙利歡迎中國進一步加大對匈牙利投資，願在共建「一帶一路」框架下推進重點項目建設，不斷深化匈中各領域互利合作，推動兩國關係再上新台階，促進歐中關係穩定健康發展。
-  <br/>
-  <br/>
-  王毅和西雅爾多亦就烏克蘭危機等共同關心的問題深入交換意見。
+  布林肯又說，訪華期間，他除了與中國政府官員會面之外，亦會與學生、學者、商界領袖、以及為美中兩國建立橋樑和聯繫的人士對話。他說，美方會與中方直接和清晰地溝通，處理美中之間的分歧，強調面對面的外交接觸，對避免誤解、誤判和促進美國人民的利益非常重要。他期待在上海和北京舉行的會議富有成效。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750416-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750416-20240425.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750422-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750422-20240425.htm
  </a>
 </p>
 <p>
@@ -1347,609 +1621,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 00:37:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美卿布林肯抵上海　開啟任內第二次訪華行程
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750410-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="布林肯（左）與美國駐華大使伯恩斯（右）到訪上海豫園。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750410_1_L_20240424225230.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國國務卿布林肯抵達上海，開啟他任內第二次訪華行程。
- <br>
-  <br/>
-  外界關注布林肯此行會否接力之前訪華的美國財長耶倫，談論所謂的中國產能過剩論。在北京，外交部發言人強調，為中國新能源產業扣上產能過剩帽子，只是為保護主義提供藉口。
-  <br/>
-  <br/>
-  。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750410-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750410-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 22:49:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    董軍出席於哈薩克舉行的上海合作組織成員國國防部長會議
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750403-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="董軍應邀出席在哈薩克舉行的上海合作組織成員國國防部長會議。 （國防部網頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750403_1_L_20240424223843.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 國防部長董軍今日起至周五，應邀出席在哈薩克首都阿斯塔納舉行的上海合作組織成員國國防部長會議，並訪問哈薩克。
- <br>
-  <br/>
-  董軍出席會議期間，將作大會發言，並會見有關國家代表團團長，就國際和地區形勢，以及防務安全合作等議題進行溝通交流。
-  <br/>
-  <br/>
-  訪哈期間，董軍亦將與哈薩克國家和防務部門領導人會面及會談。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750403-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750403-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 21:54:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    數匹軍馬不受控於倫敦街頭奔跑　軍方指受地盤噪音影響
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750398-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="軍方指白金漢宮（圖）附近有建築地盤傳出噪音，影響正在操練的馬匹。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750398_1_L_20240424224335.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 英國皇家騎兵隊幾匹軍馬在例行訓練期間不受控，一度在倫敦街頭奔走。
- <br>
-  <br/>
-  報道指其中一匹馬撞到一部停在路邊的雙層巴士，前擋風玻璃碎裂，沒有巴士員工受傷。
-  <br/>
-  <br/>
-  網上有片段顯示，在民眾安撫下，其中一匹馬似乎已平靜下來。
-  <br/>
-  <br/>
-  軍方指5匹走失的馬匹已被尋回，4名士兵墮馬，事件中有人員及馬匹受傷。軍方又指白金漢宮附近有建築地盤傳出噪音，影響正在操練的馬匹。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750398-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750398-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 21:26:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    朔爾茨稱不能接受針對德國間諜行為　應提高警惕
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750397-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="朔爾茨（右）與辛偉誠（左）會面，兩人之後共同舉行記者會。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750397_1_L_20240424223445.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 德國總理朔爾茨在柏林與到訪的英國首相辛偉誠會面，兩人之後共同舉行記者會。朔爾茨說不能接受針對德國的間諜行為，無論是來自甚麼國家，又指不應因近期成功拘捕涉嫌從事間諜活動的人而感到自滿，而應該提高警惕，並繼續追查。
- <br>
-  <br/>
-  報道指朔爾茨與辛偉誠會面時，討論國防與安全合作。在會談開始前，德國政府為辛偉誠舉行歡迎儀式。
-  <br/>
-  <br/>
-  一名參加6月歐盟選舉的德國政客的助理，被指為中方從事間諜活動被捕。在北京，外交部發言人昨日說注意到有關報道及相關炒作，強調所謂中國間諜威脅論在歐洲輿論場不新鮮，炒作意圖十分明顯，就是要抹黑打壓中國，破壞中歐合作氣氛。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750397-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750397-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 20:59:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    布林肯抵達上海　展開三天訪華行程
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750362-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="
-
-布林肯抵達上海　展開三天訪華行程
-" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750362_2_L_20240424183114.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國國務卿布林肯抵達上海，展開三天訪華行程，這是他不足一年內再次訪華。
- <br>
-  <br/>
-  根據美方早前公布，布林肯還會前往北京，與中方官員會面，討論一系列雙邊、地區和全球議題，包括中東危機、烏克蘭戰爭、南海和台海局勢。
-  <br/>
-  <br/>
-  在北京，外交部北美大洋洲司負責人早前表示，中方對布林肯今次訪問，主要聚焦五大目標，包括有效管控分歧和共同承擔大國責任等，強調中方將重點就台灣、經貿科技、南海等問題闡明嚴正立場、提出明確要求。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750362-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750362-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 16:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    供電系統故障　東電暫停排放核污水
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750352-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="東電表示，由於福島第一核電廠的供電系統故障，已暫停排放核污水。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750352_1_L_20240424161135.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 日本東京電力公司表示，由於福島第一核電廠的供電系統於上午10時許故障，已暫停排放核污水，正調查事故原因。
- <br>
-  <br/>
-  東電又說，已檢測核電廠周邊的放射線數值，確認沒有出現異常情況。
-  <br/>
-  <br/>
-  另外，在停電後數分鐘，核電站內一名進行挖掘的工作人員受傷，需送院治理。東電將調查事件與是否與停電有關。
-  <br/>
-  <br/>
-  東電上周五啟動福島第一核電站核污水第五輪排海，預計持續到5月7日，排放總量約7800噸。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750352-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750352-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 16:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    趙樂際︰中國願同墨西哥加強戰略對接
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750296-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="趙樂際說，中墨關係的戰略性、互補性、互利性不斷凸顯。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750296_1_L_20240424105242.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 全國人大常委會委員長趙樂際表示，中國願同墨西哥加強戰略對接，挖掘合作潛力，發揮互補優勢，豐富中墨全面戰略伙伴關係的內涵。
- <br>
-  <br/>
-  趙樂際應墨西哥參議長里維拉邀請，在墨西哥參議院成立200周年慶祝活動上發表視像致辭。他說，中墨兩國建交50多年來，始終在發展道路上相互理解和支持，政治互信日益深化。去年11月，國家主席習近平與墨西哥總統洛佩斯成功會晤，為兩國關係發展提供戰略引領，為雙邊合作擘畫藍圖。中墨關係的戰略性、互補性、互利性不斷凸顯。
-  <br/>
-  <br/>
-  趙樂際指出，中國全國人大同墨西哥聯邦議會一直保持友好交往，希望兩國立法機構深化多層次、多領域交流交往，加強立法、監督等方面經驗交流，為互利合作提供法律支持。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750296-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750296-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 11:01:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美參議院通過對外援助法案　包括限期剝離TikTok
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750292-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國國會參議院通過總值950億美元的對外援助法案。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750292_1_L_20240424103332.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國國會參議院當地星期二晚通過總值950億美元的對外援助法案，包括向烏克蘭提供610億美元援助，另外，亦會向以色列及台灣提供援助。
- <br>
-  <br/>
-  民主黨控制的參議院以79票對18票通過法案。總統拜登說，將於當地星期三簽署法案成為法律，美國今個星期將向烏克蘭提供武器和裝備。
-  <br/>
-  <br/>
-  烏克蘭總統澤連斯基感謝美國參議院通過法案。
-  <br/>
-  <br/>
-  這項一籃子法案共有4部分，日前分拆成4項法案獲眾議院通過，當中包括限期短片分享平台TikTok一年內，從母公司字節跳動剝離，否則將被禁制。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750292-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750292-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 10:33:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    《環看天下》：馬爾代夫親華總統領導政黨選舉獲勝助強化執政優勢
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750282-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="穆伊茲強調自己不是親華派，亦不是親印度派，而是親馬爾地夫派。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750282_1_L_20240424093946.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 馬爾代夫國會選舉，被視為親華派的總統穆伊茲領導的人民國家大會黨，取得壓倒性勝利。有學者形容，這個結果對執政黨而言是「夢幻開局」，有利穆伊茲強化執政優勢。
- <br>
-  <br/>
-  有分析指今次選舉，可被視為親華及親印度路線角力，選後馬爾代夫將進一步向中國靠攏，疏遠印度。
-  <br/>
-  <br/>
-  另有分析就指中國根本無意與印度在任何第三國競爭，相信馬爾代夫政府會推出符合自身長遠利益的內政、外交政策。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750282-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750282-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 09:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美國阿拉斯加州載有2人飛機墜毀　當局稱未找到生還者
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750273-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國阿拉斯加州載有2人飛機墜毀　當局稱未找到生還者" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750273_1_L_20240424084332.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國阿拉斯加州一架載有兩人的飛機墜毀，當地警方表示，目前未找到生還者。
- <br>
-  <br/>
-  事發在當地星期二上午，當局說，一架道格拉斯DC-4型飛機在費爾班克斯市附近一條河上墜毀。報道說，事發時飛機衝上河岸的一個陡峭山坡並起火，美國國家運輸安全委員會正調查墜機原因。
-  <br/>
-  <br/>
-  據了解，道格拉斯DC-4型是四引擎螺旋槳飛機，在第二次世界大戰期間廣泛使用，戰爭結束後改為民航飛機，現時多被用作貨機。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750273-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750273-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 08:37:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    金與正譴責美日韓今年多次針對北韓展開軍演
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750270-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="金與正說，北韓將繼續構建壓倒性、最強的軍事力量。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750270_1_L_20240424081407.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 北韓勞動黨中央委員會副部長金與正透過朝中社發表談話，譴責美日韓今年以來以不同形式多次針對北韓展開軍事演習，導致朝鮮半島局勢緊張。金與正說，北韓為維護自身的主權、安全及地區和平，將繼續構建壓倒性、最強的軍事力量。
- <br>
-  <br/>
-  美國和南韓軍隊近月進行了一系列規模更大、強度更高的演習，以履行兩國領導人有關加強軍事準備應對北韓軍事威脅的承諾。
-  <br/>
-  <br/>
-  根據南韓軍方表示，今個月大約有100架軍用飛機進行了為期兩周的空中演習。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750270-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750270-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 08:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    非洲偷渡船事故頻發　吉布提21死23失蹤　突尼斯19死
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750258-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="非洲偷渡船事故頻發　吉布提21死23失蹤　突尼斯19死" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750258_1_L_20240424053951.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 在非洲東北部國家吉布提附近海域，一艘載有非法移民的船隻傾覆，造成至少21人死亡、23人失蹤。
- <br>
-  <br/>
-  事發在當地星期一晚間，當時船上共載有77名非法移民，當中33人獲救。國際移民組織駐吉布提的工作人員正協助當地相關部門展開搜救工作。
-  <br/>
-  <br/>
-  另外，位於非洲北端的突尼斯亦有偷渡船沉沒，當地海岸警衛隊表示，過去24小時，在東南部斯法克斯省海域和中部地區海域發現19具非法移民的遺體，現已拘捕5人，他們涉嫌組織偷渡活動。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750258-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750258-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 05:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    汗尤尼斯醫院發現逾三百具遺體　以軍否認殺害並稱指控毫無依據
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750255-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="加沙民防部門指過去三天，在汗尤尼斯的納賽爾醫院發現近340具遺體。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750255_1_L_20240424051707.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 以色列和巴勒斯坦武裝組織哈馬斯在加沙爆發的戰爭踏入第200天，當地至今有超過3萬4千人死於以軍行動，而被扣押在加沙的以色列人質估計仍然有129人，但以軍之前指當中34名人質已經死亡。
- <br>
-  <br/>
-  在過去三天，加沙南部汗尤尼斯的納賽爾醫院發現近340具遺體，加沙民防部門指，死者是被以軍殺害和埋葬，又指部分死者被發現時雙手雙腳被綁，存在被處決的跡象。以軍回應時就指，有關說法是毫無依據，但指出以軍為搜尋人質，曾檢查被巴勒斯坦人掩埋的遺體，其後已放回原處。
-  <br/>
-  <br/>
-  聯合國人權事務高級專員圖爾克呼籲對有關死亡事件展開獨立調查，強調醫療設施受國際法特別保護。美國白宮表示，美方將同以色列討論有關問題，指出醫院的亂葬崗令人深感擔憂，但美方沒有證據證實這些亂葬崗的真實性。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750255-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750255-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 05:17:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    俄羅斯國防部副部長伊萬諾夫涉嫌受賄被拘留
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750253-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="塔斯社報道，伊萬諾夫可能涉嫌收受賄賂至少100萬盧布。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750253_1_L_20240424043314.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 俄羅斯國防部副部長伊萬諾夫涉嫌受賄被拘留。俄羅斯偵查委員會在社交平台公布這個消息時，未有透露細節。
- <br>
-  <br/>
-  克里姆林宮發言人佩斯科夫說，總統普京和國防部長紹伊古已獲悉有關情況。
-  <br/>
-  <br/>
-  塔斯社報道，伊萬諾夫可能涉嫌收受賄賂至少100萬盧布，將面臨最高15年監禁。
-  <br/>
-  <br/>
-  伊萬諾夫在2016年5月獲任命為國防部副部長，負責武裝部隊財產管理、部隊駐紮、住房和醫療支持等工作。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750253-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750253-20240424.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 04:33:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    歐洲議會通過法案　禁止涉及強迫勞動產品
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750250-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="歐洲議會555票贊成、6票反對和45票棄權，表決通過有關禁止涉及強迫勞動產品的法案。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750250_1_L_20240424031632.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 02:22:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      歐洲議會通過法案　禁止涉及強迫勞動產品
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750250-20240424.htm
+     <description>
+      <![CDATA[<img alt="歐洲議會555票贊成、6票反對和45票棄權，表決通過有關禁止涉及強迫勞動產品的法案。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750250_1_L_20240424031632.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  歐洲議會通過有關禁止涉及強迫勞動產品的法案，可能會加劇與中國的緊張關係。
@@ -1983,35 +1667,37 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 03:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    俄防長指烏軍至今近50萬人傷亡　俄軍在整個戰線上掌握主動權
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750245-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="紹伊古指，俄軍將繼續執行既定任務，直到特別軍事行動目標完全實現。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750245_1_L_20240424014706.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 03:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      王毅晤西雅爾多　冀匈牙利推動歐盟理性看待中國發展
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750416-20240425.htm
+     <description>
+      <![CDATA[<img alt="王毅在北京同匈牙利外長西雅爾多舉行會談。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750416_1_L_20240425012024.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 俄羅斯國防部長紹伊古表示，自特別軍事行動開始以來，烏克蘭武裝部隊的傷亡人數接近50萬人，並損失大量武器裝備。俄軍各部隊在整個戰線上掌握主動權。
+ 中共中央政治局委員、外長王毅在北京，同匈牙利外長西雅爾多舉行會談。
  <br>
   <br/>
-  紹伊古在國防部部務委員會會議上又說，美國計劃向烏克蘭提供約610億美元的援助，這筆資金的大部分將用於美國國防工業。為應對美西方構成的軍事威脅，俄軍將繼續完善軍隊編制和結構，提高需求量最大的武器裝備產量，將加大對烏克蘭境內西方武器後勤中心和儲存基地的打擊力度。俄軍將繼續執行既定任務，直到特別軍事行動目標完全實現。
+  王毅說，今年是中匈建交75周年，兩國關係面臨新的重要契機。中方願同匈方保持密切溝通，深化兩國政治互信，推進共建「一帶一路」合作，推動雙邊關係邁向更高水平。王毅又表示，中方讚賞匈方排除干擾和壓力，堅定深化對華合作。匈牙利將接任歐盟輪值主席國，希望匈方推動歐盟理性、友善看待中國發展，奉行更為積極、務實的對華政策，加強中歐戰略溝通，推動中歐關係持續穩定健康發展。
   <br/>
   <br/>
-  另外，紹伊古表示，瑞典加入北約加劇了俄羅斯西部和西北部戰略方向的軍事政治緊張局勢。而北約正進行一系列針對俄羅斯的聯合軍事演習，西方國家的此類行動迫使俄方採取充分的應對措施。
+  西雅爾多表示，在當前動蕩的國際形勢下，匈中、歐中關係保持強勁有力發展尤為重要。匈牙利反對「脫鉤斷鏈」，始終認為視中國為威脅只會錯失機遇，把中國當伙伴才是正確選擇。匈牙利歡迎中國進一步加大對匈牙利投資，願在共建「一帶一路」框架下推進重點項目建設，不斷深化匈中各領域互利合作，推動兩國關係再上新台階，促進歐中關係穩定健康發展。
+  <br/>
+  <br/>
+  王毅和西雅爾多亦就烏克蘭危機等共同關心的問題深入交換意見。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750245-20240424.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750245-20240424.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750416-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750416-20240425.htm
  </a>
 </p>
 <p>
@@ -2024,20 +1710,139 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 01:47:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    所羅門群島大選沒有政黨或聯盟獲過半數議席　需談判組建新政府
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750244-20240424.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="所羅門群島新一屆國會選舉結果全部揭曉，沒有政黨或政黨聯盟獲得過半數議席。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750244_1_L_20240424013829.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 00:37:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      《環看天下》：馬爾代夫親華總統領導政黨選舉獲勝助強化執政優勢
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750282-20240424.htm
+     <description>
+      <![CDATA[<img alt="穆伊茲強調自己不是親華派，亦不是親印度派，而是親馬爾地夫派。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750282_1_L_20240424093946.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 馬爾代夫國會選舉，被視為親華派的總統穆伊茲領導的人民國家大會黨，取得壓倒性勝利。有學者形容，這個結果對執政黨而言是「夢幻開局」，有利穆伊茲強化執政優勢。
+ <br>
+  <br/>
+  有分析指今次選舉，可被視為親華及親印度路線角力，選後馬爾代夫將進一步向中國靠攏，疏遠印度。
+  <br/>
+  <br/>
+  另有分析就指中國根本無意與印度在任何第三國競爭，相信馬爾代夫政府會推出符合自身長遠利益的內政、外交政策。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750282-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750282-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 09:39:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      金與正譴責美日韓今年多次針對北韓展開軍演
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750270-20240424.htm
+     <description>
+      <![CDATA[<img alt="金與正說，北韓將繼續構建壓倒性、最強的軍事力量。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750270_1_L_20240424081407.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 北韓勞動黨中央委員會副部長金與正透過朝中社發表談話，譴責美日韓今年以來以不同形式多次針對北韓展開軍事演習，導致朝鮮半島局勢緊張。金與正說，北韓為維護自身的主權、安全及地區和平，將繼續構建壓倒性、最強的軍事力量。
+ <br>
+  <br/>
+  美國和南韓軍隊近月進行了一系列規模更大、強度更高的演習，以履行兩國領導人有關加強軍事準備應對北韓軍事威脅的承諾。
+  <br/>
+  <br/>
+  根據南韓軍方表示，今個月大約有100架軍用飛機進行了為期兩周的空中演習。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750270-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750270-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 08:11:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      陳吉寧晤布林肯　稱支持各類企業不斷深耕上海
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750550-20240425.htm
+     <description>
+      <![CDATA[<img alt="上海市委書記陳吉寧與布林肯會面。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750550_1_L_20240425192344.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 訪華的美國國務卿布林肯由上海轉抵北京。他今早與上海市委書記陳吉寧會面。
+ <br>
+  <br/>
+  內地傳媒報道，陳吉寧說，作為中國的經濟中心城市，開放、創新、包容是上海這座城市最鮮明的品格，上海堅持以人民為中心的發展思想，正奮力把中國式現代化的宏偉藍圖一步步變為美好現實，讓老百姓過上更好的日子。隨著上海產業加速轉型、消費加速升級、科技創新加速發力，為包括美資企業在內的中外企業帶來新的發展機遇、拓展新的合作空間。上海將始終堅持市場化、法治化、國際化方向，持續優化營商環境，提供高效便利服務，支持各類企業不斷深耕上海、實現共贏發展。
+  <br/>
+  <br/>
+  報道說，雙方就經貿往來、科技創新、人文交流等交換意見。布林肯表示，很高興來到上海這座美麗的城市訪問，這裡繁榮的商業商貿和經濟活力令人印象深刻。中國發展有利於世界，美方樂見中國發展富裕。保持對話溝通十分重要，有助避免誤判、管控分歧，促進互利合作。支持美中各層面在有共同利益的領域持續開展合作。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750550-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750550-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:23:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      所羅門群島大選沒有政黨或聯盟獲過半數議席　需談判組建新政府
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750244-20240424.htm
+     <description>
+      <![CDATA[<img alt="所羅門群島新一屆國會選舉結果全部揭曉，沒有政黨或政黨聯盟獲得過半數議席。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750244_1_L_20240424013829.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  所羅門群島新一屆國會選舉結果全部揭曉，總理索加瓦雷領導的「我們的黨」獲得議席最多，但未達到單獨組建政府所需的過半數議席。
@@ -2065,20 +1870,62 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Wed, 24 Apr 2024 01:38:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    普京將於下月7日宣誓就職開啟新一屆俄羅斯總統任期
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750222-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="普京早前承諾竭盡所能，不辜負俄羅斯人民信任。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750222_1_L_20240423212244.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 01:38:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國國務卿布林肯與上海市委書記陳吉寧會晤
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750464-20240425.htm
+     <description>
+      <![CDATA[<img alt="布林肯與陳吉寧會晤強調美中需要溝通。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750464_1_L_20240425111108.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國國務卿布林肯繼續訪華行程。他早上與上海市委書記陳吉寧會晤。
+ <br>
+  <br/>
+  陳吉寧對布林肯表示歡迎。外電引述陳吉寧表示，兩國元首對話有助中美兩國關係穩定和健康發展，中美選擇合作還是對抗，影響兩國人民的福祉、兩個國家和人類未來，期望布林肯對上海有深切了解和印象。
+  <br/>
+  <br/>
+  布林肯說，美中雙方要負責任地管理分歧。他重申，兩國元首共識是希望繼續保持溝通，直接面對分歧，尋求建立合作。
+  <br/>
+  <br/>
+  布林肯今日在上海亦會與商界領袖會晤。預料布林肯明日會到北京與中共中央政治局委員、外長王毅會晤。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750464-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750464-20240425.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 11:11:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      普京將於下月7日宣誓就職開啟新一屆俄羅斯總統任期
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750222-20240423.htm
+     <description>
+      <![CDATA[<img alt="普京早前承諾竭盡所能，不辜負俄羅斯人民信任。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750222_1_L_20240423212244.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  俄羅斯總統普京將於下月7日，宣誓就職開啟新一屆總統任期。
@@ -2106,35 +1953,34 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 21:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    5人疑非法橫越英倫海峽期間死亡　英內政大臣形容是悲劇
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750209-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="祁湛明說英國政府正盡一切努力結束人口販運的勾當。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750209_1_L_20240423194850.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 21:21:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      俄防長指烏軍至今近50萬人傷亡　俄軍在整個戰線上掌握主動權
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750245-20240424.htm
+     <description>
+      <![CDATA[<img alt="紹伊古指，俄軍將繼續執行既定任務，直到特別軍事行動目標完全實現。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750245_1_L_20240424014706.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 5人坐船懷疑非法橫越英倫海峽期間死亡，包括3名男子、一名婦女及一名兒童。法國當局指他們試圖從當地渡海前往英國時，船隻遇險。海岸防衛隊就說，事發在當地周二凌晨5時左右，涉事船隻載有110人，屬於超載，出海後船上發生事故，導致有人遇難。
+ 俄羅斯國防部長紹伊古表示，自特別軍事行動開始以來，烏克蘭武裝部隊的傷亡人數接近50萬人，並損失大量武器裝備。俄軍各部隊在整個戰線上掌握主動權。
  <br>
   <br/>
-  海岸防衛隊及警方未有透露救起幾多人或有多少人失蹤，有傳媒拍攝到英國邊防部隊船隻，載著超過20名穿著救生衣的懷疑非法移民。
+  紹伊古在國防部部務委員會會議上又說，美國計劃向烏克蘭提供約610億美元的援助，這筆資金的大部分將用於美國國防工業。為應對美西方構成的軍事威脅，俄軍將繼續完善軍隊編制和結構，提高需求量最大的武器裝備產量，將加大對烏克蘭境內西方武器後勤中心和儲存基地的打擊力度。俄軍將繼續執行既定任務，直到特別軍事行動目標完全實現。
   <br/>
   <br/>
-  英國內政大臣祁湛明形容事件是悲劇，又說政府正盡一切努力結束人口販運的勾當。事發在英國國會兩院通過將非法入境者，遣送至非洲國家盧旺達的計劃。政府指法案具里程碑意義，生效後可阻止人口販運。不過惹來人權組織批評，聯合國及歐盟委員會等機構亦呼籲英國三思。
+  另外，紹伊古表示，瑞典加入北約加劇了俄羅斯西部和西北部戰略方向的軍事政治緊張局勢。而北約正進行一系列針對俄羅斯的聯合軍事演習，西方國家的此類行動迫使俄方採取充分的應對措施。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750209-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750209-20240423.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750245-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750245-20240424.htm
  </a>
 </p>
 <p>
@@ -2147,35 +1993,35 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 19:30:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    德國再拘一人涉為中國做間諜　中方批評抹黑打壓
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750194-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 01:47:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      馬來西亞兩架軍方直升機相撞後墜毀　機上共十人全部死亡
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750135-20240423.htm
+     <description>
+      <![CDATA[<img alt="其中一架直升機墜落運動場。（央視新聞圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750135_1_L_20240423122317.jpg" style="width:100%;height:auto"/>
+<img alt="
 
-德國再拘一人涉為中國做間諜　中方批評抹黑打壓
-" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750194_1_L_20240423183314.jpg" style="width:100%;height:auto"/>
+馬來西亞兩架軍方直升機相撞後墜毀　機上共十人全部死亡
+" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750135_2_L_20240423132602.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 德國再拘捕一人涉嫌為中國做間諜。聯邦檢察院公布，在德累斯頓拘捕一名國會議員助理，指控他監視反華人士，並與中國情報部門分享有關歐洲議會的資訊。德國傳媒報道，該人是德國極右另類選擇黨議員克拉的助理。
+ 馬來西亞有兩架軍方直升機相撞，機上共10人全部死亡。
  <br>
   <br/>
-  在北京，外交部回應德國和英國拘捕或起訴多人涉為中國做間諜，批評兩國炒作中國在歐洲進行間諜活動，意在抹黑打壓，破壞中歐的合作氛圍。
+  大馬海軍表示，事發在早上9時半左右，當時兩架直升機正在西部霹靂州紅土坎海軍基地，參與海軍建軍日綵排，期間在空中相撞後墜毀，兩架直升機上共10人當場證實死亡，遺體送到陸軍醫院確認身份。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750194-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750194-20240423.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750135-20240423.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750135-20240423.htm
  </a>
 </p>
 <p>
@@ -2188,36 +2034,37 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 17:46:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    外交部：貿易戰沒有贏家　中方促美方取消對華加徵關稅
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750182-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="外交部稱，中方將採取一切必要措施捍衛自身權益。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750182_1_L_20240423171204.jpg" style="width:100%;height:auto"/>
-<img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 12:24:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美參議院通過對外援助法案　包括限期剝離TikTok
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750292-20240424.htm
+     <description>
+      <![CDATA[<img alt="美國國會參議院通過總值950億美元的對外援助法案。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750292_1_L_20240424103332.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 美國貿易代表辦公室日前宣布，發起針對中國海事、物流、造船業的301調查。
+ 美國國會參議院當地星期二晚通過總值950億美元的對外援助法案，包括向烏克蘭提供610億美元援助，另外，亦會向以色列及台灣提供援助。
  <br>
   <br/>
-  在北京的外交部例行記者會上，發言人汪文斌再次重申，中方一貫認為，中美經貿關係的本質是互惠互利，貿易戰沒有贏家，美國對華加徵301關稅嚴重干擾中美正常經貿往來，損害兩國企業，特別是美國消費者的利益，已經被世貿組織裁定違反規則。
+  民主黨控制的參議院以79票對18票通過法案。總統拜登說，將於當地星期三簽署法案成為法律，美國今個星期將向烏克蘭提供武器和裝備。
   <br/>
   <br/>
-  汪文斌說，中方敦促美方切實遵守世貿組織規則，取消全部對華加徵的關稅，不得進一步增加關稅。中方將採取一切必要措施捍衛自身權益。
+  烏克蘭總統澤連斯基感謝美國參議院通過法案。
+  <br/>
+  <br/>
+  這項一籃子法案共有4部分，日前分拆成4項法案獲眾議院通過，當中包括限期短片分享平台TikTok一年內，從母公司字節跳動剝離，否則將被禁制。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750182-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750182-20240423.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750292-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750292-20240424.htm
  </a>
 </p>
 <p>
@@ -2230,32 +2077,37 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 17:12:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    中方冀德方有關人員停止借所謂「間諜風險」搞反華政治操弄
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750179-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="汪文斌說，中方希望德方有關人員摒棄冷戰思維，停止借所謂的「間諜風險」搞反華的政治操弄。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750179_1_L_20240423170750.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 10:33:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      供電系統故障　東電暫停排放核污水
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750352-20240424.htm
+     <description>
+      <![CDATA[<img alt="東電表示，由於福島第一核電廠的供電系統故障，已暫停排放核污水。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750352_1_L_20240424161135.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 在北京，外交部回應有關德國逮捕涉嫌為中國從事間諜活動人士的提問，發言人汪文斌說，注意到有關報道和相關的炒作，近一段時期，所謂的「中國間諜威脅論」在歐洲輿論場並不新鮮。近年來更是每每在中歐雙方高層互動的前後，就會出現新一輪的炒作，這種炒作意圖十分明顯，就是要抹黑打壓中國，破壞中歐的合作氛圍。
+ 日本東京電力公司表示，由於福島第一核電廠的供電系統於上午10時許故障，已暫停排放核污水，正調查事故原因。
  <br>
   <br/>
-  汪文斌強調，中方一貫堅持在相互尊重互不干涉內政的原則基礎上，同包括歐洲在內的世界各國開展合作，也在遵守法律法規的基礎上，推進同相關方的互利合作，希望德方有關人員摒棄冷戰思維，停止借所謂的「間諜風險」搞反華的政治操弄。
+  東電又說，已檢測核電廠周邊的放射線數值，確認沒有出現異常情況。
+  <br/>
+  <br/>
+  另外，在停電後數分鐘，核電站內一名進行挖掘的工作人員受傷，需送院治理。東電將調查事件與是否與停電有關。
+  <br/>
+  <br/>
+  東電上周五啟動福島第一核電站核污水第五輪排海，預計持續到5月7日，排放總量約7800噸。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750179-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750179-20240423.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750352-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750352-20240424.htm
  </a>
 </p>
 <p>
@@ -2268,104 +2120,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 17:07:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    外交部：中方一貫依法依規對兩用物項出口進行管制
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750169-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="外交部稱，中方一貫依法依規，對兩用物項出口進行管制。 （港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750169_1_L_20240423163535.jpg" style="width:100%;height:auto"/>
-<img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 在北京，外交部發言人汪文斌說，美方一邊出台大規模援助烏克蘭法案，一邊又對中俄正常的經貿往來進行無端指責，這種做法極其虛偽，也十分不負責任。中方對此堅決反對。
- <br>
-  <br/>
-  他說，在烏克蘭問題上，中方始終秉持客觀公正立場，積極勸和促談，推動政治解決。中方一貫依法依規，對兩用物項出口進行管制。中國不是烏克蘭危機的製造者和當事方，從不拱火澆油，更不趁機漁利，也不接受甩鍋推責。
-  <br/>
-  <br/>
-  汪文斌強調，中方在平等互利基礎上，同包括俄羅斯在內的世界各國開展正常經貿往來的權利不容干擾和破壞，中方正當權益不容侵犯。奉勸美方只有兼顧各方合理安全關切，通過對話談判建立均衡有效可持續的歐洲安全框架，才是唯一正確選擇。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750169-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750169-20240423.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 16:35:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    外交部：美方年復一年炮製所謂人權報告　涉華內容充斥政治謊言
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750168-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="外交部表示，美方年復一年炮製所謂人權報告，涉華內容充斥著政治謊言。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750168_1_L_20240423162435.jpg" style="width:100%;height:auto"/>
-<img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 在北京，外交部回應美國國務院發表年度各國人權報告的涉華內容，發言人汪文斌說，美方年復一年炮製所謂「人權報告」，涉華內容充斥著政治謊言和意識形態偏見，中方對此強烈不滿，堅決反對。
- <br>
-  <br/>
-  他說，美國哈佛大學連續十多年的民調顯示，中國百姓對中國政府的滿意度超過9成。反觀美方的這份所謂人權報告，對全球近200個國家和地區的人權狀況指指點點、說三道四，唯獨漏掉了對方自己，再次暴露出美國霸權霸道霸凌的自私本性和說一套做一套的虛偽雙標。
-  <br/>
-  <br/>
-  汪文斌強調，美方應該做的是反躬自省，首先解決好自身的問題，停止以「人權教師爺」自居，停止對他國人權狀況指指點點，停止打著人權、民主旗號肆意干涉他國內政、侵犯他國人權，對外輸出衝突動亂。
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750168-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750168-20240423.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>
-]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 16:24:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    外交部：布林肯訪華是中美管控分歧、推進合作的一部分
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750162-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國國務卿布林肯將於明日至周五訪華。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750162_1_L_20240423160536.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 16:11:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      外交部：布林肯訪華是中美管控分歧、推進合作的一部分
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750162-20240423.htm
+     <description>
+      <![CDATA[<img alt="美國國務卿布林肯將於明日至周五訪華。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750162_1_L_20240423160536.jpg" style="width:100%;height:auto"/>
 <img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
@@ -2391,38 +2158,37 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 16:05:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    IAEA調查團首次在日本核污水排海期間實地驗證
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750155-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="IAEA調查團首次在日本核污水排海期間實地驗證。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750155_1_L_20240423152423.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 16:05:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      國防部：美英澳三方安全伙伴關係擴員嚴重衝擊亞太地區和平穩定
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750496-20240425.htm
+     <description>
+      <![CDATA[<img alt="吳謙說，中方堅決反對有關國家拼湊排他性小圈子。（國防部網站）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750496_1_L_20240425154250.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 國際原子能機構（IAEA）調查團開始實地驗證日本福島第一核電站核污水排海的安全性，是去年8月啟動排海後，調查團第二次到日本。
+ 在北京，國防部發言人吳謙說，美英澳不顧地區國家和國際社會普遍擔憂，不斷釋放擴員信號，嚴重衝擊亞太地區和平穩定，不少地區國家對此深感憂慮。
  <br>
   <br/>
-  東京電力公司本月19日開始第五輪排海，在排放作業期間進行驗證屬於首次。調查團在今日至周五的行程中，會與東電及日本政府相關人士開會，並到福島第一核電站實地調查。
+  日本正式宣布加入美英澳三方安全伙伴關係。加拿大亦表示，就加入三方安全伴關係展開談判。
   <br/>
   <br/>
-  調查團團長、國際原子能機構協調官卡魯索強調，希望這樣的做法和支持機制能再持續數年。
+  在國防部記者會上，吳謙說，中方此表示嚴重關切，堅決反對有關國家拼湊排他性小圈子，堅決反對任何針對中方的雙邊或多邊軍事同盟，堅決反對製造分裂對抗、搞陣營對立。亞太是和平發展的大舞台，不應成為地緣博弈的競技場，中國是各國合作的伙伴，不是任何國家的挑戰。
   <br/>
   <br/>
-  去年10月調查團到訪日本時，第二輪排海已經結束。國際原子能機構在今年1月的排海作業驗證報告中表示，未發現有不符合國際安全標準要求事項的地方。
+  吳謙又說，日方應當深刻汲取歷史教訓，在軍事安全領域謹言慎行。其他國家也應當切實履行國際義務，不要做破壞地區和世界和平穩定的事。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750155-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750155-20240423.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750496-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750496-20240425.htm
  </a>
 </p>
 <p>
@@ -2435,20 +2201,19 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 15:17:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    外交部駐港公署批評美方發表人權報告顛倒黑白和干涉中國內政
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750149-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="外交部駐港公署強調，中國政府高度重視、尊重和保障人權。 （外交部駐港公署網頁截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750149_1_L_20240423142646.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 15:42:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      外交部駐港公署批評美方發表人權報告顛倒黑白和干涉中國內政
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750149-20240423.htm
+     <description>
+      <![CDATA[<img alt="外交部駐港公署強調，中國政府高度重視、尊重和保障人權。 （外交部駐港公署網頁截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750149_1_L_20240423142646.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  外交部駐港公署發言人表示，堅決反對美國國務院發表的所謂「2023年人權報告」，強調中國政府高度重視、尊重和保障人權，把促進和保護人權放在重要位置，用法治保障人民的各項權利，又指香港特區以安全守護人權、以發展促進人權、以合作推進人權，批評美方罔顧事實，搬弄是非，顛倒黑白，充分暴露其干涉中國內政和香港事務的險惡用心。
@@ -2485,36 +2250,83 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 14:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    馬來西亞兩架軍方直升機相撞後墜毀　機上共十人全部死亡
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750135-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="其中一架直升機墜落運動場。（央視新聞圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750135_1_L_20240423122317.jpg" style="width:100%;height:auto"/>
-<img alt="
+     </description>
+     <pubdate>
+      Tue, 23 Apr 2024 14:23:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      數匹軍馬不受控於倫敦街頭奔跑　軍方指受地盤噪音影響
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750398-20240424.htm
+     <description>
+      <![CDATA[<img alt="軍方指白金漢宮（圖）附近有建築地盤傳出噪音，影響正在操練的馬匹。（shutterstock）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750398_1_L_20240424224335.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 英國皇家騎兵隊幾匹軍馬在例行訓練期間不受控，一度在倫敦街頭奔走。
+ <br>
+  <br/>
+  報道指其中一匹馬撞到一部停在路邊的雙層巴士，前擋風玻璃碎裂，沒有巴士員工受傷。
+  <br/>
+  <br/>
+  網上有片段顯示，在民眾安撫下，其中一匹馬似乎已平靜下來。
+  <br/>
+  <br/>
+  軍方指5匹走失的馬匹已被尋回，4名士兵墮馬，事件中有人員及馬匹受傷。軍方又指白金漢宮附近有建築地盤傳出噪音，影響正在操練的馬匹。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750398-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750398-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 21:26:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      同方威視證實荷蘭和波蘭辦事處遭歐盟競爭監管機構突擊搜查
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750423-20240425.htm
+     <description>
+      <![CDATA[<img alt="
 
-馬來西亞兩架軍方直升機相撞後墜毀　機上共十人全部死亡
-" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750135_2_L_20240423132602.jpg" style="width:100%;height:auto"/>
+同方威視證實荷蘭和波蘭辦事處遭歐盟競爭監管機構突擊搜查
+" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750423_1_L_20240425031124.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 馬來西亞有兩架軍方直升機相撞，機上共10人全部死亡。
+ 中國安檢設備生產商同方威視證實，公司位於荷蘭和波蘭的辦事處，遭到歐盟競爭監管機構的突擊搜查，指調查與外國補貼法規有關，公司正與歐盟委員會合作，並會致力捍衛同方威視作為完全獨立、自給自足的營運商的聲譽。
  <br>
   <br/>
-  大馬海軍表示，事發在早上9時半左右，當時兩架直升機正在西部霹靂州紅土坎海軍基地，參與海軍建軍日綵排，期間在空中相撞後墜毀，兩架直升機上共10人當場證實死亡，遺體送到陸軍醫院確認身份。
+  歐盟中國商會表示，他們獲悉被查企業的資訊科技設備和員工的手機被歐盟監管機構人員扣押，歐盟監管機構人員亦要求取得相關數據。
+  <br/>
+  <br/>
+  中國商務部批評歐盟委員會的突襲調查，違反正當程序原則，凸顯了歐盟營商環境的進一步惡化，並向所有在歐經營的外國企業傳遞出極其負面的信號。中方對此表示嚴正關切和強烈反對，敦促歐方立即停止和糾正錯誤做法。中方將密切關注歐方後續動向，並採取一切必要措施，堅決維護中國企業的正當權益。
+  <br/>
+  <br/>
+  中國駐歐盟使團亦對事件表示嚴正關切和強烈反對，敦促歐方恪守市場開放承諾和公平競爭原則，停止以各種借口無端打壓和限制中國企業的行為。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750135-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750135-20240423.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750423-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750423-20240425.htm
  </a>
 </p>
 <p>
@@ -2527,36 +2339,37 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 12:24:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    布林肯明起訪華　外交部︰將就台灣和南海等問題闡明嚴正立場
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1750118-20240423.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="布林肯應王毅邀請，將於明日至周五訪華。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750118_1_L_20240423112314.jpg" style="width:100%;height:auto"/>
-<img alt="中美角力" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fnews_feature_images%2Fnews_feature_288_S_20211116122132.jpg" style="width:100%;height:auto"/>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 03:08:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      商務部稱從全球範圍看不是產能過剩而是產能短缺
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
+     <description>
+      <![CDATA[<img alt="商務部回應部分國家對中國產能過剩問題表達關切的提問。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750555_1_L_20240425213839.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
- 美國國務卿布林肯應中共中央政治局委員、外交部長王毅邀請，將於明日至周五訪華。中方強調，美方尤其不能觸碰中方在台灣、民主人權、道路制度、發展權利等問題上的紅線，中方維護國家主權、安全、發展利益的決心和意志堅定不移，將重點就台灣、經貿科技、南海等問題闡明嚴正立場、提出明確要求。
+ 在北京，商務部回應部分國家對中國「產能過剩」問題表達關切的提問，發言人何亞東形容炒作毫無道理，中方堅決反對，並指出對新能源來說，從全球範圍看不是產能過剩，而是產能短缺。
  <br>
   <br/>
-  外交部北美大洋洲司負責人介紹訪問相關情況，表示布林肯今次訪華，是中美落實兩國元首三藩市會晤，保持對話、管控分歧、推進合作、加強國際事務協調的一部分，雙方一直就訪問保持溝通，並歡迎布林肯訪華。
+  何亞東說，新能源產品的需求不斷增長，未來發展潛力巨大。中國新能源產業持續提供可負擔的優質產能，對全球綠色發展作出重要貢獻。他認為有關國家和地區不能一邊高舉綠色發展的大旗，一邊揮舞保護主義的大棒，這是典型的自相矛盾和雙重標準，可以說是一種「雙標主義」。
   <br/>
   <br/>
-  負責人說，中方對布林肯今次訪問，主要聚焦五大目標，包括樹立正確認知、加強對話、有效管控分歧、推進互利合作和共同承擔大國責任。
+  何亞東說這樣的做法既會阻滯全球綠色轉型，動搖氣變合作的信心，也會挫傷企業開展對外貿易投資合作的決心。他希望相關國家客觀、理性、全面看待全球新能源市場的需求和中國新能源產業的發展，公正評價中國新能源產品在全球綠色轉型中發揮的重要作用。
+  <br/>
+  <br/>
+  何亞東說願意在堅持市場化原則的基礎上，與各方加強溝通協調，推動產業合作，實現互利共贏，共同推動全球綠色發展。
  </br>
 </div>
 <p>
  原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1750118-20240423.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1750118-20240423.htm
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750555-20240425.htm
  </a>
 </p>
 <p>
@@ -2569,10 +2382,135 @@
  </a>
 </p>
 ]]>
-   </description>
-   <pubDate>
-    Tue, 23 Apr 2024 11:35:00 +0800
-   </pubDate>
-  </item>
- </channel>
-</rss>
+     </description>
+     <pubdate>
+      Thu, 25 Apr 2024 19:46:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      布林肯抵達上海　展開三天訪華行程
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750362-20240424.htm
+     <description>
+      <![CDATA[<img alt="
+
+布林肯抵達上海　展開三天訪華行程
+" referrerpolicy="no-referrer" src="https://newsstatic.rthk.hk/images/mfile_1750362_2_L_20240424183114.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 美國國務卿布林肯抵達上海，展開三天訪華行程，這是他不足一年內再次訪華。
+ <br>
+  <br/>
+  根據美方早前公布，布林肯還會前往北京，與中方官員會面，討論一系列雙邊、地區和全球議題，包括中東危機、烏克蘭戰爭、南海和台海局勢。
+  <br/>
+  <br/>
+  在北京，外交部北美大洋洲司負責人早前表示，中方對布林肯今次訪問，主要聚焦五大目標，包括有效管控分歧和共同承擔大國責任等，強調中方將重點就台灣、經貿科技、南海等問題闡明嚴正立場、提出明確要求。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750362-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750362-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 16:43:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      趙樂際︰中國願同墨西哥加強戰略對接
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750296-20240424.htm
+     <description>
+      <![CDATA[<img alt="趙樂際說，中墨關係的戰略性、互補性、互利性不斷凸顯。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750296_1_L_20240424105242.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 全國人大常委會委員長趙樂際表示，中國願同墨西哥加強戰略對接，挖掘合作潛力，發揮互補優勢，豐富中墨全面戰略伙伴關係的內涵。
+ <br>
+  <br/>
+  趙樂際應墨西哥參議長里維拉邀請，在墨西哥參議院成立200周年慶祝活動上發表視像致辭。他說，中墨兩國建交50多年來，始終在發展道路上相互理解和支持，政治互信日益深化。去年11月，國家主席習近平與墨西哥總統洛佩斯成功會晤，為兩國關係發展提供戰略引領，為雙邊合作擘畫藍圖。中墨關係的戰略性、互補性、互利性不斷凸顯。
+  <br/>
+  <br/>
+  趙樂際指出，中國全國人大同墨西哥聯邦議會一直保持友好交往，希望兩國立法機構深化多層次、多領域交流交往，加強立法、監督等方面經驗交流，為互利合作提供法律支持。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750296-20240424.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750296-20240424.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Wed, 24 Apr 2024 11:01:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      王小洪晤雅畢　冀中緬深化執法安全合作　打擊賭詐等跨境犯罪
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1750587-20240426.htm
+     <description>
+      <![CDATA[<img alt="王小洪在北京會見緬甸內政部部長雅畢。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750587_1_L_20240426024707.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 國務委員、公安部部長王小洪在北京，會見緬甸內政部部長雅畢。
+ <br>
+  <br/>
+  王小洪表示，中緬聯合打擊電信網絡詐騙犯罪取得標誌性重大戰果。中方始終從戰略高度看待和發展中緬關係，願同緬方一起，全面深化執法安全合作，深入開展打擊賭詐、毒品等跨境犯罪行動，加強人員項目安保合作，深化執法能力建設合作，持續推進中緬命運共同體建設，為兩國及本地區安全穩定和繁榮發展作出更大貢獻。
+  <br/>
+  <br/>
+  雅畢表示，願推動兩國執法安全合作取得更加豐碩成果。
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1750587-20240426.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1750587-20240426.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+]]>
+     </description>
+     <pubdate>
+      Fri, 26 Apr 2024 02:47:00 +0800
+     </pubdate>
+    </item>
+   </channel>
+  </rss>
+ </body>
+</html>
