@@ -10,7 +10,8 @@ on:
       - 'code/*'
       - 'hk_rthk_*.rss'
   schedule:
-    - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
+    # - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
+    - cron: '*/20 * * * *'  # 每隔 20 分鐘運行一次
 
 jobs:
   deploy:
