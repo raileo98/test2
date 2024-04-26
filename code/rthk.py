@@ -9,6 +9,7 @@ import secrets
 from tqdm import tqdm
 import html
 import json
+import re
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
@@ -17,7 +18,8 @@ proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:5000
 session = niquests.Session(resolver="doh://9.9.9.9") # , happy_eyeballs=True)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
-session.headers['User-Agent'] = secrets.choice(['Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0', 'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0', 'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0'])
+userAgent = ['Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0', 'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0', 'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0']
+session.headers['User-Agent'] = secrets.choice(userAgent)
 session.proxies.update(proxies)
 
 def parse_pub_date(date_str):
@@ -140,13 +142,29 @@ for category, url in urls_list:
 
         feedDescription = article_soup.select_one('.itemFullText').prettify()
 
-        images = article_soup.find_all('img', class_='imgPhotoAfterLoad')
+        # images = article_soup.find_all('img', class_='imgPhotoAfterLoad')
+        images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
         imgHtml = ''
 
         for image in images:
             imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
             imgAlt = image.get('alt', '')
             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+
+        # 找到所有的<script>標籤
+        scripts = article_soup.find_all('script')
+        
+        # 遍歷所有的<script>標籤
+        for script in scripts:
+            if 'videoThumbnail' in script.text:
+                # 使用正則表達式從JavaScript代碼中提取videoThumbnail的值
+                match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
+                if match:
+                    video_thumbnail = match.group(1)
+                    # print(f'Video Thumbnail URL: {video_thumbnail}')
+                    imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
+                    imgHtml += f'<img src="{video_thumbnail}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                    break
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
