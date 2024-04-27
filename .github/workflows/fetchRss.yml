@@ -71,8 +71,10 @@ jobs:
         
     - name: 建立 Git 標籤
       run: |
+        # 獲取最新標籤
+        LATEST_TAG=$(git describe --tags `git rev-list --tags --max-count=1`)
         # 將版本號加 1
-        NEW_VERSION=$(echo ${{ steps.set_initial_version.outputs.version }} | awk -F'.' -v OFS='.' '{$NF+=1; print}')
+        NEW_VERSION=$(echo $LATEST_TAG | awk -F'.' -v OFS='.' '{$NF+=1; print}')
         
         # 檢查是否存在兩個 v 前綴
         if [[ "$NEW_VERSION" == v* && "$NEW_VERSION" == v* ]]; then
@@ -80,12 +82,7 @@ jobs:
           NEW_VERSION=$(echo "$NEW_VERSION" | sed 's/^v//')
         fi
         
-        # 再次檢查標籤是否已經存在
-        if git show-ref --tags --verify --quiet "refs/tags/$NEW_VERSION"; then
-          echo "標籤 $NEW_VERSION 已經存在,跳過推送"
-          exit 0
-        fi
-        
+        # 創建新標籤
         git tag $NEW_VERSION
         git push origin $NEW_VERSION
       # env:
