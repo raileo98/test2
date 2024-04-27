@@ -77,7 +77,7 @@ jobs:
         NEW_VERSION=$(echo $LATEST_TAG | awk -F'.' -v OFS='.' '{$NF+=1; print}')
         
         # 檢查是否存在兩個 v 前綴
-        if [[ "$NEW_VERSION" == v* && "$NEW_VERSION" == v* ]]; then
+        if [[ "$NEW_VERSION" == vv* ]]; then
           # 刪除一個 v 前綴
           NEW_VERSION=$(echo "$NEW_VERSION" | sed 's/^v//')
         fi
@@ -85,5 +85,3 @@ jobs:
         # 創建新標籤
         git tag $NEW_VERSION
         git push origin $NEW_VERSION
-      # env:
-        # GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
