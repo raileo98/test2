@@ -57,10 +57,10 @@ jobs:
         fi
 
     - name: 設置初始版本號
-      id: set_initial_version
       if: steps.check_version.outputs.version_exists == 'false'
       run: |
-        echo "version=v1.0.0" >> $GITHUB_OUTPUT
+        git tag v1.0.0
+        git push origin v1.0.0
 
     - name: 上傳 RSS 文件
       run: |
@@ -70,6 +70,7 @@ jobs:
         git commit -m "Upload RSS file"
         
     - name: 建立 Git 標籤
+      if: steps.check_version.outputs.version_exists == 'true'
       run: |
         # 獲取最新標籤
         LATEST_TAG=$(git describe --tags `git rev-list --tags --max-count=1`)
