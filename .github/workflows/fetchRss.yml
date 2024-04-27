@@ -11,7 +11,10 @@ on:
       - 'hk_rthk_*.rss'
   schedule:
     - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
-    # - cron: '*/20 * * * *'  # 每隔 20 分鐘運行一次
+
+concurrency: 
+  group: ${{ github.workflow }}-${{ github.ref }}
+  cancel-in-progress: true
 
 jobs:
   deploy:
@@ -36,7 +39,6 @@ jobs:
     - name: 設置 Python 環境
       uses: actions/setup-python@v5
       with:
-        # python-version: '3.12'
         check-latest: true
 
     - name: 安裝依賴
@@ -47,36 +49,10 @@ jobs:
       run: |
         python code/rthk.py
 
-    - name: 檢查是否存在版本號
-      id: check_version
-      run: |
-        if git describe --tags --abbrev=0 &> /dev/null; then
-          echo "version_exists=true" >> $GITHUB_OUTPUT
-        else
-          echo "version_exists=false" >> $GITHUB_OUTPUT
-        fi
-
-    - name: 設置初始版本號
-      if: steps.check_version.outputs.version_exists == 'false'
-      run: |
-        git tag v1.0.0
-        git push origin v1.0.0
-
     - name: 上傳 RSS 文件
       run: |
         git config --global user.email "github-actions@github.com"
         git config --global user.name "github-actions"
         git add *.rss
         git commit -m "Upload RSS file"
-        
-    - name: 建立 Git 標籤
-      # if: steps.check_version.outputs.version_exists == 'true'
-      run: |
-        # 獲取最新標籤
-        LATEST_TAG=$(git describe --tags `git rev-list --tags --max-count=1`)
-        # 將版本號加 1
-        NEW_VERSION=$(echo $LATEST_TAG | awk -F'.' -v OFS='.' '{$NF+=1; print}')
-        
-        # 創建新標籤
-        git tag $NEW_VERSION
-        git push origin $NEW_VERSION
+        git push origin main
