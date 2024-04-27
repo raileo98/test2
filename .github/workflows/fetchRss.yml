@@ -70,18 +70,12 @@ jobs:
         git commit -m "Upload RSS file"
         
     - name: 建立 Git 標籤
-      if: steps.check_version.outputs.version_exists == 'true'
+      # if: steps.check_version.outputs.version_exists == 'true'
       run: |
         # 獲取最新標籤
         LATEST_TAG=$(git describe --tags `git rev-list --tags --max-count=1`)
         # 將版本號加 1
         NEW_VERSION=$(echo $LATEST_TAG | awk -F'.' -v OFS='.' '{$NF+=1; print}')
-        
-        # 檢查是否存在兩個 v 前綴
-        if [[ "$NEW_VERSION" == vv* ]]; then
-          # 刪除一個 v 前綴
-          NEW_VERSION=$(echo "$NEW_VERSION" | sed 's/^v//')
-        fi
         
         # 創建新標籤
         git tag $NEW_VERSION
