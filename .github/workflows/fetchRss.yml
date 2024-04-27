@@ -80,12 +80,13 @@ jobs:
           NEW_VERSION=$(echo "$NEW_VERSION" | sed 's/^v//')
         fi
         
-        # 檢查標籤是否已經存在
+        # 再次檢查標籤是否已經存在
         if git show-ref --tags --verify --quiet "refs/tags/$NEW_VERSION"; then
           echo "標籤 $NEW_VERSION 已經存在,跳過推送"
-        else
-          git tag $NEW_VERSION
-          git push origin $NEW_VERSION
+          exit 0
         fi
+        
+        git tag $NEW_VERSION
+        git push origin $NEW_VERSION
       # env:
         # GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
