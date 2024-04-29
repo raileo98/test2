@@ -183,13 +183,13 @@ async def process_category(category, url):
 
         author_element = article.select_one('.itemVideoCredits')
         if author_element:
-            author = article.select_one('.itemVideoCredits').text
+            author = author_element.text
+            fe.author(name=author)
             
         fe.title(title)
         fe.link(href=link)
         fe.description(feedDescription)
         fe.pubDate(formatted_pub_date)
-        fe.author(name=author)
 
     rss_str = fg.rss_str()
 
