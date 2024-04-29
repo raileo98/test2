@@ -141,6 +141,8 @@ async def process_category(category, url):
     secrets.SystemRandom().shuffle(articles_list)
 
     for article in tqdm(articles_list):
+        fe = fg.add_entry()
+        
         title = article.select_one('.ns2-title').text
         link = article.select_one('.ns2-title a')['href']
 
@@ -182,13 +184,12 @@ async def process_category(category, url):
         author_element = article.select_one('.itemVideoCredits')
         if author_element:
             author = article.select_one('.itemVideoCredits').text
-            fe.author(name=author)
             
-        fe = fg.add_entry()
         fe.title(title)
         fe.link(href=link)
         fe.description(feedDescription)
         fe.pubDate(formatted_pub_date)
+        fe.author(name=author)
 
     rss_str = fg.rss_str()
 
