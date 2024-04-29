@@ -181,7 +181,7 @@ async def process_category(category, url):
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
-        author_element = article.select_one('.itemVideoCredits')
+        author_element = article_soup.select_one('.itemVideoCredits')
         if author_element:
             author = author_element.text
             fe.author(name=author)
