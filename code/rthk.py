@@ -179,9 +179,9 @@ async def process_category(category, url):
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
-        author = article.select_one('.itemVideoCredits').text
+        author = article.select_one('.itemVideoCredits')
         if author:
-            fe.author(author)
+            fe.author(name=author.text)
             
         fe = fg.add_entry()
         fe.title(title)
