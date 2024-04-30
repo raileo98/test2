@@ -186,7 +186,7 @@ async def process_category(category, url):
             author = author_element.text
             fe.author(name=author)
 
-        if author:
+        if author is not None:
             print(f'{category} - {title} - author: {author}')
             
         fe.title(title)
