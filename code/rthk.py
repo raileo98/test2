@@ -175,9 +175,6 @@ async def process_category(category, url):
                     imgHtml += f'<img src="{video_thumbnail}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                     break
 
-        feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
@@ -191,7 +188,10 @@ async def process_category(category, url):
 
         if author:
             print(f'{category} - {title} - author: {author}')
-            
+
+        feedDescription = f'{imgHtml} <br> {feedDescription} <p>{author}</p> <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+        
         fe.title(title)
         fe.link(href=link)
         fe.description(feedDescription)
