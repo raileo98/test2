@@ -185,6 +185,9 @@ async def process_category(category, url):
         if author_element:
             author = author_element.text
             fe.author(name=author)
+
+        if author:
+            print(f'{category} - {title} - author: {author}')
             
         fe.title(title)
         fe.link(href=link)
