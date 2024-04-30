@@ -186,7 +186,7 @@ async def process_category(category, url):
         if author_element:
             author = author_element.text
             # fe.author(name=author, email='')
-            authorInfo = {'name': author}
+            authorInfo = {'name': author, 'email': 'cnews@rthk.hk'}
             fe.author(authorInfo)
 
         if author:
