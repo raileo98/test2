@@ -181,12 +181,13 @@ async def process_category(category, url):
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
+        author = ''
         author_element = article_soup.select_one('.itemVideoCredits')
         if author_element:
             author = author_element.text
             fe.author(name=author)
 
-        if author is not None:
+        if author:
             print(f'{category} - {title} - author: {author}')
             
         fe.title(title)
