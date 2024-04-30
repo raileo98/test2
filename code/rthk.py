@@ -185,7 +185,7 @@ async def process_category(category, url):
         author_element = article_soup.select_one('.itemVideoCredits')
         if author_element:
             author = author_element.text
-            fe.author(name=author)
+            fe.author(name=author, email='')
 
         if author:
             print(f'{category} - {title} - author: {author}')
