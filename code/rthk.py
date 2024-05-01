@@ -16,7 +16,7 @@ from urllib3.util import Retry
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
-retries = Retry(total=3)
+retries = Retry(total=5)
 session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=retries)
 # session = niquests.AsyncSession()
 session.headers['Cache-Control'] = 'no-cache'
