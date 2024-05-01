@@ -159,11 +159,13 @@ async def process_category(category, url):
 
         images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
         imgHtml = ''
-
+        imgList = set()
+        
         for image in images:
             imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
             imgAlt = image.get('alt', '')
             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+            imgList.add(imgUrl)
 
         scripts = article_soup.find_all('script')
         for script in scripts:
@@ -173,8 +175,19 @@ async def process_category(category, url):
                     video_thumbnail = match.group(1)
                     imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
                     imgHtml += f'<img src="{video_thumbnail}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                    imgList.add(video_thumbnail)
                     break
 
+
+        for imageUrl in imgList:
+            imageUrlResponse = await session.head(imageUrl)
+
+            if imageUrlResponse.ok:
+                print(f'{imageUrl}: 已緩存！')
+
+            else:
+                print(f'{imageUrl}: 緩存失敗！')
+        
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
