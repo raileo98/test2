@@ -16,7 +16,7 @@ from urllib3.util import Retry
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
-retries = Retry(total=10)
+retries = Retry(total=3)
 session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=retries)
 # session = niquests.AsyncSession()
 session.headers['Cache-Control'] = 'no-cache'
@@ -183,13 +183,23 @@ async def process_category(category, url):
 
 
         for imageUrl in imgList:
-            imageUrlResponse = await session.head(imageUrl)
+            retryCount = 0
+            
+            while True:
+                try:
+                    imageUrlResponse = await session.head(imageUrl)
+                    break
+    
+                # except ConnectionResetError:
+                except:
+                    retryCount += 1
+                    print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！即將重試 {retryCount}')
 
             if imageUrlResponse.ok:
-                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl}: 已緩存！')
+                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
 
             else:
-                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl}: 緩存失敗！')
+                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
         
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
