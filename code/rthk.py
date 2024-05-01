@@ -192,9 +192,15 @@ async def process_category(category, url):
     
                 # except ConnectionResetError:
                 except:
+                    if retryCount >= 10:
+                        break
+                    
                     retryCount += 1
                     print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！即將重試 {retryCount}')
 
+            if retryCount >= 10:
+                continue
+            
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
 
