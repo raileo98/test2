@@ -15,7 +15,8 @@ import time
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
-session = niquests.AsyncSession(resolver="doh://9.9.9.9")
+retries = Retry(total=3)
+session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=retries)
 # session = niquests.AsyncSession()
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
