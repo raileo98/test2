@@ -44,7 +44,7 @@ jobs:
 
     - name: 安裝依賴
       run: |
-        python -m pip install --upgrade pip niquests niquests[speedups] niquests[socks] qh3 feedgen bs4 tqdm aiofiles 
+        python -m pip install --upgrade pip niquests niquests[speedups] niquests[socks] qh3 feedgen bs4 tqdm aiofiles urllib3
 
     - name: 執行 Python 腳本
       run: |
