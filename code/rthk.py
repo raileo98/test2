@@ -173,9 +173,10 @@ async def process_category(category, url):
                 match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
                 if match:
                     video_thumbnail = match.group(1)
+                    imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(video_thumbnail)
                     imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
-                    imgHtml += f'<img src="{video_thumbnail}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-                    imgList.add(video_thumbnail)
+                    imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                    imgList.add(imgUrl)
                     break
 
 
