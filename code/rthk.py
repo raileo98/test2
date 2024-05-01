@@ -12,6 +12,7 @@ import json
 import re
 import aiofiles
 import time
+from urllib3.util import Retry
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
