@@ -244,18 +244,12 @@ async def cache_image(imageUrl):
     retryCount = 0
     while True:
         try:
-            imageUrlResponse = await session.head(imageUrl, timeout=1)
+            imageUrlResponse = await session.head(imageUrl)
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
             else:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
             break
-        except:
-            if retryCount >= 1:
-                print(f'{imageUrl} : 緩存失敗！重試次數達到上限。')
-                break
-            retryCount += 1
-            print(f'{imageUrl} : 緩存失敗！即將重試 {retryCount}。')
 
 # 主函數
 async def main():
