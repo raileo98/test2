@@ -260,10 +260,12 @@ async def main():
     await asyncio.gather(*tasks)
 
 if __name__ == '__main__':
+    print('1')
     start_time = time.time()
     
     asyncio.run(main())
     
+    print('2')
     end_time = time.time()
     execution_time = end_time - start_time
     print(f'執行時間：{execution_time}秒')
