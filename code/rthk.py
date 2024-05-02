@@ -1,3 +1,4 @@
+
 import asyncio
 import niquests  # 假設這是一個自定義的異步HTTP客戶端
 from bs4 import BeautifulSoup, CData
@@ -13,14 +14,14 @@ from asyncio import Semaphore
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-# proxies = {'http': 'socks5://localhost:50000', 'https': 'socks5://localhost:50000'}
-session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=1, pool_connections=3, pool_maxsize=100)
+session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com", retries=1, pool_connections=10, pool_maxsize=100)
+# session = niquests.AsyncSession(retries=1, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0',
     'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0',
-    'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0'
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 session.proxies.update(proxies)
@@ -149,68 +150,8 @@ async def process_category(sem, category, url):
         secrets.SystemRandom().shuffle(articles_list)
 
         # 處理每篇文章
-        for article in articles_list:
-            fe = fg.add_entry()
-            
-            title = article.select_one('.ns2-title').text
-            link = article.select_one('.ns2-title a')['href']
-
-            try:
-                article_response = await session.get(link)
-                article_content = article_response.text
-                article_soup = BeautifulSoup(article_content, 'html.parser')
-            except Exception as e:
-                print(f'{category} - {title} 處理失敗: {e}')
-                continue
-
-            feedDescription = article_soup.select_one('.itemFullText').prettify()
-
-            # 處理圖片
-            images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
-            imgHtml = ''
-            imgList = set()
-            for image in images:
-                imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
-                imgAlt = image.get('alt', '')
-                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-                imgList.add(imgUrl)
-
-            # 處理視頻縮略圖
-            scripts = article_soup.find_all('script')
-            for script in scripts:
-                if 'videoThumbnail' in script.text:
-                    match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
-                    if match:
-                        video_thumbnail = match.group(1)
-                        imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(video_thumbnail)
-                        imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
-                        imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-                        imgList.add(imgUrl)
-                        break
-
-            # 緩存圖片
-            await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
-
-            pub_date = article.select_one('.ns2-created').text
-            formatted_pub_date = parse_pub_date(pub_date)
-
-            author = ''
-            author_element = article_soup.select_one('.itemVideoCredits')
-            if author_element:
-                author = author_element.text
-                authorInfo = {'name': author, 'email': 'cnews@rthk.hk'}
-                fe.author(authorInfo)
-
-            if author:
-                print(f'{category} - {title} - author: {author}')
-
-            feedDescription = f'{imgHtml} <br> {feedDescription} <p>{author}</p> <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-            feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-            
-            fe.title(title)
-            fe.link(href=link)
-            fe.description(feedDescription)
-            fe.pubDate(formatted_pub_date)
+        tasks = [asyncio.create_task(process_article(fg, category, article)) for article in articles_list]
+        await asyncio.gather(*tasks)
 
         rss_str = fg.rss_str()
 
@@ -238,6 +179,66 @@ async def process_category(sem, category, url):
         print(f'{category} 處理完成!')
         print()
 
+# 處理每篇文章的異步函數
+async def process_article(fg, category, article):
+    fe = fg.add_entry()
+            
+    title = article.select_one('.ns2-title').text
+    link = article.select_one('.ns2-title a')['href']
+
+    article_response = await session.get(link)
+    article_content = article_response.text
+    article_soup = BeautifulSoup(article_content, 'html.parser')
+
+    feedDescription = article_soup.select_one('.itemFullText').prettify()
+
+    # 處理圖片
+    images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
+    imgHtml = ''
+    imgList = set()
+    for image in images:
+        imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
+        imgAlt = image.get('alt', '')
+        imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+        imgList.add(imgUrl)
+
+    # 處理視頻縮略圖
+    scripts = article_soup.find_all('script')
+    for script in scripts:
+        if 'videoThumbnail' in script.text:
+            match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
+            if match:
+                video_thumbnail = match.group(1)
+                imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(video_thumbnail)
+                imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
+                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                imgList.add(imgUrl)
+                break
+
+    # 緩存圖片
+    await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
+
+    pub_date = article.select_one('.ns2-created').text
+    formatted_pub_date = parse_pub_date(pub_date)
+
+    author = ''
+    author_element = article_soup.select_one('.itemVideoCredits')
+    if author_element:
+        author = author_element.text
+        authorInfo = {'name': author, 'email': 'cnews@rthk.hk'}
+        fe.author(authorInfo)
+
+    if author:
+        print(f'{category} - {title} - author: {author}')
+
+    feedDescription = f'{imgHtml} <br> {feedDescription} <p>{author}</p> <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+    feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+            
+    fe.title(title)
+    fe.link(href=link)
+    fe.description(feedDescription)
+    fe.pubDate(formatted_pub_date)
+
 # 緩存圖片的異步函數
 async def cache_image(imageUrl):
     retryCount = 0
@@ -258,7 +259,7 @@ async def cache_image(imageUrl):
 
 # 主函數
 async def main():
-    sem = Semaphore(10)  # 同時最多運行10個任務
+    sem = Semaphore(100)  # 同時最多運行100個任務
     tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_list]
     await asyncio.gather(*tasks)
 
