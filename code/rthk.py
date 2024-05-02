@@ -23,7 +23,7 @@ session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = ['Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0', 'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0', 'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0']
 session.headers['User-Agent'] = secrets.choice(userAgent)
-# session.proxies.update(proxies)
+session.proxies.update(proxies)
 
 def parse_pub_date(date_str):
     date_str = date_str.replace('HKT', '+0800')
