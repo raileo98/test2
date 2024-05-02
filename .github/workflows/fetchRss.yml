@@ -37,13 +37,9 @@ jobs:
         warp-cli --accept-tos proxy port 50000
         warp-cli --accept-tos connect
 
-    - name: 設置 Python 環境
-      uses: actions/setup-python@v5
-      with:
-        check-latest: true
-
     - name: 安裝依賴
       run: |
+        sudo apt install python -y
         python -m pip install --upgrade pip niquests niquests[speedups] niquests[socks] qh3 feedgen bs4 tqdm aiofiles urllib3
 
     - name: 執行 Python 腳本
