@@ -1,5 +1,5 @@
 import asyncio
-import niquests
+import niquests  # 假設這是一個自定義的異步HTTP客戶端
 from bs4 import BeautifulSoup, CData
 from feedgen.feed import FeedGenerator
 from datetime import datetime
@@ -10,26 +10,27 @@ import re
 import aiofiles
 import time
 from asyncio import Semaphore
-from urllib3.util import Retry
 
-print()
-proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
-# retries = Retry(total=1)
-# session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=retries, pool_connections=10, pool_maxsize=100)
-# session = niquests.AsyncSession(resolver="doh://base.dns.mullvad.net", retries=retries, pool_connections=10, pool_maxsize=100)
-session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com", retries=1, pool_connections=10, pool_maxsize=100)
-# session = niquests.AsyncSession(retries=retries, pool_connections=10, pool_maxsize=100)
+# 設置代理和HTTP客戶端
+proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
+session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=1, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
-userAgent = ['Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0', 'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0', 'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0']
+userAgent = [
+    'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0',
+]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 session.proxies.update(proxies)
 
+# 解析發布日期
 def parse_pub_date(date_str):
     date_str = date_str.replace('HKT', '+0800')
     date_obj = datetime.strptime(date_str, '%Y-%m-%d %z %H:%M')
     return date_obj.strftime('%a, %d %b %Y %H:%M:%S %z')
-    
+
+# 獲取文章發布日期
 def get_item_pub_date(item):
     pub_date = item.find('pubDate')
     if pub_date:
@@ -41,6 +42,7 @@ def get_item_pub_date(item):
 
     return None
 
+# 分類數據
 categories_data = {
     'hk_rthk_ch': {
         'title': 'rthk',
@@ -92,17 +94,21 @@ categories_data = {
     }
 }
 
+# 從分類數據中提取URL和標題
 urls_dict = {key: value['url'] for key, value in categories_data.items()}
 category_titles = {key: value['title'] for key, value in categories_data.items()}
 
+# 打印URL列表
 urls_list = list(urls_dict.items())
 print(f'urls_list: {urls_list}')
 print()
 
+# 隨機打亂URL列表
 secrets.SystemRandom().shuffle(urls_list)
 print(f'secrets.SystemRandom().shuffle(urls_list): {urls_list}')
 print()
 
+# 處理每個分類
 async def process_category(sem, category, url):
     async with sem:
         print(f'{category} 開始處理!')
@@ -134,7 +140,6 @@ async def process_category(sem, category, url):
         fg.webMaster('webmaster@rthk.hk')
 
         articles = soup.select('.ns2-page')
-
         articles_list = list(articles)
 
         if len(articles_list) == 0:
@@ -142,7 +147,7 @@ async def process_category(sem, category, url):
         
         secrets.SystemRandom().shuffle(articles_list)
 
-        # for article in tqdm(articles_list):
+        # 處理每篇文章
         for article in articles_list:
             fe = fg.add_entry()
             
@@ -151,7 +156,6 @@ async def process_category(sem, category, url):
 
             try:
                 article_response = await session.get(link)
-                # article_content = await article_response.text
                 article_content = article_response.text
                 article_soup = BeautifulSoup(article_content, 'html.parser')
             except Exception as e:
@@ -160,16 +164,17 @@ async def process_category(sem, category, url):
 
             feedDescription = article_soup.select_one('.itemFullText').prettify()
 
+            # 處理圖片
             images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
             imgHtml = ''
             imgList = set()
-            
             for image in images:
                 imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
                 imgAlt = image.get('alt', '')
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                 imgList.add(imgUrl)
 
+            # 處理視頻縮略圖
             scripts = article_soup.find_all('script')
             for script in scripts:
                 if 'videoThumbnail' in script.text:
@@ -182,32 +187,9 @@ async def process_category(sem, category, url):
                         imgList.add(imgUrl)
                         break
 
+            # 緩存圖片
+            await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
-            for imageUrl in imgList:
-                retryCount = 0
-                
-                while True:
-                    try:
-                        imageUrlResponse = await session.head(imageUrl, timeout=1)
-                        break
-        
-                    # except ConnectionResetError:
-                    except:
-                        if retryCount >= 1:
-                            break
-                        
-                        retryCount += 1
-                        print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！即將重試 {retryCount}')
-
-                if retryCount >= 1:
-                    continue
-                
-                if imageUrlResponse.ok:
-                    print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
-
-                else:
-                    print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
-            
             pub_date = article.select_one('.ns2-created').text
             formatted_pub_date = parse_pub_date(pub_date)
 
@@ -215,7 +197,6 @@ async def process_category(sem, category, url):
             author_element = article_soup.select_one('.itemVideoCredits')
             if author_element:
                 author = author_element.text
-                # fe.author(name=author, email='')
                 authorInfo = {'name': author, 'email': 'cnews@rthk.hk'}
                 fe.author(authorInfo)
 
@@ -256,11 +237,31 @@ async def process_category(sem, category, url):
         print(f'{category} 處理完成!')
         print()
 
+# 緩存圖片的異步函數
+async def cache_image(imageUrl):
+    retryCount = 0
+    while True:
+        try:
+            imageUrlResponse = await session.head(imageUrl, timeout=1)
+            if imageUrlResponse.ok:
+                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
+            else:
+                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
+            break
+        except:
+            if retryCount >= 1:
+                print(f'{imageUrl} : 緩存失敗！重試次數達到上限。')
+                break
+            retryCount += 1
+            print(f'{imageUrl} : 緩存失敗！即將重試 {retryCount}。')
+
+# 主函數
 async def main():
     sem = Semaphore(10)  # 同時最多運行10個任務
     tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_list]
     await asyncio.gather(*tasks)
 
+# 程序入口
 if __name__ == '__main__':
     start_time = time.time()
     
