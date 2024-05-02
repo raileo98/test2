@@ -14,10 +14,10 @@ from urllib3.util import Retry
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
-retries = Retry(total=5)
+# retries = Retry(total=1)
 # session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=retries, pool_connections=10, pool_maxsize=100)
 # session = niquests.AsyncSession(resolver="doh://base.dns.mullvad.net", retries=retries, pool_connections=10, pool_maxsize=100)
-session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com", retries=retries, pool_connections=10, pool_maxsize=100)
+session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com", retries=1, pool_connections=10, pool_maxsize=100)
 # session = niquests.AsyncSession(retries=retries, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
@@ -193,13 +193,13 @@ async def process_category(sem, category, url):
         
                     # except ConnectionResetError:
                     except:
-                        if retryCount >= 10:
+                        if retryCount >= 1:
                             break
                         
                         retryCount += 1
                         print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！即將重試 {retryCount}')
 
-                if retryCount >= 10:
+                if retryCount >= 1:
                     continue
                 
                 if imageUrlResponse.ok:
