@@ -14,7 +14,7 @@ from asyncio import Semaphore
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com", retries=1, pool_connections=10, pool_maxsize=100)
+session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com", retries=1, pool_connections=30, pool_maxsize=100)
 # session = niquests.AsyncSession(retries=1, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
