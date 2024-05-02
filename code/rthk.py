@@ -242,7 +242,7 @@ async def cache_image(imageUrl):
     retryCount = 0
     while True:
         try:
-            imageUrlResponse = await session.head(imageUrl, timeout=1)
+            imageUrlResponse = await session.head(imageUrl, timeout=3)
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
             else:
