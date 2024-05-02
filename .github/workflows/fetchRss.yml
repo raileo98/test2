@@ -39,12 +39,12 @@ jobs:
 
     - name: 安裝依賴
       run: |
-        sudo apt install python -y
-        python -m pip install --upgrade pip niquests niquests[speedups] niquests[socks] qh3 feedgen bs4 tqdm aiofiles urllib3
+        sudo apt install python3 python3-pip -y
+        python3 -m pip install --upgrade pip niquests niquests[speedups] niquests[socks] qh3 feedgen bs4 tqdm aiofiles urllib3
 
     - name: 執行 Python 腳本
       run: |
-        python code/rthk.py
+        python3 code/rthk.py
 
     - name: 上傳 RSS 文件
       run: |
