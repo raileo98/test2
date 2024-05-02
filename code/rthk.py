@@ -1,4 +1,3 @@
-import qh3
 import asyncio
 import niquests
 from bs4 import BeautifulSoup, CData
@@ -6,19 +5,18 @@ from feedgen.feed import FeedGenerator
 from datetime import datetime
 import urllib.parse
 import secrets
-# from tqdm import tqdm
 import html
-import json
 import re
 import aiofiles
 import time
+from asyncio import Semaphore
 from urllib3.util import Retry
 
 print()
 proxies = {'http':'socks5h://localhost:50000', 'https':'socks5h://localhost:50000'}
-retries = Retry(total=3)
-# session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=retries, pool_connections=10, pool_maxsize=100)
-session = niquests.AsyncSession(retries=retries, pool_connections=10, pool_maxsize=100)
+retries = Retry(total=5)
+session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=retries, pool_connections=10, pool_maxsize=100)
+# session = niquests.AsyncSession(retries=retries, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = ['Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0', 'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0', 'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0']
@@ -103,161 +101,162 @@ secrets.SystemRandom().shuffle(urls_list)
 print(f'secrets.SystemRandom().shuffle(urls_list): {urls_list}')
 print()
 
-async def process_category(category, url):
-    print(f'{category} 開始處理!')
-    print()
-
-    try:
-        response = await session.get(url)
-        if response.status_code == 200:
-            # web_content = await response.text
-            web_content = response.text
-        else:
-            print(f'{category} 處理失敗: HTTP 狀態碼 {response.status_code}')
-            return
-    except Exception as e:
-        print(f'{category} 處理失敗: {e}')
-        return
-
-    soup = BeautifulSoup(web_content, 'html.parser')
-
-    fg = FeedGenerator()
-    fg.title(category_titles.get(category, ''))
-    fg.description(category_titles.get(category, ''))
-    fg.link(href=url, rel='alternate')
-    fg.language('zh-HK')
-
-    feedImg = f"https://images.weserv.nl/?n=-1&url={urllib.parse.quote_plus('https://external-content.duckduckgo.com/ip3/' + urllib.parse.urlparse(url).netloc + '.ico')}"
-    fg.logo(feedImg)
-
-    fg.copyright('© 香港電台 RTHK')
-    fg.webMaster('webmaster@rthk.hk')
-
-    articles = soup.select('.ns2-page')
-
-    articles_list = list(articles)
-
-    if len(articles_list) == 0:
-        return
-    
-    secrets.SystemRandom().shuffle(articles_list)
-
-    # for article in tqdm(articles_list):
-    for article in articles_list:
-        fe = fg.add_entry()
-        
-        title = article.select_one('.ns2-title').text
-        link = article.select_one('.ns2-title a')['href']
+async def process_category(sem, category, url):
+    async with sem:
+        print(f'{category} 開始處理!')
+        print()
 
         try:
-            article_response = await session.get(link)
-            # article_content = await article_response.text
-            article_content = article_response.text
-            article_soup = BeautifulSoup(article_content, 'html.parser')
-        except Exception as e:
-            print(f'{category} - {title} 處理失敗: {e}')
-            continue
-
-        feedDescription = article_soup.select_one('.itemFullText').prettify()
-
-        images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
-        imgHtml = ''
-        imgList = set()
-        
-        for image in images:
-            imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
-            imgAlt = image.get('alt', '')
-            imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-            imgList.add(imgUrl)
-
-        scripts = article_soup.find_all('script')
-        for script in scripts:
-            if 'videoThumbnail' in script.text:
-                match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
-                if match:
-                    video_thumbnail = match.group(1)
-                    imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(video_thumbnail)
-                    imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
-                    imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-                    imgList.add(imgUrl)
-                    break
-
-
-        for imageUrl in imgList:
-            retryCount = 0
-            
-            while True:
-                try:
-                    imageUrlResponse = await session.head(imageUrl)
-                    break
-    
-                # except ConnectionResetError:
-                except:
-                    if retryCount >= 10:
-                        break
-                    
-                    retryCount += 1
-                    print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！即將重試 {retryCount}')
-
-            if retryCount >= 10:
-                continue
-            
-            if imageUrlResponse.ok:
-                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
-
+            response = await session.get(url)
+            if response.status_code == 200:
+                web_content = response.text
             else:
-                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
+                print(f'{category} 處理失敗: HTTP 狀態碼 {response.status_code}')
+                return
+        except Exception as e:
+            print(f'{category} 處理失敗: {e}')
+            return
+
+        soup = BeautifulSoup(web_content, 'html.parser')
+
+        fg = FeedGenerator()
+        fg.title(category_titles.get(category, ''))
+        fg.description(category_titles.get(category, ''))
+        fg.link(href=url, rel='alternate')
+        fg.language('zh-HK')
+
+        feedImg = f"https://images.weserv.nl/?n=-1&url={urllib.parse.quote_plus('https://external-content.duckduckgo.com/ip3/' + urllib.parse.urlparse(url).netloc + '.ico')}"
+        fg.logo(feedImg)
+
+        fg.copyright('© 香港電台 RTHK')
+        fg.webMaster('webmaster@rthk.hk')
+
+        articles = soup.select('.ns2-page')
+
+        articles_list = list(articles)
+
+        if len(articles_list) == 0:
+            return
         
-        pub_date = article.select_one('.ns2-created').text
-        formatted_pub_date = parse_pub_date(pub_date)
+        secrets.SystemRandom().shuffle(articles_list)
 
-        author = ''
-        author_element = article_soup.select_one('.itemVideoCredits')
-        if author_element:
-            author = author_element.text
-            # fe.author(name=author, email='')
-            authorInfo = {'name': author, 'email': 'cnews@rthk.hk'}
-            fe.author(authorInfo)
+        # for article in tqdm(articles_list):
+        for article in articles_list:
+            fe = fg.add_entry()
+            
+            title = article.select_one('.ns2-title').text
+            link = article.select_one('.ns2-title a')['href']
 
-        if author:
-            print(f'{category} - {title} - author: {author}')
+            try:
+                article_response = await session.get(link)
+                # article_content = await article_response.text
+                article_content = article_response.text
+                article_soup = BeautifulSoup(article_content, 'html.parser')
+            except Exception as e:
+                print(f'{category} - {title} 處理失敗: {e}')
+                continue
 
-        feedDescription = f'{imgHtml} <br> {feedDescription} <p>{author}</p> <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+            feedDescription = article_soup.select_one('.itemFullText').prettify()
+
+            images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
+            imgHtml = ''
+            imgList = set()
+            
+            for image in images:
+                imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
+                imgAlt = image.get('alt', '')
+                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                imgList.add(imgUrl)
+
+            scripts = article_soup.find_all('script')
+            for script in scripts:
+                if 'videoThumbnail' in script.text:
+                    match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
+                    if match:
+                        video_thumbnail = match.group(1)
+                        imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(video_thumbnail)
+                        imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
+                        imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                        imgList.add(imgUrl)
+                        break
+
+
+            for imageUrl in imgList:
+                retryCount = 0
+                
+                while True:
+                    try:
+                        imageUrlResponse = await session.head(imageUrl)
+                        break
         
-        fe.title(title)
-        fe.link(href=link)
-        fe.description(feedDescription)
-        fe.pubDate(formatted_pub_date)
+                    # except ConnectionResetError:
+                    except:
+                        if retryCount >= 10:
+                            break
+                        
+                        retryCount += 1
+                        print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！即將重試 {retryCount}')
 
-    rss_str = fg.rss_str()
+                if retryCount >= 10:
+                    continue
+                
+                if imageUrlResponse.ok:
+                    print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
 
-    soup_rss = BeautifulSoup(rss_str, 'xml')
+                else:
+                    print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
+            
+            pub_date = article.select_one('.ns2-created').text
+            formatted_pub_date = parse_pub_date(pub_date)
 
-    for item in soup_rss.find_all('item'):
-        if item.description is not None:
-            item.description.string = CData(html.unescape(item.description.string))
+            author = ''
+            author_element = article_soup.select_one('.itemVideoCredits')
+            if author_element:
+                author = author_element.text
+                # fe.author(name=author, email='')
+                authorInfo = {'name': author, 'email': 'cnews@rthk.hk'}
+                fe.author(authorInfo)
 
-    if soup_rss.find('url') is not None:
-        soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string))
-    
-    sorted_items = sorted(soup_rss.find_all('item'), key=lambda x: datetime.strptime(get_item_pub_date(x), '%a, %d %b %Y %H:%M:%S %z') if get_item_pub_date(x) else datetime.min, reverse=True)
+            if author:
+                print(f'{category} - {title} - author: {author}')
 
-    for item in soup_rss.find_all('item'):
-        item.extract()
+            feedDescription = f'{imgHtml} <br> {feedDescription} <p>{author}</p> <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+            feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+            
+            fe.title(title)
+            fe.link(href=link)
+            fe.description(feedDescription)
+            fe.pubDate(formatted_pub_date)
 
-    for item in sorted_items:
-        soup_rss.channel.append(item)
+        rss_str = fg.rss_str()
 
-    rss_filename = f'{category}.rss'
-    async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
-        await file.write(soup_rss.prettify())
+        soup_rss = BeautifulSoup(rss_str, 'xml')
 
-    print(f'{category} 處理完成!')
-    print()
+        for item in soup_rss.find_all('item'):
+            if item.description is not None:
+                item.description.string = CData(html.unescape(item.description.string))
+
+        if soup_rss.find('url') is not None:
+            soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string))
+        
+        sorted_items = sorted(soup_rss.find_all('item'), key=lambda x: datetime.strptime(get_item_pub_date(x), '%a, %d %b %Y %H:%M:%S %z') if get_item_pub_date(x) else datetime.min, reverse=True)
+
+        for item in soup_rss.find_all('item'):
+            item.extract()
+
+        for item in sorted_items:
+            soup_rss.channel.append(item)
+
+        rss_filename = f'{category}.rss'
+        async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
+            await file.write(soup_rss.prettify())
+
+        print(f'{category} 處理完成!')
+        print()
 
 async def main():
-    tasks = [asyncio.create_task(process_category(category, url)) for category, url in urls_list]
+    sem = Semaphore(10)  # 同時最多運行10個任務
+    tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_list]
     await asyncio.gather(*tasks)
 
 if __name__ == '__main__':
