@@ -253,7 +253,7 @@ async def download_image(image_url, imgCache):
             if retryCount >= 10:
                 return None
             retryCount += 1
-            print(f'{imageUrlResponse.elapsed.total_seconds()} - {image_url} : 緩存失敗！即將重試 {retryCount}')
+            print(f'{image_url} : 緩存失敗！即將重試 {retryCount}')
 
 async def main():
     tasks = [asyncio.create_task(process_category(category, url)) for category, url in urls_list]
