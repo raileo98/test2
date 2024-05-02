@@ -1,4 +1,3 @@
-
 import asyncio
 import niquests  # 假設這是一個自定義的異步HTTP客戶端
 from bs4 import BeautifulSoup, CData
@@ -15,7 +14,7 @@ from asyncio import Semaphore
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
 session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com", retries=1, pool_connections=30, pool_maxsize=100)
-# session = niquests.AsyncSession(retries=1, pool_connections=10, pool_maxsize=100)
+# session = niquests.AsyncSession(retries=1, pool_connections=30, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -241,15 +240,19 @@ async def process_article(fg, category, article):
 
 # 緩存圖片的異步函數
 async def cache_image(imageUrl):
-    retryCount = 0
     while True:
         try:
             imageUrlResponse = await session.head(imageUrl)
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
+                break  # 如果成功，跳出循環
             else:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
-            break
+                # 如果失敗，不執行任何操作，循環將繼續
+        except Exception as e:
+            print(f'錯誤: {e} - {imageUrl} : 嘗試失敗，將重試。')
+            # 如果拋出錯誤，打印錯誤信息，循環將繼續
+
 
 # 主函數
 async def main():
