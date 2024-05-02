@@ -186,7 +186,7 @@ async def process_category(sem, category, url):
                 
                 while True:
                     try:
-                        imageUrlResponse = await session.head(imageUrl)
+                        imageUrlResponse = await session.head(imageUrl, timeout=10)
                         break
         
                     # except ConnectionResetError:
