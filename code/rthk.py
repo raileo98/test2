@@ -25,6 +25,7 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 session.proxies.update(proxies)
+# session.timeout = 30
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -249,7 +250,7 @@ async def process_article(fg, category, article):
 async def cache_image(imageUrl):
     while True:
         try:
-            imageUrlResponse = await session.head(imageUrl)
+            imageUrlResponse = await session.head(imageUrl, timeout=(1, 1))
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
                 break  # 如果成功，跳出循環
