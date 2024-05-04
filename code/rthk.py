@@ -102,8 +102,8 @@ category_titles = {key: value['title'] for key, value in categories_data.items()
 
 # 打印URL列表
 urls_list = list(urls_dict.items())
-# print(f'urls_list: {urls_list}')
-# print()
+print(f'urls_list: {urls_list}')
+print()
 
 # 隨機打亂URL列表
 secrets.SystemRandom().shuffle(urls_list)
