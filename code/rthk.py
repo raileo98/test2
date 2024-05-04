@@ -1,3 +1,7 @@
+print('hello world! 1')
+print('hello world! 2')
+print('hello world! 3')
+
 import asyncio
 import niquests  # 假設這是一個自定義的異步HTTP客戶端
 from bs4 import BeautifulSoup, CData
