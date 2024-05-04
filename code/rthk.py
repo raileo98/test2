@@ -14,7 +14,7 @@ from asyncio import Semaphore
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=1, pool_connections=3, pool_maxsize=100)
+session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=1, pool_connections=2, pool_maxsize=100)
 # session = niquests.AsyncSession(retries=1, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
@@ -263,7 +263,7 @@ async def cache_image(imageUrl):
 
 # 主函數
 async def main():
-    sem = Semaphore(3)  # 同時最多運行10個任務
+    sem = Semaphore(2)  # 同時最多運行10個任務
     tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_list]
     await asyncio.gather(*tasks)
 
