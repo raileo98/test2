@@ -1,6 +1,3 @@
-print('hello world! 1')
-print('hello world! 2')
-print('hello world! 3')
 
 import asyncio
 import niquests  # 假設這是一個自定義的異步HTTP客戶端
@@ -17,8 +14,8 @@ from asyncio import Semaphore
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=3, pool_connections=10, pool_maxsize=100)
-# session = niquests.AsyncSession(retries=3, pool_connections=10, pool_maxsize=100)
+session = niquests.AsyncSession(resolver="doh://9.9.9.9", retries=1, pool_connections=10, pool_maxsize=100)
+# session = niquests.AsyncSession(retries=1, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -105,8 +102,8 @@ category_titles = {key: value['title'] for key, value in categories_data.items()
 
 # 打印URL列表
 urls_list = list(urls_dict.items())
-print(f'urls_list: {urls_list}')
-print()
+# print(f'urls_list: {urls_list}')
+# print()
 
 # 隨機打亂URL列表
 secrets.SystemRandom().shuffle(urls_list)
@@ -188,6 +185,9 @@ async def process_article(fg, category, article):
             
     title = article.select_one('.ns2-title').text
     link = article.select_one('.ns2-title a')['href']
+    
+    print( f'{title} started!' )
+    print()
 
     article_response = await session.get(link)
     article_content = article_response.text
@@ -241,6 +241,9 @@ async def process_article(fg, category, article):
     fe.link(href=link)
     fe.description(feedDescription)
     fe.pubDate(formatted_pub_date)
+    
+    print( f'{title} done!' )
+    print()
 
 # 緩存圖片的異步函數
 async def cache_image(imageUrl):
