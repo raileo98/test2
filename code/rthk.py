@@ -24,7 +24,7 @@ userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0'
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
-session.proxies.update(proxies)
+# session.proxies.update(proxies)
 # session.timeout = 30
 
 # 解析發布日期
