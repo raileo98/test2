@@ -1,6 +1,5 @@
-
 import asyncio
-import niquests  # 假設這是一個自定義的異步HTTP客戶端
+import niquests # 假設這是一個自定義的異步HTTP客戶端
 from bs4 import BeautifulSoup, CData
 from feedgen.feed import FeedGenerator
 from datetime import datetime
@@ -11,12 +10,13 @@ import re
 import aiofiles
 import time
 from asyncio import Semaphore
+import cProfile
+import pstats
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-# session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", retries=3, pool_connections=10, pool_maxsize=100)
 session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100)
-# session = niquests.AsyncSession(retries=1, pool_connections=10, pool_maxsize=100)
+# session = niquests.AsyncSession(pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -26,7 +26,6 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 session.proxies.update(proxies)
-# session.timeout = 30
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -115,9 +114,6 @@ print()
 # 處理每個分類
 async def process_category(sem, category, url):
     async with sem:
-        print(f'{category} 開始處理!')
-        print()
-
         try:
             response = await session.get(url)
             if response.status_code == 200:
@@ -178,9 +174,6 @@ async def process_category(sem, category, url):
         async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
             await file.write(soup_rss.prettify())
 
-        print(f'{category} 處理完成!')
-        print()
-
 # 處理每篇文章的異步函數
 async def process_article(fg, category, article):
     fe = fg.add_entry()
@@ -188,9 +181,6 @@ async def process_article(fg, category, article):
     title = article.select_one('.ns2-title').text
     link = article.select_one('.ns2-title a')['href']
     
-    print( f'{title} started!' )
-    print()
-
     while True:
         try:
             article_response = await session.get(link)
@@ -251,9 +241,6 @@ async def process_article(fg, category, article):
     fe.link(href=link)
     fe.description(feedDescription)
     fe.pubDate(formatted_pub_date)
-    
-    print( f'{title} done!' )
-    print()
 
 # 緩存圖片的異步函數
 async def cache_image(imageUrl):
@@ -262,27 +249,28 @@ async def cache_image(imageUrl):
             imageUrlResponse = await session.head(imageUrl, timeout=(10, 10))
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
-                break  # 如果成功，跳出循環
+                break
             else:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
-                # 如果失敗，不執行任何操作，循環將繼續
         except Exception as e:
             print(f'錯誤: {e} - {imageUrl} : 嘗試失敗，將重試。')
-            # 如果拋出錯誤，打印錯誤信息，循環將繼續
-
 
 # 主函數
 async def main():
-    sem = Semaphore(10)  # 同時最多運行10個任務
-    tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_list]
+    sem = Semaphore(10)
+    tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_dict]
     await asyncio.gather(*tasks)
 
 # 程序入口
 if __name__ == '__main__':
     start_time = time.time()
     
-    asyncio.run(main())
+    cProfile.run('asyncio.run(main())', 'profile_stats')
     
     end_time = time.time()
     execution_time = end_time - start_time
     print(f'執行時間：{execution_time}秒')
+
+    # 分析性能統計數據
+    p = pstats.Stats('profile_stats')
+    p.sort_stats('cumulative').print_stats(10)
