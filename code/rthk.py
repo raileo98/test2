@@ -14,7 +14,8 @@ from asyncio import Semaphore
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", retries=3, pool_connections=10, pool_maxsize=100)
+# session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", retries=3, pool_connections=10, pool_maxsize=100)
+session = niquests.AsyncSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100)
 # session = niquests.AsyncSession(retries=1, pool_connections=10, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
@@ -190,7 +191,15 @@ async def process_article(fg, category, article):
     print( f'{title} started!' )
     print()
 
-    article_response = await session.get(link)
+    while True:
+        try:
+            article_response = await session.get(link)
+            if article_response.ok:
+                break
+        
+        except Exception as e:
+            print(f'錯誤: {e} - {link} : 嘗試失敗，將重試。')
+    
     article_content = article_response.text
     article_soup = BeautifulSoup(article_content, 'html.parser')
 
