@@ -1,10 +1,27 @@
 import asyncio
-import requests
+import niquests
 from bs4 import BeautifulSoup, CData
 from feedgen.feed import FeedGenerator
 from datetime import datetime
 import urllib.parse
+import secrets
 import html
+import re
+import aiofiles
+import time
+
+# 設置代理和HTTP客戶端
+proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
+session = niquests.Session(pool_connections=10, pool_maxsize=100)
+session.headers['Cache-Control'] = 'no-cache'
+session.headers['Pragma'] = 'no-cache'
+userAgent = [
+    'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0'
+]
+session.headers['User-Agent'] = secrets.choice(userAgent)
+session.proxies.update(proxies)
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -78,11 +95,11 @@ categories_data = {
 
 async def process_category(category, url):
     try:
-        response = await asyncio.to_thread(requests.get, url)
-        if response.status_code == 200:
+        response = await asyncio.to_thread(session.get, url, proxies=proxies)
+        if response.ok:
             web_content = response.text
         else:
-            print(f'{category} 處理失敗: HTTP 狀態碼 {response.status_code}')
+            print(f'{category} 處理失敗: HTTP 狀態碼')
             return
     except Exception as e:
         print(f'{category} 處理失敗: {e}')
@@ -132,8 +149,8 @@ async def process_category(category, url):
         soup_rss.channel.append(item)
 
     rss_filename = f'{category}.rss'
-    with open(rss_filename, 'w', encoding='utf-8') as file:
-        file.write(soup_rss.prettify())
+    async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
+        await file.write(soup_rss.prettify())
 
     print(f'{category} 處理完成!')
 
@@ -145,7 +162,7 @@ async def process_article(fg, category, article):
     
     print( f'{title} started!' )
 
-    article_response = await asyncio.to_thread(requests.get, link)
+    article_response = await asyncio.to_thread(session.get, link, proxies=proxies)
     article_content = article_response.text
     article_soup = BeautifulSoup(article_content, 'html.parser')
 
@@ -154,10 +171,15 @@ async def process_article(fg, category, article):
     # 處理圖片
     images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
     imgHtml = ''
+    imgList = set()
     for image in images:
         imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
         imgAlt = image.get('alt', '')
         imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+        imgList.add(imgUrl)
+
+    # 緩存圖片
+    await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
     pub_date = article.select_one('.ns2-created').text
     formatted_pub_date = parse_pub_date(pub_date)
@@ -182,9 +204,26 @@ async def process_article(fg, category, article):
     
     print( f'{title} done!' )
 
+# 緩存圖片的異步函數
+async def cache_image(imageUrl):
+    while True:
+        try:
+            imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(10, 10), proxies=proxies)
+            if imageUrlResponse.ok:
+                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
+                break
+            else:
+                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
+        except Exception as e:
+            print(f'錯誤: {e} - {imageUrl} : 嘗試失敗，將重試。')
+
 async def main():
     tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
     await asyncio.gather(*tasks)
 
 if __name__ == '__main__':
+    start_time = time.time()
     asyncio.run(main())
+    end_time = time.time()
+    execution_time = end_time - start_time
+    print(f'執行時間：{execution_time}秒')
