@@ -101,8 +101,8 @@ async def process_category(category, url):
         else:
             print(f'{category} 處理失敗: HTTP 狀態碼')
             return
-    except Exception as e:
-        print(f'{category} 處理失敗: {e}')
+    except:
+        print(f'{category} 處理失敗')
         return
 
     soup = BeautifulSoup(web_content, 'html.parser')
@@ -208,14 +208,14 @@ async def process_article(fg, category, article):
 async def cache_image(imageUrl):
     while True:
         try:
-            imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(10, 10), proxies=proxies)
+            imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1), proxies=proxies)
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
                 break
             else:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
-        except Exception as e:
-            print(f'錯誤: {e} - {imageUrl} : 嘗試失敗，將重試。')
+        except:
+            print(f'{imageUrl} : 嘗試失敗，將重試。')
 
 async def main():
     tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
