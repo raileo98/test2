@@ -258,7 +258,7 @@ async def cache_image(imageUrl):
 # 主函數
 async def main():
     sem = Semaphore(10)
-    tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_dict]
+    tasks = [asyncio.create_task(process_category(sem, category, url)) for category, url in urls_dict.items()]
     await asyncio.gather(*tasks)
 
 # 程序入口
