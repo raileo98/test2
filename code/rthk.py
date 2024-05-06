@@ -180,17 +180,21 @@ async def process_article(fg, category, article):
     imgHtml = ''
     imgList = set()
     for image in images:
-        imgUrl = 'https://images.weserv.nl/?n=-1&q=1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
+        imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_L_', '_')
+        imgList.add(imgUrl)
+
+        imgUrl = imgUrl.replace('n=-1', 'n=-1&q=1')
+        imgList.add(imgUrl)
+        
         imgAlt = image.get('alt', '')
         imgAlt = imgAlt.strip()
         imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-        imgList.add(imgUrl)
 
     scripts = article_soup.find_all('script')
     for script in scripts:
@@ -198,17 +202,21 @@ async def process_article(fg, category, article):
             match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
             if match:
                 video_thumbnail = match.group(1)
-                imgUrl = 'https://images.weserv.nl/?n=-1&q=1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
+                imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
                 imgList.add(imgUrl)
                 
                 imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
                 imgList.add(imgUrl)
                 
                 imgUrl = imgUrl.replace('_L_', '_')
+                imgList.add(imgUrl)
+                
+                imgUrl = imgUrl.replace('n=-1', 'n=-1&q=1')
+                imgList.add(imgUrl)
+                
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
                 imgAlt = imgAlt.strip()
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-                imgList.add(imgUrl)
                 break
     
     # 緩存圖片
