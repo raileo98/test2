@@ -113,7 +113,7 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    feedImg = f"https://images.weserv.nl/?n=-1&url={urllib.parse.quote_plus('https://external-content.duckduckgo.com/ip3/' + urllib.parse.urlparse(categories_data[category]['url']).netloc + '.ico')}"
+    feedImg = f"https://images.weserv.nl/?n=-1&output=webp&url={urllib.parse.quote_plus('https://external-content.duckduckgo.com/ip3/' + urllib.parse.urlparse(categories_data[category]['url']).netloc + '.ico')}"
     fg.logo(feedImg)
 
     fg.copyright('© 香港電台 RTHK')
@@ -179,7 +179,7 @@ async def process_article(fg, category, article):
     imgHtml = ''
     imgList = set()
     for image in images:
-        imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
+        imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
         imgAlt = image.get('alt', '')
         imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
         imgList.add(imgUrl)
@@ -190,8 +190,10 @@ async def process_article(fg, category, article):
             match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
             if match:
                 video_thumbnail = match.group(1)
+                imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
-                imgHtml += f'<img src="{video_thumbnail}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
+                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
+                imgList.add(imgUrl)
                 break
     
     # 緩存圖片
