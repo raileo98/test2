@@ -187,7 +187,8 @@ async def process_article(fg, category, article):
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_L_', '_')
-        imgAlt = strip(image.get('alt', ''))
+        imgAlt = image.get('alt', '')
+        imgAlt = strip(imgAlt)
         imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
         imgList.add(imgUrl)
 
@@ -204,7 +205,8 @@ async def process_article(fg, category, article):
                 imgList.add(imgUrl)
                 
                 imgUrl = imgUrl.replace('_L_', '_')
-                imgAlt = strip(article_soup.select_one('.detailNewsSlideTitle').get_text())
+                imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
+                imgAlt = strip(imgAlt)
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                 imgList.add(imgUrl)
                 break
