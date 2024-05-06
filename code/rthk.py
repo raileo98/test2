@@ -175,26 +175,26 @@ async def process_article(fg, category, article):
     for image in images:
         imgUrl = 'https://images.weserv.nl/?n=-1&url=' + urllib.parse.quote_plus(image['src'])
         imgAlt = image.get('alt', '')
-        imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+        imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
         imgList.add(imgUrl)
 
+    scripts = article_soup.find_all('script')
+    for script in scripts:
+        if 'videoThumbnail' in script.text:
+            match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
+            if match:
+                video_thumbnail = match.group(1)
+                imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
+                imgHtml += f'<img src="{video_thumbnail}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
+                break
+    
     # 緩存圖片
     await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
     pub_date = article.select_one('.ns2-created').text
     formatted_pub_date = parse_pub_date(pub_date)
 
-    author = ''
-    author_element = article_soup.select_one('.itemVideoCredits')
-    if author_element:
-        author = author_element.text
-        authorInfo = {'name': author, 'email': 'cnews@rthk.hk'}
-        fe.author(authorInfo)
-
-    if author:
-        print(f'{category} - {title} - author: {author}')
-
-    feedDescription = f'{imgHtml} <br> {feedDescription} <p>{author}</p> <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+    feedDescription = f'{imgHtml} {feedDescription} <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
     feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
             
     fe.title(title)
