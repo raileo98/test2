@@ -181,7 +181,11 @@ async def process_article(fg, category, article):
     for image in images:
         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
         imgList.add(imgUrl)
-        imgUrl = imgUrl.replace('_L_', '_').replace('_M_', '_').replace('_S_', '_')
+        
+        imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
+        imgList.add(imgUrl)
+        
+        imgUrl = imgUrl.replace('_L_', '_')
         imgAlt = image.get('alt', '')
         imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
         imgList.add(imgUrl)
@@ -194,7 +198,11 @@ async def process_article(fg, category, article):
                 video_thumbnail = match.group(1)
                 imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
                 imgList.add(imgUrl)
-                imgUrl = imgUrl.replace('_L_', '_').replace('_M_', '_').replace('_S_', '_')
+                
+                imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
+                imgList.add(imgUrl)
+                
+                imgUrl = imgUrl.replace('_L_', '_')
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
                 imgList.add(imgUrl)
