@@ -135,7 +135,7 @@ async def process_category(category, url):
 
     for item in soup_rss.find_all('item'):
         if item.description is not None:
-            item.description.string = CData(html.unescape(strip(item.description.string)))
+            item.description.string = CData(html.unescape(item.description.string.strip()))
 
     if soup_rss.find('url') is not None:
         soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string))
@@ -188,7 +188,7 @@ async def process_article(fg, category, article):
         
         imgUrl = imgUrl.replace('_L_', '_')
         imgAlt = image.get('alt', '')
-        imgAlt = strip(imgAlt)
+        imgAlt = imgAlt.strip()
         imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
         imgList.add(imgUrl)
 
@@ -206,7 +206,7 @@ async def process_article(fg, category, article):
                 
                 imgUrl = imgUrl.replace('_L_', '_')
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
-                imgAlt = strip(imgAlt)
+                imgAlt = imgAlt.strip()
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                 imgList.add(imgUrl)
                 break
