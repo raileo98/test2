@@ -12,7 +12,7 @@ import time
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=2, pool_maxsize=100)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=100)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -180,6 +180,8 @@ async def process_article(fg, category, article):
     imgList = set()
     for image in images:
         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
+        imgList.add(imgUrl)
+        imgUrl = imgUrl.replace('_L_', '_').replace('_M_', '_').replace('_S_', '_')
         imgAlt = image.get('alt', '')
         imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
         imgList.add(imgUrl)
@@ -191,6 +193,8 @@ async def process_article(fg, category, article):
             if match:
                 video_thumbnail = match.group(1)
                 imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
+                imgList.add(imgUrl)
+                imgUrl = imgUrl.replace('_L_', '_').replace('_M_', '_').replace('_S_', '_')
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
                 imgList.add(imgUrl)
