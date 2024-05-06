@@ -149,6 +149,12 @@ async def process_category(category, url):
         soup_rss.channel.append(item)
 
     rss_filename = f'{category}.rss'
+    
+    # 找到<lastBuildDate>標籤並移除它們
+    tag = soup_rss.find('lastBuildDate')
+    if tag:
+        tag.decompose()
+    
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
         await file.write(soup_rss.prettify())
 
