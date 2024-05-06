@@ -52,4 +52,6 @@ jobs:
         git config --global user.name "github-actions"
         git add *.rss
         git commit -m "Upload RSS file"
+        # 在推送之前檢查是否有變更
+        git diff --cached --exit-code || (echo "沒有變更可推送" && exit 0)
         git push origin main
