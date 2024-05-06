@@ -113,7 +113,7 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    feedImg = f"https://images.weserv.nl/?n=-1&output=webp&url={urllib.parse.quote_plus('https://external-content.duckduckgo.com/ip3/' + urllib.parse.urlparse(categories_data[category]['url']).netloc + '.ico')}"
+    feedImg = f"https://images.weserv.nl/?n=-1&q=1&output=webp&url={urllib.parse.quote_plus('https://external-content.duckduckgo.com/ip3/' + urllib.parse.urlparse(categories_data[category]['url']).netloc + '.ico')}"
     fg.logo(feedImg)
 
     fg.copyright('© 香港電台 RTHK')
