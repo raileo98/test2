@@ -165,6 +165,7 @@ async def process_article(fg, category, article):
             
     title = article.select_one('.ns2-title').text
     link = article.select_one('.ns2-title a')['href']
+    link = link.replace('?spTabChangeable=0', '')
     
     print( f'{title} started!' )
 
