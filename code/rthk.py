@@ -189,7 +189,7 @@ async def process_article(fg, category, article):
         imgUrl = imgUrl.replace('_L_', '_')
         imgList.add(imgUrl)
 
-        imgUrl = imgUrl.replace('n=-1', 'n=-1&q=1')
+        imgUrl = imgUrl.replace('n=-1', 'n=-1&q=10')
         imgList.add(imgUrl)
         
         imgAlt = image.get('alt', '')
@@ -211,7 +211,7 @@ async def process_article(fg, category, article):
                 imgUrl = imgUrl.replace('_L_', '_')
                 imgList.add(imgUrl)
                 
-                imgUrl = imgUrl.replace('n=-1', 'n=-1&q=1')
+                imgUrl = imgUrl.replace('n=-1', 'n=-1&q=10')
                 imgList.add(imgUrl)
                 
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
