@@ -12,7 +12,7 @@ import time
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=100)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=100, retries=3)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -243,25 +243,28 @@ async def process_article(fg, category, article):
 async def cache_image(imageUrl):
     while True:
         try:
+            imageUrlResponseStartTime = time.time()
             imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1), proxies=proxies)
             if imageUrlResponse.ok:
-                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
+                print(f'[INFO] 已緩存! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
                 break
 
             elif 'Maximum image processing time of' in imageUrlResponse.json()['message']:
                 if 'output=webp' not in imageUrl:
-                    print(f'[ERROR] timeout，不再重試! imageUrl: {imageUrl}')
+                    print(f'[ERROR] timeout，不再重試! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
                     break
                 
                 newImageUrl = imageUrl.replace('output=webp', 'output=')
-                print(f'[ERROR] timeout! {imageUrl} -> {newImageUrl}')
+                print(f'[ERROR] timeout! 耗時: {imageUrlResponse.elapsed.total_seconds()} - {imageUrl} -> {newImageUrl}')
                 imageUrl = newImageUrl
             
             else:
-                print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
+                print(f'[ERROR] 緩存失敗! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
         
         except:
-            print(f'[ERROR] 嘗試失敗，不再重試! imageUrl: {imageUrl}')
+            imageUrlResponseEndTime = time.time()
+            imageUrlResponseExecutionTime = imageUrlResponseEndTime - imageUrlResponseStartTime
+            print(f'[ERROR] {imageUrlResponseExecutionTime}秒 - 嘗試失敗，不再重試! imageUrl: {imageUrl}')
             break
 
 async def main():
