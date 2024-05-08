@@ -99,6 +99,7 @@ async def process_category(category, url):
             response = await asyncio.to_thread(session.get, url, proxies=proxies)
             if response.ok:
                 web_content = response.text
+                break
             else:
                 print(f'{category} 處理失敗，即將重試!')
         except:
@@ -175,7 +176,7 @@ async def process_article(fg, category, article):
             break
 
         except:
-            print(f'[ERROR] 失敗! 耗時: {article_response.elapsed.total_seconds()} - articleLink: {articleLink}')
+            print(f'[ERROR] 失敗! 耗時: {article_response.elapsed.total_seconds()} - articleLink: {articleLink} - articleTitle: {articleTitle}')
     
     article_content = article_response.text
     article_soup = BeautifulSoup(article_content, 'html.parser')
