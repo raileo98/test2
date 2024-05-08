@@ -181,15 +181,19 @@ async def process_article(fg, category, article):
     imgList = set()
     for image in images:
         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
+        print(f'{link} - {title}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
+        print(f'{link} - {title}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_L_', '_')
+        print(f'{link} - {title}: {imgUrl}')
         imgList.add(imgUrl)
 
         imgUrl = imgUrl.replace('n=-1', 'n=-1&q=10')
+        print(f'{link} - {title}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgAlt = image.get('alt', '')
