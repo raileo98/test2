@@ -163,11 +163,11 @@ async def process_category(category, url):
 async def process_article(fg, category, article):
     fe = fg.add_entry()
             
-    title = article.select_one('.ns2-title').text
+    articleTitle = article.select_one('.ns2-title').text
     articleLink = article.select_one('.ns2-title a')['href']
     articleLink = articleLink.replace('?spTabChangeable=0', '')
     
-    print( f'{title} started!' )
+    print( f'{articleTitle} started!' )
 
     while True:
         try:
@@ -188,19 +188,19 @@ async def process_article(fg, category, article):
     imgList = set()
     for image in images:
         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
-        print(f'{articleLink} - {title}: {imgUrl}')
+        print(f'{articleLink} - {articleTitle}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-        print(f'{articleLink} - {title}: {imgUrl}')
+        print(f'{articleLink} - {articleTitle}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_L_', '_')
-        print(f'{articleLink} - {title}: {imgUrl}')
+        print(f'{articleLink} - {articleTitle}: {imgUrl}')
         imgList.add(imgUrl)
 
         imgUrl = imgUrl.replace('n=-1', 'n=-1&q=10')
-        print(f'{articleLink} - {title}: {imgUrl}')
+        print(f'{articleLink} - {articleTitle}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgAlt = image.get('alt', '')
@@ -239,12 +239,12 @@ async def process_article(fg, category, article):
     feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
     feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
             
-    fe.title(title)
+    fe.title(articleTitle)
     fe.link(href=articleLink)
     fe.description(feedDescription)
     fe.pubDate(formatted_pub_date)
     
-    print( f'{title} done!' )
+    print( f'{articleTitle} done!' )
 
 # 緩存圖片的異步函數
 async def cache_image(imageUrl):
