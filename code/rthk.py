@@ -94,16 +94,16 @@ categories_data = {
 }
 
 async def process_category(category, url):
-    try:
-        response = await asyncio.to_thread(session.get, url, proxies=proxies)
-        if response.ok:
-            web_content = response.text
-        else:
-            print(f'{category} 處理失敗: HTTP 狀態碼')
-            return
-    except:
-        print(f'{category} 處理失敗')
-        return
+    while True:
+        try:
+            response = await asyncio.to_thread(session.get, url, proxies=proxies)
+            if response.ok:
+                web_content = response.text
+            else:
+                print(f'{category} 處理失敗，即將重試!')
+        except:
+            print(f'{category} 處理失敗，即將重試!')
+            # return
 
     soup = BeautifulSoup(web_content, 'html.parser')
 
@@ -164,12 +164,19 @@ async def process_article(fg, category, article):
     fe = fg.add_entry()
             
     title = article.select_one('.ns2-title').text
-    link = article.select_one('.ns2-title a')['href']
-    link = link.replace('?spTabChangeable=0', '')
+    articleLink = article.select_one('.ns2-title a')['href']
+    articleLink = articleLink.replace('?spTabChangeable=0', '')
     
     print( f'{title} started!' )
 
-    article_response = await asyncio.to_thread(session.get, link, proxies=proxies)
+    while True:
+        try:
+            article_response = await asyncio.to_thread(session.get, articleLink, proxies=proxies)
+            break
+
+        except:
+            print(f'[ERROR] 失敗! 耗時: {article_response.elapsed.total_seconds()} - articleLink: {articleLink}')
+    
     article_content = article_response.text
     article_soup = BeautifulSoup(article_content, 'html.parser')
 
@@ -181,19 +188,19 @@ async def process_article(fg, category, article):
     imgList = set()
     for image in images:
         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
-        print(f'{link} - {title}: {imgUrl}')
+        print(f'{articleLink} - {title}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-        print(f'{link} - {title}: {imgUrl}')
+        print(f'{articleLink} - {title}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgUrl = imgUrl.replace('_L_', '_')
-        print(f'{link} - {title}: {imgUrl}')
+        print(f'{articleLink} - {title}: {imgUrl}')
         imgList.add(imgUrl)
 
         imgUrl = imgUrl.replace('n=-1', 'n=-1&q=10')
-        print(f'{link} - {title}: {imgUrl}')
+        print(f'{articleLink} - {title}: {imgUrl}')
         imgList.add(imgUrl)
         
         imgAlt = image.get('alt', '')
@@ -229,11 +236,11 @@ async def process_article(fg, category, article):
     pub_date = article.select_one('.ns2-created').text
     formatted_pub_date = parse_pub_date(pub_date)
 
-    feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{link}" rel=nofollow>{link}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+    feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
     feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
             
     fe.title(title)
-    fe.link(href=link)
+    fe.link(href=articleLink)
     fe.description(feedDescription)
     fe.pubDate(formatted_pub_date)
     
