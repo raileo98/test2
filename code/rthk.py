@@ -247,10 +247,22 @@ async def cache_image(imageUrl):
             if imageUrlResponse.ok:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 已緩存！')
                 break
+
+            elif 'Maximum image processing time of' in imageUrlResponse.json()['message']:
+                if 'output=webp' not in imageUrl:
+                    print(f'[ERROR] timeout，不再重試! imageUrl: {imageUrl}')
+                    break
+                
+                newImageUrl = imageUrl.replace('output=webp', 'output=')
+                print(f'[ERROR] timeout! {imageUrl} -> {newImageUrl}')
+                imageUrl = newImageUrl
+            
             else:
                 print(f'{imageUrlResponse.elapsed.total_seconds()} - {imageUrl} : 緩存失敗！')
+        
         except:
-            print(f'{imageUrl} : 嘗試失敗，將重試。')
+            print(f'[ERROR] 嘗試失敗，不再重試! imageUrl: {imageUrl}')
+            break
 
 async def main():
     tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
