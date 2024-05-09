@@ -207,7 +207,11 @@ async def process_article(fg, category, article):
         
         while True:
             imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
-            imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+            
+            try:
+                imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+            except:
+                print(f'imgUrlWithQ: {imgUrlWithQ} failed, retrying.')
             
             if imgUrlResponse.ok:
                 # content_length = int(imgUrlResponse.headers.get('Content-Length', 0))
