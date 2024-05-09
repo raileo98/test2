@@ -12,7 +12,7 @@ import time
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=100, retries=3)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=5)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -201,13 +201,52 @@ async def process_article(fg, category, article):
         print(f'{articleLink} - {articleTitle}: {imgUrl}')
         imgList.add(imgUrl)
 
-        imgUrl = imgUrl.replace('n=-1', 'n=-1&q=10')
-        print(f'{articleLink} - {articleTitle}: {imgUrl}')
-        imgList.add(imgUrl)
+        # 根據圖片大小調整壓縮質量
+        q = 80
+        latest_imgUrl = None
         
+        while True:
+            imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
+            imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+            
+            if imgUrlResponse.ok:
+                # content_length = int(imgUrlResponse.headers.get('Content-Length', 0))
+                content_length = int(imgUrlResponse.headers['Content-Length'])
+                
+                if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
+                    latest_imgUrl = imgUrlWithQ
+                    break
+                    
+                # elif content_length > 500 * 1024:  # 大於 500 KB 時壓縮
+                elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
+                    if q > 10:
+                        q -= 10
+                        
+                    elif q == 5:
+                        q = 1
+                        
+                    elif q == 1:
+                        latest_imgUrl = imgUrlWithQ
+                        break
+                        
+                    else:
+                        q = 5
+                        
+                else:
+                    latest_imgUrl = imgUrlWithQ
+                    break
+            else:
+                # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
+                print(f'[ERROR] 獲取圖片大小失敗! 耗時: {imgUrlResponse.elapsed.total_seconds()} - imageUrl: {imgUrl}')
+                # latest_imgUrl = imgUrlWithQ
+                break
+
         imgAlt = image.get('alt', '')
         imgAlt = imgAlt.strip()
-        imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+        if latest_imgUrl:
+            imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+        else:
+            imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
 
     scripts = article_soup.find_all('script')
     for script in scripts:
@@ -224,12 +263,57 @@ async def process_article(fg, category, article):
                 imgUrl = imgUrl.replace('_L_', '_')
                 imgList.add(imgUrl)
                 
-                imgUrl = imgUrl.replace('n=-1', 'n=-1&q=10')
-                imgList.add(imgUrl)
+                # 根據圖片大小調整壓縮質量
+                q = 80
+                latest_imgUrl = None
                 
+                while True:
+                    imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
+                    print(f'imgUrlWithQ: {imgUrlWithQ} - Testing')
+                    
+                    imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+                    
+                    if imgUrlResponse.ok:
+                        # content_length = int(imgUrlResponse.headers.get('Content-Length', 0))
+                        content_length = int(imgUrlResponse.headers['Content-Length'])
+                        
+                        if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
+                            latest_imgUrl = imgUrlWithQ
+                            break
+                            
+                        # elif content_length > 500 * 1024:  # 大於 500 KB 時壓縮
+                        elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
+                            if q > 10:
+                                q -= 10
+                                
+                            elif q == 5:
+                                q = 1
+                                
+                            elif q == 1:
+                                latest_imgUrl = imgUrlWithQ
+                                break
+                                
+                            else:
+                                q = 5
+                                
+                        else:
+                            latest_imgUrl = imgUrlWithQ
+                            break
+                            
+                    else:
+                        # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
+                        print(f'[ERROR] 獲取圖片大小失敗! 耗時: {imgUrlResponse.elapsed.total_seconds()} - imageUrl: {imgUrl}')
+                        # latest_imgUrl = imgUrlWithQ
+                        break
+
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
                 imgAlt = imgAlt.strip()
-                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                if latest_imgUrl:
+                    imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                    print(f'Final imgUrlWithQ: {imgUrlWithQ}')
+                else:
+                    imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                    print(f'Final imgUrl: {imgUrl}')
                 break
     
     # 緩存圖片
