@@ -252,10 +252,12 @@ async def process_article(fg, category, article):
         if latest_imgUrl:
             latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+            imgList.add(latest_imgUrl)
             print(f'Final imgUrlWithQ: {imgUrlWithQ}')
         else:
             imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+            imgList.add(imgUrl)
             print(f'Final imgUrl: {imgUrl}')
 
     scripts = article_soup.find_all('script')
@@ -265,13 +267,16 @@ async def process_article(fg, category, article):
             if match:
                 video_thumbnail = match.group(1)
                 imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
-                imgList.add(imgUrl)
+                # imgList.add(imgUrl)
+                imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                 
                 imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                imgList.add(imgUrl)
+                # imgList.add(imgUrl)
+                imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                 
                 imgUrl = imgUrl.replace('_L_', '_')
-                imgList.add(imgUrl)
+                # imgList.add(imgUrl)
+                imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                 
                 # 根據圖片大小調整壓縮質量
                 q = 80
@@ -322,10 +327,12 @@ async def process_article(fg, category, article):
                 if latest_imgUrl:
                     latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                     imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                    imgList.add(latest_imgUrl)
                     print(f'Final imgUrlWithQ: {imgUrlWithQ}')
                 else:
                     imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                     imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                    imgList.add(imgUrl)
                     print(f'Final imgUrl: {imgUrl}')
                 break
     
