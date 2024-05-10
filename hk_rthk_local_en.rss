@@ -21,7 +21,7 @@
   </generator>
   <image>
    <url>
-    <![CDATA[http://localhost:8080/?n=-1&output=webp&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
+    <![CDATA[https://images.weserv.nl/?n=-1&output=webp&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
    </url>
    <title>
     rthk - Local
@@ -36,6 +36,52 @@
   <webMaster>
    webmaster@rthk.hk
   </webMaster>
+  <item>
+   <title>
+    IT experts called to probe Lukfook data breach
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/en/component/k2/1752630-20240510.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="Lukfook Jewellery says it cannot confirm if information has been leaked. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=20&output=webp&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1752630_1_20240510163140.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ Lukfook Jewellery on Friday said it had hired information technology specialists to investigate a potential data breach, after its database was reportedly hacked with the information of the group's members being put up for sale online.
+ <br>
+  <br/>
+  Local media reported that a hacker had obtained the database, which allegedly contained the information of millions of the chain's members, and was prepared to sell the information for 25,000 Tether tokens, or roughly HK$195,000.
+  <br/>
+  <br/>
+  Responding to media queries, the jewellery chain stressed it attached great importance to the privacy of its customers, but it could not confirm at the moment if such information had been leaked.
+  <br/>
+  <br/>
+  Lukfook said it has launched a probe into the incident and filed reports to the police and the privacy commissioner's office.
+  <br/>
+  <br/>
+  The privacy watchdog, for its part, said it had not received any reports regarding the incident and would reach out to relevant organisations.
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/en/component/k2/1752630-20240510.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/en/component/k2/1752630-20240510.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Fri, 10 May 2024 16:44:00 +0800
+   </pubDate>
+  </item>
   <item>
    <title>
     Works to build Hung Shui Kiu MTR Station begins
@@ -3389,61 +3435,6 @@
    </description>
    <pubDate>
     Sun, 05 May 2024 13:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    HK economy keeping up its momentum: FS
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/en/component/k2/1751862-20240505.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Paul Chan is attending the Asian Development Bank's annual meeting in Tbilisi. Photo courtesy of Chan's blog" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=1&output=webp&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1751862_1_20240505115210.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- Financial Secretary Paul Chan on Sunday said Hong Kong's economy was maintaining its momentum.
- <br>
-  <br/>
-  Writing on his official blog, Chan said the city’s GDP had increased five quarters in a row, with growth going up 2.7 percent year-on-year in the quarter ending in March.
-  <br/>
-  <br/>
-  Market sentiment had also improved, he said, with the Hang Seng Index gaining almost 14 percent recently after going up for nine consecutive days, while the property market had become more active after measures to curb speculation were lifted.
-  <br/>
-  <br/>
-  Chan said inbound tourism was one of the key drivers of the economy in the first quarter, adding the number of arrivals during the first three days of Golden Week, which stood at nearly 650,000, was up 25 percent from last year.
-  <br/>
-  <br/>
-  But the minister said external uncertainties remained, and that higher interest rates and a strong Hong Kong dollar would affect the city's tourism sector, as well as export and investment sentiment.
-  <br/>
-  <br/>
-  He called on companies to develop new products to explore new ways to manage their businesses, noting that authorities were helping SMEs to go digital.
-  <br/>
-  <br/>
-  The finance chief, who was attending the Asian Development Bank's annual meeting in the Georgian capital of Tbilisi, said many participants were interested in the development of the digital economy as well as the innovation and technology sector in the SAR.
-  <br/>
-  <br/>
-  Chan added authorities recently published the Hong Kong Taxonomy for Sustainable Finance, to provide a clearer definition of green products and help the sector reduce "greenwashing" risks.
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/en/component/k2/1751862-20240505.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/en/component/k2/1751862-20240505.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Sun, 05 May 2024 12:47:00 +0800
    </pubDate>
   </item>
  </channel>

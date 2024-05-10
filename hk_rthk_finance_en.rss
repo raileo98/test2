@@ -21,7 +21,7 @@
   </generator>
   <image>
    <url>
-    <![CDATA[http://localhost:8080/?n=-1&output=webp&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
+    <![CDATA[https://images.weserv.nl/?n=-1&output=webp&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
    </url>
    <title>
     rthk - Finance
@@ -36,6 +36,46 @@
   <webMaster>
    webmaster@rthk.hk
   </webMaster>
+  <item>
+   <title>
+    HK stocks finish week with more gains
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/en/component/k2/1752629-20240510.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="The Hang Seng Index jumped 2.3 percent to 18,963. Image: Shutterstock" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1752629_1_20240510162832.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ Hong Kong stocks rallied on Friday on fresh hopes for US interest rate cuts as well as a report saying the mainland was considering scrapping dividend taxes on Hong Kong shares bought via the Stock Connect.
+ <br>
+  <br/>
+  The Hang Seng Index jumped 2.3 percent, or 425 points, to 18,963.
+  <br/>
+  <br/>
+  The Shanghai Composite Index was flat, inching up 0.2 points to 3,154, while the Shenzhen Composite Index slipped 0.7 percent, or 12 points, to 1,783. (AFP)
+ </br>
+</div>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/en/component/k2/1752629-20240510.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/en/component/k2/1752629-20240510.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Fri, 10 May 2024 16:28:00 +0800
+   </pubDate>
+  </item>
   <item>
    <title>
     HK market builds on gains, lifted by US data
@@ -1348,7 +1388,7 @@
     https://news.rthk.hk/rthk/en/component/k2/1751663-20240503.htm
    </link>
    <description>
-    <![CDATA[<img alt="Retail sales in the first quarter of 2024 fell by 1.3 percent year-on-year. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&output=webp&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1751663_1_20240503175013.jpg" style="width:100%;height:auto"/>
+    <![CDATA[<img alt="Retail sales in the first quarter of 2024 fell by 1.3 percent year-on-year. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=1&output=webp&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1751663_1_20240503175013.jpg" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
  Hong Kong's retail sales fell 7 percent in March from a year earlier, ending 15 months of growth.
@@ -3086,46 +3126,6 @@
    </description>
    <pubDate>
     Thu, 25 Apr 2024 16:35:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    HK market opens lower as investors digest Meta result
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/en/component/k2/1750447-20240425.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The Hang Seng Index was 0.3 percent lower in the opening minutes. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1750447_1_20240425091305.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- Hong Kong stocks opened with a small loss on Thursday as investors took a breather following a strong three-day rally and after a disappointing earnings report from Facebook parent Meta.
- <br>
-  <br/>
-  The Hang Seng Index slipped 0.3 percent to 17,144.
-  <br/>
-  <br/>
-  The Shanghai Composite Index eased 0.2 percent to 3,037, and the Shenzhen Composite Index edged down 0.5 percent to 1,687. (AFP)
- </br>
-</div>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/en/component/k2/1750447-20240425.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/en/component/k2/1750447-20240425.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 25 Apr 2024 09:43:00 +0800
    </pubDate>
   </item>
  </channel>
