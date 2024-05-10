@@ -22,6 +22,25 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
+# 在代碼開頭添加一些代碼,使用代理和不使用代理來獲取 URL
+try:
+    response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
+    if response.ok:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
+    else:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
+except:
+    print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
+
+try:
+    response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace')
+    if response.ok:
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
+    else:
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
+except:
+    print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
+
 # 解析發布日期
 def parse_pub_date(date_str):
     date_str = date_str.replace('HKT', '+0800')
@@ -93,11 +112,15 @@ categories_data = {
 }
 
 async def process_category(category, url):
-    response = await get_response(url)
-    if response.ok:
-        web_content = response.text
-    else:
-        print(f'{category} 處理失敗，即將重試!')
+    try:
+        response = await get_response(url)
+        if response.ok:
+            web_content = response.text
+        else:
+            print(f'{category} 處理失敗，即將重試!')
+            return
+    except:
+        print(f'{category} 獲取響應出錯，即將重試!')
         return
 
     soup = BeautifulSoup(web_content, 'html.parser')
@@ -156,108 +179,111 @@ async def process_category(category, url):
     print(f'{category} 處理完成!')
 
 async def process_article(fg, category, article):
-    fe = fg.add_entry()
-            
-    articleTitle = article.select_one('.ns2-title').text
-    articleLink = article.select_one('.ns2-title a')['href']
-    articleLink = articleLink.replace('?spTabChangeable=0', '')
-    
-    print( f'{articleTitle} started!' )
-
-    article_response = await get_response(articleLink)
-    article_content = article_response.text
-    article_soup = BeautifulSoup(article_content, 'html.parser')
-
-    feedDescription = article_soup.select_one('.itemFullText').prettify()
-
-    # 處理圖片
-    images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
-    imgHtml = ''
-    imgList = set()
-    for image in images:
-        imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
-        print(f'{articleLink} - {articleTitle}: {imgUrl}')
-        imgList.add(imgUrl)
+    try:
+        fe = fg.add_entry()
+                
+        articleTitle = article.select_one('.ns2-title').text
+        articleLink = article.select_one('.ns2-title a')['href']
+        articleLink = articleLink.replace('?spTabChangeable=0', '')
         
-        imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-        print(f'{articleLink} - {articleTitle}: {imgUrl}')
-        imgList.add(imgUrl)
-        
-        imgUrl = imgUrl.replace('_L_', '_')
-        print(f'{articleLink} - {articleTitle}: {imgUrl}')
-        imgList.add(imgUrl)
+        print( f'{articleTitle} started!' )
 
-        # 根據圖片大小調整壓縮質量
-        latest_imgUrl = await optimize_image_quality(imgUrl)
+        article_response = await get_response(articleLink)
+        article_content = article_response.text
+        article_soup = BeautifulSoup(article_content, 'html.parser')
 
-        imgAlt = image.get('alt', '')
-        imgAlt = imgAlt.strip()
-        if latest_imgUrl:
-            latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
-            imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-            imgList.add(latest_imgUrl)
-            print(f'Final imgUrlWithQ: {latest_imgUrl}')
-        else:
-            imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
-            imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+        feedDescription = article_soup.select_one('.itemFullText').prettify()
+
+        # 處理圖片
+        images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
+        imgHtml = ''
+        imgList = set()
+        for image in images:
+            imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
+            print(f'{articleLink} - {articleTitle}: {imgUrl}')
             imgList.add(imgUrl)
-            print(f'Final imgUrl: {imgUrl}')
-
-    scripts = article_soup.find_all('script')
-    for script in scripts:
-        if 'videoThumbnail' in script.text:
-            match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
-            if match:
-                video_thumbnail = match.group(1)
-                imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
-                imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
-                
-                imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
-                
-                imgUrl = imgUrl.replace('_L_', '_')
-                imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
-                
-                # 根據圖片大小調整壓縮質量
-                latest_imgUrl = await optimize_image_quality(imgUrl)
-
-                imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
-                imgAlt = imgAlt.strip()
-                if latest_imgUrl:
-                    latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
-                    imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-                    imgList.add(latest_imgUrl)
-                    print(f'Final imgUrlWithQ: {latest_imgUrl}')
-                else:
-                    imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
-                    imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
-                    imgList.add(imgUrl)
-                    print(f'Final imgUrl: {imgUrl}')
-                break
-    
-    # 緩存圖片
-    await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
-
-    pub_date = article.select_one('.ns2-created').text
-    formatted_pub_date = parse_pub_date(pub_date)
-
-    feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-    feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
             
-    fe.title(articleTitle)
-    fe.link(href=articleLink)
-    fe.description(feedDescription)
-    fe.pubDate(formatted_pub_date)
-    
-    print( f'{articleTitle} done!' )
+            imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
+            print(f'{articleLink} - {articleTitle}: {imgUrl}')
+            imgList.add(imgUrl)
+            
+            imgUrl = imgUrl.replace('_L_', '_')
+            print(f'{articleLink} - {articleTitle}: {imgUrl}')
+            imgList.add(imgUrl)
+
+            # 根據圖片大小調整壓縮質量
+            latest_imgUrl = await optimize_image_quality(imgUrl)
+
+            imgAlt = image.get('alt', '')
+            imgAlt = imgAlt.strip()
+            if latest_imgUrl:
+                latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
+                imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                imgList.add(latest_imgUrl)
+                print(f'Final imgUrlWithQ: {latest_imgUrl}')
+            else:
+                imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
+                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                imgList.add(imgUrl)
+                print(f'Final imgUrl: {imgUrl}')
+
+        scripts = article_soup.find_all('script')
+        for script in scripts:
+            if 'videoThumbnail' in script.text:
+                match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
+                if match:
+                    video_thumbnail = match.group(1)
+                    imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
+                    imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
+                    
+                    imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
+                    imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
+                    
+                    imgUrl = imgUrl.replace('_L_', '_')
+                    imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
+                    
+                    # 根據圖片大小調整壓縮質量
+                    latest_imgUrl = await optimize_image_quality(imgUrl)
+
+                    imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
+                    imgAlt = imgAlt.strip()
+                    if latest_imgUrl:
+                        latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
+                        imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                        imgList.add(latest_imgUrl)
+                        print(f'Final imgUrlWithQ: {latest_imgUrl}')
+                    else:
+                        imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
+                        imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                        imgList.add(imgUrl)
+                        print(f'Final imgUrl: {imgUrl}')
+                    break
+        
+        # 緩存圖片
+        await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
+
+        pub_date = article.select_one('.ns2-created').text
+        formatted_pub_date = parse_pub_date(pub_date)
+
+        feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+                
+        fe.title(articleTitle)
+        fe.link(href=articleLink)
+        fe.description(feedDescription)
+        fe.pubDate(formatted_pub_date)
+        
+        print( f'{articleTitle} done!' )
+    except:
+        print(f'{articleTitle} 處理出錯')
 
 async def cache_image(imageUrl):
     try:
         response = await get_response(imageUrl, timeout=(1, 1), proxies=None, mustFetch=False)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
-    except Exception as e:
-        print(f'[ERROR] 緩存失敗! imageUrl: {imageUrl}, 錯誤: {e}')
+    except:
+        print(f'[ERROR] 緩存 {imageUrl} 出錯')
 
 async def optimize_image_quality(imgUrl):
     q = 80
@@ -266,35 +292,36 @@ async def optimize_image_quality(imgUrl):
     while True:
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
         
-        response = await get_response(imgUrlWithQ, proxies=None)
-        
-        if response.ok:
-            content_length = int(response.headers['Content-Length'])
+        try:
+            response = await get_response(imgUrlWithQ, proxies=None)
             
-            if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
-                latest_imgUrl = imgUrlWithQ
-                break
+            if response.ok:
+                content_length = int(response.headers['Content-Length'])
                 
-            elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
-                if q > 10:
-                    q -= 10
-                    
-                elif q == 5:
-                    q = 1
-                    
-                elif q == 1:
+                if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
                     latest_imgUrl = imgUrlWithQ
                     break
                     
+                elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
+                    if q > 10:
+                        q -= 10
+                        
+                    elif q == 5:
+                        q = 1
+                        
+                    elif q == 1:
+                        latest_imgUrl = imgUrlWithQ
+                        break
+                        
+                    else:
+                        q = 5
+                        
                 else:
-                    q = 5
-                    
-            else:
-                latest_imgUrl = imgUrlWithQ
-                break
-        else:
+                    latest_imgUrl = imgUrlWithQ
+                    break
+        except:
             # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
-            print(f'[ERROR] 獲取圖片大小失敗! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imgUrl}')
+            print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl}')
             latest_imgUrl = imgUrlWithQ
             break
     
