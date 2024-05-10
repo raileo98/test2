@@ -213,6 +213,7 @@ async def process_article(fg, category, article):
                 # imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ)
             except:
                 print(f'imgUrlWithQ: {imgUrlWithQ} failed, retrying.')
+                continue
             
             if imgUrlResponse.ok:
                 # content_length = int(imgUrlResponse.headers.get('Content-Length', 0))
