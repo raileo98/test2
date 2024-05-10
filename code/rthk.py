@@ -22,24 +22,24 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
-# 在代碼開頭添加一些代碼,使用代理和不使用代理來獲取 URL
-try:
-    response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
-    if response.ok:
-        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
-    else:
-        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
-except:
-    print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
+async def check_proxy():
+    try:
+        response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
+        if response.ok:
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
+        else:
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
+    except:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
 
-try:
-    response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace')
-    if response.ok:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
-    else:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
-except:
-    print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
+    try:
+        response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace')
+        if response.ok:
+            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
+        else:
+            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
+    except:
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
 
 # 解析發布日期
 def parse_pub_date(date_str):
