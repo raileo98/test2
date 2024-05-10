@@ -104,7 +104,6 @@ async def process_category(category, url):
                 print(f'{category} 處理失敗，即將重試!')
         except:
             print(f'{category} 處理失敗，即將重試!')
-            # return
 
     soup = BeautifulSoup(web_content, 'html.parser')
 
@@ -175,7 +174,6 @@ async def process_article(fg, category, article):
         try:
             article_response = await asyncio.to_thread(session.get, articleLink, proxies=proxies)
             break
-
         except:
             print(f'[ERROR] 失敗! 耗時: {article_response.elapsed.total_seconds()} - articleLink: {articleLink} - articleTitle: {articleTitle}')
     
@@ -210,20 +208,17 @@ async def process_article(fg, category, article):
             
             try:
                 imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=None)
-                # imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ)
             except:
                 print(f'imgUrlWithQ: {imgUrlWithQ} failed, retrying.')
                 continue
             
             if imgUrlResponse.ok:
-                # content_length = int(imgUrlResponse.headers.get('Content-Length', 0))
                 content_length = int(imgUrlResponse.headers['Content-Length'])
                 
                 if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
                     latest_imgUrl = imgUrlWithQ
                     break
                     
-                # elif content_length > 500 * 1024:  # 大於 500 KB 時壓縮
                 elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
                     if q > 10:
                         q -= 10
@@ -244,7 +239,6 @@ async def process_article(fg, category, article):
             else:
                 # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
                 print(f'[ERROR] 獲取圖片大小失敗! 耗時: {imgUrlResponse.elapsed.total_seconds()} - imageUrl: {imgUrl}')
-                # latest_imgUrl = imgUrlWithQ
                 break
 
         imgAlt = image.get('alt', '')
@@ -267,15 +261,12 @@ async def process_article(fg, category, article):
             if match:
                 video_thumbnail = match.group(1)
                 imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
-                # imgList.add(imgUrl)
                 imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                 
                 imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                # imgList.add(imgUrl)
                 imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                 
                 imgUrl = imgUrl.replace('_L_', '_')
-                # imgList.add(imgUrl)
                 imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                 
                 # 根據圖片大小調整壓縮質量
@@ -286,18 +277,19 @@ async def process_article(fg, category, article):
                     imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
                     print(f'imgUrlWithQ: {imgUrlWithQ} - Testing')
                     
-                    imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=None)
-                    # imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ)
+                    try:
+                        imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=None)
+                    except:
+                        print(f'[ERROR] 獲取圖片大小失敗! imageUrl: {imgUrl}')
+                        continue
                     
                     if imgUrlResponse.ok:
-                        # content_length = int(imgUrlResponse.headers.get('Content-Length', 0))
                         content_length = int(imgUrlResponse.headers['Content-Length'])
                         
                         if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
                             latest_imgUrl = imgUrlWithQ
                             break
                             
-                        # elif content_length > 500 * 1024:  # 大於 500 KB 時壓縮
                         elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
                             if q > 10:
                                 q -= 10
@@ -319,7 +311,6 @@ async def process_article(fg, category, article):
                     else:
                         # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
                         print(f'[ERROR] 獲取圖片大小失敗! 耗時: {imgUrlResponse.elapsed.total_seconds()} - imageUrl: {imgUrl}')
-                        # latest_imgUrl = imgUrlWithQ
                         break
 
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
@@ -358,7 +349,6 @@ async def cache_image(imageUrl):
         try:
             imageUrlResponseStartTime = time.time()
             imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1), proxies=None)
-            # imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1))
             
             if imageUrlResponse.ok:
                 print(f'[INFO] 已緩存! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
