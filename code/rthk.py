@@ -12,7 +12,7 @@ import time
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=5)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -94,16 +94,12 @@ categories_data = {
 }
 
 async def process_category(category, url):
-    while True:
-        try:
-            response = await asyncio.to_thread(session.get, url, proxies=proxies)
-            if response.ok:
-                web_content = response.text
-                break
-            else:
-                print(f'{category} 處理失敗，即將重試!')
-        except:
-            print(f'{category} 處理失敗，即將重試!')
+    response = await get_response(url)
+    if response.ok:
+        web_content = response.text
+    else:
+        print(f'{category} 處理失敗，即將重試!')
+        return
 
     soup = BeautifulSoup(web_content, 'html.parser')
 
@@ -113,7 +109,6 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    # feedImg = f"https://images.weserv.nl/?n=-1&ll&output=webp&url={urllib.parse.quote_plus('https://external-content.duckduckgo.com/ip3/' + urllib.parse.urlparse(categories_data[category]['url']).netloc + '.ico')}"
     feedImg = f"https://images.weserv.nl/?n=-1&output=webp&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
     fg.logo(feedImg)
 
@@ -170,13 +165,7 @@ async def process_article(fg, category, article):
     
     print( f'{articleTitle} started!' )
 
-    while True:
-        try:
-            article_response = await asyncio.to_thread(session.get, articleLink, proxies=proxies)
-            break
-        except:
-            print(f'[ERROR] 失敗! 耗時: {article_response.elapsed.total_seconds()} - articleLink: {articleLink} - articleTitle: {articleTitle}')
-    
+    article_response = await get_response(articleLink)
     article_content = article_response.text
     article_soup = BeautifulSoup(article_content, 'html.parser')
 
@@ -200,46 +189,7 @@ async def process_article(fg, category, article):
         imgList.add(imgUrl)
 
         # 根據圖片大小調整壓縮質量
-        q = 80
-        latest_imgUrl = None
-        
-        while True:
-            imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
-            
-            try:
-                imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=None)
-            except:
-                print(f'imgUrlWithQ: {imgUrlWithQ} failed, retrying.')
-                continue
-            
-            if imgUrlResponse.ok:
-                content_length = int(imgUrlResponse.headers['Content-Length'])
-                
-                if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
-                    latest_imgUrl = imgUrlWithQ
-                    break
-                    
-                elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
-                    if q > 10:
-                        q -= 10
-                        
-                    elif q == 5:
-                        q = 1
-                        
-                    elif q == 1:
-                        latest_imgUrl = imgUrlWithQ
-                        break
-                        
-                    else:
-                        q = 5
-                        
-                else:
-                    latest_imgUrl = imgUrlWithQ
-                    break
-            else:
-                # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
-                print(f'[ERROR] 獲取圖片大小失敗! 耗時: {imgUrlResponse.elapsed.total_seconds()} - imageUrl: {imgUrl}')
-                break
+        latest_imgUrl = await optimize_image_quality(imgUrl)
 
         imgAlt = image.get('alt', '')
         imgAlt = imgAlt.strip()
@@ -247,7 +197,7 @@ async def process_article(fg, category, article):
             latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
             imgList.add(latest_imgUrl)
-            print(f'Final imgUrlWithQ: {imgUrlWithQ}')
+            print(f'Final imgUrlWithQ: {latest_imgUrl}')
         else:
             imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
@@ -270,48 +220,7 @@ async def process_article(fg, category, article):
                 imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                 
                 # 根據圖片大小調整壓縮質量
-                q = 80
-                latest_imgUrl = None
-                
-                while True:
-                    imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
-                    print(f'imgUrlWithQ: {imgUrlWithQ} - Testing')
-                    
-                    try:
-                        imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=None)
-                    except:
-                        print(f'[ERROR] 獲取圖片大小失敗! imageUrl: {imgUrl}')
-                        continue
-                    
-                    if imgUrlResponse.ok:
-                        content_length = int(imgUrlResponse.headers['Content-Length'])
-                        
-                        if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
-                            latest_imgUrl = imgUrlWithQ
-                            break
-                            
-                        elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
-                            if q > 10:
-                                q -= 10
-                                
-                            elif q == 5:
-                                q = 1
-                                
-                            elif q == 1:
-                                latest_imgUrl = imgUrlWithQ
-                                break
-                                
-                            else:
-                                q = 5
-                                
-                        else:
-                            latest_imgUrl = imgUrlWithQ
-                            break
-                            
-                    else:
-                        # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
-                        print(f'[ERROR] 獲取圖片大小失敗! 耗時: {imgUrlResponse.elapsed.total_seconds()} - imageUrl: {imgUrl}')
-                        break
+                latest_imgUrl = await optimize_image_quality(imgUrl)
 
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
                 imgAlt = imgAlt.strip()
@@ -319,7 +228,7 @@ async def process_article(fg, category, article):
                     latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                     imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                     imgList.add(latest_imgUrl)
-                    print(f'Final imgUrlWithQ: {imgUrlWithQ}')
+                    print(f'Final imgUrlWithQ: {latest_imgUrl}')
                 else:
                     imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                     imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
@@ -343,34 +252,61 @@ async def process_article(fg, category, article):
     
     print( f'{articleTitle} done!' )
 
-# 緩存圖片的異步函數
 async def cache_image(imageUrl):
+    try:
+        response = await get_response(imageUrl, timeout=(1, 1))
+        if response.ok:
+            print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
+    except Exception as e:
+        print(f'[ERROR] 緩存失敗! imageUrl: {imageUrl}, 錯誤: {e}')
+
+async def optimize_image_quality(imgUrl):
+    q = 80
+    latest_imgUrl = None
+    
+    while True:
+        imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
+        
+        response = await get_response(imgUrlWithQ)
+        
+        if response.ok:
+            content_length = int(response.headers['Content-Length'])
+            
+            if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
+                latest_imgUrl = imgUrlWithQ
+                break
+                
+            elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
+                if q > 10:
+                    q -= 10
+                    
+                elif q == 5:
+                    q = 1
+                    
+                elif q == 1:
+                    latest_imgUrl = imgUrlWithQ
+                    break
+                    
+                else:
+                    q = 5
+                    
+            else:
+                latest_imgUrl = imgUrlWithQ
+                break
+        else:
+            # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
+            print(f'[ERROR] 獲取圖片大小失敗! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imgUrl}')
+            break
+    
+    return latest_imgUrl
+
+async def get_response(url, timeout=None, **kwargs):
     while True:
         try:
-            imageUrlResponseStartTime = time.time()
-            imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1), proxies=None)
-            
-            if imageUrlResponse.ok:
-                print(f'[INFO] 已緩存! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
-                break
-
-            elif 'Maximum image processing time of' in imageUrlResponse.json()['message']:
-                if 'output=webp' not in imageUrl:
-                    print(f'[ERROR] timeout，不再重試! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
-                    break
-                
-                newImageUrl = imageUrl.replace('output=webp', 'output=')
-                print(f'[ERROR] timeout! 耗時: {imageUrlResponse.elapsed.total_seconds()} - {imageUrl} -> {newImageUrl}')
-                imageUrl = newImageUrl
-            
-            else:
-                print(f'[ERROR] 緩存失敗! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
-        
+            response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout, **kwargs)
+            return response
         except:
-            imageUrlResponseEndTime = time.time()
-            imageUrlResponseExecutionTime = imageUrlResponseEndTime - imageUrlResponseStartTime
-            print(f'[ERROR] {imageUrlResponseExecutionTime}秒 - 嘗試失敗，不再重試! imageUrl: {imageUrl}')
-            break
+            print(f'[ERROR] 獲取響應失敗，即將重試! url: {url}')
 
 async def main():
     tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
