@@ -12,7 +12,7 @@ import time
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=100, retries=3)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=5)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -250,9 +250,13 @@ async def process_article(fg, category, article):
         imgAlt = image.get('alt', '')
         imgAlt = imgAlt.strip()
         if latest_imgUrl:
+            latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+            print(f'Final imgUrlWithQ: {imgUrlWithQ}')
         else:
+            imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+            print(f'Final imgUrl: {imgUrl}')
 
     scripts = article_soup.find_all('script')
     for script in scripts:
@@ -316,9 +320,11 @@ async def process_article(fg, category, article):
                 imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
                 imgAlt = imgAlt.strip()
                 if latest_imgUrl:
+                    latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                     imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                     print(f'Final imgUrlWithQ: {imgUrlWithQ}')
                 else:
+                    imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                     imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                     print(f'Final imgUrl: {imgUrl}')
                 break
