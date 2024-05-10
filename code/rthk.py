@@ -21,7 +21,6 @@ userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0',
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
-session.proxies.update(proxies)
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -257,7 +256,7 @@ async def cache_image(imageUrl):
         if imageUrl.startswith('http://localhost'):
             response = await get_response(imageUrl, timeout=(1, 1), proxies=None)
         else:
-            response = await get_response(imageUrl, timeout=(1, 1))
+            response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
@@ -270,10 +269,7 @@ async def optimize_image_quality(imgUrl):
     while True:
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
         
-        if imgUrl.startswith('http://localhost'):
-            response = await get_response(imgUrlWithQ, proxies=None)
-        else:
-            response = await get_response(imgUrlWithQ)
+        response = await get_response(imgUrlWithQ, proxies=None)
         
         if response.ok:
             content_length = int(response.headers['Content-Length'])
