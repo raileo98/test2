@@ -253,10 +253,7 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        if imageUrl.startswith('http://localhost'):
-            response = await get_response(imageUrl, timeout=(1, 1), proxies=None)
-        else:
-            response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies)
+        response = await get_response(imageUrl, timeout=(1, 1), proxies=None, mustFetch=False)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
@@ -298,17 +295,25 @@ async def optimize_image_quality(imgUrl):
         else:
             # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
             print(f'[ERROR] 獲取圖片大小失敗! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imgUrl}')
+            latest_imgUrl = imgUrlWithQ
             break
     
     return latest_imgUrl
 
-async def get_response(url, timeout=None, proxies=None):
+async def get_response(url, timeout=None, proxies=None, mustFetch=True):
     while True:
         try:
-            response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
+            if url.startswith('http://localhost'):
+                response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
+            else:
+                response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
             return response
         except:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url}')
+            if mustFetch:
+                continue
+            else:
+                break
 
 async def main():
     tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
