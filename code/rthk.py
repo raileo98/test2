@@ -254,7 +254,10 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        response = await get_response(imageUrl, timeout=(1, 1))
+        if imageUrl.startswith('http://localhost'):
+            response = await get_response(imageUrl, timeout=(1, 1), proxies=None)
+        else:
+            response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
@@ -267,7 +270,7 @@ async def optimize_image_quality(imgUrl):
     while True:
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
         
-        response = await get_response(imgUrlWithQ)
+        response = await get_response(imgUrlWithQ, proxies=None)
         
         if response.ok:
             content_length = int(response.headers['Content-Length'])
@@ -303,7 +306,10 @@ async def optimize_image_quality(imgUrl):
 async def get_response(url, timeout=None, **kwargs):
     while True:
         try:
-            response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout, **kwargs)
+            if url.startswith('http://localhost'):
+                response = await asyncio.to_thread(session.get, url, timeout=timeout, **kwargs)
+            else:
+                response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout, **kwargs)
             return response
         except:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url}')
