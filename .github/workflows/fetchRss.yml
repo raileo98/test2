@@ -44,7 +44,7 @@ jobs:
 
     - name: Install weserv/images
       run: |
-        docker run -d -p 8080:80 --shm-size=1gb --name=weserv --env HTTP_PROXY=socks5h://localhost:50000 --env HTTPS_PROXY=socks5h://localhost:50000 ghcr.io/weserv/images:5.x
+        docker run -d -p 8080:80 --shm-size=1gb --name=weserv --env HTTP_PROXY=socks5://localhost:50000 --env HTTPS_PROXY=socks5://localhost:50000 ghcr.io/weserv/images:5.x
 
     - name: 執行 Python 腳本
       run: |
