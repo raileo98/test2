@@ -209,7 +209,8 @@ async def process_article(fg, category, article):
             imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
             
             try:
-                imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+                # imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+                imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ)
             except:
                 print(f'imgUrlWithQ: {imgUrlWithQ} failed, retrying.')
             
@@ -275,7 +276,8 @@ async def process_article(fg, category, article):
                     imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
                     print(f'imgUrlWithQ: {imgUrlWithQ} - Testing')
                     
-                    imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+                    # imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ, proxies=proxies)
+                    imgUrlResponse = await asyncio.to_thread(session.head, imgUrlWithQ)
                     
                     if imgUrlResponse.ok:
                         # content_length = int(imgUrlResponse.headers.get('Content-Length', 0))
@@ -341,7 +343,9 @@ async def cache_image(imageUrl):
     while True:
         try:
             imageUrlResponseStartTime = time.time()
-            imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1), proxies=proxies)
+            # imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1), proxies=proxies)
+            imageUrlResponse = await asyncio.to_thread(session.head, imageUrl, timeout=(1, 1))
+            
             if imageUrlResponse.ok:
                 print(f'[INFO] 已緩存! 耗時: {imageUrlResponse.elapsed.total_seconds()} - imageUrl: {imageUrl}')
                 break
