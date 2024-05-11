@@ -344,12 +344,12 @@ async def get_response(url, timeout=None, proxies=None, mustFetch=True):
 
 async def main():
     # await check_proxy()
-    check_proxy()
     tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
     await asyncio.gather(*tasks)
 
 if __name__ == '__main__':
     start_time = time.time()
+    check_proxy()
     asyncio.run(main())
     end_time = time.time()
     execution_time = end_time - start_time
