@@ -331,7 +331,8 @@ async def get_response(url, timeout=None, proxies=None, mustFetch=True):
     while True:
         try:
             if url.startswith('http://localhost'):
-                response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
+                # response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
+                response = await asyncio.to_thread(session.get, url, proxies=None, timeout=timeout)
             else:
                 response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
             return response
