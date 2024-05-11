@@ -22,9 +22,9 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
-async def check_proxy():
+def check_proxy():
     try:
-        response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
+        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
         if response.ok:
             print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
         else:
@@ -33,7 +33,7 @@ async def check_proxy():
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
 
     try:
-        response = await asyncio.to_thread(session.get, 'https://1.1.1.1/cdn-cgi/trace')
+        response = session.get('https://1.1.1.1/cdn-cgi/trace')
         if response.ok:
             print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
         else:
