@@ -9,13 +9,13 @@ import html
 import re
 import aiofiles
 import time
+import logging
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-# session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3, happy_eyeballs=True)
 session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3)
 session.quic_cache_layer.add_domain('images.weserv.nl')
-# session.quic_cache_layer.add_domain('news.rthk.hk')
+session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -25,6 +25,9 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
+# 設置日誌記錄
+logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
+
 def check_proxy():
     try:
         response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
@@ -32,8 +35,10 @@ def check_proxy():
             print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
         else:
             print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
     except:
-        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯\n')
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
         response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=None)
@@ -41,8 +46,10 @@ def check_proxy():
             print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
         else:
             print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
     except:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯\n')
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -121,9 +128,15 @@ async def process_category(category, url):
             web_content = response.text
         else:
             print(f'{category} 處理失敗，即將重試!')
+            logging.error(f'{category} 處理失敗，HTTP 狀態碼: {response.status_code}')
             return
-    except:
+    except Exception as e:
         print(f'{category} 獲取響應出錯，即將重試!')
+        logging.error(f'{category} 獲取響應出錯: {e}')
+        return
+    except:
+        print(f'{category} 出現未知錯誤，即將重試!')
+        logging.error(f'{category} 出現未知錯誤')
         return
 
     soup = BeautifulSoup(web_content, 'html.parser')
@@ -277,16 +290,26 @@ async def process_article(fg, category, article):
         fe.pubDate(formatted_pub_date)
         
         print( f'{articleTitle} done!' )
+    except Exception as e:
+        print(f'{articleTitle} 處理出錯: {e}')
+        logging.error(f'{articleTitle} 處理出錯: {e}')
     except:
-        print(f'{articleTitle} 處理出錯')
+        exception_type, exception_value, exception_traceback = sys.exc_info()
+        print(f'{articleTitle} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
+        logging.error(f'{articleTitle} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def cache_image(imageUrl):
     try:
         response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies, mustFetch=False)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
+    except Exception as e:
+        print(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
+        logging.error(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
     except:
-        print(f'[ERROR] 緩存 {imageUrl} 出錯')
+        exception_type, exception_value, exception_traceback = sys.exc_info()
+        print(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
+        logging.error(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def optimize_image_quality(imgUrl):
     q = 80
@@ -322,9 +345,14 @@ async def optimize_image_quality(imgUrl):
                 else:
                     latest_imgUrl = imgUrlWithQ
                     break
-        except:
+        except Exception as e:
             # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
-            print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl}')
+            print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
+            logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
+        except:
+            exception_type, exception_value, exception_traceback = sys.exc_info()
+            print(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
+            logging.error(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
             latest_imgUrl = imgUrlWithQ
             break
     
@@ -338,12 +366,17 @@ async def get_response(url, timeout=30, proxies=proxies, mustFetch=True):
             else:
                 response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
             return response
+        except Exception as e:
+            print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+            logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
         except:
-            print(f'[ERROR] 獲取響應失敗，即將重試! url: {url}')
-            if mustFetch:
-                continue
-            else:
-                break
+            exception_type, exception_value, exception_traceback = sys.exc_info()
+            print(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+            logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+        if mustFetch:
+            continue
+        else:
+            break
 
 async def main():
     # await check_proxy()
