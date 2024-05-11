@@ -343,7 +343,8 @@ async def get_response(url, timeout=None, proxies=None, mustFetch=True):
                 break
 
 async def main():
-    await check_proxy()
+    # await check_proxy()
+    check_proxy()
     tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
     await asyncio.gather(*tasks)
 
