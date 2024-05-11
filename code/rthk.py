@@ -12,7 +12,7 @@ import time
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3, timeout=30)
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -327,11 +327,10 @@ async def optimize_image_quality(imgUrl):
     
     return latest_imgUrl
 
-async def get_response(url, timeout=None, proxies=proxies, mustFetch=True):
+async def get_response(url, timeout=30, proxies=proxies, mustFetch=True):
     while True:
         try:
             if url.startswith('http://localhost'):
-                # response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
                 response = await asyncio.to_thread(session.get, url, proxies=None, timeout=timeout)
             else:
                 response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
