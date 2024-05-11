@@ -26,20 +26,20 @@ def check_proxy():
     try:
         response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
         if response.ok:
-            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
         else:
-            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
     except:
-        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯\n')
 
     try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace')
+        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=None)
         if response.ok:
-            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: {response.text}')
+            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
         else:
-            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗: {response.status_code}')
+            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
     except:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯')
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯\n')
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -279,7 +279,7 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        response = await get_response(imageUrl, timeout=(1, 1), proxies=None, mustFetch=False)
+        response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies, mustFetch=False)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except:
@@ -327,7 +327,7 @@ async def optimize_image_quality(imgUrl):
     
     return latest_imgUrl
 
-async def get_response(url, timeout=None, proxies=None, mustFetch=True):
+async def get_response(url, timeout=None, proxies=proxies, mustFetch=True):
     while True:
         try:
             if url.startswith('http://localhost'):
