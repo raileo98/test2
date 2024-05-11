@@ -201,15 +201,15 @@ async def process_article(fg, category, article):
         for image in images:
             imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
             print(f'{articleLink} - {articleTitle}: {imgUrl}')
-            imgList.add(imgUrl)
+            imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
             
             imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
             print(f'{articleLink} - {articleTitle}: {imgUrl}')
-            imgList.add(imgUrl)
+            imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
             
             imgUrl = imgUrl.replace('_L_', '_')
             print(f'{articleLink} - {articleTitle}: {imgUrl}')
-            imgList.add(imgUrl)
+            imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
 
             # 根據圖片大小調整壓縮質量
             latest_imgUrl = await optimize_image_quality(imgUrl)
