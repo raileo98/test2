@@ -12,7 +12,7 @@ import time
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3, happy_eyeballs=True)
+# session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3, happy_eyeballs=True)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 # session.quic_cache_layer.add_domain('news.rthk.hk')
 session.headers['Cache-Control'] = 'no-cache'
