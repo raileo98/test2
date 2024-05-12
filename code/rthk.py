@@ -1,3 +1,4 @@
+import qh3
 import asyncio
 import niquests
 from bs4 import BeautifulSoup, CData
@@ -10,10 +11,11 @@ import re
 import aiofiles
 import time
 import logging
+import threading
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=1000, retries=3)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
@@ -276,12 +278,12 @@ async def process_article(fg, category, article):
                     break
         
         # 緩存圖片
-        # await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
+        await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
-        feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+        feedDescription = f'{imgHtml} <br> {feedDescription} <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel=nofollow>cnews@rthk.hk</a></p>'
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
                 
         fe.title(articleTitle)
@@ -378,15 +380,24 @@ async def get_response(url, timeout=30, proxies=proxies, mustFetch=True):
         else:
             break
 
-async def main():
-    # await check_proxy()
-    tasks = [asyncio.create_task(process_category(category, data['url'])) for category, data in categories_data.items()]
-    await asyncio.gather(*tasks)
+def main():
+    # check_proxy()
+    threads = []
+    for category, data in categories_data.items():
+        t = threading.Thread(target=process_category_thread, args=(category, data['url']))
+        threads.append(t)
+        t.start()
+    
+    for thread in threads:
+        thread.join()
+
+def process_category_thread(category, url):
+    asyncio.run(process_category(category, url))
 
 if __name__ == '__main__':
     start_time = time.time()
     check_proxy()
-    asyncio.run(main())
+    main()
     end_time = time.time()
     execution_time = end_time - start_time
     print(f'執行時間：{execution_time}秒')
