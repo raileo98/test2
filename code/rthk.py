@@ -1,4 +1,3 @@
-import sys
 import qh3
 import asyncio
 import niquests
@@ -80,10 +79,6 @@ userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0',
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
-
-# Set the default encoding to UTF-8
-reload(sys)
-sys.setdefaultencoding('utf-8')
 
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S', encoding='utf-8')
