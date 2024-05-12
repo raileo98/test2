@@ -330,9 +330,9 @@ async def optimize_image_quality(imgUrl):
         
         try:
             if imgUrl.startswith('http://localhost'):
-                response = await get_response(imgUrlWithQ, method='HEAD', session=localhost_session)
+                response = await get_response(imgUrlWithQ, proxies=None, method='HEAD', session=localhost_session)
             else:
-                response = await get_response(imgUrlWithQ, proxies=None, method='HEAD', session=session)
+                response = await get_response(imgUrlWithQ, proxies=proxies, method='HEAD', session=session)
             
             if response.ok:
                 content_length = int(response.headers['Content-Length'])
