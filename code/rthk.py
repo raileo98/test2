@@ -28,12 +28,15 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
+# 創建另一個 session 用於處理 localhost 請求
+localhost_session = niquests.Session(pool_connections=5, pool_maxsize=10000, retries=3)
+
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
 
 def check_proxy():
     try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
+        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=None)
         if response.ok:
             print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
         else:
@@ -44,7 +47,7 @@ def check_proxy():
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=None)
+        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
         if response.ok:
             print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
         else:
@@ -284,7 +287,7 @@ async def process_article(fg, category, article):
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
-        feedDescription = f'{imgHtml} {feedDescription} <br> <hr> <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel=nofollow>cnews@rthk.hk</a></p>'
+        feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel=nofollow>cnews@rthk.hk</a></p>'
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
                 
         fe.title(articleTitle)
@@ -292,6 +295,7 @@ async def process_article(fg, category, article):
         fe.description(feedDescription)
         fe.pubDate(formatted_pub_date)
         
+
         print( f'{articleTitle} done!' )
     except Exception as e:
         print(f'{articleTitle} 處理出錯: {e}')
@@ -303,7 +307,10 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies, mustFetch=False, method='HEAD')
+        if imageUrl.startswith('http://localhost'):
+            response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=localhost_session)
+        else:
+            response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies, mustFetch=False, method='HEAD', session=session)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
@@ -322,7 +329,10 @@ async def optimize_image_quality(imgUrl):
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
         
         try:
-            response = await get_response(imgUrlWithQ, proxies=None, method='HEAD')
+            if imgUrl.startswith('http://localhost'):
+                response = await get_response(imgUrlWithQ, method='HEAD', session=localhost_session)
+            else:
+                response = await get_response(imgUrlWithQ, proxies=None, method='HEAD', session=session)
             
             if response.ok:
                 content_length = int(response.headers['Content-Length'])
@@ -361,13 +371,10 @@ async def optimize_image_quality(imgUrl):
     
     return latest_imgUrl
 
-async def get_response(url, timeout=30, proxies=proxies, mustFetch=True, method='GET'):
+async def get_response(url, timeout=30, proxies=proxies, mustFetch=True, method='GET', session=session):
     while True:
         try:
-            if url.startswith('http://localhost'):
-                response = await asyncio.to_thread(session.request, method, url, proxies=None, timeout=timeout)
-            else:
-                response = await asyncio.to_thread(session.request, method, url, proxies=proxies, timeout=timeout)
+            response = await asyncio.to_thread(session.request, method, url, proxies=proxies, timeout=timeout)
             return response
         except Exception as e:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
