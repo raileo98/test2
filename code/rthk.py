@@ -15,8 +15,9 @@ import threading
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=3)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=len(categories_data), pool_maxsize=10000, retries=3)
 session.quic_cache_layer.add_domain('images.weserv.nl')
+# session.quic_cache_layer.add_domain('wsrv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
