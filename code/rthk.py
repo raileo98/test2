@@ -13,6 +13,58 @@ import time
 import logging
 import threading
 
+# 分類數據
+categories_data = {
+    'hk_rthk_ch': {
+        'title': 'rthk',
+        'url': 'https://news.rthk.hk/rthk/ch/latest-news.htm'
+    },
+    'hk_rthk_local_ch': {
+        'title': 'rthk - 本地',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_greaterChina_ch': {
+        'title': 'rthk - 大中華',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_world_ch': {
+        'title': 'rthk - 國際',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_finance_ch': {
+        'title': 'rthk - 財經',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_sport_ch': {
+        'title': 'rthk - 體育',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_en': {
+        'title': 'rthk - English',
+        'url': 'https://news.rthk.hk/rthk/en/latest-news.htm'
+    },
+    'hk_rthk_local_en': {
+        'title': 'rthk - Local',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_greaterChina_en': {
+        'title': 'rthk - Greater China',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_world_en': {
+        'title': 'rthk - World',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_finance_en': {
+        'title': 'rthk - Finance',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive_date='
+    },
+    'hk_rthk_sport_en': {
+        'title': 'rthk - Sport',
+        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive_date='
+    }
+}
+
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
 session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=len(categories_data), pool_maxsize=10000, retries=3)
@@ -71,58 +123,6 @@ def get_item_pub_date(item):
         return published.text
 
     return None
-
-# 分類數據
-categories_data = {
-    'hk_rthk_ch': {
-        'title': 'rthk',
-        'url': 'https://news.rthk.hk/rthk/ch/latest-news.htm'
-    },
-    'hk_rthk_local_ch': {
-        'title': 'rthk - 本地',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_greaterChina_ch': {
-        'title': 'rthk - 大中華',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_world_ch': {
-        'title': 'rthk - 國際',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_finance_ch': {
-        'title': 'rthk - 財經',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_sport_ch': {
-        'title': 'rthk - 體育',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_en': {
-        'title': 'rthk - English',
-        'url': 'https://news.rthk.hk/rthk/en/latest-news.htm'
-    },
-    'hk_rthk_local_en': {
-        'title': 'rthk - Local',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_greaterChina_en': {
-        'title': 'rthk - Greater China',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_world_en': {
-        'title': 'rthk - World',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_finance_en': {
-        'title': 'rthk - Finance',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive_date='
-    },
-    'hk_rthk_sport_en': {
-        'title': 'rthk - Sport',
-        'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive_date='
-    }
-}
 
 async def process_category(category, url):
     try:
