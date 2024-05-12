@@ -12,6 +12,65 @@ import aiofiles
 import time
 import logging
 import threading
+import sys
+
+# 設置代理和HTTP客戶端
+proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=3)
+session.quic_cache_layer.add_domain('images.weserv.nl')
+session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+session.headers['Cache-Control'] = 'no-cache'
+session.headers['Pragma'] = 'no-cache'
+userAgent = [
+    'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0',
+]
+session.headers['User-Agent'] = secrets.choice(userAgent)
+
+# 設置日誌記錄
+logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
+
+def check_proxy():
+    try:
+        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
+        if response.ok:
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
+
+    try:
+        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=None)
+        if response.ok:
+            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
+        else:
+            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
+    except:
+        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
+
+# 解析發布日期
+def parse_pub_date(date_str):
+    date_str = date_str.replace('HKT', '+0800')
+    date_obj = datetime.strptime(date_str, '%Y-%m-%d %z %H:%M')
+    return date_obj.strftime('%a, %d %b %Y %H:%M:%S %z')
+
+# 獲取文章發布日期
+def get_item_pub_date(item):
+    pub_date = item.find('pubDate')
+    if pub_date:
+        return pub_date.text
+
+    published = item.find('published')
+    if published:
+        return published.text
+
+    return None
 
 # 分類數據
 categories_data = {
@@ -64,66 +123,6 @@ categories_data = {
         'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive_date='
     }
 }
-
-# 設置代理和HTTP客戶端
-proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
-# session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=len(categories_data), pool_maxsize=10000, retries=3)
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=10000, retries=3)
-session.quic_cache_layer.add_domain('images.weserv.nl')
-# session.quic_cache_layer.add_domain('wsrv.nl')
-session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
-session.headers['Cache-Control'] = 'no-cache'
-session.headers['Pragma'] = 'no-cache'
-userAgent = [
-    'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0',
-    'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0',
-    'Mozilla/5.0 (Windows NT 10.0; rv:123.0) Gecko/20100101 Firefox/123.0',
-]
-session.headers['User-Agent'] = secrets.choice(userAgent)
-
-# 設置日誌記錄
-logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S', encoding='utf-8')
-
-def check_proxy():
-    try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
-        if response.ok:
-            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
-        else:
-            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
-    except Exception as e:
-        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
-    except:
-        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
-
-    try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=None)
-        if response.ok:
-            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
-        else:
-            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
-    except Exception as e:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
-    except:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
-
-# 解析發布日期
-def parse_pub_date(date_str):
-    date_str = date_str.replace('HKT', '+0800')
-    date_obj = datetime.strptime(date_str, '%Y-%m-%d %z %H:%M')
-    return date_obj.strftime('%a, %d %b %Y %H:%M:%S %z')
-
-# 獲取文章發布日期
-def get_item_pub_date(item):
-    pub_date = item.find('pubDate')
-    if pub_date:
-        return pub_date.text
-
-    published = item.find('published')
-    if published:
-        return published.text
-
-    return None
 
 async def process_category(category, url):
     try:
@@ -280,7 +279,7 @@ async def process_article(fg, category, article):
                     break
         
         # 緩存圖片
-        # await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
+        await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
@@ -304,7 +303,7 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies, mustFetch=False)
+        response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies, mustFetch=False, method='HEAD')
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
@@ -323,7 +322,7 @@ async def optimize_image_quality(imgUrl):
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
         
         try:
-            response = await get_response(imgUrlWithQ, proxies=None)
+            response = await get_response(imgUrlWithQ, proxies=None, method='HEAD')
             
             if response.ok:
                 content_length = int(response.headers['Content-Length'])
@@ -362,13 +361,13 @@ async def optimize_image_quality(imgUrl):
     
     return latest_imgUrl
 
-async def get_response(url, timeout=30, proxies=proxies, mustFetch=True):
+async def get_response(url, timeout=30, proxies=proxies, mustFetch=True, method='GET'):
     while True:
         try:
             if url.startswith('http://localhost'):
-                response = await asyncio.to_thread(session.get, url, proxies=None, timeout=timeout)
+                response = await asyncio.to_thread(session.request, method, url, proxies=None, timeout=timeout)
             else:
-                response = await asyncio.to_thread(session.get, url, proxies=proxies, timeout=timeout)
+                response = await asyncio.to_thread(session.request, method, url, proxies=proxies, timeout=timeout)
             return response
         except Exception as e:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
@@ -398,7 +397,6 @@ def process_category_thread(category, url):
 
 if __name__ == '__main__':
     start_time = time.time()
-    check_proxy()
     main()
     end_time = time.time()
     execution_time = end_time - start_time
