@@ -23,6 +23,10 @@ jobs:
     steps:
     - name: 檢出代碼
       uses: actions/checkout@v4
+
+    - name: Install weserv/images
+      run: |
+        docker run -d -p 8080:80 --shm-size=1gb --name=weserv --env HTTP_PROXY=socks5://localhost:50000 --env HTTPS_PROXY=socks5://localhost:50000 ghcr.io/weserv/images:5.x
     
     - name: Install Cloudflare Warp
       run: |
@@ -41,10 +45,6 @@ jobs:
       run: |
         sudo apt install python3 python3-pip -y
         python3 -m pip install --upgrade pip niquests niquests[speedups] niquests[socks] qh3 feedgen bs4 tqdm aiofiles urllib3.future
-
-    - name: Install weserv/images
-      run: |
-        docker run -d -p 8080:80 --shm-size=1gb --name=weserv --env HTTP_PROXY=socks5://localhost:50000 --env HTTPS_PROXY=socks5://localhost:50000 ghcr.io/weserv/images:5.x
 
     - name: 執行 Python 腳本
       run: |
