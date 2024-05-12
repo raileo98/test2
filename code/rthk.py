@@ -374,7 +374,7 @@ async def optimize_image_quality(imgUrl):
 async def get_response(url, timeout=30, proxies=proxies, mustFetch=True, method='GET', session=session):
     while True:
         try:
-            response = await asyncio.to_thread(session.request, method, url, proxies=proxies, timeout=timeout)
+            response = await asyncio.to_thread(session.request, method, url, proxies, timeout=timeout)
             return response
         except Exception as e:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
