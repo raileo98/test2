@@ -404,6 +404,7 @@ def process_category_thread(category, url):
 
 if __name__ == '__main__':
     start_time = time.time()
+    check_proxy()
     main()
     end_time = time.time()
     execution_time = end_time - start_time
