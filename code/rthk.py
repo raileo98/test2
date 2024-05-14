@@ -337,11 +337,11 @@ async def optimize_image_quality(imgUrl):
             if response.ok:
                 content_length = int(response.headers['Content-Length'])
                 
-                if content_length < 100 * 1024:  # 小於 100 KB 時不壓縮
+                if content_length < 1000 * 1000:  # 小於 * 時不壓縮
                     latest_imgUrl = imgUrlWithQ
                     break
                     
-                elif content_length > 100 * 1024:  # 大於 100 KB 時壓縮
+                elif content_length > 1000 * 1000:  # 大於 * 時壓縮
                     if q > 10:
                         q -= 10
                         
