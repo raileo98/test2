@@ -10,7 +10,7 @@ on:
       - 'code/*'
       - 'hk_rthk_*.rss'
   schedule:
-    - cron: '*/30 * * * *'  # 每隔 10 分鐘運行一次
+    - cron: '*/40 * * * *'  # 每隔 40 分鐘運行一次
 
 # concurrency: 
   # group: ${{ github.workflow }}-${{ github.ref }}
