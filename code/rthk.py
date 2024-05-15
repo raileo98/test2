@@ -13,6 +13,7 @@ import time
 import logging
 import threading
 import sys
+import minify_html
 
 # 設置代理和HTTP客戶端
 proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
@@ -289,6 +290,7 @@ async def process_article(fg, category, article):
 
         feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel=nofollow>cnews@rthk.hk</a></p>'
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+        feedDescription = minify_html.minify(feedDescription, minify_js=True, minify_css=True)
                 
         fe.title(articleTitle)
         fe.link(href=articleLink)
