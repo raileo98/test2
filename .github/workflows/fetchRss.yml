@@ -37,11 +37,8 @@ jobs:
         sudo apt update -y
         sudo apt install -y cloudflare-warp
         warp-cli --accept-tos registration new
-        warp-cli --accept-tos set-mode warp+doh
-        warp-cli --accept-tos tunnel ip add 127.0.0.0/8
-        warp-cli --accept-tos tunnel ip add 10.0.0.0/8
-        warp-cli --accept-tos tunnel ip add 172.16.0.0/12
-        warp-cli --accept-tos tunnel ip add 192.168.0.0/16
+        warp-cli --accept-tos mode warp+doh
+        warp-cli --accept-tos tunnel ip add 127.0.0.1
         warp-cli --accept-tos tunnel host add localhost
         warp-cli --accept-tos connect
 
