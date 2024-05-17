@@ -15,8 +15,7 @@ import threading
 import sys
 import minify_html
 
-# 設置代理和HTTP客戶端
-proxies = {'http': 'socks5h://localhost:50000', 'https': 'socks5h://localhost:50000'}
+# 設置HTTP客戶端
 session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=3)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
@@ -37,7 +36,7 @@ logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asc
 
 def check_proxy():
     try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=None)
+        response = session.get('https://1.1.1.1/cdn-cgi/trace')
         if response.ok:
             print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
         else:
@@ -46,17 +45,6 @@ def check_proxy():
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
     except:
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
-
-    try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace', proxies=proxies)
-        if response.ok:
-            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功:\n{response.text}\n')
-        else:
-            print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
-    except Exception as e:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
-    except:
-        print(f'不使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -154,6 +142,7 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
+    # 設置feed圖像
     feedImg = f"https://images.weserv.nl/?n=-1&output=webp&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
     fg.logo(feedImg)
 
@@ -174,18 +163,23 @@ async def process_category(category, url):
 
     soup_rss = BeautifulSoup(rss_str, 'xml')
 
+    # 處理item描述中的HTML實體
     for item in soup_rss.find_all('item'):
         if item.description is not None:
             item.description.string = CData(html.unescape(item.description.string.strip()))
 
+    # 處理item中的URL
     if soup_rss.find('url') is not None:
         soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string))
     
+    # 按發布日期排序items
     sorted_items = sorted(soup_rss.find_all('item'), key=lambda x: datetime.strptime(get_item_pub_date(x), '%a, %d %b %Y %H:%M:%S %z') if get_item_pub_date(x) else datetime.min, reverse=True)
 
+    # 移除原有的items
     for item in soup_rss.find_all('item'):
         item.extract()
 
+    # 添加排序後的items
     for item in sorted_items:
         soup_rss.channel.append(item)
 
@@ -289,8 +283,13 @@ async def process_article(fg, category, article):
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
+        # 構建完整的feedDescription
         feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel=nofollow>cnews@rthk.hk</a></p>'
+        
+        # 壓縮HTML
         feedDescription = minify_html.minify(feedDescription, minify_js=True, minify_css=True)
+        
+        # 格式化HTML
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
                 
         fe.title(articleTitle)
@@ -311,9 +310,9 @@ async def process_article(fg, category, article):
 async def cache_image(imageUrl):
     try:
         if imageUrl.startswith('http://localhost'):
-            response = await get_response(imageUrl, timeout=(1, 1), proxies=None, mustFetch=False, method='HEAD', session=localhost_session)
+            response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=localhost_session)
         else:
-            response = await get_response(imageUrl, timeout=(1, 1), proxies=proxies, mustFetch=False, method='HEAD', session=session)
+            response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
@@ -333,18 +332,18 @@ async def optimize_image_quality(imgUrl):
         
         try:
             if imgUrl.startswith('http://localhost'):
-                response = await get_response(imgUrlWithQ, proxies=None, method='HEAD', session=localhost_session)
+                response = await get_response(imgUrlWithQ, method='HEAD', session=localhost_session)
             else:
-                response = await get_response(imgUrlWithQ, proxies=proxies, method='HEAD', session=session)
+                response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             
             if response.ok:
                 content_length = int(response.headers['Content-Length'])
                 
-                if content_length < 1000 * 1000:  # 小於 * 時不壓縮
+                if content_length < 1000 * 1000:  # 小於 1MB 時不壓縮
                     latest_imgUrl = imgUrlWithQ
                     break
                     
-                elif content_length > 1000 * 1000:  # 大於 * 時壓縮
+                elif content_length > 1000 * 1000:  # 大於 1MB 時壓縮
                     if q > 10:
                         q -= 10
                         
@@ -374,10 +373,10 @@ async def optimize_image_quality(imgUrl):
     
     return latest_imgUrl
 
-async def get_response(url, timeout=30, proxies=proxies, mustFetch=True, method='GET', session=session):
+async def get_response(url, timeout=30, mustFetch=True, method='GET', session=session):
     while True:
         try:
-            response = await asyncio.to_thread(session.request, method, url, proxies=proxies, timeout=timeout)
+            response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
             return response
         except Exception as e:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
@@ -392,7 +391,6 @@ async def get_response(url, timeout=30, proxies=proxies, mustFetch=True, method=
             break
 
 def main():
-    # check_proxy()
     threads = []
     for category, data in categories_data.items():
         t = threading.Thread(target=process_category_thread, args=(category, data['url']))
