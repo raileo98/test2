@@ -38,11 +38,11 @@ jobs:
         sudo apt install -y cloudflare-warp
         warp-cli --accept-tos registration new
         warp-cli --accept-tos set-mode warp+doh
-        warp-cli --accept-tos add-excluded-route 127.0.0.0/8
-        warp-cli --accept-tos add-excluded-route 10.0.0.0/8
-        warp-cli --accept-tos add-excluded-route 172.16.0.0/12
-        warp-cli --accept-tos add-excluded-route 192.168.0.0/16
-        warp-cli --accept-tos add-excluded-host localhost
+        warp-cli --accept-tos tunnel ip add 127.0.0.0/8
+        warp-cli --accept-tos tunnel ip add 10.0.0.0/8
+        warp-cli --accept-tos tunnel ip add 172.16.0.0/12
+        warp-cli --accept-tos tunnel ip add 192.168.0.0/16
+        warp-cli --accept-tos tunnel host add localhost
         warp-cli --accept-tos connect
 
     - name: 安裝依賴
