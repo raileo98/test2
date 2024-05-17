@@ -28,7 +28,7 @@ jobs:
       run: |
         docker run -d -p 8080:80 --shm-size=1gb --name=weserv --env HTTP_PROXY=socks5://localhost:50000 --env HTTPS_PROXY=socks5://localhost:50000 ghcr.io/weserv/images:5.x
     
-    - name: Install Cloudflare Warp
+    - name: Install and configure Cloudflare WARP
       run: |
         git pull
         curl -v https://1.1.1.1/cdn-cgi/trace
@@ -37,8 +37,12 @@ jobs:
         sudo apt update -y
         sudo apt install -y cloudflare-warp
         warp-cli --accept-tos registration new
-        warp-cli --accept-tos mode proxy
-        warp-cli --accept-tos proxy port 50000
+        warp-cli --accept-tos set-mode warp+doh
+        warp-cli --accept-tos add-excluded-route 127.0.0.0/8
+        warp-cli --accept-tos add-excluded-route 10.0.0.0/8
+        warp-cli --accept-tos add-excluded-route 172.16.0.0/12
+        warp-cli --accept-tos add-excluded-route 192.168.0.0/16
+        warp-cli --accept-tos add-excluded-host localhost
         warp-cli --accept-tos connect
 
     - name: 安裝依賴
