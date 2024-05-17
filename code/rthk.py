@@ -218,7 +218,7 @@ async def process_article(fg, category, article):
         feedDescription = article_soup.select_one('.itemFullText').prettify()
 
         # 處理圖片
-        images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
+        images = article_soup.select('.items_content .imgPhotoAfterLoad')
         imgHtml = ''
         imgList = set()
         for image in images:
@@ -250,7 +250,7 @@ async def process_article(fg, category, article):
                 imgList.add(imgUrl)
                 print(f'Final imgUrl: {imgUrl}')
 
-        if len(images) > 0:
+        if len(images) == 0:
             scripts = article_soup.find_all('script')
             for script in scripts:
                 if 'videoThumbnail' in script.text:
