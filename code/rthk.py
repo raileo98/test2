@@ -17,8 +17,8 @@ import minify_html
 
 # 設置HTTP客戶端
 session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=10000, retries=3)
-# session.quic_cache_layer.add_domain('images.weserv.nl')
-# session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+session.quic_cache_layer.add_domain('images.weserv.nl')
+session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -34,7 +34,7 @@ localhost_session = niquests.Session(pool_connections=5, pool_maxsize=10000, ret
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
 
-def check_proxy():
+def check():
     try:
         response = session.get('https://1.1.1.1/cdn-cgi/trace')
         if response.ok:
@@ -45,6 +45,28 @@ def check_proxy():
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
     except:
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
+
+    try:
+        response = session.get('https://mozilla.cloudflare-dns.com/cdn-cgi/trace')
+        if response.ok:
+            print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 成功:\n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 出現未知錯誤\n')
+
+    try:
+        response = session.get('https://images.weserv.nl/quota')
+        if response.ok:
+            print(f'使用代理獲取 https://images.weserv.nl/quota 成功:\n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://images.weserv.nl/quota 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://images.weserv.nl/quota 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://images.weserv.nl/quota 出現未知錯誤\n')
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -381,7 +403,6 @@ async def get_response(url, timeout=30, mustFetch=True, method='GET', session=se
             break
 
 def main():
-    # check_proxy()
     threads = []
     for category, data in categories_data.items():
         t = threading.Thread(target=process_category_thread, args=(category, data['url']))
@@ -396,7 +417,7 @@ def process_category_thread(category, url):
 
 if __name__ == '__main__':
     start_time = time.time()
-    check_proxy()
+    check()
     main()
     end_time = time.time()
     execution_time = end_time - start_time
