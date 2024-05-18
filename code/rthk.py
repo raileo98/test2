@@ -16,7 +16,7 @@ import sys
 import minify_html
 
 # 設置HTTP客戶端
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=100, retries=2)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=3)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
@@ -29,7 +29,7 @@ userAgent = [
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
 # 創建另一個 session 用於處理 localhost 請求
-localhost_session = niquests.Session(pool_connections=10, pool_maxsize=100, retries=2)
+localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=3)
 
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
@@ -142,7 +142,6 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    # 設置feed圖像
     feedImg = f"https://images.weserv.nl/?n=-1&output=webp&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
     fg.logo(feedImg)
 
@@ -163,23 +162,18 @@ async def process_category(category, url):
 
     soup_rss = BeautifulSoup(rss_str, 'xml')
 
-    # 處理item描述中的HTML實體
     for item in soup_rss.find_all('item'):
         if item.description is not None:
             item.description.string = CData(html.unescape(item.description.string.strip()))
 
-    # 處理item中的URL
     if soup_rss.find('url') is not None:
         soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string))
     
-    # 按發布日期排序items
     sorted_items = sorted(soup_rss.find_all('item'), key=lambda x: datetime.strptime(get_item_pub_date(x), '%a, %d %b %Y %H:%M:%S %z') if get_item_pub_date(x) else datetime.min, reverse=True)
 
-    # 移除原有的items
     for item in soup_rss.find_all('item'):
         item.extract()
 
-    # 添加排序後的items
     for item in sorted_items:
         soup_rss.channel.append(item)
 
@@ -212,7 +206,7 @@ async def process_article(fg, category, article):
         feedDescription = article_soup.select_one('.itemFullText').prettify()
 
         # 處理圖片
-        images = article_soup.select('.items_content .imgPhotoAfterLoad')
+        images = article_soup.find_all(class_='imgPhotoAfterLoad', recursive=True, attrs={'class': 'items_content'})
         imgHtml = ''
         imgList = set()
         for image in images:
@@ -244,7 +238,7 @@ async def process_article(fg, category, article):
                 imgList.add(imgUrl)
                 print(f'Final imgUrl: {imgUrl}')
 
-        if len(images) == 0:
+        if len(images) > 0:
             scripts = article_soup.find_all('script')
             for script in scripts:
                 if 'videoThumbnail' in script.text:
@@ -278,18 +272,13 @@ async def process_article(fg, category, article):
                         break
         
         # 緩存圖片
-        # await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
+        await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
-        # 構建完整的feedDescription
         feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel=nofollow>cnews@rthk.hk</a></p>'
-        
-        # 壓縮HTML
         feedDescription = minify_html.minify(feedDescription, minify_js=True, minify_css=True)
-        
-        # 格式化HTML
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
                 
         fe.title(articleTitle)
@@ -339,11 +328,11 @@ async def optimize_image_quality(imgUrl):
             if response.ok:
                 content_length = int(response.headers['Content-Length'])
                 
-                if content_length < 1000 * 1000:  # 小於 1MB 時不壓縮
+                if content_length < 1000 * 1000:  # 小於 * 時不壓縮
                     latest_imgUrl = imgUrlWithQ
                     break
                     
-                elif content_length > 1000 * 1000:  # 大於 1MB 時壓縮
+                elif content_length > 1000 * 1000:  # 大於 * 時壓縮
                     if q > 10:
                         q -= 10
                         
@@ -391,6 +380,7 @@ async def get_response(url, timeout=30, mustFetch=True, method='GET', session=se
             break
 
 def main():
+    # check_proxy()
     threads = []
     for category, data in categories_data.items():
         t = threading.Thread(target=process_category_thread, args=(category, data['url']))
