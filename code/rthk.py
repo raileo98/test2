@@ -417,6 +417,7 @@ def process_category_thread(category, url):
 
 if __name__ == '__main__':
     start_time = time.time()
+    print('testing!')
     check()
     main()
     end_time = time.time()
