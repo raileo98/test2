@@ -237,39 +237,6 @@ async def process_article(fg, category, article):
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
                 imgList.add(imgUrl)
                 print(f'Final imgUrl: {imgUrl}')
-
-        if len(images) > 0:
-            scripts = article_soup.find_all('script')
-            for script in scripts:
-                if 'videoThumbnail' in script.text:
-                    match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
-                    if match:
-                        video_thumbnail = match.group(1)
-                        imgUrl = 'http://localhost:8080/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
-                        imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
-                        
-                        imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                        imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
-                        
-                        imgUrl = imgUrl.replace('_L_', '_')
-                        imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
-                        
-                        # 根據圖片大小調整壓縮質量
-                        latest_imgUrl = await optimize_image_quality(imgUrl)
-    
-                        imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
-                        imgAlt = imgAlt.strip()
-                        if latest_imgUrl:
-                            latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
-                            imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
-                            imgList.add(latest_imgUrl)
-                            print(f'Final imgUrlWithQ: {latest_imgUrl}')
-                        else:
-                            imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
-                            imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
-                            imgList.add(imgUrl)
-                            print(f'Final imgUrl: {imgUrl}')
-                        break
         
         # 緩存圖片
         # await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
