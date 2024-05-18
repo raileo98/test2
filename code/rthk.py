@@ -292,7 +292,11 @@ async def optimize_image_quality(imgUrl):
             else:
                 response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             
-            if response.ok:
+            if response.status_code >= 400 and response.status_code < 600:
+                # 4xx 狀態碼,跳出循環
+                latest_imgUrl = imgUrlWithQ
+                break
+            elif response.ok:
                 content_length = int(response.headers['Content-Length'])
                 
                 if content_length < 1000 * 1000:  # 小於 * 時不壓縮
@@ -302,22 +306,18 @@ async def optimize_image_quality(imgUrl):
                 elif content_length > 1000 * 1000:  # 大於 * 時壓縮
                     if q > 10:
                         q -= 10
-                        
                     elif q == 5:
                         q = 1
-                        
                     elif q == 1:
                         latest_imgUrl = imgUrlWithQ
                         break
-                        
                     else:
                         q = 5
-                        
                 else:
                     latest_imgUrl = imgUrlWithQ
                     break
         except Exception as e:
-            # 如果獲取圖片大小失敗，則保持上一次的壓縮質量
+            # 如果獲取圖片大小失敗,則保持上一次的壓縮質量
             print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
             logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
         except:
