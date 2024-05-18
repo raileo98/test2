@@ -41,6 +41,7 @@ jobs:
         warp-cli --accept-tos tunnel ip add 127.0.0.1
         warp-cli --accept-tos tunnel host add localhost
         warp-cli --accept-tos connect
+        curl -v https://1.1.1.1/cdn-cgi/trace
 
     - name: 安裝依賴
       run: |
