@@ -17,8 +17,8 @@ import minify_html
 
 # 設置HTTP客戶端
 session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=10000, retries=3)
-session.quic_cache_layer.add_domain('images.weserv.nl')
-session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+# session.quic_cache_layer.add_domain('images.weserv.nl')
+# session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
