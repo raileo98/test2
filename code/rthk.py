@@ -284,12 +284,12 @@ async def process_article(fg, category, article):
                         imgAlt = imgAlt.strip()
                         if latest_imgUrl:
                             latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
-                            imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
+                            imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto"> <br>'
                             imgList.add(latest_imgUrl)
                             print(f'Final imgUrlWithQ: {latest_imgUrl}')
                         else:
                             imgUrl = imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
-                            imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
+                            imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto"> <br>'
                             imgList.add(imgUrl)
                             print(f'Final imgUrl: {imgUrl}')
                         break
@@ -300,7 +300,7 @@ async def process_article(fg, category, article):
         pub_date = article.select_one('.ns2-created').text
         formatted_pub_date = parse_pub_date(pub_date)
 
-        feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel=nofollow>{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel=nofollow>cnews@rthk.hk</a></p>'
+        feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         feedDescription = minify_html.minify(feedDescription, minify_js=True, minify_css=True)
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
                 
