@@ -249,6 +249,8 @@ async def process_article(fg, category, article):
 
             imgAlt = image.get('alt', '')
             imgAlt = imgAlt.strip()
+            print(f'[DEBUG] articleLink: {articleLink} - imgAlt: {imgAlt}')
+            
             if latest_imgUrl:
                 latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                 imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto> <br>'
@@ -282,6 +284,8 @@ async def process_article(fg, category, article):
     
                         imgAlt = article_soup.select_one('.detailNewsSlideTitleText').get_text()
                         imgAlt = imgAlt.strip()
+                        print(f'[DEBUG] articleLink: {articleLink} - imgAlt: {imgAlt}')
+                        
                         if latest_imgUrl:
                             latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
                             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto"> <br>'
@@ -301,8 +305,10 @@ async def process_article(fg, category, article):
         formatted_pub_date = parse_pub_date(pub_date)
 
         feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
+        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
         feedDescription = minify_html.minify(feedDescription, minify_js=True, minify_css=True)
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
                 
         fe.title(articleTitle)
         fe.link(href=articleLink)
