@@ -280,7 +280,7 @@ async def process_article(fg, category, article):
                         # 根據圖片大小調整壓縮質量
                         latest_imgUrl = await optimize_image_quality(imgUrl)
     
-                        imgAlt = article_soup.select_one('.detailNewsSlideTitle').get_text()
+                        imgAlt = article_soup.select_one('.detailNewsSlideTitleText').get_text()
                         imgAlt = imgAlt.strip()
                         if latest_imgUrl:
                             latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
