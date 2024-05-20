@@ -8,7 +8,7 @@ on:
     paths:
       - '.github/workflows/*'
       - 'code/*'
-      - 'hk_rthk_*.rss'
+      - '*.rss'
   schedule:
     - cron: '*/10 * * * *'  # 每隔 10 分鐘運行一次
 
