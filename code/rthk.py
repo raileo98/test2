@@ -58,6 +58,17 @@ def check():
         print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
+        response = session.get('https://images.weserv.nl/cdn-cgi/trace')
+        if response.ok:
+            print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 成功:\n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 出現未知錯誤\n')
+
+    try:
         response = session.get('https://images.weserv.nl/quota')
         if response.ok:
             print(f'使用代理獲取 https://images.weserv.nl/quota 成功:\n{response.text}\n')
