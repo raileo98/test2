@@ -8,7 +8,8 @@ on:
     paths:
       - '.github/workflows/*'
       - 'code/*'
-      - '*.rss'
+      # - '*.rss'
+      - '*'
   schedule:
     - cron: '*/10 * * * *'  # 每隔 10 分鐘運行一次
 
