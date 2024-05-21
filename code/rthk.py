@@ -17,8 +17,8 @@ import minify_html
 
 # 設置HTTP客戶端
 session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=10000, retries=1)
-session.quic_cache_layer.add_domain('images.weserv.nl')
-session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+# session.quic_cache_layer.add_domain('images.weserv.nl')
+# session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -35,6 +35,50 @@ localhost_session = niquests.Session(pool_connections=5, pool_maxsize=10000, ret
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
 
 def check():
+    try:
+        response = session.get('https://1.1.1.1/cdn-cgi/trace')
+        if response.ok:
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
+
+    try:
+        response = session.get('https://mozilla.cloudflare-dns.com/cdn-cgi/trace')
+        if response.ok:
+            print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 出現未知錯誤\n')
+
+    try:
+        response = session.get('https://images.weserv.nl/cdn-cgi/trace')
+        if response.ok:
+            print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 出現未知錯誤\n')
+
+    try:
+        response = session.get('https://images.weserv.nl/quota')
+        if response.ok:
+            print(f'使用代理獲取 https://images.weserv.nl/quota 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
+        else:
+            print(f'使用代理獲取 https://images.weserv.nl/quota 失敗:\n{response.status_code}\n')
+    except Exception as e:
+        print(f'使用代理獲取 https://images.weserv.nl/quota 出錯:\n{e}\n')
+    except:
+        print(f'使用代理獲取 https://images.weserv.nl/quota 出現未知錯誤\n')
+
     try:
         response = session.get('https://1.1.1.1/cdn-cgi/trace')
         if response.ok:
