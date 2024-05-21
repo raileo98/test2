@@ -450,6 +450,7 @@ async def get_response(url, timeout=30, mustFetch=True, method='GET', session=se
     while True:
         try:
             response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
+            print(f'http_version: {response.http_version} - url: {url}')
             return response
         except Exception as e:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
