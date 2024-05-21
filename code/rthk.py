@@ -360,10 +360,10 @@ async def process_article(fg, category, article):
         formatted_pub_date = parse_pub_date(pub_date)
 
         feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
+        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
         # feedDescription = minify_html.minify(feedDescription, minify_js=True, minify_css=True) # BUGGY!
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
+        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
                 
         fe.title(articleTitle)
         fe.link(href=articleLink)
