@@ -16,7 +16,7 @@ import sys
 import minify_html
 
 # 設置HTTP客戶端
-session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=10000, retries=1)
+session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1)
 # session.quic_cache_layer.add_domain('images.weserv.nl')
 # session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
@@ -29,7 +29,7 @@ userAgent = [
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
 # 創建另一個 session 用於處理 localhost 請求
-localhost_session = niquests.Session(pool_connections=5, pool_maxsize=10000, retries=1)
+localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=1)
 
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
