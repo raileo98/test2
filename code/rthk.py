@@ -1,3 +1,24 @@
+import sys
+import subprocess
+
+# 獲取當前 Python 路徑
+python_path = sys.executable
+
+# 要安裝的庫列表
+required_libraries = [
+    # 'wakepy',
+    # 'tqdm',
+    'niquests',
+    'niquests[socks]',
+    'qh3',
+    'urllib3.future',
+    'requests_cache',
+]
+
+# 安裝所需的庫
+for library in required_libraries:
+    subprocess.check_call([python_path, "-m", "pip", "install", "--upgrade", library])
+
 import qh3
 import asyncio
 import niquests
@@ -13,12 +34,20 @@ import time
 import logging
 import threading
 import sys
-import minify_html
+# import minify_html
+import requests_cache
+
+class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
+    """
+    Make Niquests compatible with Requests-Cache.
+    """
+
+    pass
 
 # 設置HTTP客戶端
 session = niquests.Session(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1)
-# session.quic_cache_layer.add_domain('images.weserv.nl')
-# session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+session.quic_cache_layer.add_domain('images.weserv.nl')
+session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -29,14 +58,14 @@ userAgent = [
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
 # 創建另一個 session 用於處理 localhost 請求
-localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=1)
+# localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=1)
 
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
 
 def check():
     try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace')
+        response = CachedSession.get('https://1.1.1.1/cdn-cgi/trace')
         if response.ok:
             print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -47,7 +76,7 @@ def check():
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
-        response = session.get('https://mozilla.cloudflare-dns.com/cdn-cgi/trace')
+        response = CachedSession.get('https://mozilla.cloudflare-dns.com/cdn-cgi/trace')
         if response.ok:
             print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -58,7 +87,7 @@ def check():
         print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
-        response = session.get('https://images.weserv.nl/cdn-cgi/trace')
+        response = CachedSession.get('https://images.weserv.nl/cdn-cgi/trace')
         if response.ok:
             print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -69,7 +98,7 @@ def check():
         print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
-        response = session.get('https://images.weserv.nl/quota')
+        response = CachedSession.get('https://images.weserv.nl/quota')
         if response.ok:
             print(f'使用代理獲取 https://images.weserv.nl/quota 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -80,7 +109,7 @@ def check():
         print(f'使用代理獲取 https://images.weserv.nl/quota 出現未知錯誤\n')
 
     try:
-        response = session.get('https://1.1.1.1/cdn-cgi/trace')
+        response = CachedSession.get('https://1.1.1.1/cdn-cgi/trace')
         if response.ok:
             print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -91,7 +120,7 @@ def check():
         print(f'使用代理獲取 https://1.1.1.1/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
-        response = session.get('https://mozilla.cloudflare-dns.com/cdn-cgi/trace')
+        response = CachedSession.get('https://mozilla.cloudflare-dns.com/cdn-cgi/trace')
         if response.ok:
             print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -102,7 +131,7 @@ def check():
         print(f'使用代理獲取 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
-        response = session.get('https://images.weserv.nl/cdn-cgi/trace')
+        response = CachedSession.get('https://images.weserv.nl/cdn-cgi/trace')
         if response.ok:
             print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -113,7 +142,7 @@ def check():
         print(f'使用代理獲取 https://images.weserv.nl/cdn-cgi/trace 出現未知錯誤\n')
 
     try:
-        response = session.get('https://images.weserv.nl/quota')
+        response = CachedSession.get('https://images.weserv.nl/quota')
         if response.ok:
             print(f'使用代理獲取 https://images.weserv.nl/quota 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
         else:
@@ -383,7 +412,7 @@ async def process_article(fg, category, article):
 async def cache_image(imageUrl):
     try:
         if imageUrl.startswith('http://localhost'):
-            response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=localhost_session)
+            response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
         else:
             response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
         if response.ok:
@@ -405,7 +434,7 @@ async def optimize_image_quality(imgUrl):
         
         try:
             if imgUrl.startswith('http://localhost'):
-                response = await get_response(imgUrlWithQ, method='HEAD', session=localhost_session)
+                response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             else:
                 response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             
@@ -449,7 +478,7 @@ async def optimize_image_quality(imgUrl):
 async def get_response(url, timeout=30, mustFetch=True, method='GET', session=session):
     while True:
         try:
-            response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
+            response = await asyncio.to_thread(CachedSession.request, method, url, timeout=timeout)
             print(f'http_version: {response.http_version} - url: {url}')
             return response
         except Exception as e:
