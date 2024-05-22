@@ -484,4 +484,5 @@ if __name__ == '__main__':
     main()
     end_time = time.time()
     execution_time = end_time - start_time
+    check()
     print(f'執行時間：{execution_time}秒')
