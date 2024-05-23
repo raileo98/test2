@@ -1,3 +1,5 @@
+print('111')
+
 import qh3
 import asyncio
 import niquests
@@ -14,13 +16,15 @@ import time
 import logging
 import threading
 import sys
-import minify_html
+# import minify_html
+
+print('222')
 
 # 設置HTTP客戶端
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
-session = CachedSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='memory', happy_eyeballs='haha')
+session = CachedSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='memory', happy_eyeballs=True)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 session.headers['Cache-Control'] = 'no-cache'
@@ -414,9 +418,12 @@ def process_category_thread(category, url):
 
 if __name__ == '__main__':
     start_time = time.time()
+    print('333')
     check()
-    print('testing!')
+    check()
+    print('444')
     main()
+    check()
     check()
     end_time = time.time()
     execution_time = end_time - start_time
