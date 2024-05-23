@@ -1,5 +1,17 @@
 print('111')
 
+import os
+import sys
+
+# Get the path of the current running .py file
+current_file_path = os.path.abspath(__file__)
+
+# Get the Python interpreter path
+python_path = sys.executable
+
+# Run the command using the Python interpreter
+os.system(f'{python_path} -m niquests.help')
+
 import qh3
 import asyncio
 import niquests
