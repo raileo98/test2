@@ -47,7 +47,7 @@ jobs:
     - name: 安裝依賴
       run: |
         sudo apt install python3 python3-pip -y
-        python3 -m pip install --upgrade pip niquests niquests[speedups] niquests[socks] qh3 feedgen bs4 tqdm aiofiles urllib3.future minify-html requests_cache
+        python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles minify-html requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks]
 
     - name: 執行 Python 腳本
       run: |
