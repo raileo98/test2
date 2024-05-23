@@ -54,7 +54,8 @@ def check():
         try:
             response = session.get(url)
             if response.ok:
-                print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
+                # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
+                print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
             else:
                 print(f'使用代理獲取 {url} 失敗:\n{response.status_code}\n')
         except Exception as e:
