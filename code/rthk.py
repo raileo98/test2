@@ -36,6 +36,7 @@ class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
 session = CachedSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='memory', happy_eyeballs=True)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+session.quic_cache_layer.add_domain('1.1.1.1')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
