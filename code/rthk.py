@@ -343,7 +343,8 @@ async def cache_image(imageUrl):
         logging.error(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def optimize_image_quality(imgUrl):
-    q = 80
+    # q = 80
+    q = 99
     latest_imgUrl = None
     
     while True:
@@ -364,8 +365,10 @@ async def optimize_image_quality(imgUrl):
                     break
                     
                 elif content_length > 1000 * 1000:  # 大於 * 時壓縮
-                    if q > 10:
-                        q -= 10
+                    if q == 99:
+                        q == 95
+                    elif q > 5:
+                        q -= 5
                     elif q == 5:
                         q = 1
                     elif q == 1:
