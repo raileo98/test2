@@ -25,9 +25,9 @@ jobs:
     - name: 檢出代碼
       uses: actions/checkout@v4
 
-    - name: Install weserv/images
-      run: |
-        for i in {1..10}; do docker run -d -p 8080:80 --shm-size=1gb --name=weserv ghcr.io/weserv/images:5.x && break; done
+    # - name: Install weserv/images
+      # run: |
+        # for i in {1..10}; do docker run -d -p 8080:80 --shm-size=1gb --name=weserv ghcr.io/weserv/images:5.x && break; done
     
     - name: Install and configure Cloudflare WARP
       run: |
