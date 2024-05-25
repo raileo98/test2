@@ -9,6 +9,7 @@ python_path = sys.executable
 # Run the command using the Python interpreter
 os.system(f'{python_path} -m niquests.help')
 
+from time import sleep
 import qh3
 import asyncio
 import niquests
