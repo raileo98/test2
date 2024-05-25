@@ -45,6 +45,7 @@ userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; rv:126.0) Gecko/20100101 Firefox/126.0',
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
+sleep(1)
 
 # 創建另一個 session 用於處理 localhost 請求
 # localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=1)
