@@ -27,27 +27,27 @@ jobs:
 
     - name: Install weserv/images
       run: |
-        docker run -d -p 8080:80 --shm-size=1gb --name=weserv ghcr.io/weserv/images:5.x
+        for i in {1..10}; do docker run -d -p 8080:80 --shm-size=1gb --name=weserv ghcr.io/weserv/images:5.x && break; done
     
     - name: Install and configure Cloudflare WARP
       run: |
         git pull
-        curl -v https://1.1.1.1/cdn-cgi/trace
-        curl https://pkg.cloudflareclient.com/pubkey.gpg | sudo gpg --dearmor -o /usr/share/keyrings/cloudflare-warp-archive-keyring.gpg
-        echo "deb [arch=amd64 signed-by=/usr/share/keyrings/cloudflare-warp-archive-keyring.gpg] https://pkg.cloudflareclient.com/ $(lsb_release -cs) main" | sudo tee /etc/apt/sources.list.d/cloudflare-client.list
-        sudo apt update -y
-        sudo apt install -y cloudflare-warp
-        warp-cli --accept-tos registration new
-        warp-cli --accept-tos mode warp+doh
-        warp-cli --accept-tos tunnel ip add 127.0.0.1
-        warp-cli --accept-tos tunnel host add localhost
-        warp-cli --accept-tos connect
-        curl -v https://1.1.1.1/cdn-cgi/trace
+        for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
+        for i in {1..10}; do curl https://pkg.cloudflareclient.com/pubkey.gpg | sudo gpg --dearmor -o /usr/share/keyrings/cloudflare-warp-archive-keyring.gpg && break; done
+        for i in {1..10}; do echo "deb [arch=amd64 signed-by=/usr/share/keyrings/cloudflare-warp-archive-keyring.gpg] https://pkg.cloudflareclient.com/ $(lsb_release -cs) main" | sudo tee /etc/apt/sources.list.d/cloudflare-client.list && break; done
+        for i in {1..10}; do sudo apt update -y && break; done
+        for i in {1..10}; do sudo apt install -y cloudflare-warp && break; done
+        for i in {1..10}; do warp-cli --accept-tos registration new && break; done
+        for i in {1..10}; do warp-cli --accept-tos mode warp+doh && break; done
+        for i in {1..10}; do warp-cli --accept-tos tunnel ip add 127.0.0.1 && break; done
+        for i in {1..10}; do warp-cli --accept-tos tunnel host add localhost && break; done
+        for i in {1..10}; do warp-cli --accept-tos connect && break; done
+        for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
 
     - name: 安裝依賴
       run: |
-        sudo apt install python3 python3-pip -y
-        python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles minify-html requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks]
+        for i in {1..10}; do sudo apt install python3 python3-pip -y && break; done
+        for i in {1..10}; do python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles minify-html requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] && break; done
 
     - name: 執行 Python 腳本
       run: |
