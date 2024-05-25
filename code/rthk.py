@@ -278,13 +278,13 @@ async def process_article(fg, category, article):
                     if match:
                         video_thumbnail = match.group(1)
                         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+                        imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                         
                         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+                        imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                         
                         imgUrl = imgUrl.replace('_L_', '_')
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+                        imgList.add(imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/'))
                         
                         # 根據圖片大小調整壓縮質量
                         latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -294,12 +294,12 @@ async def process_article(fg, category, article):
                         print(f'[DEBUG] articleLink: {articleLink} - imgAlt: {imgAlt}')
                         
                         if latest_imgUrl:
-                            latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
+                            latest_imgUrl = latest_imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto"> <br>'
                             imgList.add(latest_imgUrl)
                             print(f'Final imgUrlWithQ: {latest_imgUrl}')
                         else:
-                            imgUrl = imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
+                            imgUrl = imgUrl.replace('http://localhost:8080/', 'https://images.weserv.nl/')
                             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto"> <br>'
                             imgList.add(imgUrl)
                             print(f'Final imgUrl: {imgUrl}')
@@ -334,10 +334,7 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        if imageUrl.startswith('http://localhost'):
-            response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
-        else:
-            response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
+        response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
         if response.ok:
             print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
@@ -356,10 +353,7 @@ async def optimize_image_quality(imgUrl):
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
         
         try:
-            if imgUrl.startswith('http://localhost'):
-                response = await get_response(imgUrlWithQ, method='HEAD', session=session)
-            else:
-                response = await get_response(imgUrlWithQ, method='HEAD', session=session)
+            response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             
             if response.status_code >= 400 and response.status_code < 600:
                 # 4xx 狀態碼,跳出循環
