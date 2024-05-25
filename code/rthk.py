@@ -64,7 +64,7 @@ def check():
 
     for url in urls:
         try:
-            response = session.get(url)
+            response = session.get(url, timeout=(1, 1))
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
                 print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
