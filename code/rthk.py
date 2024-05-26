@@ -317,23 +317,32 @@ async def process_article(fg, category, article):
         # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
         
         # 使用 html-minifier 縮小 feedDescription
-    minified_html = subprocess.check_output(['html-minifier',
-        '--collapse-boolean-attributes',
-        '--collapse-inline-tag-whitespace',
-        '--collapse-whitespace',
-        '--decode-entities',
-        '--remove-attribute-quotes',
-        '--remove-comments',
-        '--remove-empty-attributes',
-        '--remove-empty-elements',
-        '--remove-optional-tags',
-        '--remove-redundant-attributes',
-        '--remove-script-type-attributes',
-        '--remove-style-link-type-attributes',
-        '--remove-tag-whitespace',
-        '--use-short-doctype'],
-        universal_newlines=True,
-        input=feedDescription)
+        try:
+            minified_html = subprocess.check_output(['html-minifier',
+                '--collapse-boolean-attributes',
+                '--collapse-inline-tag-whitespace',
+                '--collapse-whitespace',
+                '--decode-entities',
+                '--remove-attribute-quotes',
+                '--remove-comments',
+                '--remove-empty-attributes',
+                '--remove-empty-elements',
+                '--remove-optional-tags',
+                '--remove-redundant-attributes',
+                '--remove-script-type-attributes',
+                '--remove-style-link-type-attributes',
+                '--remove-tag-whitespace',
+                '--use-short-doctype'],
+                universal_newlines=True,
+                input=feedDescription)
+        except Exception as e:
+            print(f'縮小 feedDescription 出錯: {e}')
+            logging.error(f'縮小 feedDescription 出錯: {e}')
+            minified_html = feedDescription
+        except:
+            print(f'縮小 feedDescription 出錯')
+            logging.error(f'縮小 feedDescription 出錯')
+            minified_html = feedDescription
 
         feedDescription = BeautifulSoup(minified_html, 'html.parser').prettify()
         
