@@ -48,6 +48,7 @@ jobs:
       run: |
         for i in {1..10}; do sudo apt install python3 python3-pip nodejs npm -y && break; done
         for i in {1..10}; do sudo python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles minify-html requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] && break; done
+        for i in {1..10}; do sudo npm install html-minifier -g && break; done
 
     - name: 執行 Python 腳本
       run: |
