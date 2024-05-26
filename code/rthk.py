@@ -10,6 +10,7 @@ python_path = sys.executable
 os.system(f'{python_path} -m niquests.help')
 
 from time import sleep
+import subprocess
 import qh3
 import asyncio
 import niquests
@@ -218,6 +219,7 @@ async def process_category(category, url):
 
     print(f'{category} 處理完成!')
 
+
 async def process_article(fg, category, article):
     try:
         fe = fg.add_entry()
@@ -313,16 +315,32 @@ async def process_article(fg, category, article):
 
         feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
-        # feedDescription = minify_html.minify(feedDescription, minify_js=True, minify_css=True) # BUGGY!
-        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
-                
+        
+        # 使用 html-minifier 縮小 feedDescription
+		minified_html = subprocess.check_output(['html-minifier',
+												'--collapse-boolean-attributes',
+												'--collapse-inline-tag-whitespace',
+												'--collapse-whitespace',
+												'--decode-entities',
+												'--remove-attribute-quotes',
+												'--remove-comments',
+												'--remove-empty-attributes',
+												'--remove-empty-elements',
+												'--remove-optional-tags',
+												'--remove-redundant-attributes',
+												'--remove-script-type-attributes',
+												'--remove-style-link-type-attributes',
+												'--remove-tag-whitespace',
+												'--use-short-doctype'],
+											   universal_newlines=True,
+											   input=feedDescription)
+        feedDescription = BeautifulSoup(minified_html, 'html.parser').prettify()
+        
         fe.title(articleTitle)
         fe.link(href=articleLink)
         fe.description(feedDescription)
         fe.pubDate(formatted_pub_date)
         
-
         print( f'{articleTitle} done!' )
     except Exception as e:
         print(f'{articleTitle} 處理出錯: {e}')
