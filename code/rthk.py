@@ -317,23 +317,23 @@ async def process_article(fg, category, article):
         # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
         
         # 使用 html-minifier 縮小 feedDescription
-	minified_html = subprocess.check_output(['html-minifier',
-	    '--collapse-boolean-attributes',
-	    '--collapse-inline-tag-whitespace',
-	    '--collapse-whitespace',
-	    '--decode-entities',
-	    '--remove-attribute-quotes',
-	    '--remove-comments',
-	    '--remove-empty-attributes',
-	    '--remove-empty-elements',
-	    '--remove-optional-tags',
-	    '--remove-redundant-attributes',
-	    '--remove-script-type-attributes',
-	    '--remove-style-link-type-attributes',
-	    '--remove-tag-whitespace',
-	    '--use-short-doctype'],
-	    universal_newlines=True,
-	    input=feedDescription)
+    minified_html = subprocess.check_output(['html-minifier',
+        '--collapse-boolean-attributes',
+        '--collapse-inline-tag-whitespace',
+        '--collapse-whitespace',
+        '--decode-entities',
+        '--remove-attribute-quotes',
+        '--remove-comments',
+        '--remove-empty-attributes',
+        '--remove-empty-elements',
+        '--remove-optional-tags',
+        '--remove-redundant-attributes',
+        '--remove-script-type-attributes',
+        '--remove-style-link-type-attributes',
+        '--remove-tag-whitespace',
+        '--use-short-doctype'],
+        universal_newlines=True,
+        input=feedDescription)
 
         feedDescription = BeautifulSoup(minified_html, 'html.parser').prettify()
         
