@@ -258,6 +258,7 @@ async def process_article(fg, category, article):
             imgAlt = imgAlt.strip()
             print(f'[DEBUG] articleLink: {articleLink} - imgAlt: {imgAlt}')
             imgAlt = imgAlt.replace('　', ' ')
+            print(f'[DEBUG] articleLink: {articleLink} - imgAlt_2: {imgAlt}')
             
             if latest_imgUrl:
                 latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
