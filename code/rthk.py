@@ -332,6 +332,7 @@ async def process_article(fg, category, article):
                 '--remove-tag-whitespace',
                 '--use-short-doctype'],
                 universal_newlines=True,
+                shell=True,
                 input=feedDescription)
         except Exception as e:
             print(f'縮小 feedDescription 出錯: {e}')
