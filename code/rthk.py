@@ -9,7 +9,6 @@ python_path = sys.executable
 # Run the command using the Python interpreter
 os.system(f'{python_path} -m niquests.help')
 
-from time import sleep
 import subprocess
 import qh3
 import asyncio
@@ -47,7 +46,6 @@ userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; rv:126.0) Gecko/20100101 Firefox/126.0',
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
-sleep(1)
 
 # 創建另一個 session 用於處理 localhost 請求
 # localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=1)
@@ -65,7 +63,7 @@ def check():
 
     for url in urls:
         try:
-            response = session.get(url, timeout=(1, 1))
+            response = get_response.get(url, timeout=(1, 1))
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
                 print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
