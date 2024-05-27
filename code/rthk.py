@@ -1,5 +1,14 @@
+print('111')
+
 import os
 import sys
+
+# Get the Python interpreter path
+python_path = sys.executable
+
+# Run the command using the Python interpreter
+os.system(f'{python_path} -m niquests.help')
+
 import subprocess
 import qh3
 import asyncio
@@ -17,16 +26,18 @@ import time
 import logging
 import threading
 import sys
+# import minify_html
 
-print('333')
+print('222')
 
 # 設置HTTP客戶端
-class CachedAsyncSession(requests_cache.session.CacheMixin, niquests.AsyncSession):
+class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
-session = CachedAsyncSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='memory', happy_eyeballs=True)
+session = CachedSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='memory', happy_eyeballs=True)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
+# session.quic_cache_layer.add_domain('1.1.1.1')
 session.headers['Cache-Control'] = 'no-cache'
 session.headers['Pragma'] = 'no-cache'
 userAgent = [
@@ -36,10 +47,13 @@ userAgent = [
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
+# 創建另一個 session 用於處理 localhost 請求
+# localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=1)
+
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
 
-async def check():
+def check():
     urls = [
         'https://1.1.1.1/cdn-cgi/trace',
         'https://mozilla.cloudflare-dns.com/cdn-cgi/trace',
@@ -49,8 +63,9 @@ async def check():
 
     for url in urls:
         try:
-            response = await session.get(url, timeout=(1, 1))
+            response = session.get(url, timeout=(1, 1))
             if response.ok:
+                # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
                 print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
             else:
                 print(f'使用代理獲取 {url} 失敗:\n{response.status_code}\n')
@@ -131,9 +146,9 @@ categories_data = {
 
 async def process_category(category, url):
     try:
-        response = await get_response(url, session=session)
+        response = await get_response(url)
         if response.ok:
-            web_content = await response.text()
+            web_content = response.text
         else:
             print(f'{category} 處理失敗，即將重試!')
             logging.error(f'{category} 處理失敗，HTTP 狀態碼: {response.status_code}')
@@ -213,8 +228,8 @@ async def process_article(fg, category, article):
         
         print( f'{articleTitle} started!' )
 
-        article_response = await get_response(articleLink, session=session)
-        article_content = await article_response.text()
+        article_response = await get_response(articleLink)
+        article_content = article_response.text
         article_soup = BeautifulSoup(article_content, 'html.parser')
 
         feedDescription = article_soup.select_one('.itemFullText').prettify()
@@ -237,7 +252,7 @@ async def process_article(fg, category, article):
             imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
 
             # 根據圖片大小調整壓縮質量
-            latest_imgUrl = await optimize_image_quality(imgUrl, session)
+            latest_imgUrl = await optimize_image_quality(imgUrl)
 
             imgAlt = image.get('alt', '')
             imgAlt = imgAlt.strip()
@@ -260,6 +275,7 @@ async def process_article(fg, category, article):
             scripts = article_soup.find_all('script')
             for script in scripts:
                 if 'videoThumbnail' in script.text:
+                    # match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
@@ -273,7 +289,7 @@ async def process_article(fg, category, article):
                         imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
                         
                         # 根據圖片大小調整壓縮質量
-                        latest_imgUrl = await optimize_image_quality(imgUrl, session)
+                        latest_imgUrl = await optimize_image_quality(imgUrl)
     
                         imgAlt = article_soup.select_one('.detailNewsSlideTitleText').get_text()
                         imgAlt = imgAlt.strip()
@@ -319,9 +335,9 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        response = await session.get(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD')
+        response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
         if response.ok:
-            print(f'[INFO] 已緩存 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
+            print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
         print(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
         logging.error(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
@@ -330,7 +346,7 @@ async def cache_image(imageUrl):
         print(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
         logging.error(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
-async def optimize_image_quality(imgUrl, session):
+async def optimize_image_quality(imgUrl):
     # q = 80
     q = 99
     latest_imgUrl = None
@@ -339,7 +355,7 @@ async def optimize_image_quality(imgUrl, session):
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
         
         try:
-            response = await session.get(imgUrlWithQ, method='HEAD')
+            response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             
             if response.status_code >= 400 and response.status_code < 600:
                 latest_imgUrl = imgUrlWithQ
@@ -390,18 +406,19 @@ async def optimize_image_quality(imgUrl, session):
     
     return latest_imgUrl
 
-async def get_response(url, session=session):
+async def get_response(url, timeout=30, mustFetch=True, method='GET', session=session):
     while True:
         try:
-            response = await session.get(url, timeout=(1, 1))
+            response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
+            # print(f'http_version: {response.http_version} - url: {url}')
             return response
         except Exception as e:
-            print(f'[ERROR] 獲取響應失敗，即將重試 url: {url} - 錯誤: {e}')
-            logging.error(f'[ERROR] 獲取響應失敗，即將重試 url: {url} - 錯誤: {e}')
+            print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+            logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
         except:
             exception_type, exception_value, exception_traceback = sys.exc_info()
-            print(f'[ERROR] 獲取響應出現未知錯誤，即將重試 url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
-            logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試 url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+            print(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+            logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
         if mustFetch:
             continue
         else:
