@@ -26,7 +26,7 @@ import time
 import logging
 import threading
 import sys
-# import minify_html
+import minify_html
 
 print('222')
 
@@ -316,6 +316,8 @@ async def process_article(fg, category, article):
         feedDescription = f'{imgHtml} {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
         
+        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+        feedDescription = minify_html.minify(feedDescription, minify_js=True, remove_processing_instructions=True, remove_bangs=True, minify_css=True)
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
         print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
         
