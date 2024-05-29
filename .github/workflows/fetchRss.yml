@@ -47,7 +47,7 @@ jobs:
     - name: 安裝依賴
       run: |
         for i in {1..10}; do sudo apt install python3 python3-pip -y && break; done
-        for i in {1..10}; do sudo python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] && break; done
+        for i in {1..10}; do sudo python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] minify-html && break; done
 
     - name: 執行 Python 腳本
       run: |
