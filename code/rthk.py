@@ -38,8 +38,8 @@ session = CachedSession(resolver="doh://mozilla.cloudflare-dns.com/dns-query", p
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 # session.quic_cache_layer.add_domain('1.1.1.1')
-session.headers['Cache-Control'] = 'no-cache'
-session.headers['Pragma'] = 'no-cache'
+# session.headers['Cache-Control'] = 'no-cache'
+# session.headers['Pragma'] = 'no-cache'
 userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0',
     'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0',
