@@ -319,11 +319,11 @@ async def process_article(fg, category, article):
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
         print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
         
-        feedDescription = minify_html.minify(feedDescription, minify_js=True, remove_processing_instructions=True, remove_bangs=True, minify_css=True)
-        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_3: {feedDescription}')
+        # feedDescription = minify_html.minify(feedDescription, minify_js=True, remove_processing_instructions=True, remove_bangs=True, minify_css=True)
+        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_3: {feedDescription}')
         
-        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_4: {feedDescription}')
+        # feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
+        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_4: {feedDescription}')
         
         fe.title(articleTitle)
         fe.link(href=articleLink)
