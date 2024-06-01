@@ -9,6 +9,7 @@ python_path = sys.executable
 # Run the command using the Python interpreter
 os.system(f'{python_path} -m niquests.help')
 
+import psutil
 import subprocess
 import qh3
 import asyncio
@@ -52,6 +53,12 @@ session.headers['User-Agent'] = secrets.choice(userAgent)
 
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
+
+def memUsage():
+    memory = psutil.virtual_memory()
+    swap_memory = psutil.swap_memory()
+    print(f"virtual_memory 使用情况：{memory.percent}%")
+    print(f"swap_memory 使用情况：{swap_memory.percent}%")
 
 def check():
     urls = [
@@ -331,6 +338,7 @@ async def process_article(fg, category, article):
         fe.pubDate(formatted_pub_date)
         
         print( f'{articleTitle} done!' )
+        memUsage()
     except Exception as e:
         print(f'{articleTitle} 處理出錯: {e}')
         logging.error(f'{articleTitle} 處理出錯: {e}')
@@ -445,6 +453,7 @@ def process_category_thread(category, url):
 
 if __name__ == '__main__':
     start_time = time.time()
+    memUsage()
     print('333')
     check()
     check()
@@ -454,4 +463,5 @@ if __name__ == '__main__':
     check()
     end_time = time.time()
     execution_time = end_time - start_time
+    memUsage()
     print(f'執行時間：{execution_time}秒')
