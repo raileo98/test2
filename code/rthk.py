@@ -3,10 +3,10 @@ print('111')
 import os
 import sys
 
-# Get the Python interpreter path
+# 獲取Python解釋器路徑
 python_path = sys.executable
 
-# Run the command using the Python interpreter
+# 使用Python解釋器運行命令
 os.system(f'{python_path} -m niquests.help')
 
 import psutil
@@ -57,8 +57,8 @@ logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asc
 def memUsage():
     memory = psutil.virtual_memory()
     swap_memory = psutil.swap_memory()
-    print(f"virtual_memory 使用情况：{memory.percent}%")
-    print(f"swap_memory 使用情况：{swap_memory.percent}%")
+    print(f"虛擬記憶體使用情况：{memory.percent}% | {memory.used / (1024 * 1024):.2f} MB")
+    print(f"交換記憶體使用情况：{swap_memory.percent}% | {swap_memory.used / (1024 * 1024):.2f} MB")
 
 def check():
     urls = [
