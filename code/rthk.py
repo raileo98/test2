@@ -451,7 +451,7 @@ async def print_memory_usage(stop_event: Event):
         print(f"記憶體使用量: {memory_usage:.2f} MB")
         await asyncio.sleep(1)
 
-def main():
+async def main():
     tasks = []
     stop_event = asyncio.Event()  # 創建一個事件對象
 
@@ -463,17 +463,16 @@ def main():
     memory_task = asyncio.create_task(print_memory_usage(stop_event))
     tasks.append(memory_task)
 
-    try:
-        asyncio.run(asyncio.gather(*tasks))
-    finally:
-        # 設置事件,通知打印記憶體使用量的任務停止
-        stop_event.set()
+    await asyncio.gather(*tasks)
+
+    # 設置事件,通知打印記憶體使用量的任務停止
+    stop_event.set()
 
 if __name__ == '__main__':
     start_time = time.time()
     check()
     check()
-    main()
+    asyncio.run(main())
     check()
     check()
     end_time = time.time()
