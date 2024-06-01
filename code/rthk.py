@@ -9,9 +9,13 @@ python_path = sys.executable
 # Run the command using the Python interpreter
 os.system(f'{python_path} -m niquests.help')
 
+import subprocess
+import qh3
 import asyncio
-import psutil
-from asyncio import Event
+import niquests
+import requests_cache
+from bs4 import BeautifulSoup, CData
+from feedgen.feed import FeedGenerator
 from datetime import datetime
 import urllib.parse
 import secrets
@@ -21,11 +25,8 @@ import aiofiles
 import time
 import logging
 import threading
-import niquests
-import requests_cache
-from bs4 import BeautifulSoup, CData
-from feedgen.feed import FeedGenerator
-# import minify_html
+import sys
+import minify_html
 
 print('222')
 
@@ -72,17 +73,6 @@ def check():
             print(f'使用代理獲取 {url} 出錯:\n{e}\n')
         except:
             print(f'使用代理獲取 {url} 出現未知錯誤\n')
-
-def get_memory_usage():
-    process = psutil.Process()
-    memory_info = process.memory_info()
-    return memory_info.rss / (1024 ** 2)  # 返回記憶體使用量(MB)
-
-def print_memory_usage():
-    while True:
-        memory_usage = get_memory_usage()
-        print(f"記憶體使用量: {memory_usage:.2f} MB")
-        time.sleep(1)
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -324,10 +314,10 @@ async def process_article(fg, category, article):
         formatted_pub_date = parse_pub_date(pub_date)
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
+        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
         
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
+        print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
         
         # feedDescription = minify_html.minify(feedDescription, minify_js=True, remove_processing_instructions=True, remove_bangs=True, minify_css=True)
         # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_3: {feedDescription}')
@@ -440,39 +430,26 @@ async def get_response(url, timeout=30, mustFetch=True, method='GET', session=se
         else:
             break
 
-async def get_memory_usage():
-    process = psutil.Process()
-    memory_info = await asyncio.to_thread(process.memory_info)
-    return memory_info.rss / (1024 ** 2)  # 返回記憶體使用量(MB)
-
-async def print_memory_usage(stop_event: Event):
-    while not stop_event.is_set():
-        memory_usage = await get_memory_usage()
-        print(f"記憶體使用量: {memory_usage:.2f} MB")
-        await asyncio.sleep(1)
-
-async def main():
-    tasks = []
-    stop_event = asyncio.Event()  # 創建一個事件對象
-
+def main():
+    threads = []
     for category, data in categories_data.items():
-        task = asyncio.create_task(process_category(category, data['url']))
-        tasks.append(task)
+        t = threading.Thread(target=process_category_thread, args=(category, data['url']))
+        threads.append(t)
+        t.start()
+    
+    for thread in threads:
+        thread.join()
 
-    # 啟動打印記憶體使用量的任務
-    memory_task = asyncio.create_task(print_memory_usage(stop_event))
-    tasks.append(memory_task)
-
-    await asyncio.gather(*tasks)
-
-    # 設置事件,通知打印記憶體使用量的任務停止
-    stop_event.set()
+def process_category_thread(category, url):
+    asyncio.run(process_category(category, url))
 
 if __name__ == '__main__':
     start_time = time.time()
+    print('333')
     check()
     check()
-    asyncio.run(main())
+    print('444')
+    main()
     check()
     check()
     end_time = time.time()
