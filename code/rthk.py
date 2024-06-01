@@ -442,32 +442,39 @@ async def get_response(url, timeout=30, mustFetch=True, method='GET', session=se
         else:
             break
 
+async def get_memory_usage():
+    process = psutil.Process()
+    memory_info = await asyncio.to_thread(process.memory_info)
+    return memory_info.rss / (1024 ** 2)  # 返回記憶體使用量(MB)
+
+async def print_memory_usage(stop_event: Event):
+    while not stop_event.is_set():
+        memory_usage = await get_memory_usage()
+        print(f"記憶體使用量: {memory_usage:.2f} MB")
+        await asyncio.sleep(1)
+
 def main():
-    threads = []
+    tasks = []
+    stop_event = asyncio.Event()  # 創建一個事件對象
+
     for category, data in categories_data.items():
-        t = threading.Thread(target=process_category_thread, args=(category, data['url']))
-        threads.append(t)
-        t.start()
+        task = asyncio.create_task(process_category(category, data['url']))
+        tasks.append(task)
 
-    # 啟動一個新的執行緒來打印記憶體使用量
-    memory_thread = threading.Thread(target=print_memory_usage)
-    memory_thread.start()
+    # 啟動打印記憶體使用量的任務
+    memory_task = asyncio.create_task(print_memory_usage(stop_event))
+    tasks.append(memory_task)
 
-    for thread in threads:
-        thread.join()
-
-    # 等待記憶體使用量打印執行緒結束
-    memory_thread.join()
-
-def process_category_thread(category, url):
-    asyncio.run(process_category(category, url))
+    try:
+        asyncio.run(asyncio.gather(*tasks))
+    finally:
+        # 設置事件,通知打印記憶體使用量的任務停止
+        stop_event.set()
 
 if __name__ == '__main__':
     start_time = time.time()
-    print('333')
     check()
     check()
-    print('444')
     main()
     check()
     check()
