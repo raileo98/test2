@@ -10,6 +10,7 @@ python_path = sys.executable
 os.system(f'{python_path} -m niquests.help')
 
 import subprocess
+import psutil
 import qh3
 import asyncio
 import niquests
@@ -26,7 +27,7 @@ import time
 import logging
 import threading
 import sys
-import minify_html
+# import minify_html
 
 print('222')
 
@@ -73,6 +74,17 @@ def check():
             print(f'使用代理獲取 {url} 出錯:\n{e}\n')
         except:
             print(f'使用代理獲取 {url} 出現未知錯誤\n')
+
+def get_memory_usage():
+    process = psutil.Process()
+    memory_info = process.memory_info()
+    return memory_info.rss / (1024 ** 2)  # 返回記憶體使用量(MB)
+
+def print_memory_usage():
+    while True:
+        memory_usage = get_memory_usage()
+        print(f"記憶體使用量: {memory_usage:.2f} MB")
+        time.sleep(1)
 
 # 解析發布日期
 def parse_pub_date(date_str):
@@ -436,9 +448,16 @@ def main():
         t = threading.Thread(target=process_category_thread, args=(category, data['url']))
         threads.append(t)
         t.start()
-    
+
+    # 啟動一個新的執行緒來打印記憶體使用量
+    memory_thread = threading.Thread(target=print_memory_usage)
+    memory_thread.start()
+
     for thread in threads:
         thread.join()
+
+    # 等待記憶體使用量打印執行緒結束
+    memory_thread.join()
 
 def process_category_thread(category, url):
     asyncio.run(process_category(category, url))
