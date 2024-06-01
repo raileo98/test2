@@ -9,14 +9,9 @@ python_path = sys.executable
 # Run the command using the Python interpreter
 os.system(f'{python_path} -m niquests.help')
 
-import subprocess
-import psutil
-import qh3
 import asyncio
-import niquests
-import requests_cache
-from bs4 import BeautifulSoup, CData
-from feedgen.feed import FeedGenerator
+import psutil
+from asyncio import Event
 from datetime import datetime
 import urllib.parse
 import secrets
@@ -26,7 +21,10 @@ import aiofiles
 import time
 import logging
 import threading
-import sys
+import niquests
+import requests_cache
+from bs4 import BeautifulSoup, CData
+from feedgen.feed import FeedGenerator
 # import minify_html
 
 print('222')
