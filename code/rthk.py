@@ -471,5 +471,5 @@ if __name__ == '__main__':
     end_time = time.time()
     execution_time = end_time - start_time
     memUsage()
-    print( f'len( session.cache.responses.values ): { len( session.cache.responses.values ) }' )
+    print( f'len( session.cache.responses ): { len( session.cache.responses ) }' )
     print(f'執行時間：{execution_time}秒')
