@@ -233,8 +233,6 @@ async def process_category(category, url):
         await file.write(soup_rss.prettify())
 
     print(f'{category} 處理完成!')
-    get_cache_hit_rate()
-
 
 async def process_article(fg, category, article):
     try:
