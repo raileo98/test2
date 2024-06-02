@@ -60,27 +60,6 @@ def memUsage():
     print(f"虛擬記憶體使用情况：{memory.percent}% | {memory.used / (1024 * 1024):.2f} MB")
     print(f"交換記憶體使用情况：{swap_memory.percent}% | {swap_memory.used / (1024 * 1024):.2f} MB")
 
-def get_cache_stats(session):
-    """
-    獲取給定 session 的緩存統計信息
-    
-    Args:
-        session (CachedSession): 要檢查的 session 實例
-        
-    Returns:
-        tuple: 包含總請求數、命中數、未命中數和命中率(0到1之間的浮點數)
-    """
-    total_requests = len(session.cache.responses)
-    hits = sum(resp.from_cache for resp in session.cache.responses.values())
-    misses = total_requests - hits
-    
-    if total_requests == 0:
-        hit_ratio = 0.0
-    else:
-        hit_ratio = hits / total_requests
-    
-    return total_requests, hits, misses, hit_ratio
-
 def check():
     urls = [
         'https://1.1.1.1/cdn-cgi/trace',
@@ -175,6 +154,9 @@ categories_data = {
         'url': 'https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive_date='
     }
 }
+
+total_requests = 0
+cache_hits = 0
 
 async def process_category(category, url):
     try:
@@ -288,9 +270,6 @@ async def process_article(fg, category, article):
 
             imgAlt = image.get('alt', '')
             imgAlt = html.escape(imgAlt.strip())
-            # print(f'[DEBUG] articleLink: {articleLink} - imgAlt: {imgAlt}')
-            # imgAlt = imgAlt.replace('　', ' ')
-            # print(f'[DEBUG] articleLink: {articleLink} - imgAlt_2: {imgAlt}')
             
             if latest_imgUrl:
                 latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
@@ -307,7 +286,6 @@ async def process_article(fg, category, article):
             scripts = article_soup.find_all('script')
             for script in scripts:
                 if 'videoThumbnail' in script.text:
-                    # match = re.search(r"videoThumbnail\s*=\s*'(.*)'", script.text)
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
@@ -328,7 +306,6 @@ async def process_article(fg, category, article):
     
                         imgAlt = article_soup.select_one('.detailNewsSlideTitleText').get_text()
                         imgAlt = html.escape(imgAlt.strip())
-                        # print(f'[DEBUG] articleLink: {articleLink} - imgAlt: {imgAlt}')
                         
                         if latest_imgUrl:
                             latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
@@ -349,16 +326,8 @@ async def process_article(fg, category, article):
         formatted_pub_date = parse_pub_date(pub_date)
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_1: {feedDescription}')
         
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_2: {feedDescription}')
-        
-        # feedDescription = minify_html.minify(feedDescription, minify_js=True, remove_processing_instructions=True, remove_bangs=True, minify_css=True)
-        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_3: {feedDescription}')
-        
-        # feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-        # print(f'[DEBUG] articleLink: {articleLink} - feedDescription_4: {feedDescription}')
         
         fe.title(articleTitle)
         fe.link(href=articleLink)
@@ -389,7 +358,6 @@ async def cache_image(imageUrl):
         logging.error(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def optimize_image_quality(imgUrl):
-    # q = 80
     q = 99
     latest_imgUrl = None
     
@@ -449,10 +417,13 @@ async def optimize_image_quality(imgUrl):
     return latest_imgUrl
 
 async def get_response(url, timeout=30, mustFetch=True, method='GET', session=session):
+    global total_requests, cache_hits
+    total_requests += 1
     while True:
         try:
             response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
-            # print(f'http_version: {response.http_version} - url: {url}')
+            if response.from_cache:
+                cache_hits += 1
             return response
         except Exception as e:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
@@ -491,11 +462,13 @@ if __name__ == '__main__':
     check()
     end_time = time.time()
     execution_time = end_time - start_time
+
+    # 計算並打印緩存命中率
+    cache_hit_rate = cache_hits / total_requests * 100
+    print(f'總請求數: {total_requests}')
+    print(f'緩存命中數: {cache_hits}')
+    print(f'緩存命中率: {cache_hit_rate:.2f}%')
+
     memUsage()
-    # print( f'len( session.cache.responses ): { len( session.cache.responses ) }' )
-    total, hits, misses, ratio = get_cache_stats(session)
-    print(f'總請求數: {total}')
-    print(f'命中數: {hits}') 
-    print(f'未命中數: {misses}')
-    print(f'命中率: {ratio*100:.2f}%')
+    print(f'len( session.cache.responses.values ): { len( session.cache.responses.values ) }')
     print(f'執行時間：{execution_time}秒')
