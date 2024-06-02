@@ -247,16 +247,16 @@ async def process_article(fg, category, article):
         imgList = set()
         for image in images:
             imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
-            print(f'{articleLink} - {articleTitle}: {imgUrl}')
-            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+            print(f'{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', f'n=-1&q=99')}')
+            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', f'n=-1&q=99'))
             
             imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-            print(f'{articleLink} - {articleTitle}: {imgUrl}')
-            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+            print(f'{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', f'n=-1&q=99')}')
+            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', f'n=-1&q=99'))
             
             imgUrl = imgUrl.replace('_L_', '_')
-            print(f'{articleLink} - {articleTitle}: {imgUrl}')
-            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+            print(f'{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', f'n=-1&q=99')}')
+            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', f'n=-1&q=99'))
 
             # 根據圖片大小調整壓縮質量
             latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -287,13 +287,16 @@ async def process_article(fg, category, article):
                     if match:
                         video_thumbnail = match.group(1)
                         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+                        print(f'{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', f'n=-1&q=99')}')
+                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', f'n=-1&q=99'))
                         
                         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+                        print(f'{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', f'n=-1&q=99')}')
+                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', f'n=-1&q=99'))
                         
                         imgUrl = imgUrl.replace('_L_', '_')
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/'))
+                        print(f'{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', f'n=-1&q=99')}')
+                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', f'n=-1&q=99'))
                         
                         # 根據圖片大小調整壓縮質量
                         latest_imgUrl = await optimize_image_quality(imgUrl)
