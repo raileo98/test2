@@ -60,6 +60,27 @@ def memUsage():
     print(f"虛擬記憶體使用情况：{memory.percent}% | {memory.used / (1024 * 1024):.2f} MB")
     print(f"交換記憶體使用情况：{swap_memory.percent}% | {swap_memory.used / (1024 * 1024):.2f} MB")
 
+def get_cache_stats(session):
+    """
+    獲取給定 session 的緩存統計信息
+    
+    Args:
+        session (CachedSession): 要檢查的 session 實例
+        
+    Returns:
+        tuple: 包含總請求數、命中數、未命中數和命中率(0到1之間的浮點數)
+    """
+    total_requests = len(session.cache.responses)
+    hits = sum(resp.from_cache for resp in session.cache.responses.values())
+    misses = total_requests - hits
+    
+    if total_requests == 0:
+        hit_ratio = 0.0
+    else:
+        hit_ratio = hits / total_requests
+    
+    return total_requests, hits, misses, hit_ratio
+
 def check():
     urls = [
         'https://1.1.1.1/cdn-cgi/trace',
@@ -471,5 +492,10 @@ if __name__ == '__main__':
     end_time = time.time()
     execution_time = end_time - start_time
     memUsage()
-    print( f'len( session.cache.responses ): { len( session.cache.responses ) }' )
+    # print( f'len( session.cache.responses ): { len( session.cache.responses ) }' )
+    total, hits, misses, ratio = get_cache_stats(session)
+    print(f'總請求數: {total}')
+    print(f'命中數: {hits}') 
+    print(f'未命中數: {misses}')
+    print(f'命中率: {ratio*100:.2f}%')
     print(f'執行時間：{execution_time}秒')
