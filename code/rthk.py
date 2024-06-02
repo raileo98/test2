@@ -470,5 +470,5 @@ if __name__ == '__main__':
     print(f'緩存命中率: {cache_hit_rate:.2f}%')
 
     memUsage()
-    print(f'len( session.cache.responses.values ): { len( session.cache.responses.values ) }')
+    # print(f'len( session.cache.responses.values ): { len( session.cache.responses.values ) }')
     print(f'執行時間：{execution_time}秒')
