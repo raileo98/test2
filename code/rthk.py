@@ -31,17 +31,6 @@ import minify_html
 
 print('222')
 
-def get_cache_hit_rate():
-    cache = requests_cache.get_cache()
-    print( f'cache: { cache }' )
-    
-    total_requests = len(cache.responses)
-    cache_hits = sum(1 for resp in cache.responses.values() if resp.from_cache)
-    cache_hit_rate = (cache_hits / total_requests) * 100
-    print(f"總請求數: {total_requests}")
-    print(f"快取命中數: {cache_hits}") 
-    print(f"快取命中率: {cache_hit_rate:.2f}%")
-
 # 設置HTTP客戶端
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
@@ -234,6 +223,7 @@ async def process_category(category, url):
         await file.write(soup_rss.prettify())
 
     print(f'{category} 處理完成!')
+
 
 async def process_article(fg, category, article):
     try:
@@ -474,5 +464,4 @@ if __name__ == '__main__':
     end_time = time.time()
     execution_time = end_time - start_time
     memUsage()
-    get_cache_hit_rate()
     print(f'執行時間：{execution_time}秒')
