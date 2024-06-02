@@ -70,7 +70,11 @@ def check():
 
     for url in urls:
         try:
-            response = session.get(url, timeout=(1, 1))
+            headersForCheck = dict(session.headers)
+            headersForCheck['Cache-Control'] = 'no-cache'
+            headersForCheck['Pragma'] = 'no-cache'
+            print( f'headersForCheck: { headersForCheck }' )
+            response = session.get(url, timeout=(1, 1), headers=headersForCheck )
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
                 print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
