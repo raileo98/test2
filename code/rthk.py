@@ -28,12 +28,13 @@ import logging
 import threading
 import sys
 import minify_html
-from requests_cache import get_cache
 
 print('222')
 
 def get_cache_hit_rate():
-    cache = get_cache()
+    cache = requests_cache.get_cache()
+    print( f'cache: { cache }' )
+    
     total_requests = len(cache.responses)
     cache_hits = sum(1 for resp in cache.responses.values() if resp.from_cache)
     cache_hit_rate = (cache_hits / total_requests) * 100
