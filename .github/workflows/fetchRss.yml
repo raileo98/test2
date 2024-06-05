@@ -40,8 +40,10 @@ jobs:
         for i in {1..10}; do sudo apt update -y && break; done
         for i in {1..10}; do sudo apt install python3 python3-pip -y && break; done
         for i in {1..10}; do sudo python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] minify-html psutil redis redis[hiredis] && break; done
-        for i in {1..10}; do sudo systemctl start redis && break; done
+        for i in {1..10}; do sudo systemctl status redis && break; done
         for i in {1..10}; do sudo systemctl enable redis && break; done
+        for i in {1..10}; do sudo systemctl start redis && break; done
+        for i in {1..10}; do sudo systemctl status redis && break; done
     
     - name: Install and configure Cloudflare WARP
       run: |
