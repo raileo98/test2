@@ -35,9 +35,12 @@ jobs:
       # run: |
         # for i in {1..10}; do docker run -d -p 8080:80 --shm-size=1gb --name=weserv ghcr.io/weserv/images:5.x && break; done
 
-    - name: Install and configure Cloudflare WARP
+    - name: 檢出代碼 2
       run: |
         for i in {1..10}; do git pull && break; done
+
+    - name: Install and configure Cloudflare WARP
+      run: |
         for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
         for i in {1..10}; do curl https://pkg.cloudflareclient.com/pubkey.gpg | sudo gpg --dearmor -o /usr/share/keyrings/cloudflare-warp-archive-keyring.gpg && break; done
         for i in {1..10}; do echo "deb [arch=amd64 signed-by=/usr/share/keyrings/cloudflare-warp-archive-keyring.gpg] https://pkg.cloudflareclient.com/ $(lsb_release -cs) main" | sudo tee /etc/apt/sources.list.d/cloudflare-client.list && break; done
