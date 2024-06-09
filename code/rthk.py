@@ -385,7 +385,7 @@ async def optimize_image_quality(imgUrl):
                 content_length = int(response.headers['Content-Length'])
                 upstream_response_length = int(response.headers['x-upstream-response-length'])
                 
-                if content_length > 1000 * 1000:
+                if content_length > 1000 * 500:
                     if q == 99:
                         q = 95
                     elif q > 5:
@@ -419,7 +419,7 @@ async def optimize_image_quality(imgUrl):
                         break
                     else:
                         q = 5
-                elif content_length < 1000 * 1000:
+                elif content_length < 1000 * 500:
                     if latestAvailableQ:
                     	latest_imgUrl = latestAvailableQ
                                         
