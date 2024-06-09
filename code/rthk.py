@@ -360,6 +360,7 @@ async def cache_image(imageUrl):
 async def optimize_image_quality(imgUrl):
     q = 99
     latest_imgUrl = None
+    latestAvailableQ = None
     
     while True:
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
@@ -368,9 +369,15 @@ async def optimize_image_quality(imgUrl):
             response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             
             if response.status_code >= 400 and response.status_code < 600:
-                latest_imgUrl = imgUrlWithQ
+                if latestAvailableQ:
+                	latest_imgUrl = latestAvailableQ
+                                    
+                else:
+                	latest_imgUrl = imgUrlWithQ
+                                    
                 break
             elif response.ok:
+                latestAvailableQ = imgUrlWithQ
                 content_length = int(response.headers['Content-Length'])
                 upstream_response_length = int(response.headers['x-upstream-response-length'])
                 
@@ -382,7 +389,12 @@ async def optimize_image_quality(imgUrl):
                     elif q == 5:
                         q = 1
                     elif q == 1:
-                        latest_imgUrl = imgUrlWithQ
+                        if latestAvailableQ:
+                        	latest_imgUrl = latestAvailableQ
+                                            
+                        else:
+                        	latest_imgUrl = imgUrlWithQ
+                                            
                         break
                     else:
                         q = 5
@@ -394,24 +406,52 @@ async def optimize_image_quality(imgUrl):
                     elif q == 5:
                         q = 1
                     elif q == 1:
-                        latest_imgUrl = imgUrlWithQ
+                        if latestAvailableQ:
+                        	latest_imgUrl = latestAvailableQ
+                                            
+                        else:
+                        	latest_imgUrl = imgUrlWithQ
+                                            
                         break
                     else:
                         q = 5
                 elif content_length < 1000 * 1000:
-                    latest_imgUrl = imgUrlWithQ
+                    if latestAvailableQ:
+                    	latest_imgUrl = latestAvailableQ
+                                        
+                    else:
+                    	latest_imgUrl = imgUrlWithQ
+                                        
                     break
                 else:
-                    latest_imgUrl = imgUrlWithQ
+                    if latestAvailableQ:
+                    	latest_imgUrl = latestAvailableQ
+                                        
+                    else:
+                    	latest_imgUrl = imgUrlWithQ
+                                        
                     break
         except Exception as e:
             print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
             logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
+            if latestAvailableQ:
+            	latest_imgUrl = latestAvailableQ
+                                
+            else:
+            	latest_imgUrl = imgUrlWithQ
+                                
+            break
+        
         except:
             exception_type, exception_value, exception_traceback = sys.exc_info()
             print(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
             logging.error(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
-            latest_imgUrl = imgUrlWithQ
+            if latestAvailableQ:
+            	latest_imgUrl = latestAvailableQ
+                                
+            else:
+            	latest_imgUrl = imgUrlWithQ
+                                
             break
     
     return latest_imgUrl
