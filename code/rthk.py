@@ -349,7 +349,8 @@ async def cache_image(imageUrl):
     try:
         response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
         if response.ok:
-            print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
+            if response.from_cache:
+                print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
         print(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
         logging.error(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
