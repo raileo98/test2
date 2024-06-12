@@ -53,6 +53,10 @@ jobs:
         for i in {1..10}; do warp-cli --accept-tos connect && break; done
         for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
 
+    - name: 檢出代碼 3
+      run: |
+        for i in {1..10}; do git pull && break; done
+
     - name: 安裝依賴
       run: |
         for i in {1..10}; do sudo apt update -y && break; done
