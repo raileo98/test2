@@ -74,7 +74,7 @@ def check():
             headersForCheck['Cache-Control'] = 'no-cache'
             headersForCheck['Pragma'] = 'no-cache'
             print( f'headersForCheck: { headersForCheck }' )
-            response = session.get(url, timeout=(1, 1), headers=headersForCheck )
+            response = session.get(url, timeout=2, headers=headersForCheck )
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
                 print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
@@ -346,7 +346,7 @@ async def process_article(fg, category, article):
 
 async def cache_image(imageUrl):
     try:
-        response = await get_response(imageUrl, timeout=(1, 1), mustFetch=False, method='HEAD', session=session)
+        response = await get_response(imageUrl, timeout=2, mustFetch=False, method='HEAD', session=session)
         if response.ok:
             if response.from_cache:
                 print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
@@ -471,7 +471,7 @@ async def optimize_image_quality(imgUrl):
     
     return latest_imgUrl
 
-async def get_response(url, timeout=30, mustFetch=True, method='GET', session=session):
+async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
     global total_requests, cache_hits
     total_requests += 1
     while True:
