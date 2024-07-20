@@ -42,9 +42,9 @@ session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
 # session.headers['Cache-Control'] = 'no-cache'
 # session.headers['Pragma'] = 'no-cache'
 userAgent = [
-    'Mozilla/5.0 (Windows NT 10.0; rv:124.0) Gecko/20100101 Firefox/124.0',
-    'Mozilla/5.0 (Windows NT 10.0; rv:125.0) Gecko/20100101 Firefox/125.0',
     'Mozilla/5.0 (Windows NT 10.0; rv:126.0) Gecko/20100101 Firefox/126.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:127.0) Gecko/20100101 Firefox/127.0',
+    'Mozilla/5.0 (Windows NT 10.0; rv:128.0) Gecko/20100101 Firefox/128.0',
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
