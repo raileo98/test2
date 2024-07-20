@@ -184,7 +184,7 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    feedImg = f"https://images.weserv.nl/?n=-1&output=webp&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
+    feedImg = f"https://images.weserv.nl/?n=-1&output=webp&trim&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
     fg.logo(feedImg)
 
     fg.copyright('© 香港電台 RTHK')
@@ -253,7 +253,7 @@ async def process_article(fg, category, article):
         imgHtml = ''
         imgList = set()
         for image in images:
-            imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(image['src'])
+            imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim&url=' + urllib.parse.quote_plus(image['src'])
             print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
             imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
             
@@ -289,7 +289,7 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&url=' + urllib.parse.quote_plus(video_thumbnail)
+                        imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim&url=' + urllib.parse.quote_plus(video_thumbnail)
                         print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
                         imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
                         
