@@ -8,6 +8,7 @@ on:
     paths:
       - '.github/workflows/*'
       - 'code/*'
+      # - '*.rss'
       - '*'
       - '**'
   schedule:
@@ -70,22 +71,6 @@ jobs:
       run: |
         git config --global user.email "github-actions@github.com"
         git config --global user.name "github-actions"
-        
-        # 檢查是否有未暫存的變更
-        if ! git diff --quiet; then
-          echo "有未暫存的變更，請處理後再執行。"
-          exit 1
-        fi
-        
-        # 檢出最新的主分支
-        git fetch origin main
-        git rebase origin/main
-        
-        # 添加 RSS 文件
         git add *.rss
-        
-        # 檢查是否有變更
-        git diff --cached --exit-code || (echo "沒有變更可推送" && exit 0)
-        
-        # 推送變更
+        git commit -m "Upload RSS file"
         git push origin main
