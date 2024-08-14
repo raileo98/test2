@@ -30,6 +30,15 @@ import sys
 
 print('222')
 
+# 設置環境變數
+os.environ["NIQUESTS_STRICT_OCSP"] = "1"
+
+# 驗證設置是否成功
+if os.environ.get("NIQUESTS_STRICT_OCSP") == "1":
+    print("NIQUESTS_STRICT_OCSP is enabled")
+else:
+    print("NIQUESTS_STRICT_OCSP is not enabled")
+
 # 設置HTTP客戶端
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
@@ -184,7 +193,7 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    feedImg = f"https://images.weserv.nl/?n=-1&output=webp&trim&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
+    feedImg = f"https://images.weserv.nl/?n=-1&output=webp&trim=1&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
     fg.logo(feedImg)
 
     fg.copyright('© 香港電台 RTHK')
@@ -253,7 +262,7 @@ async def process_article(fg, category, article):
         imgHtml = ''
         imgList = set()
         for image in images:
-            imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim&url=' + urllib.parse.quote_plus(image['src'])
+            imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
             print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
             imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
             
@@ -289,7 +298,7 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim&url=' + urllib.parse.quote_plus(video_thumbnail)
+                        imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
                         print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
                         imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
                         
