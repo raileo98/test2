@@ -31,13 +31,13 @@ import sys
 print('222')
 
 # 設置環境變數
-# os.environ["NIQUESTS_STRICT_OCSP"] = "1"
+os.environ["NIQUESTS_STRICT_OCSP"] = "1"
 
 # 驗證設置是否成功
-# if os.environ.get("NIQUESTS_STRICT_OCSP") == "1":
-#     print("NIQUESTS_STRICT_OCSP is enabled")
-# else:
-#     print("NIQUESTS_STRICT_OCSP is not enabled")
+if os.environ.get("NIQUESTS_STRICT_OCSP") == "1":
+    print("NIQUESTS_STRICT_OCSP is enabled")
+else:
+    print("NIQUESTS_STRICT_OCSP is not enabled")
 
 # 設置HTTP客戶端
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
