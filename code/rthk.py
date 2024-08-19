@@ -63,21 +63,6 @@ session.headers['User-Agent'] = secrets.choice(userAgent)
 # 設置日誌記錄
 logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
 
-# 獲取 requests-cache 的 backend 實例
-backend = requests_cache.backends.RedisCache.get_backend()
-
-# 檢查目前的記憶體使用量
-current_mem_usage = backend.get_memory_usage()
-print(f"目前記憶體使用量: {current_mem_usage} bytes")
-
-# 設定新的記憶體限制 (例如 8000 MB)
-new_mem_limit = 8000 * 1024 * 1024  # 8000 MB
-backend.set_memory_limit(new_mem_limit)
-
-# 確認新的記憶體限制
-updated_mem_limit = backend.get_memory_limit()
-print(f"新的記憶體限制: {updated_mem_limit} bytes")
-
 def memUsage():
     memory = psutil.virtual_memory()
     swap_memory = psutil.swap_memory()
