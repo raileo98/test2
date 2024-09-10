@@ -6,27 +6,48 @@ import sys
 # 獲取Python解釋器路徑
 python_path = sys.executable
 
+print( '123' )
+
 # 使用Python解釋器運行命令
 os.system(f'{python_path} -m niquests.help')
 
+print( '1' )
 import psutil
+print( '2' )
 import subprocess
+print( '3' )
 import qh3
+print('4')
 import asyncio
+print('5')
 import niquests
+print('6')
 import requests_cache
+print('7')
 from bs4 import BeautifulSoup, CData
+print('8')
 from feedgen.feed import FeedGenerator
+print('9')
 from datetime import datetime
+print('10')
 import urllib.parse
+print('11')
 import secrets
+print('12')
 import html
+print('13')
 import re
+print('14')
 import aiofiles
+print('15')
 import time
+print('16')
 import logging
+print('17')
 import threading
+print('18')
 import sys
+
 
 print('222')
 
