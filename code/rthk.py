@@ -6,16 +6,18 @@ import sys
 # 獲取Python解釋器路徑
 python_path = sys.executable
 
-print( '123' )
+print('111')
+
+print('123')
 
 # 使用Python解釋器運行命令
 os.system(f'{python_path} -m niquests.help')
 
-print( '1' )
+print('1')
 import psutil
-print( '2' )
+print('2')
 import subprocess
-print( '3' )
+print('3')
 import qh3
 print('4')
 import asyncio
@@ -48,7 +50,6 @@ import threading
 print('18')
 import sys
 
-
 print('222')
 
 # 設置環境變數
@@ -64,7 +65,10 @@ else:
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
+# session = CachedSession(allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='Memory', happy_eyeballs=True)
 session = CachedSession(allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='redis', happy_eyeballs=True)
+# session = CachedSession(allowable_methods=('GET', 'HEAD'), pool_connections=5, pool_maxsize=10000, retries=1, backend='Memory')
+
 # session = CachedSession(allowable_methods=('GET'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='redis', happy_eyeballs=True)
 session.quic_cache_layer.add_domain('images.weserv.nl')
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
@@ -103,8 +107,8 @@ def check():
             headersForCheck = dict(session.headers)
             headersForCheck['Cache-Control'] = 'no-cache'
             headersForCheck['Pragma'] = 'no-cache'
-            print( f'headersForCheck: { headersForCheck }' )
-            response = session.get(url, timeout=2, headers=headersForCheck )
+            print(f'headersForCheck: {headersForCheck}')
+            response = session.get(url, timeout=2, headers=headersForCheck)
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
                 print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
@@ -190,20 +194,18 @@ cache_hits = 0
 
 async def process_category(category, url):
     try:
+        logging.info(f'開始處理分類: {category}')
         response = await get_response(url)
         if response.ok:
             web_content = response.text
         else:
-            print(f'{category} 處理失敗，即將重試!')
-            logging.error(f'{category} 處理失敗，HTTP 狀態碼: {response.status_code}')
+            logging.error(f'{category} 處理失敗，即將重試!')
             return
     except Exception as e:
-        print(f'{category} 獲取響應出錯，即將重試!')
-        logging.error(f'{category} 獲取響應出錯: {e}')
+        logging.error(f'{category} 獲取響應出錯，即將重試! 錯誤: {e}')
         return
     except:
-        print(f'{category} 出現未知錯誤，即將重試!')
-        logging.error(f'{category} 出現未知錯誤')
+        logging.error(f'{category} 出現未知錯誤，即將重試!')
         return
 
     soup = BeautifulSoup(web_content, 'html.parser')
@@ -225,7 +227,7 @@ async def process_category(category, url):
 
     if len(articles_list) == 0:
         return
-    
+
     # 處理每篇文章
     tasks = [asyncio.create_task(process_article(fg, category, article)) for article in articles_list]
     await asyncio.gather(*tasks)
@@ -240,7 +242,7 @@ async def process_category(category, url):
 
     if soup_rss.find('url') is not None:
         soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string))
-    
+
     sorted_items = sorted(soup_rss.find_all('item'), key=lambda x: datetime.strptime(get_item_pub_date(x), '%a, %d %b %Y %H:%M:%S %z') if get_item_pub_date(x) else datetime.min, reverse=True)
 
     for item in soup_rss.find_all('item'):
@@ -250,27 +252,26 @@ async def process_category(category, url):
         soup_rss.channel.append(item)
 
     rss_filename = f'{category}.rss'
-    
+
     # 找到<lastBuildDate>標籤並移除它們
     tag = soup_rss.find('lastBuildDate')
     if tag:
         tag.decompose()
-    
+
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
         await file.write(soup_rss.prettify())
 
-    print(f'{category} 處理完成!')
-
+    logging.info(f'{category} 處理完成!')
 
 async def process_article(fg, category, article):
     try:
         fe = fg.add_entry()
-                
+
         articleTitle = article.select_one('.ns2-title').text
         articleLink = article.select_one('.ns2-title a')['href']
         articleLink = articleLink.replace('?spTabChangeable=0', '')
-        
-        print( f'{articleTitle} started!' )
+
+        logging.info(f'{articleTitle} started!')
 
         article_response = await get_response(articleLink)
         article_content = article_response.text
@@ -284,15 +285,15 @@ async def process_article(fg, category, article):
         imgList = set()
         for image in images:
             imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
-            print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
+            logging.info(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
             imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
-            
+
             imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-            print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
+            logging.info(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
             imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
-            
+
             imgUrl = imgUrl.replace('_L_', '_')
-            print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
+            logging.info(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
             imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
 
             # 根據圖片大小調整壓縮質量
@@ -300,17 +301,17 @@ async def process_article(fg, category, article):
 
             imgAlt = image.get('alt', '')
             imgAlt = html.escape(imgAlt.strip())
-            
+
             if latest_imgUrl:
                 latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
                 imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                 imgList.add(latest_imgUrl)
-                print(f'Final imgUrlWithQ: {latest_imgUrl}')
+                logging.info(f'Final imgUrlWithQ: {latest_imgUrl}')
             else:
                 imgUrl = imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
                 imgList.add(imgUrl)
-                print(f'Final imgUrl: {imgUrl}')
+                logging.info(f'Final imgUrl: {imgUrl}')
 
         if len(images) == 0:
             scripts = article_soup.find_all('script')
@@ -320,35 +321,35 @@ async def process_article(fg, category, article):
                     if match:
                         video_thumbnail = match.group(1)
                         imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
-                        print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
+                        logging.info(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
                         imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
-                        
+
                         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                        print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
+                        logging.info(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
                         imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
-                        
+
                         imgUrl = imgUrl.replace('_L_', '_')
-                        print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
+                        logging.info(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
                         imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
-                        
+
                         # 根據圖片大小調整壓縮質量
                         latest_imgUrl = await optimize_image_quality(imgUrl)
-    
+
                         imgAlt = article_soup.select_one('.detailNewsSlideTitleText').get_text()
                         imgAlt = html.escape(imgAlt.strip())
-                        
+
                         if latest_imgUrl:
                             latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
                             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                             imgList.add(latest_imgUrl)
-                            print(f'Final imgUrlWithQ: {latest_imgUrl}')
+                            logging.info(f'Final imgUrlWithQ: {latest_imgUrl}')
                         else:
                             imgUrl = imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
                             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                             imgList.add(imgUrl)
-                            print(f'Final imgUrl: {imgUrl}')
+                            logging.info(f'Final imgUrl: {imgUrl}')
                         break
-        
+
         # 緩存圖片
         await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
@@ -356,22 +357,20 @@ async def process_article(fg, category, article):
         formatted_pub_date = parse_pub_date(pub_date)
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
-        
+
         feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
-        
+
         fe.title(articleTitle)
         fe.link(href=articleLink)
         fe.description(feedDescription)
         fe.pubDate(formatted_pub_date)
-        
-        print( f'{articleTitle} done!' )
+
+        logging.info(f'{articleTitle} done!')
         memUsage()
     except Exception as e:
-        print(f'{articleTitle} 處理出錯: {e}')
         logging.error(f'{articleTitle} 處理出錯: {e}')
     except:
         exception_type, exception_value, exception_traceback = sys.exc_info()
-        print(f'{articleTitle} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
         logging.error(f'{articleTitle} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def cache_image(imageUrl):
@@ -379,43 +378,41 @@ async def cache_image(imageUrl):
         response = await get_response(imageUrl, timeout=2, mustFetch=False, method='HEAD', session=session)
         if response.ok:
             if response.from_cache:
-                print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
+                logging.info(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
-        print(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
         logging.error(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
     except:
         exception_type, exception_value, exception_traceback = sys.exc_info()
-        print(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
         logging.error(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def optimize_image_quality(imgUrl):
     q = 99
     latest_imgUrl = None
     latestAvailableQ = None
-    
+
     while True:
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
-        
+
         try:
             response = await get_response(imgUrlWithQ, method='HEAD', session=session)
-            
+
             if response.status_code >= 400 and response.status_code < 600:
                 if not q == 1:
                     q = 1
-    
+
                 else:
                     if latestAvailableQ:
-                    	latest_imgUrl = latestAvailableQ
-                                        
+                        latest_imgUrl = latestAvailableQ
+
                     else:
-                    	latest_imgUrl = imgUrlWithQ
-                                    
+                        latest_imgUrl = imgUrlWithQ
+
                     break
             elif response.ok:
                 latestAvailableQ = imgUrlWithQ
                 content_length = int(response.headers['Content-Length'])
                 upstream_response_length = int(response.headers['x-upstream-response-length'])
-                
+
                 if content_length > 1000 * 500:
                     if q == 99:
                         q = 95
@@ -425,11 +422,11 @@ async def optimize_image_quality(imgUrl):
                         q = 1
                     elif q == 1:
                         if latestAvailableQ:
-                        	latest_imgUrl = latestAvailableQ
-                                            
+                            latest_imgUrl = latestAvailableQ
+
                         else:
-                        	latest_imgUrl = imgUrlWithQ
-                                            
+                            latest_imgUrl = imgUrlWithQ
+
                         break
                     else:
                         q = 5
@@ -442,32 +439,31 @@ async def optimize_image_quality(imgUrl):
                         q = 1
                     elif q == 1:
                         if latestAvailableQ:
-                        	latest_imgUrl = latestAvailableQ
-                                            
+                            latest_imgUrl = latestAvailableQ
+
                         else:
-                        	latest_imgUrl = imgUrlWithQ
-                                            
+                            latest_imgUrl = imgUrlWithQ
+
                         break
                     else:
                         q = 5
                 elif content_length < 1000 * 500:
                     if latestAvailableQ:
-                    	latest_imgUrl = latestAvailableQ
-                                        
+                        latest_imgUrl = latestAvailableQ
+
                     else:
-                    	latest_imgUrl = imgUrlWithQ
-                                        
+                        latest_imgUrl = imgUrlWithQ
+
                     break
                 else:
                     if latestAvailableQ:
-                    	latest_imgUrl = latestAvailableQ
-                                        
+                        latest_imgUrl = latestAvailableQ
+
                     else:
-                    	latest_imgUrl = imgUrlWithQ
-                                        
+                        latest_imgUrl = imgUrlWithQ
+
                     break
         except Exception as e:
-            print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
             logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
 
             if not q == 1:
@@ -475,16 +471,15 @@ async def optimize_image_quality(imgUrl):
 
             else:
                 if latestAvailableQ:
-                	latest_imgUrl = latestAvailableQ
-                                    
+                    latest_imgUrl = latestAvailableQ
+
                 else:
-                	latest_imgUrl = imgUrlWithQ
-                                
+                    latest_imgUrl = imgUrlWithQ
+
                 break
-        
+
         except:
             exception_type, exception_value, exception_traceback = sys.exc_info()
-            print(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
             logging.error(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
 
             if not q == 1:
@@ -492,16 +487,16 @@ async def optimize_image_quality(imgUrl):
 
             else:
                 if latestAvailableQ:
-                	latest_imgUrl = latestAvailableQ
-                                    
+                    latest_imgUrl = latestAvailableQ
+
                 else:
-                	latest_imgUrl = imgUrlWithQ
-                                
+                    latest_imgUrl = imgUrlWithQ
+
                 break
-    
+
     return latest_imgUrl
 
-async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
+async def get_response(url, timeout=30, mustFetch=True, method='GET', session=session):
     global total_requests, cache_hits
     total_requests += 1
     while True:
@@ -511,16 +506,20 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
                 cache_hits += 1
             return response
         except Exception as e:
-            print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
             logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
         except:
             exception_type, exception_value, exception_traceback = sys.exc_info()
-            print(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
             logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
         if mustFetch:
             continue
         else:
             break
+
+lock = threading.Lock()
+
+def process_category_thread(category, url):
+    with lock:
+        asyncio.run(process_category(category, url))
 
 def main():
     threads = []
@@ -528,15 +527,11 @@ def main():
         t = threading.Thread(target=process_category_thread, args=(category, data['url']))
         threads.append(t)
         t.start()
-    
+
     for thread in threads:
         thread.join()
 
-def process_category_thread(category, url):
-    asyncio.run(process_category(category, url))
-
 if __name__ == '__main__':
-    print('1111123')
     start_time = time.time()
     memUsage()
     print('333')
@@ -556,5 +551,4 @@ if __name__ == '__main__':
     print(f'緩存命中率: {cache_hit_rate:.2f}%')
 
     memUsage()
-    # print(f'len( session.cache.responses.values ): { len( session.cache.responses.values ) }')
     print(f'執行時間：{execution_time}秒')
