@@ -536,6 +536,7 @@ def process_category_thread(category, url):
     asyncio.run(process_category(category, url))
 
 if __name__ == '__main__':
+    print('1111123')
     start_time = time.time()
     memUsage()
     print('333')
