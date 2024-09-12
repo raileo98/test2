@@ -44,6 +44,7 @@ jobs:
         for i in {1..10}; do warp-cli --accept-tos tunnel host add localhost && break; done
         for i in {1..10}; do warp-cli --accept-tos connect && break; done
         for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
+        while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
 
     - name: 檢出代碼 3
       run: |
