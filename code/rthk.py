@@ -9,7 +9,7 @@ python_path = sys.executable
 import niquests
 
 # 使用Python解釋器運行命令
-os.system(f'{python_path} -m niquests.help')
+# os.system(f'{python_path} -m niquests.help')
 
 import psutil
 import subprocess
