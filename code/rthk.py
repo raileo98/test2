@@ -6,6 +6,8 @@ import sys
 # 獲取Python解釋器路徑
 python_path = sys.executable
 
+import niquests
+
 # 使用Python解釋器運行命令
 os.system(f'{python_path} -m niquests.help')
 
@@ -13,7 +15,6 @@ import psutil
 import subprocess
 import qh3
 import asyncio
-import niquests
 import requests_cache
 from bs4 import BeautifulSoup, CData
 from feedgen.feed import FeedGenerator
