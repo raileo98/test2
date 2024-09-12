@@ -63,7 +63,8 @@ jobs:
 
     - name: 執行 Python 腳本
       run: |
-        python3 code/rthk.py
+        # python3 code/rthk.py
+        pipx run code/rthk.py
 
     - name: Redis 狀態
       run: |
