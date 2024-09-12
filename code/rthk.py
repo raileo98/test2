@@ -6,7 +6,7 @@ import sys
 # 獲取Python解釋器路徑
 python_path = sys.executable
 
-print('111')
+print('1111')
 
 print('123')
 
@@ -532,6 +532,7 @@ def main():
         thread.join()
 
 if __name__ == '__main__':
+    print('11111111')
     start_time = time.time()
     memUsage()
     print('333')
