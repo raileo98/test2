@@ -54,8 +54,8 @@ jobs:
     - name: 安裝依賴
       run: |
         for i in {1..10}; do sudo apt update -y && { echo "APT updated successfully"; break; } || echo "APT update attempt $i failed, retrying..."; done
-        for i in {1..10}; do sudo apt install python3 python3-full redis-server python3-pip pipx -y && { echo "Packages installed successfully"; break; } || echo "Package installation attempt $i failed, retrying..."; done
-        for i in {1..10}; do pipx install feedgen beautifulsoup4 tqdm aiofiles requests-cache qh3 urllib3 niquests psutil redis && { echo "Python packages installed successfully"; break; } || echo "Python package installation attempt $i failed, retrying..."; done
+        for i in {1..10}; do sudo apt install python3 python3-full redis-server python3-pip -y && { echo "Packages installed successfully"; break; } || echo "Package installation attempt $i failed, retrying..."; done
+        for i in {1..10}; do python3 -m pip install --user feedgen beautifulsoup4 tqdm aiofiles requests-cache qh3 urllib3 niquests psutil redis && { echo "Python packages installed successfully"; break; } || echo "Python package installation attempt $i failed, retrying..."; done
         for i in {1..10}; do sudo systemctl status redis && { echo "Redis service is active"; break; } || echo "Redis service status check attempt $i failed, retrying..."; done
         for i in {1..10}; do sudo systemctl enable redis && { echo "Redis service enabled successfully"; break; } || echo "Redis enable attempt $i failed, retrying..."; done
         for i in {1..10}; do sudo systemctl start redis && { echo "Redis service started successfully"; break; } || echo "Redis start attempt $i failed, retrying..."; done
@@ -63,7 +63,7 @@ jobs:
 
     - name: 執行 Python 腳本
       run: |
-        pipx run code/rthk.py
+        python3 code/rthk.py
 
     - name: Redis 狀態
       run: |
