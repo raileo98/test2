@@ -56,7 +56,7 @@ jobs:
         for i in {1..10}; do sudo apt update -y && { echo "APT updated successfully"; break; } || echo "APT update attempt $i failed, retrying..."; done
         for i in {1..10}; do sudo apt install python3 python3-full redis-server -y && { echo "Packages installed successfully"; break; } || echo "Package installation attempt $i failed, retrying..."; done
         for i in {1..10}; do sudo apt install pipx -y && { echo "Packages pipx installed successfully"; break; } || echo "Package pipx installation attempt $i failed, retrying..."; done
-        for i in {1..10}; do pipx install feedgen bs4 tqdm aiofiles requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] psutil redis redis[hiredis] && { echo "Python packages installed successfully"; break; } || echo "Python package installation attempt $i failed, retrying..."; done
+        for i in {1..10}; do pip install feedgen bs4 tqdm aiofiles requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] psutil redis redis[hiredis] && { echo "Python packages installed successfully"; break; } || echo "Python package installation attempt $i failed, retrying..."; done
         for i in {1..10}; do pipx ensurepath && break; done
         for i in {1..10}; do sudo pipx ensurepath --global && break; done
         for i in {1..10}; do sudo systemctl status redis && { echo "Redis service is active"; break; } || echo "Redis service status check attempt $i failed, retrying..."; done
