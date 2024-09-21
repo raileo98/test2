@@ -54,9 +54,8 @@ jobs:
     - name: 安裝依賴
       run: |
         for i in {1..10}; do sudo apt update -y && { echo "APT updated successfully"; break; } || echo "APT update attempt $i failed, retrying..."; done
-        for i in {1..10}; do sudo apt install python3 python3-full redis-server -y && { echo "Packages installed successfully"; break; } || echo "Package installation attempt $i failed, retrying..."; done
+        for i in {1..10}; do sudo apt install python3 python3-full redis-server python3-feedgen python3-bs4 python3-tqdm python3-aiofiles python3-requests-cache python3-qh3 python3-urllib3 python3-niquests python3-psutil python3-redis -y && { echo "Packages installed successfully"; break; } || echo "Package installation attempt $i failed, retrying..."; done
         for i in {1..10}; do sudo apt install pipx -y && { echo "Packages pipx installed successfully"; break; } || echo "Package pipx installation attempt $i failed, retrying..."; done
-        for i in {1..10}; do pip install feedgen bs4 tqdm aiofiles requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] psutil redis redis[hiredis] && { echo "Python packages installed successfully"; break; } || echo "Python package installation attempt $i failed, retrying..."; done
         for i in {1..10}; do pipx ensurepath && break; done
         for i in {1..10}; do sudo pipx ensurepath --global && break; done
         for i in {1..10}; do sudo systemctl status redis && { echo "Redis service is active"; break; } || echo "Redis service status check attempt $i failed, retrying..."; done
