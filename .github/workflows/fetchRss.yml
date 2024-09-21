@@ -21,8 +21,8 @@ on:
 
 jobs:
   deploy:
-    # runs-on: ubuntu-24.04
-    runs-on: ubuntu-latest
+    runs-on: ubuntu-24.04
+    # runs-on: ubuntu-latest
 
     steps:
     - name: 檢出代碼
@@ -64,7 +64,6 @@ jobs:
 
     - name: 執行 Python 腳本
       run: |
-        # python3 code/rthk.py
         pipx run code/rthk.py
 
     - name: Redis 狀態
