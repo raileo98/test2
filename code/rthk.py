@@ -6,15 +6,14 @@ import sys
 # 獲取Python解釋器路徑
 python_path = sys.executable
 
-import niquests
-
 # 使用Python解釋器運行命令
-# os.system(f'{python_path} -m niquests.help')
+os.system(f'{python_path} -m niquests.help')
 
 import psutil
 import subprocess
 import qh3
 import asyncio
+import niquests
 import requests_cache
 from bs4 import BeautifulSoup, CData
 from feedgen.feed import FeedGenerator
@@ -503,11 +502,16 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             break
 
 def main():
+    threads = []
     for category, data in categories_data.items():
-        process_category(category, data['url'])
+        t = threading.Thread(target=process_category_thread, args=(category, data['url']))
+        threads.append(t)
+        t.start()
+    
+    for thread in threads:
+        thread.join()
 
-def process_category(category, url):
-    # 假設這裡是您原本的非同步處理邏輯
+def process_category_thread(category, url):
     asyncio.run(process_category(category, url))
 
 if __name__ == '__main__':
