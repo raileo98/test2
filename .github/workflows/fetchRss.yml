@@ -57,9 +57,7 @@ jobs:
         echo 5
         while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
         echo 6
-        warp-cli --accept-tos tunnel --help
-        warp-cli --accept-tos tunnel help
-        warp-cli --accept-tos tunnel
+        warp-cli tunnel protocol set MASQUE
 
     - name: 檢出代碼 3
       run: |
