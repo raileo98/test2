@@ -49,12 +49,14 @@ jobs:
         echo 1
         warp-cli --accept-tos tunnel stats 
         echo 2
-        warp-cli --accept-tos settings | grep protocol
+        warp-cli --accept-tos --help
         echo 3
-        warp-cli --accept-tos settings
+        warp-cli --accept-tos settings | grep protocol
         echo 4
-        while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
+        warp-cli --accept-tos settings
         echo 5
+        while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
+        echo 6
 
     - name: 檢出代碼 3
       run: |
