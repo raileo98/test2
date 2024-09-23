@@ -47,7 +47,7 @@ jobs:
     - name: Testing WARP
       run: |
         echo 1
-        warp-cli tunnel stats 
+        warp-cli --accept-tos tunnel stats 
         echo 2
         warp-cli settings | grep protocol
         echo 3
