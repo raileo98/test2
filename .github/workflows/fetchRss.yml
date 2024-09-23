@@ -57,7 +57,12 @@ jobs:
         echo 5
         while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
         echo 6
-        warp-cli tunnel protocol set MASQUE
+        echo '# warp-cli tunnel protocol set MASQUE'
+        echo 7
+        [ -d /var/lib/cloudflare-warp/ ] && echo "目錄存在" || echo "目錄不存在"; [ -f /var/lib/cloudflare-warp/mdm.xml ] && echo "文件存在" || echo "文件不存在"; echo '<dict><key>warp_tunnel_protocol</key><string>masque</string></dict>' | sudo tee /var/lib/cloudflare-warp/mdm.xml
+        echo 8
+        warp-cli --accept-tos settings | grep protocol
+        echo 9
 
     - name: 檢出代碼 3
       run: |
