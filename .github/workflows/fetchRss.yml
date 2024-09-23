@@ -61,7 +61,7 @@ jobs:
         echo 7
         [ -d /var/lib/cloudflare-warp/ ] && echo "目錄存在" || echo "目錄不存在"; [ -f /var/lib/cloudflare-warp/mdm.xml ] && echo "文件存在" || echo "文件不存在"; echo '<dict><key>warp_tunnel_protocol</key><string>masque</string></dict>' | sudo tee /var/lib/cloudflare-warp/mdm.xml
         echo 8
-        warp-cli --accept-tos settings | grep protocol
+        sudo find / -type d -name "cloudflare-warp"
         echo 9
 
     - name: 檢出代碼 3
