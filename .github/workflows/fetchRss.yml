@@ -43,7 +43,12 @@ jobs:
         for i in {1..10}; do warp-cli --accept-tos tunnel ip add 127.0.0.1 && break; done
         for i in {1..10}; do warp-cli --accept-tos tunnel host add localhost && break; done
         for i in {1..10}; do warp-cli --accept-tos connect && break; done
-        for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
+
+    - name: Testing WARP
+      run: |
+        warp-cli set-mode --help
+        warp-cli mode --help
+        while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
 
     - name: 檢出代碼 3
       run: |
