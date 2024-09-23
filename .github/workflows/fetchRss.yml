@@ -46,10 +46,15 @@ jobs:
 
     - name: Testing WARP
       run: |
+        echo 1
         warp-cli tunnel stats 
+        echo 2
         warp-cli settings | grep protocol
+        echo 3
         warp-cli settings
+        echo 4
         while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
+        echo 5
 
     - name: 檢出代碼 3
       run: |
