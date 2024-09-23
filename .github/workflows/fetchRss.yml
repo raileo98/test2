@@ -46,7 +46,7 @@ jobs:
 
     - name: Testing WARP
       run: |
-        warp-cli tunnel stats
+        warp-cli tunnel stats --accept-tos 
         warp-cli settings | grep protocol
         warp-cli settings
         while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
