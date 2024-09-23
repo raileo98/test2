@@ -11,18 +11,17 @@ on:
       # - '*.rss'
       - '*'
       - '**'
-  # schedule:
-    # - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
-    # - cron: '*/10 * * * *'  # 每隔 10 分鐘運行一次
-    # - cron: '*/15 * * * *'  # 每隔 15 分鐘運行一次
-    # - cron: '*/20 * * * *'  # 每隔 20 分鐘運行一次
-    # - cron: '*/25 * * * *'  # 每隔 25 分鐘運行一次
-    # - cron: '*/30 * * * *'  # 每隔 30 分鐘運行一次
+  schedule:
+    - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
+    - cron: '*/10 * * * *'  # 每隔 10 分鐘運行一次
+    - cron: '*/15 * * * *'  # 每隔 15 分鐘運行一次
+    - cron: '*/20 * * * *'  # 每隔 20 分鐘運行一次
+    - cron: '*/25 * * * *'  # 每隔 25 分鐘運行一次
+    - cron: '*/30 * * * *'  # 每隔 30 分鐘運行一次
 
 jobs:
   deploy:
-    runs-on: ubuntu-24.04
-    # runs-on: ubuntu-latest
+    runs-on: ubuntu-latest
 
     steps:
     - name: 檢出代碼
@@ -45,7 +44,6 @@ jobs:
         for i in {1..10}; do warp-cli --accept-tos tunnel host add localhost && break; done
         for i in {1..10}; do warp-cli --accept-tos connect && break; done
         for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
-        while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
 
     - name: 檢出代碼 3
       run: |
@@ -53,22 +51,13 @@ jobs:
 
     - name: 安裝依賴
       run: |
-        for i in {1..10}; do sudo apt update -y && { echo "APT updated successfully"; break; } || echo "APT update attempt $i failed, retrying..."; done
-        for i in {1..10}; do sudo apt install python3 python3-full redis-server python3-pip -y && { echo "Packages installed successfully"; break; } || echo "Package installation attempt $i failed, retrying..."; done
-        python3 -m pip install --user feedgen --break-system-packages
-        python3 -m pip install --user beautifulsoup4 --break-system-packages
-        python3 -m pip install --user tqdm --break-system-packages
-        python3 -m pip install --user aiofiles --break-system-packages
-        python3 -m pip install --user requests-cache --break-system-packages
-        python3 -m pip install --user qh3 --break-system-packages
-        python3 -m pip install --user urllib3 --break-system-packages
-        python3 -m pip install --user niquests --break-system-packages
-        python3 -m pip install --user psutil --break-system-packages
-        python3 -m pip install --user redis --break-system-packages
-        for i in {1..10}; do sudo systemctl status redis && { echo "Redis service is active"; break; } || echo "Redis service status check attempt $i failed, retrying..."; done
-        for i in {1..10}; do sudo systemctl enable redis && { echo "Redis service enabled successfully"; break; } || echo "Redis enable attempt $i failed, retrying..."; done
-        for i in {1..10}; do sudo systemctl start redis && { echo "Redis service started successfully"; break; } || echo "Redis start attempt $i failed, retrying..."; done
-        for i in {1..10}; do sudo systemctl status redis && { echo "Redis service is active"; break; } || echo "Redis service status check attempt $i failed, retrying..."; done
+        for i in {1..10}; do sudo apt update -y && break; done
+        for i in {1..10}; do sudo apt install python3 python3-pip redis-server -y && break; done
+        for i in {1..10}; do sudo python3 -m pip install --upgrade pip feedgen bs4 tqdm aiofiles requests_cache qh3 urllib3.future niquests niquests[speedups] niquests[socks] psutil redis redis[hiredis] && break; done
+        for i in {1..10}; do sudo systemctl status redis && break; done
+        for i in {1..10}; do sudo systemctl enable redis && break; done
+        for i in {1..10}; do sudo systemctl start redis && break; done
+        for i in {1..10}; do sudo systemctl status redis && break; done
 
     - name: 執行 Python 腳本
       run: |
