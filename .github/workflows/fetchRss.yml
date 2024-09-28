@@ -61,7 +61,6 @@ jobs:
         while ! curl -s https://mozilla.cloudflare-dns.com/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
         echo 6
         echo '# warp-cli tunnel protocol set MASQUE'
-        warp-cli tunnel protocol set MASQUE
         echo 7
         warp-cli --accept-tos settings | grep protocol
         echo 8
