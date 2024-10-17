@@ -123,6 +123,15 @@ jobs:
       run: |
           git stash pop || echo "沒有暫存的更改可恢復"
 
+    - name: 檢查合併衝突
+      run: |
+          if git diff --check; then
+              echo "沒有合併衝突，繼續上傳"
+          else
+              echo "檢測到合併衝突，跳過上傳"
+              exit 1  # 終止流程
+          fi
+
     - name: 上傳 RSS 文件
       run: |
           git add *.rss
