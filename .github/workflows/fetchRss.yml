@@ -106,6 +106,9 @@ jobs:
           COUNT=0
           
           while [ $COUNT -lt $RETRIES ]; do
+            # 暫存未提交的更改
+            git stash
+            
             if git pull origin main --rebase; then
               echo "拉取成功"
               break
@@ -115,6 +118,10 @@ jobs:
               sleep 1  # 等待 1 秒後再重試
             fi
           done
+
+    - name: 恢復暫存的更改
+      run: |
+          git stash pop || echo "沒有暫存的更改可恢復"
 
     - name: 上傳 RSS 文件
       run: |
