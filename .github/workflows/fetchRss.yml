@@ -102,8 +102,8 @@ jobs:
           git config --global user.name "github-actions"
           
           # 設定重試次數
-          export RETRIES = 10
-          export COUNT = 0
+          RETRIES=5
+          COUNT=0
           
           while [ $COUNT -lt $RETRIES ]; do
             if git pull origin main --rebase; then
@@ -111,8 +111,8 @@ jobs:
               break
             else
               echo "拉取失敗，正在重試..."
-              export COUNT = $((COUNT + 1))
-              sleep 1  # 等待 1 秒後再重試
+              COUNT=$((COUNT + 1))
+              sleep 5  # 等待 5 秒後再重試
             fi
           done
 
