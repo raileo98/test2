@@ -102,7 +102,7 @@ jobs:
           git config --global user.name "github-actions"
           
           # 設定重試次數
-          RETRIES=5
+          RETRIES=100
           COUNT=0
           
           while [ $COUNT -lt $RETRIES ]; do
@@ -112,7 +112,7 @@ jobs:
             else
               echo "拉取失敗，正在重試..."
               COUNT=$((COUNT + 1))
-              sleep 5  # 等待 5 秒後再重試
+              sleep 1  # 等待 1 秒後再重試
             fi
           done
 
