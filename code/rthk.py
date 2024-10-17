@@ -185,7 +185,7 @@ async def process_category(category, url):
         logging.error(f'{category} 出現未知錯誤')
         return
 
-    soup = BeautifulSoup(web_content, 'lxml')
+    soup = BeautifulSoup(web_content, 'html.parser')
 
     fg = FeedGenerator()
     fg.title(categories_data[category]['title'])
@@ -211,7 +211,7 @@ async def process_category(category, url):
 
     rss_str = fg.rss_str()
 
-    soup_rss = BeautifulSoup(rss_str, 'lxml')
+    soup_rss = BeautifulSoup(rss_str, 'xml')
 
     for item in soup_rss.find_all('item'):
         if item.description is not None:
@@ -253,7 +253,7 @@ async def process_article(fg, category, article):
 
         article_response = await get_response(articleLink)
         article_content = article_response.text
-        article_soup = BeautifulSoup(article_content, 'lxml')
+        article_soup = BeautifulSoup(article_content, 'html.parser')
 
         feedDescription = article_soup.select_one('.itemFullText').prettify()
 
@@ -336,7 +336,7 @@ async def process_article(fg, category, article):
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         
-        feedDescription = BeautifulSoup(feedDescription, 'lxml').prettify()
+        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify()
         
         fe.title(articleTitle)
         fe.link(href=articleLink)
