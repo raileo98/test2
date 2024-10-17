@@ -29,7 +29,7 @@ jobs:
 
     - name: 檢出代碼 2
       run: |
-        for i in {1..10}; do git pull && break; done
+        for i in {1..100}; do git pull && break; done
 
     - name: Install and configure Cloudflare WARP
       run: |
@@ -76,7 +76,7 @@ jobs:
 
     - name: 檢出代碼 3
       run: |
-        for i in {1..10}; do git pull && break; done
+        for i in {1..100}; do git pull && break; done
 
     - name: 安裝依賴
       run: |
