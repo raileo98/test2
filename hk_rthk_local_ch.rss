@@ -1,2746 +1,2629 @@
-<?xml version='1.0' encoding='UTF-8'?>
-<html>
- <body>
-  <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
-   <channel>
-    <title>
-     rthk - 本地
-    </title>
-    <link/>
+<?xml version="1.0" encoding="utf-8"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+ <channel>
+  <title>
+   rthk - 本地
+  </title>
+  <link>
+   https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=3&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
+  </link>
+  <description>
+   rthk - 本地
+  </description>
+  <copyright>
+   © 香港電台 RTHK
+  </copyright>
+  <docs>
+   http://www.rssboard.org/rss-specification
+  </docs>
+  <generator>
+   python-feedgen
+  </generator>
+  <image>
+   <url>
+    <![CDATA[https://images.weserv.nl/?n=-1&output=webp&trim=1&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
+   </url>
+   <title>
+    rthk - 本地
+   </title>
+   <link>
     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=3&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-    <description>
-     rthk - 本地
-    </description>
-    <copyright>
-     © 香港電台 RTHK
-    </copyright>
-    <docs>
-     http://www.rssboard.org/rss-specification
-    </docs>
-    <generator>
-     python-feedgen
-    </generator>
-    <image>
-     <url>
-      <![CDATA[https://images.weserv.nl/?n=-1&output=webp&trim=1&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
-     </url>
-     <title>
-      rthk - 本地
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=3&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-    </image>
-    <language>
-     zh-HK
-    </language>
-    <lastbuilddate>
-     Thu, 17 Oct 2024 08:56:20 +0000
-    </lastbuilddate>
-    <webmaster>
-     webmaster@rthk.hk
-    </webmaster>
-    <item>
-     <title>
-      施政報告2024 | 有房委會委員冀增單位面積　提高購買意欲
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774856-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="有房委會委員期望當局可增加單位的面積，提高申請人的購買意欲。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774856_1_20241016185107.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   對於施政報告提出支持青年購買資助出售單位，有曾經多次申請居屋和白居二的年輕人相信，大部分申請者都是40歲以下，即使分派多一個抽籤號碼和增加1500個配額，亦不代表提高中籤機會。
-   <br/>
-   <br/>
-   有房委會委員表示，支持施政報告提出完善置業階梯的方向，但期望當局可增加單位的面積，提高申請人的購買意欲。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774856-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774856-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 18:45:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜多項措施支援中小企　烈酒稅大幅調低
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774828-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=95&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774828_1_20241016184526.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   《施政報告》推出多項支援中小企措施，包括容許「中小企融資擔保計劃」的借款企業，申請最多12個月「還息不還本」；政府將向「BUD專項基金」注資10億元，通過基金協助中小企升級轉型和拓展新市場。
-   <br/>
-   <br/>
-   烈酒稅即日起下調。進口價200元以上的烈酒，200元以上部分的稅率由100%，大幅減至10%。200元及以下的部分，以及進口價在200元或以下的烈酒，稅率則維持不變。
-   <br/>
-   <br/>
-   進一步優化證券市場方面，政府會吸引國際企業及內地大型企業來港上市，爭取短期內實現更多標誌性的公開招股。證監會和港交所將公布進一步優化上市批核流程的具體措施，又會提升市場效率及降低交易成本，包括檢視保證金的存入安排、優化保證金和抵押品要求等。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774828-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774828-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 18:45:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜倡熊貓與賽馬旅遊 推動「香港無處不旅遊」
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774838-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774838_1_20241016184603.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   《施政報告》提出措施推動生態、遊艇、熊貓和賽馬旅遊，希望做到「香港無處不旅遊」。
-   <br/>
-   <br/>
-   另外，為吸引更多旅客訪港，特區政府已經向中央提出，恢復深圳「一簽多行」個人遊簽注，以及擴大「一周一行」簽注試點城市安排。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774838-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774838-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 18:46:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      外籍香港居民赴內地獲發最長5年、停留期不超過180天多次簽證
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774857-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="外籍香港居民赴內地從事商務、旅遊、探親、訪問等活動，均可獲發有效期最長為5年、停留期不超過180天的多次簽證。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774857_1_20241016190023.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   外交部駐港公署即日起，為外籍香港永久性居民、外籍香港居民提供更加便利的簽證政策。上述人員赴內地從事商務、旅遊、探親、訪問等活動，均可獲發有效期最長為5年、停留期不超過180天的多次簽證。
-   <br/>
-   <br/>
-   而上述人員申請簽證時，免於提交往返交通票據和酒店訂單；上述人員曾在中國駐外簽證機關留存過指紋並獲發簽證者，向外交部駐港公署申請簽證時可免採指紋。
-   <br/>
-   <br/>
-   公署說，以上簽證政策不涉及外籍家庭傭工。基於個案情況的不同，簽證官員可能會調整簽證有效期、停留期和入境次數，或要求申請人補充材料、接受面談，申請人並不當然獲發最長有效期或停留期的多次簽證。此外，適用中國與部分國家互發多年多次簽證安排的人員，相關安排不變。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774857-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774857-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 18:50:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱新資本入境計劃已考慮市民置業因素
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774858-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬元。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774858_1_20241016185948.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告宣布，即日起，放寬物業按揭貸款成數上限，住宅物業及非住宅物業，不論自用或公司持有，以及是否首置，按揭成數上限劃一至七成，供款與入息比率劃一為五成。
-   <br/>
-   <br/>
-   另外，即日起，「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬元。行政長官李家超表示，已考慮會否影響香港市民置業的因素。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774858-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774858-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 18:52:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱減烈酒稅已平衡不鼓勵飲酒及推動貿易
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774859-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超強調，措施並非鼓勵市民飲酒，又說已經在不鼓勵飲酒及推動貿易間作出平衡。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774859_1_20241016190235.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   新一份施政報告提出減烈酒稅，即日起，進口價200元以上的烈酒，200元以上部分的稅率，由100%大幅減至10%。200元及以下的部分，以及進口價在200元或以下的烈酒，稅率則維持不變。
-   <br/>
-   <br/>
-   行政長官李家超強調，措施並非鼓勵市民飲酒，又說已經在不鼓勵飲酒及推動貿易間作出平衡。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774859-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774859-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 18:55:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜德勤：各環節配合可望提高新股上市效率
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774860-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="歐振興表示，本港新股上市審批過程已屬高效，相信在港交所及證監會協調下，連同各個環節優化可提升上市效率。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774860_1_20241016190234.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告提出多項進一步優化證券市場措施，包括落實追蹤香港股票指數的ETF在中東上市、吸引國際及內地大型企業來港上市、優化上市審批流程等。
-   <br/>
-   <br/>
-   會計師事務所德勤中國華南區主管合伙人歐振興表示，本港新股上市審批過程已屬高效，申請上市文件已經電子化，亦具相當透明度，相信在港交所及證監會協調下，連同加強清晰指引令保薦人助企業交齊文件並作出足夠披露等，各個環節優化可提升上市效率。
-   <br/>
-   <br/>
-   另外，施政報告亦提到，在金融領域上尋求進一步與伊斯蘭市場合作。
-   <br/>
-   <br/>
-   歐振興認為，香港可更積極推動與伊斯蘭市場的互聯互通，政府可考慮再度發行伊斯蘭債券，並探索更多伊斯蘭金融產品種類，例如伊斯蘭人民幣債券、綠色及可持續債券等，以引更多伊斯蘭投資者在港投資不同類型產品。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774860-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774860-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 19:02:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超：劏房問題累積多年　須按部就班處理
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774862_3_20241016225555.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   新一份施政報告提出，將以立法方式處理劏房問題，符合標準的單位將名為「簡樸房」，包括必須有窗、有獨立廁所、面積不少於8平方米等。
-   <br/>
-   <br/>
-   行政長官李家超出席施政報告電視論壇時表示，他是心急的人，但劏房問題累積多年，不可一蹴即就，應按部就班，務實處理，至於日後是否取締劏房會按風險程度等因素。
-   <br/>
-   <br/>
-   李家超認為，劏房問題錯綜複雜，社會上不同劏房良莠不齊，條件差異很大。不過，調研指出，有人居住在劏房是因為認為交通方便，以及租金水平、居住面積、治安環境及衛生條件符合要求等。
-   <br/>
-   <br/>
-   他表示，今次提出訂立的是最低標準，希望透過將分間單位標準化，讓劣質單位不復存在，強調有些底線要守，包括面積不少於8平方米，而獨立廁所亦重要，希望日後市場的簡樸房條件高於標準，亦期望香港人未來無論是租住或置業的單位都可住大些。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 19:13:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      香港獲評為全球最自由經濟體　政府稱反映優勢獲國際認同
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774863-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，排名較去年上升一位。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=35&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774863_1_20241016194600.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，排名較去年上升一位。政府發言人表示，長期以來，香港充分發揮自由市場的優勢，維持自由開放、高效和公平的營商環境，相關排名充分反映這優勢獲國際認同。
-   <br/>
-   <br/>
-   報告顯示，香港在165個經濟體中，獲評為全球最自由經濟體，當中在五個評估大項中，香港在「國際貿易自由」及「監管」均位列首位，在「穩健貨幣」的排名亦升至全球第三。
-   <br/>
-   <br/>
-   就報告中有關香港在經濟和其他自由方面的提述，發言人強調，政府嚴格按照《憲法》和《基本法》保障香港居民的權利和自由，而企業和投資者的利益亦依法得到充分保障，希望日後的《世界經濟自由度》評估，可以充分反映有關的事實。
-   <br/>
-   <br/>
-   發言人說，本港自由市場和優越營商環境，受惠於「一國兩制」的獨特制度優勢，有超過9000家海外及內地企業選擇，以香港作為基地，充分利用香港「超級聯繫人」和「超級增值人」的角色和功能。今年首9個月，投資推廣署亦協助了470家內地及海外企業落戶或擴展在港業務，較去年同期增長約57%；在吸引人才方面，自2022年底至上月，各項人才計劃共錄得超過38萬宗申請，當中接近24萬宗獲批，約16萬人已經來港。
-   <br/>
-   <br/>
-   發言人表示，在國家的堅實支持下，香港會繼續積極融入國家發展大局，對接好國家發展戰略，維持和完善自由開放的營商環境，行政長官今日發表新一份施政報告，就鞏固提升香港國際金融、航運、貿易中心的地位、打造國際高端人才集聚高地、因地制宜發展新質生產力，以至深化粵港澳大灣區的合作，提出了明確方向、具體和有力的政策措施，進一步提升香港的發展動能，全力推動香港經濟朝高質量發展。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774863-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774863-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 19:25:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱觀察按揭成數放寬至七成有否負面影響
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774865-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774865_1_20241016194525.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告宣布，即日起放寬物業按揭上限至七成，另外「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬元。被問到措施會否令「炒風」重現，行政長官李家超表示，制定政策需因時制宜，按實際情況而定。
-   <br/>
-   <br/>
-   李家超強調，過往曾因應樓市炒賣情況嚴重，推出需求管控措施，但目前「炒風」已不復見，樓市逐漸回穩，故現階段延續以往做法並不合適。他又說，物業市場健康發展是政府的政策目標，一方面能滿足市民住房需求，亦能為經濟作出貢獻。
-   <br/>
-   <br/>
-   李家超說，類似放寬按揭成數至七成的安排，於過去某時期曾推行，因此現時最重要是，研究措施有否負面因素，如有需要會隨時作出調整。
-   <br/>
-   <br/>
-   至於施政報告中提出有關協助青年人置業措施。根據新措施，40歲以下白表青年家庭及1人申請者分派多一個抽籤號碼。被問到有意見指，措施或會令「白表」申請競爭更激烈，李家超回應，居屋備受歡迎，反映市民渴望擁有自己的居所，政府正著力從多方面增加房屋供應。
-   <br/>
-   <br/>
-   李家超強調，在公營房屋方面，政府需照顧最大部分的是公屋，但推出「綠置居」的好處是，一方面讓更多人擁有自己的房子，亦能騰空公屋單位予其他合資格人士入住，讓更多有需要的市民受惠。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774865-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774865-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 19:36:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024 | 發展局：引入片區開發模式　設計更協調
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774866-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="發展局表示，今年的施政報告展現政府持續造地和推動基建的決心，亦體現勇於變革，嘗試新的發展模式。（發展局社交網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774866_1_20241016194835.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   發展局表示，政府造地不再局限於發展房屋和基本設施，亦會透過土地規劃和發展推動旅遊、康樂及遊艇等產業。當局會盡早邀請企業提交發展意向書，以善用市場力量，加快建設「南大嶼生態康樂走廊」、發展前南丫石礦場用地、發展尖鼻咀和白泥為生態旅遊節點等。
-   <br/>
-   <br/>
-   發展局在社交平台表示，引入「片區開發」模式，揀選具規模及商業價值和將會提供公共設施的三個片區，由項目發展商綜合開發，使片區提速落成，設計更為協調。
-   <br/>
-   <br/>
-   發展局表示，今年的施政報告展現政府持續造地和推動基建的決心，亦體現勇於變革，嘗試新的發展模式。當局會利用好香港豐富和獨特的資源，打造香港成為更宜居的城市。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774866-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774866-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 19:41:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜市建局： 全面配合加快市區重建等措施
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774867-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="市建局將繼續與相關政府部門研究，將舊區一些閒置政府土地、現用作臨時用途的用地以及未被充分利用的土地。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774867_1_20241016194904.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   新一份施政報告提出加快市區重建和進一步改善樓宇安全及大廈管理的措施，市建局表示歡迎，並會全面配合。
-   <br/>
-   <br/>
-   市建局已就荃灣及深水埗進行的地區研究，完成第一及第二階段工作，包括收集區內不同持份者的意見，深化建議及完成各項技術評估後，期望能明年下半年向政府提出相關藍圖。
-   <br/>
-   <br/>
-   市建局將繼續與相關政府部門研究，將舊區一些閒置政府土地、現用作臨時用途的用地以及未被充分利用的土地，透過「一地多用」的模式，整合相關的政府社區設施，釋放更多土地資源；亦會在合適選址採用新規劃工具，把舊區的部分樓面面積，轉移到新的發展用地，創造容量、提升重建的可行性，推動私人市場參與市區重建，協助處理舊區樓宇老化的問題。
-   <br/>
-   <br/>
-   對於施政報告提及政府明年於選定小區推行「聯廈聯管」試驗計劃，市建表示支持，並會總結在「龍城」區試行「聯廈聯管」的經驗，提交予有關部門參考。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774867-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774867-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 19:44:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱行業要自己幫自己　政府亦會提供協助
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774869_1_20241016223728.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超表示，本港旅客結構已改變，並非周期性問題，因此要因時制宜推出新政策，吸引旅客來港，帶動本港的旅遊、餐飲及周邊行業。
-   <br/>
-   <br/>
-   被問到港人北上消費，李家超出席施政報告電視論壇時表示，不同行業在經濟轉型期都會面對不同問題，政府有責任亦會提供協助，同時行業要自己幫自己。他說，轉型期間各方要改革和自強，檢視並創造自身優勢。
-   <br/>
-   <br/>
-   被問到新一份施政報告沒有提及夜經濟，李家超表示，沒有提及不代表不做，當局已要求18區舉辦活動推動經濟，而政務司副司長亦主持工作組推動發掘旅遊熱點，又強調要留意會否「興一利，生一弊」，例如出現嘈音問題。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 20:38:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024 | 醫管局歡迎有關醫療服務措施
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774874-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="醫管局相信，有關醫療服務措施，有助提升公營醫療服務及可持續發展，以加強對病人的支援。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774874_1_20241016220523.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超發表新施政報告，醫管局主席范鴻齡歡迎報告內，有關醫療服務措施，相信有助提升公營醫療服務及可持續發展，以加強對病人的支援。
-   <br/>
-   <br/>
-   范鴻齡說，醫管局歡迎政府推動社區藥房的相關政策，會改善藥械採購程序，大幅縮減新藥引入藥物名冊的時間，透過理順和集中採購流程，促進成本效益及保證醫療資源用得其所；亦會進一步整合全港兒科服務，讓香港兒童醫院，更好發揮其功能，促進研究發展和專業培訓及開拓更多服務，如擴大新生兒篩查範圍、腦神經系統疾病治療等，提高本港兒科服務的質素。
-   <br/>
-   <br/>
-   醫管局表示，將加強專科門診的分流制度及轉介安排，使病情急切的病人更快得到專科服務，並安排輕度及穩定病症的病人留在適當地方跟進，減少不必要的專科轉介，以進一步縮短專科門診的輪候時間；並於下年度額外提升白內障手術量，積極為輪候病人完成手術。
-   <br/>
-   <br/>
-   此外，醫管局提出，會繼續優化服務，包括按國家認證標準，於威爾斯親王醫院設立第二間胸痛中心，另選址建設全港首間中風中心；以及於香港兒童醫院成立母乳庫，為有臨床需要的極早產及重症嬰兒提供母乳。
-   <br/>
-   <br/>
-   醫管局指，正致力推展第一個醫院發展計劃下的各項工程項目，並正因應未來的全港規劃，積極配合政府敲定第二個醫院發展計劃，持續提升公營醫院的服務量和更新醫院設施，以應付市民未來對醫療服務的需求。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774874-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774874-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 21:59:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024 | 房協支持完善置業階梯打擊濫用公屋等措施
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774875-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="房協表示，將積極探討可行的相應措施，以配合政府的整體政策。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774875_1_20241016220428.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   房協表示，對施政報告中提及有關完善置業階梯、打擊濫用公屋及推動房屋建築和管理數字化的措施表示支持。
-   <br/>
-   <br/>
-   房協又表示，在回應市民住屋需求及善用房屋資源的大前提下，房協將積極探討可行的相應措施，以配合政府的整體政策。
-   <br/>
-   <br/>
-   房協將適度檢討現時發展規劃中的出租及資助出售單位比例和資助出售單位的銷售安排，包括綠白表比例、協助青年置業以及增加屢次向隅者購買資助出售單位機會等安排， 亦會參考房委會打擊濫用公屋的新舉措。
-   <br/>
-   <br/>
-   房協又說，在推動智慧建築和智慧管理是房協現行的業務策略，日後亦會逐步加強有關措施，以提升項目管理及屋邨管理的效率和質素。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774875-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774875-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 22:00:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      一款英國進口預先包裝凝脂奶油樣本總含菌量超標
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774878-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="食安中心已暫時撤銷較早前簽發予有關進口商銷售該款產品的進口准許。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774878_1_20241016221136.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   一批馬莎品牌、從英國進口的預先包裝凝脂奶油樣本，被檢出總含菌量超出法例標準，有關批次食品已被封存，因仍存在進口商貨倉，並無流出市面。
-   <br/>
-   <br/>
-   食安中心表示，該款名為康沃爾凝脂奶油的產品，經巴士德消毒法處理。有關樣本經恆常食物監測計劃檢測，發現總含菌量分別每毫升逾62萬個、逾112萬個和逾150萬個，遠超相關規例的要求，即經巴士德消進行熱處理後的奶類，每毫升不得含有多於3萬個細菌。
-   <br/>
-   <br/>
-   食安中心已暫時撤銷較早前簽發予有關進口商銷售該款產品的進口准許，現時在市面上銷售該品牌的同類產品則不受影響。中心亦已通知英國當局。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774878-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774878-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 22:11:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024 | 楊何蓓茵向公務員發信闡釋相關措施
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774880-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="公務員事務局局長楊何蓓茵與四個公務員中央評議會和四個主要跨部門公務員團體代表會面，簡介《施政報告》中與公務員事務相關的政策措施。（政府新聞處）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=30&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774880_1_20241016223052.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超發表新一份施政報告。公務員事務局局長楊何蓓茵向全體公務員發信，並與四個公務員中央評議會及四個主要跨部門公務員團體代表會面，簡介報告中相關政策措施。
-   <br/>
-   <br/>
-   信中簡述施政報告中，局方加強公務員管理和推動數碼化等相關政策措施。楊何蓓茵表示，公務員須繼續以盡忠竭誠、不畏困難、敢於改革及創新的精神，積極服務市民，並要向前發展，建構更高質、高效的政府團隊。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774880-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774880-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 22:30:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱物業市場未見炒賣跡象　政策因時制宜
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超說，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774882_1_20241016224301.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告宣布，放寬物業按揭貸款成數上限，按揭成數上限劃一至七成；另外「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬港元。
-   <br/>
-   <br/>
-   被問到有關措施會否令樓市「炒風」重現，行政長官李家超回應，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 22:40:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱轉型期政府有責任協助　各方亦要自強
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超表示在經濟轉型期，政府有責任協助，各方亦要檢視並創造自身優勢。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774883_1_20241016225044.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告提出一系列措施支援中小企，包括在「中小企融資擔保計劃」下，重推「還息不還本」安排。
-   <br/>
-   <br/>
-   行政長官李家超表示，在經濟轉型期，政府有責任提供協助，各方亦要改革和自強，檢視並創造自身優勢。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 22:43:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024 | 《行政長官2024年施政報告論壇》
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="林健鋒（左二起）、鄭泳舜及麥萃才出席新聞部節目，討論新一份《施政報告》內容。（陳曉慶攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774879_1_20241016230425.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超發表任內第三份《施政報告》，提出多項措施解決房屋問題及刺激經濟。金管局放寬物業按揭貸款條件，按揭成數上限一律調整至七成； 針對劏房問題，行政長官李家超表明，決心以立法方式釐訂合標準單位，並正名為「簡樸房」；即日起減烈酒稅，進口價200元以上的烈酒，200元以上部分的稅率由100%，大幅減至10%。
-   <br/>
-   <br/>
-   行政會議成員、經民聯立法會議員林健鋒在本台節目《施政報告論壇》表示，放寬物業按揭成數上限至七成，是回復至2009年時逆周期的水平，增加投資者的入市信心，部分地產股亦上升，反映措施帶來正面效果。
-   <br/>
-   <br/>
-   民建聯立法會議員鄭泳舜認為，提供不同房屋階梯是重要，相信會令到有意入市的市民更積極考慮。浸會大學會計、經濟及金融學系副教授麥萃才說，以往「細樓換大樓」不容易，因為「大樓」的按揭成數較低，但在新措施下，有利「換樓鏈」；新政策下，中小企亦可以將物業再按揭套現，以便改善現金流，相信對經濟有正面幫助。
-   <br/>
-   <br/>
-   對於《施政報告》提出以立法方式處理劏房，鄭泳舜認為，特區政府有決心解決這個問題，而且去到最後階段，他期望明年可以訂出時間表，逐步取締劏房，同時交代如何處理部分劏房居民的住屋需要。林健鋒說，業主如要改造劏房所需時間不長，最重要是「人人有屋住」，相信特首都不會容讓有市民要「瞓街」，目前已有簡約公屋，建議當局可以多利用空置校舍。麥萃才表示，取締劏房是扶貧的政策之一，未來會有簡約公屋等數萬間短期房屋供應，可以應付到由劏房搬出來、最有需要協助的市民，從而令政府可以清除最劣質劏房。
-   <br/>
-   <br/>
-   《施政報告》即日起減烈酒稅，醫學界表達反對聲音，本身是行會成員的林健鋒表示，明白大家的意見，但他強調，減烈酒稅可以鞏固香港作為國際名酒交易的集散中心地位，又認為可以搞活夜市。麥萃才說，不少高收入人士都喜好飲酒，提供較低稅率的烈酒，有助帶動存酒、物流及保險等方面的經濟市場，其他海外買家買酒後，亦可以將酒儲存在本港，日後再提取。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Wed, 16 Oct 2024 23:05:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超：處理劏房問題先易後難要有序
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774907_1_20241017083038.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   新一份施政報告提出制訂「住宅樓宇分間單位出租制度」，合標準單位名為「簡樸房」，取代劏房，行政長官李家超出席施政報告聯合電台節目，被問到不合標劏房「清零」的時間表，他表示，要務實看待問題，劏房問題積累多年，原因是市民有居住需要但供應不足，要做到供應足夠需要很長時間，但他不想劏房居民等得久，必須務實按部就班有序處理。
-   <br/>
-   <br/>
-   李家超相信規管劏房相關立法最快明年進行，希望在立法會換屆前完成。至於登記期，建議在12至18個月，但如果在12個月內完成登記，意味每月要處理9000多個單位，必須增加人手。
-   <br/>
-   <br/>
-   李家超表示，對違規放租業主的刑罰要具阻嚇性，相信做生意的人不想坐監，他認為刑罰要以2年監禁為起點，亦可以是3年。他認為，劏房租金反映現實情況，目前有規管租金加幅，相信訂立「簡樸房」標準後，租金會反映單位的配套及周邊環境。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 08:13:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱本港安全自由適合建黃金倉庫
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774912_1_20241017090453.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超出席施政報告聯合電台節目，他表示，香港屬開放型經濟，昨日菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，他認為政府做好規管，亦令到市場自由發揮得好，反映政策定得對，但在過渡期挑戰大一些，但落實措施刺激經濟，都是實實在在的。
-   <br/>
-   <br/>
-   李家超說，面對市場要有大局觀， 要有新的增長點，今次施政報告是行動型，推動進一步強化目標，例如本港安全自由，適合建黃金倉庫以及進行大宗商品貿易，當大宗商品貿易家來港，其團隊亦會來港。
-   <br/>
-   <br/>
-   被問到現時零售業的情況，李家超認為，要正視問題，不要逃避，政府可以幫的會盡量幫，例如零售市道不是很好，因為旅客的結構性改變，有些人醒覺，知道客人需要甚麼而作出改變，過渡期內有起伏，每個人都要自強不息去改革。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 08:47:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超：阻止港人離港消費不切實際
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774915_1_20241017093849.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超出席施政報告聯合電台節目，對於市民北上消費，李家超認為，社會要認識有關轉變不是周期性而是結構性，不能以舊有方法應對。
-   <br/>
-   <br/>
-   他指出，阻止港人離港消費是不切實際亦不應該，香港是自由靈活的市場，市場營運者要自我革新，例如18區現時各有打卡熱點，商戶如何配合，將產品融入其中。李家超特別提到政府有政策支持熊貓經濟，熊貓亦深受市民和遊客喜愛，商界就要「度橋」搞好綽頭配合。
-   <br/>
-   <br/>
-   有聽眾致電節目，建議以八達通向旅客發放消費券刺激市道，李家超說，希望全社會推動消費，不只由政府去做，他指出，早前國慶長假期有3000多間商戶響應推出優惠活動，參與的商戶收入增加，他認為是好事。
-   <br/>
-   <br/>
-   另外，有聽眾致電，關注減烈酒稅或會令更多人飲酒，損害健康。李家超強調，政府不鼓勵市民飲酒，本港有85%烈酒進口價在200元以下，稅率不變，他指出，減烈酒稅是為了推動本港高端烈酒貿易，參考2008年全面取消紅酒稅經驗，發現對市民的影響小，經濟效益大，本港目前是世界第三大紅酒貿易市場。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 09:13:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱發展重質重量　啟德體育園成大型地標
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超認為，本港發展要重質重量，啟德體育園將成為大型地標。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774921_1_20241017100942.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   對於有意見認為香港應要聚焦舉辦盛事，有量亦要有質。行政長官李家超表示，三份施政報告面對的環境不一樣，2022年是疫情期；2023年是走出疫情期，目標是社會復常，要先有人氣財氣，先有量才作選擇；現時是安全保障期，由治及興，大展拳腳，現在已有實力，可以「上擂台」，因此又重質又重量，如何平衡要考技巧。
-   <br/>
-   <br/>
-   李家超出席電台聯播節目時說，香港正處於轉型期，甚麼也要試，不要因為怕失敗就不試，好像早前搞夜經濟，不試就一定不成功，試或者有機會成功。
-   <br/>
-   <br/>
-   被問到周邊地區包括新加坡、高雄及澳門也有大型場地，舉辦演唱會吸引海外旅客，香港如何凸顯優勢。李家超回應說啟德體育園是香港的機遇及亮點，必須用好這個大型地標，這是整個政府及大家的共同責任，也要邀請承辦商及不同餐飲進入場館。他比喻說好的明星演戲與演技差的演員演戲，效果完全一樣，又說不可浪費這個5萬人場地。
-   <br/>
-   <br/>
-   李家超強調啟德體育園如何安排好活動，政府會有參與，不是放手不理，因為會影響整個香港。他表示，就場地的疏散安排，要求用加大倍數的安全系數處理，並作演練。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 09:25:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱繼續研究方法協助青年置業
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超說，已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774922_1_20241017094328.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超說，政府沒有放棄研究協助青年置業，他在電台聯播節目《行政長官施政答問》表示， 有聽眾來電說，不少青年置業是缺首期，建議讓市民動用強積金儲蓄作置業首期。
-   <br/>
-   <br/>
-   李家超回應，當局初步研究認為，強積金始終是市民退休後生活保障，但現時沒有排除任何可能性，他已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮，例如儲錢後最終不買樓或儲不夠錢，應如何解決，當局會繼續研究。
-   <br/>
-   <br/>
-   有做裝修工作的市民來電指，現時獨居、綜緩戶面對劏房租金2000至3000元，已難以維生，如果將「簡樸房」定在8平方米，租金估計會上升至5000多元，這些住戶將無法負擔，最終會被「掃出街」。
-   <br/>
-   <br/>
-   李家超形容反映意見的市民是很愛香港，他回應指，現有劏房戶有四成有資格上公屋；有兩成要等待成為居港七年居民，也有機會上樓，因此有五成至六成住戶是有機會上公屋。他期望用真正公屋容納有關市民，現時是過渡措施，有些特別個案會作特別處理，政府不希望有人無家可歸，要有不同方法令他們「有瓦遮頭」。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 09:31:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      誣衊露宿者藏毒6名警員妨礙司法公正判囚2年1個月至3年5個月
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774930-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="六名警員在區域法院分別被判監禁2年1個月至3年5個月。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774930_1_20241017105226.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   6名警員於2020年在深水埗通州街公園掃毒行動中涉誣衊露宿者藏毒，早前被裁定意圖妨礙司法公正罪成，今日被判監2年1個月至3年5個月。
-   <br/>
-   <br/>
-   區域法院法官張潔宜判刑時表示，妨礙司法公正是嚴重罪行，如果警員涉及相關罪行，會令整個制度崩潰，破壞警方聲譽，更應嚴厲處理。案中各被告在各自的警員記事冊、證人供詞記錄虛假陳述，情節較其他同類罪行嚴重。
-   <br/>
-   <br/>
-   法官說，警方職責是保護市民生命及財產，在司法制度下擔當重要角色，市民對警隊有一定期望，各被告不但沒有履行職責，反而濫用職權，誣告無辜市民，行為令警隊蒙羞，令公眾對警隊的公正性失去信心，亦打擊公眾對司法制度的信心。
-   <br/>
-   <br/>
-   法官認為，各被告就部分控罪並非單獨行事，屬加刑因素。第五被告林華嘉作為案發現場最高級警員，理應有權限及責任監督隊員依法行事，但他反而參與犯案，刑責較其他被告重，但考慮到他極大可能失去長俸，審訊期間承受壓力，酌情減刑，總刑期監禁3年5個月。
-   <br/>
-   <br/>
-   第六被告莫志成、第七被告尹栢詩、第八被告陳守業分別判監3年1個月。第三被告梁飛鵬、第四被告龐雋詩判監2年1個月。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774930-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774930-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 10:52:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱北都區片區發展方式需視乎規模及用途
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774932_1_20241017105525.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超到立法會出席施政報告答問會。
-   <br/>
-   <br/>
-   民建聯劉國勳關注，北部都會區3個試點片區的位置，如何令私人力量更加願意參與相關新發展模式。他又說，發展局早前發出通知，要求決策局和部門需採取便利發展及協同合作的思維，擔當促進者的角色，關注實際執行情況，包括有無具體措施令日後工程可加快及減低建造成本。
-   <br/>
-   <br/>
-   李家超說，北部都會區的片區試點，由於涉及不同考慮，會留待發展局交代，但指出，由於北都的發展超過10多年，只依靠政府的力量並不足夠，因此政府會用多元方法，按片區大小、性質等設定方案。
-   <br/>
-   <br/>
-   另外，李家超說，發展局下已成立專責小組，相關公告亦指出，每人在思維上都應有促進的責任。他形容自己是「心急人」，上任後當局已修訂一系列法例，縮短造地的時間。
-   <br/>
-   <br/>
-   他又說，近期的世界競爭力報告，香港特區政府的效率全球排第三，反映公務員都希望做到最好，發展局的公告希望在系統方面，不合部門之間磨合得更好。
-   <br/>
-   <br/>
-   勞工界議員周小松讚揚施政報告中的多項勞工政策，包括建議落實強積金全自由行等，但他關注當中未有提及落實為低收入人士代供強積金的落實方案和時間表。
-   <br/>
-   <br/>
-   李家超回應說，有關建議是上屆政府提出，目前勞工及福利局正在研究，他會與勞福局再作探討。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 10:55:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱醫療及教育措施惠及所有市民包括中產
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超說，明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774933_1_20241017110258.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超出席施政報告聯合電台節目，有聽眾反映申請科研資助計劃的審批越來越慢，科研團隊亦要裁員，亦有市民關注施政報告並無惠及中產的措施。
-   <br/>
-   <br/>
-   李家超說，對於關注資助項目申請手續時間性不符要求，會回去看看，他一向要求盡快處理，希望如有問題，可以反映。他明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產，醫療及教育措施，所有市民，包括中產亦會受惠。
-   <br/>
-   <br/>
-   李家超說，過渡房屋是臨時措施，歸根究底出現問題是整體房屋供應不足，因此上任後，政府提出提速、提效、提質及提量建屋，長遠來說，整體房屋供應該滿足到需求，因此政府有不同措施，其中簡約公屋有3萬個單位，在短期未有大量供應時作出填補。他相信在4年後，會有大量供應，以解決問題。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 11:02:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱向中央爭取政策　冀快些「瓜熟蒂落」
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774936_1_20241017112954.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   新一份施政報告提到，特區政府已向中央提出進一步優化內地居民來港旅遊簽注的請求，包括恢復深圳「一簽多行」個人遊簽注，以及擴大「一周一行」個人遊簽注政策試點城市範圍等，自由黨立法會議員邵家輝在立法會行政長官答問會提到，近期香港經濟比較疲弱，零售及飲食業面對新的轉型期，挑戰很大，關注是否有更多城市可以加入試點範圍，讓更多人來港，以及如何爭取中央盡快放寬。
-   <br/>
-   <br/>
-   李家超說，充分體會到某些行業在經濟轉型期面對特別多挑戰，政府亦吸納了議員的意見，推出8項目措施幫助中小企。特區政府自走出疫情後，很多措施都很用心研究，亦非常感謝中央給予暢通渠道反映意見，而在政策推出的過程中，要克服很多困難，很多不同部委幫助香港解決不同需求，亦感謝中央對香港的關愛。
-   <br/>
-   <br/>
-   他表示，與中央溝通，爭取任何政策，希望實事求是，有很多探討的措施不適合公開，但希望快些「瓜熟蒂落」。他又說，交往最多的、以及交通最方便的城市都是可作採討。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 11:20:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱工作組多從需求角度發掘銀髮金融產品
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超說，政府非常重視養老事宜，「養老金融」亦都重要。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774937_2_20241017124811.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告提出，成立三個工作組及一個委員會以強化跨政策統籌工作，當中包括「促進銀髮經濟工作組」。
-   <br/>
-   <br/>
-   李家超到立法會出席施政報告答問會時表示，政府非常重視養老事宜，「養老金融」亦都重要，因此施政報告有大量篇幅提及養老方面的工作。
-   <br/>
-   <br/>
-   李家超說，相關工作組由政務司副司長擔任組長，有五方面的工作，其中一方面正就是養老相關的財務方安排，現時一些退休金融產品推廣不足，工作組會多從需求角度發掘銀髮金融產品。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 11:28:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱推動留學本港是具吸引力金漆招牌
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超認為，DSE有認受性亦很優質，現時目標群是吸引外地大學生或專上教育學生來港。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774938_1_20241017121217.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   在立法會的施政報告答問會上，選委會議員郭玲麗表示，中學文憑試是國際承認的考試中最尊重中文和中國文化的考試，關注當局有何措施和方法推廣DSE國際化。
-   <br/>
-   <br/>
-   行政長官李家超說，要多元化推動本港作為國際高端人才集聚高地，因此設立「教育、科技和人才委員會」，由政務司司長擔任主席，背後理念是參考國家主席習近平在全國教育大會上發表的重要講話，自己深受啓發，亦非常認同和支持。
-   <br/>
-   <br/>
-   李家超表示，其中一個是推動留學本港的品牌，形容是很有吸引力的金漆招牌，而DSE有認受性亦很優質，但現時目標群是吸引外地大學生或專上教育學生來港，如果下一步希望更多人讀DSE課程，則要參考其他國際教育課程例如IB的成功之處，因為不同地方都有相關課程設計和教師等教育體系建設。
-   <br/>
-   <br/>
-   他認為，現階段要實事求是爭取最大成功和回報，因為其他地方未建立DSE相關教育體系，仍需要時間，當有更多外地學生來港讀書，就會增加宣傳效益，形容如果到時「男有心、女有意」，可能會考慮同某些國家或地區合作建立體系，否則是有心無力，相信「教育、科技和人才委員會」將討論一系列問題。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 11:37:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超指在有限資源下需提升公營醫療服務效益
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超表示，醫衞局除內部制度優化，亦希望在公私營合作上做得更暢順，並期望在大灣區合作上擴容。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774945_1_20241017123502.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告答問會早上在立法會舉行，議員林素蔚關注，報告中提出設立跨專科綜合門診的相關安排。
-   <br/>
-   <br/>
-   行政長官李家超說，政府每年在醫療支出非常龐大，佔整體開支約兩成，在有限資源下需要提升公營服務的效益。跨專科統籌是指如果當有一名有泌尿科、心臟科和腎科問題的病人，屆時只需要看一個專科。醫衞局將在記者會或立法會交代技術性問題。除了內部制度優化，亦希望在公私營合作上做得更暢順，亦期望在大灣區合作上擴容。
-   <br/>
-   <br/>
-   工業界議員吳永嘉就關注，當局會否將工業旅遊列入旅遊熱點。李家超表示，多年前去過日本，參觀車廠的機械人裝車，當時很少地方有相關環節，印象非常深刻，本港工業絕對有優勢，期望生產力局加強宣傳。
-   <br/>
-   <br/>
-   李家超提到，「發展旅遊熱點工作組」由政務司副司長統籌，以加速或輔助相關工作，但強調責任仍在文體旅局方面。他又說，本港有非常好體系，包括18區民政專員是最了解當區吸引力，例如九龍城有一流食肆，應否發展為美食村，呼籲議員除了給予意見，亦要共同參與，因為大家都是建設者，不是評論員。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:09:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      港股半日升近1%
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="恒指中午收市報20460點，升174點，升幅0.86%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=1&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774946_1_20241017124458.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   港股今早上升，恒生指數早段曾升近500點，中午收市報20460點，升174點，升幅0.86%。主板半日成交約1077億元。
-   <br/>
-   <br/>
-   科技指數半日升約1.4%。
-   <br/>
-   <br/>
-   另外，本地地產股普遍向好，其中恒地半日升逾2%。
-   <br/>
-   <br/>
-   內房股就有沽壓。龍湖集團半日跌近9%。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:15:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超指大宗商品交易從低點做起需時達至高點
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774948_1_20241017124929.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告提出要建立國際黃金交易市場及大宗商品交易圈，行政長官李家超到立法會出席施政報告答問會時表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫，有了倉庫就可以推動買賣。他指出，香港這個領域從一個低點起步，要到達高點是需要長時間，業界指出用5年至10年時間，可以做到百分之三十的大宗商品市場。
-   <br/>
-   <br/>
-   另外，李家超說，香港在教育方面十分有優勢，是全球唯一擁有5間世界百強大學的城市，其他有著名大學的地區都是以整個國家計算，特區政府會致力推廣「留學香港」品牌。
-   <br/>
-   <br/>
-   他又說，啟德體育園是一個非常重要的工程，要確保開幕暢順，同時在整體配套、人流管理、處理突發事件方面都做得好，相信啟德體育園將會是讓香港再創高峰的新地標。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:22:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超強調重視培育技術能力及知識競爭力
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超說，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=95&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774949_1_20241017125007.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告答問會早上在立法會舉行，工聯會議員吳秋北表示，本港勞動人口有減少和老化趨勢，關注報告提出加大培訓力度、鼓勵非本地畢業生留港等措施，對緩解勞動力的結構問題的作用。
-   <br/>
-   <br/>
-   行政長官李家超說，年青勞動力下降是本港整體人口老化的現象，輸入勞工是針對短期問題，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力，今次政策重點是改革僱員再培訓局，並推出兩個地方讓有經驗勞工團隊作工業培訓，認為培訓要邁向全民化，15歲或以上市民就可參與，並以技術為本，因為有技能的人更容易轉變工作。
-   <br/>
-   <br/>
-   選委會議員何敬康關注，未來有何對策處理體育基本設施建設和場地分配。李家超表示，去年和今年的施政報告要延續性一起看，在場地提供方面，已經羅列整個計劃，當局投放在體育方面的資源很多，但更重視是否達到最好效果。他提到港協暨奧委會很快公布體系管治方面的結果，稍後再與文體旅局商討如何盡善盡美。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:27:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超：會有措施協助受取締劏房影響住戶
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774950-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超表示，會有措施協助受取締劏房影響的住戶，不希望他們無家可歸。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774950_1_20241017125115.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超表示，針對出租不合標準劏房單位的刑罰要具阻嚇力，希望至少要2至3年監禁。他說，會有措施協助受取締劏房影響的住戶，不希望他們無家可歸。
-   <br/>
-   <br/>
-   李家超又提到，會繼續研究以強積金供款協助青年儲首期置業，至於撤銷青年申請居屋的資產審查，他擔心會加劇資助出售房屋供不應求的情況。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774950-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774950-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:28:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜狄志遠指市民乏歸屬感　特首稱建關愛共融社會
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="狄志遠（左）指出，不少市民對社會缺乏歸屬感，對社會參與的積極性低；李家超（右）不同意見可以討論，政府亦願意聽。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774951_1_20241017125041.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行長官李家超出席立法會施政報告答問會，議員狄志遠關注香港的貧富差距越來越大，不少市民對社會缺乏歸屬感，對社會參與的積極性低，詢問特首會否擔心社會缺乏包容性的現象，從而影響香港的經濟發展。
-   <br/>
-   <br/>
-   李家超表示，施政報告提出建立關愛共融社會是政策目標，社會對於事物有不同看法是正常，不同意見可以討論，政府亦願意聽。他又說，記者會的問題很尖銳，政府一一解答，有些是善意告誡，有些是尖銳批評，有些變成施政報告中一些措施，因此是很開放包容。
-   <br/>
-   <br/>
-   他又說，香港被評為世界上最自由的經濟體，可以做任何經濟活動，亦反映有合理的法律保障，這些保障就是給予最大的自由，亦是他希望建立的香港。
-   <br/>
-   <br/>
-   他說大家提出意見，特別在愛國者治港原則下，做一些共同讓香港有建設性的項目。他認為過程中有批評是正常，而更重要是求同存異。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:31:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超：政府會在18區搞打卡點　商戶要革新
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774952-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超表示，政府會在18區搞「打卡點」，呼籲商戶也要自我革新、「度橋」求變。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774952_1_20241017125520.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超表示，阻止港人離港消費是不切實際亦不應該，要認識市民北上消費習慣的轉變，是結構性不是周期性，政府會在18區搞「打卡點」，呼籲商戶也要自我革新、「度橋」求變。
-   <br/>
-   <br/>
-   李家超又強調，啟德體育園是香港的機遇及亮點，不可浪費這個可容納5萬人的場地，如何安排活動，政府會有參與，不是放手不理。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774952-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774952-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:40:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超稱改革目的要明白「立甚麼」「破甚麼」
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超指出，改革是為了結果的提升，並非為改而改。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774953_1_20241017125457.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超在立法會施政報告答問會上重申，世界百年未有大變局正加速演進，香港亦處於關鍵經濟轉型期，又說改革只有進行時，沒有完結時，改革是為了結果的提升，並非為改而改，只講顛覆或只求推倒重來，是忘記了改革目的，必須要明白「立甚麼」、「破甚麼」，要因地制宜，張弛有道及拿捏得當。
-   <br/>
-   <br/>
-   李家超說，改革要整個社會一起參與和推進，行政立法機關有帶領社會改革的角色。在要求他人改革的同時，更重要是從自身開始，自我革新，自我識變、應變和求變，亦是他將「齊改革、同發展」定為施政報告重點方向的原因和期望。
-   <br/>
-   <br/>
-   他期望這份施政報告在立法會充分討論後，能獲得議員支持。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:43:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜李家超：向中央爭取政策希望盡快「瓜熟蒂落」
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774954-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="李家超說，向中央爭取任何政策，都希望實事求是。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774954_1_20241017125541.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   行政長官李家超出席立法會施政報告答問會。
-   <br/>
-   <br/>
-   有議員希望，可盡快恢復深圳「一簽多行」和增加「一周一行」試點城市的政策，以幫助本港零售、飲食等業界。
-   <br/>
-   <br/>
-   李家超說，向中央爭取任何政策，都希望實事求是，很多探討中的事宜都不適合公開，但他希望盡快「瓜熟蒂落」。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774954-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774954-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:46:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜港澳辦：感受到銳意改革奮發進取造福民眾
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="港澳辦指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774955_1_20241017130054.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   國務院港澳辦發表的文章表示，行政長官李家超發表任內第三份施政報告，香港社會和國際社會高度關注並積極評論。從這份報告的豐富內容和各方面的熱烈反應中，可以感受到特區政府銳意改革、奮發進取、造福民眾的堅定信念和堅實行動。
-   <br/>
-   <br/>
-   文章中指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能；致力為民幸福，彰顯責任擔當。
-   <br/>
-   <br/>
-   港澳辦表示，相信香港社會各界團結一致，以實際行動全力支持特區政府依法施政，美好願景必將變為輝煌現實。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 12:53:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜陳茂波稱物業七成按揭已考慮樓價成交量等因素
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774960_1_20241017143000.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告昨日宣布，放寬物業按揭成數上限至劃一至七成，供款與入息比率上限劃一至五。財政司司長陳茂波表示，是參考了一籃子因素，包括樓價走勢、成交量、未來供應、本地經濟、外圍環境，而繼續維持銀行體系穩定的前提下，有空間將按揭成數回復至2009前水平。
-   <br/>
-   <br/>
-   陳茂波在施政報告措施記者會表示，樓市今年以來大部分表現疲弱，但美國減息後，樓價有回穩跡象，交投量稍為回暖。股市方面，9月下旬以來顯著改善，美國減息及中央一系列支持措施，明顯振提市場氣氛。
-   <br/>
-   <br/>
-   陳茂波預料本港經濟在今年餘下時間繼續保持增長，美國進入減息周期，本港同時減息，可降低營商成本。內地經濟可望穩定增長，對私人消費亦有支持作用。
-   <br/>
-   <br/>
-   他又提到近日港股的淨買入，資金來源不少來自美國及歐洲投資者，當中九成來自長期基金經理或投資銀行，可見歐美投資者對香港及內地市場感興趣，只是一直等待時機入市，現在只是付諸行動。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 14:13:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜許正宇稱優化上市批核流程細節本周公布
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="許正宇表示。優化上市批核流程細節本周公布。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774963_1_20241017143158.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   財經事務及庫務局局長許正宇提到，證監會和港交所將優化上市批核流程，令上市申請審批時間更有確定性，相關細節安排本周內公布。
-   <br/>
-   <br/>
-   他在施政報告記者會上說，財庫局重點政策措施圍繞三大範疇，包括強化香港國際資產及財富管理中心、國際風險管理中心雙重地位；持續優化互聯互通機制、強化香港作為最大離岸人民幣國際樞紐角色；以及積極拓展和深化海外網絡。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 14:21:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜陳茂波：減烈酒稅促進相關貿易及高端行業活動
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="陳茂波說，減烈酒稅目標是發展烈酒貿易，促進餐飲旅遊高消費行業活動。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774968_1_20241017143855.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   財政司司長陳茂波說，施政報告宣布減烈酒稅政策目標是發展烈酒貿易，促進餐飲旅遊高消費行業活動，會造成相連效益，業界有作出相關拆算，當局會跟進評估，相信影響正面。
-   <br/>
-   <br/>
-   陳茂波在記者會提到，參考當年取消葡萄酒稅經驗，進口的紅酒價值升超過300%，但銷量只是增加雙位數字，促進高價值紅酒貿易的效用是明顯。當年取消了葡萄酒稅後，市民飲紅酒最初是增加了，但之後逐步回落，到個別年度更出現負增長，直至去年人均飲酒量與撤銷葡萄酒稅時差不多，政府會參考有關經驗，密切留意。
-   <br/>
-   <br/>
-   商務及經濟發展局局長丘應樺表示，高價烈酒佔市場15%，量不算多，但當局對烈酒貿易量增長則有樂觀估算，但增長不會一下子。至於進口烈酒增加或引致的物流、存倉成本，相信貿易量增加帶來的效益遠多於相關成本增幅。他表示，減烈酒稅會帶動物流和儲庫、旅遊和高端餐飲消費等高增值產業發展。
-   <br/>
-   <br/>
-   由昨日起，進口價200元以上的烈酒，當中200元以上部分的稅率，由100%大幅減至10%；至於200元及以下的部分，以及進口價在200元或以下的烈酒，稅率則維持不變。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 14:37:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜許正宇：本港現有黃金倉儲容量接近飽和
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774969_1_20241017161444.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告提出，建立國際黃金交易市場和國際級黃金倉儲設施。
-   <br/>
-   <br/>
-   財經事務及庫務局局長許正宇表示，本港現有的黃金倉儲已接近飽和，認為近年地緣政治等因素令黃金需求顯著增加，期望本港黃金交易市場能由現時本地層面，提升至國際水平。
-   <br/>
-   <br/>
-   他指出，財庫局爭取於年底前成立工作小組，就建立黃金交易市場的具體方向和措施作籌備工作，小組將由政府、監管機構、市場人士及整條黃金產業價值鏈的代表參與，以更全面接收市場訊息和意見。
-   <br/>
-   <br/>
-   許正宇表示，現時國際黃金交易量三分天下，分別為英國、紐約和上海，留意到不同機構有興趣在香港設立倉儲設施，反映現有政策和條件相對吸引，下一步希望將需求和供應匯聚。
-   <br/>
-   <br/>
-   至於於黃金產品納入互聯互通，許正宇說，股票通等互聯互通已發展成熟，相對下黃金納入互聯互通會在較後位置，香港要先做好自身工作，才能考慮與其他地方一起發展。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 14:42:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      4款慳電膽1款洗衣機3款電磁爐能源效益不符標示需停售
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="機電署將4款慳電膽、1款洗衣機及3款電磁爐從表列型號紀錄冊中剔除。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774970_1_20241017154537.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   機電署根據《能源效益（產品標籤）條例》，將4款慳電膽、1款洗衣機及3款電磁爐從《條例》訂明的表列型號紀錄冊中剔除，即日起不得在本港供應。
-   <br/>
-   <br/>
-   慳電膽進口商是麗影有限公司，品牌分別為陽光、Smart Design和佳之選；洗衣機進口商為譽力電業貿易有限公司，品牌是湯笙；電磁爐進口商有金樂電器有限公司、高端有限公司和億世集團有限公司，涉及品牌為金樂、ASKO和ecHome。
-   <br/>
-   <br/>
-   機電署表示，由於上述8個型號産品的測試結果未達相關的能源效益或功能特性表現，決定從紀錄冊中剔除。署方已向相關進口商發出通知書，進口商會於報章刊登通告，通知巿民有關產品會停止在本港供應。公眾如有查詢，請與進口商聯絡。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 14:52:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      本港暫停從意大利兩個省進口禽肉及禽類產品
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="中心指示業界暫停意大利倫巴第大區布雷西亞省和克雷莫納省進口禽肉，及包括禽蛋的禽類產品。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774971_1_20241017154605.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   食物安全中心宣布，因應世界動物衞生組織通報，指意大利倫巴第大區布雷西亞省和克雷莫納省爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉，及包括禽蛋的禽類產品。
-   <br/>
-   <br/>
-   中心發言人說，根據政府統計處的資料，本港今年首6個月從意大利進口約40公噸冷藏禽肉及約1萬隻禽蛋。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 14:56:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      休班警承認無牌及不小心駕駛九項罪名被判罰款及社會服務令
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774973-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="法庭認為，31歲被告余佳炳有悔意，再重犯機會低。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774973_1_20241017152303.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   一名警員休班期間多次無牌駕駛私家車，今年2月在觀塘駕駛時失控撞向行人過路處，其後棄車而逃，他早前承認無牌駕駛及不小心駕駛等9項罪名，今日在觀塘裁判法院被判罰6000元及200小時社會服務令。
-   <br/>
-   <br/>
-   裁判官蘇惠德判刑時表示，報告內容正面，顯示31歲被告余佳炳有悔意，再重犯機會低，考慮被告認罪，已就撞欄損毀的物品作出賠償，感化官亦認為被告有深刻的反省及良好品格，判處4項無牌駕駛罪各判1000元罰款、1項不小心駕駛罪判2000元罰款、4項駕駛時沒有第三者保險罪判200小時社會服務令。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774973-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774973-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 15:23:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜籌備新醫學院工作組擬今年內邀有意者提交建議
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774975-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="政府宣布成立「籌備新醫學院工作組」，負責制定新醫學院的方向及準則。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774975_1_20241017154647.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告提出，支持本地大學籌建第三所醫學院。政府宣布成立「籌備新醫學院工作組」，負責制定新醫學院的方向及準則，並打算在今年內邀請有意開設新醫學院的本地大學提交建議書，以從中選出合適的大學，落實籌備第三所醫學院。
-   <br/>
-   <br/>
-   醫務衞生局局長盧寵茂表示，期望新醫學院採取與現時兩所醫學院錯位發展的創新策略定位，包括在醫學課程、收生來源以至研究項目等。他說，工作組在審視大學的建議時將全面考慮多方面的因素，包括醫學院的策略定位、課程設計、收生安排、教學和培訓人手供求、設施、所需財政資源等。
-   <br/>
-   <br/>
-   當局設定工作組三大職權範圍，包括制定設立新醫學院的方向和準則，以及評核本地大學提交的新醫學院建議書的標準；與有意成立新醫學院的本地大學溝通，邀請他們提交建議書並進行評估，就設立新醫學院及相關安排向行政長官會同行政會議提出建議，以及與獲選成立新醫學院的大學就實施計劃保持溝通，並與當局協商，就指定校舍和教學醫院的臨時和長遠安排提供便利。
-   <br/>
-   <br/>
-   工作組聯席主席由教育局局長與醫務衞生局局長出任，成員包括現任香港醫務委員會主席鄧惠瓊、現任香港醫學專科學院主席梁嘉傑、前中大校長沈祖堯等6名專家顧問，另外有多個政策局的代表。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774975-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774975-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 15:32:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      外交部：香港未來會更好　歡迎各國把握機遇共享繁榮
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774976-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="毛寧：香港的未來會更好，歡迎各國工商界人士把握機遇，共享繁榮。（外交部網站）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774976_1_20241017154726.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   在北京，外交部發言人毛寧說，香港回歸以來，國際金融航運貿易中心的地位穩固，保持自由開放和世界一流的營商環境，持續被眾多的國際機構，評選為全球最自由經濟體和最具競爭力的地區之一，充分反映國際社會對香港獨特地位優勢，以及「一國兩制」發展前景的高度認同。
-   <br/>
-   <br/>
-   在外交部例行會，毛寧回應有關香港在《世界經濟自由度 2024 年度報告》的165個經濟體中，獲評為全球最自由經濟體的提問時說，香港的未來會更好，歡迎各國工商界人士把握機遇，共享繁榮。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774976-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774976-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 15:34:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜黃偉綸：處理劏房問題不能操之過急須有序推進
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774977-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="黃偉綸表示，處理劏房問題不能操之過急須有序推進。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774977_1_20241017154756.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   財政司副司長黃偉綸說，本屆政府推出多項提量、提速、提效、提質措施，大幅提升房屋供應，覓得足夠土地提供公營房屋單位，滿足長遠需求，加上3萬個簡約公屋、2.1萬個過渡房屋單位，填補公營房屋短期供應缺口，合資格市民可以更快上樓，當局更有底氣逐步處理劣質劏房這個老大難問題。
-   <br/>
-   <br/>
-   黃偉綸在施政報告記者會表示，全港有大約11萬劏房戶，涉及約22萬名居民，處理劣質劏房時不能操之過急，要穩慎有序，配合公營房屋供應步伐，小心部署，讓相關業主和住戶有足夠時間安排，避免引起居民混亂恐慌，甚至流離失所。
-   <br/>
-   <br/>
-   黃偉綸指出，施政報告宣布以立法方式制定住宅樓宇分間單位出租制度，合乎標準的單位命名為「簡樸房」，法例訂明最低標準，包括面積、樓底高度、消防、通風、衞生、獨立水電錶等要求，不符合標準的單位必須改建，由專業人士確認並申請認證。當局亦會設立登記制度和設立寬限期，讓業主有時間進行工程和申請認證，新進入市場的分間單位，必須申請認證才能出租。
-   <br/>
-   <br/>
-   他強調當局會以務實、以民為本的方向，配合市場新供應和公營房屋供應和政策，在登記期結束後，按部就班有序推進執法行動，逐步取締劣質劏房，直至清零。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774977-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774977-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 15:41:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜茅台集團指減烈酒稅推動茅台更高質量走向世界
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774978-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="茅台集團表示，香港作為內地連接世界的重要窗口，是茅台走向國際化的橋頭堡。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774978_1_20241017155840.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   新一份施政報告宣布，進口價200元以上的烈酒，200元以上部分的稅率由100%減至10%。茅台集團表示，香港地區下調白酒關稅，對集團國際化進程無疑存在重要影響，後續將結合有關政策，因地制宜，因時制宜盡快制定並完善市場方案，推動茅台更高質量走向世界。
-   <br/>
-   <br/>
-   茅台集團回覆本台查詢時表示，集團對國際化的重視由來已久，目前茅台產品已經銷往全球64個國家和地區，去年出口額超過43億元人民幣，佔中國白酒出口額77%。作為內地連接世界的重要窗口，香港是茅台走向國際化的橋頭堡，也是茅台重點耕耘市場，對於茅台國際化建設至關重要。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774978-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774978-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 15:43:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      MIRROR演唱會案　控方指屏幕連設備5萬磅較申報超重逾4倍
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774980-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="承辦商3名職員涉嫌向康文署虛報設備重量，3人否認串謀欺詐等罪。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774980_2_20241017160630.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   前年MIRROR演唱會發生舞台電視屏幕墮下事故，2名舞蹈員受傷，分別頸部及盆骨骨折。工程總承辦商藝能工程及延伸公司的3名職員，涉嫌向康文署虛報設備重量，3人否認串謀欺詐等罪，案件在區域法院開審。
-   <br/>
-   <br/>
-   控方開案陳詞指，藝能先後兩次向康文署遞交懸吊設備負重表，報稱設備總重量約1.2萬磅、涉案電視屏幕重600磅，但電視屏幕實際重量超過400公斤，設備總重量達5萬磅，超重超過4.2倍。
-   <br/>
-   <br/>
-   3名被告中，吳凱瑩、林志華是藝能的項目經理；梁耀祖是廣域策劃有限公司的項目經理，負責計算和檢查場地天花負重。
-   <br/>
-   <br/>
-   開案陳詞提到，康文署、大國文化及藝能在演唱會舉行會面，署方要求提供負重表及索具裝配圖，吳凱瑩隨後發放多份相關文件，康文署將圖表轉發工程顧問審核結構安全。
-   <br/>
-   <br/>
-   事故前6天，藝能再發送文件，提到會在場館天花懸掛6部電視屏幕及8個喇叭，前者重量共3600磅，後者重量共1600磅。顧問公司審視後認為沒有超重，實地視察後發出證明書。
-   <br/>
-   <br/>
-   根據吳凱瑩同年5月發送給電視屏幕供應商的通訊軟件訊息，每部電視屏幕的重量至少約435公斤。藝能的文件亦顯示，10項懸吊裝置實際重量超過5萬磅，超重約4.2倍。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774980-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774980-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 15:56:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      許正宇：與倫敦金屬交易所正進行溝通
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774981-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="許正宇稱，倫敦金屬交易所（LME）正從法律角度，評估是否認證香港為亞洲區內一個指定交貨點。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774981_1_20241017161302.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   施政報告內提出要建立大宗商品交易生態圈。
-   <br/>
-   <br/>
-   財經事務及庫務局局長許正宇表示，倫敦金屬交易所（LME）正從法律角度，評估是否認證香港為亞洲區內一個指定交貨點。當得到認證後，倉儲公司可以考慮或選擇在香港建立倉庫，令倉庫內進出的有色金屬符合交易合約要求。
-   <br/>
-   <br/>
-   許正宇說，倫敦金屬交易所是否認證香港由對方決定，但雙方有進行溝通，亦透過投資推廣署提供資料及協助。
-   <br/>
-   <br/>
-   財政司司長陳茂波指出，不一定要重新建立倉儲設施，只要設施符合要求，現有合適庫亦可以使用。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774981-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774981-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 16:01:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜最快明年第四季劏房登記並接受簡樸房認證申請
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774983-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="在完成立法程序後，最快明年第四季開始為現有劏房進行登記，建議為期12至18個月，同步接受「簡樸房」認證申請。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774983_1_20241017161325.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   新一份施政報告提出以立法方式處理劏房問題，符合標準的單位將名為「簡樸房」，預料今年12月至明年2月開展諮詢，爭取在明年內通過法例，在完成立法程序後，最快明年第四季開始為現有劏房進行登記，建議為期12至18個月，同步接受「簡樸房」認證申請。
-   <br/>
-   <br/>
-   規管對象是位於住宅樓宇或綜合用途大廈的住用部分分間單位，而工廈、商廈、非法建築物內的劏房本身就屬於違規，相關部門會繼續巡查執管。
-   <br/>
-   <br/>
-   除了面積不少於8平方米，「簡樸房」亦設有高度要求，樓面量度至天花不少於2.3米，要符合消防安全要求，要有獨立廁所，但容許是「黑廁」，如需明火煮食，需要有符合防火要求的獨立圍封廚房，另外亦要獨立水錶、電錶。
-   <br/>
-   <br/>
-   劏房登記期結束後，當局會因應情況決定採取執法行動的時機，政府強調執法行動不能操之過急，必須按部就班，以免引起基層住戶恐慌甚至流離失所，亦會按需要提供搬遷協助。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774983-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774983-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 16:05:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜打擊濫用公屋獎賞三千元　當局稱重視鄰里關係
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774985-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <br/>
-  <div class="itemFullText">
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774985-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774985-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 16:09:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜陳茂波：鼓勵探索更多電子支付應用場景
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774989-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <br/>
-  <div class="itemFullText">
-   施政報告提出，政府繼續推動央行數碼貨幣、移動支付、虛擬銀行、虛擬保險及虛擬資產交易等創新金融服務。
-   <br/>
-   <br/>
-   財政司司長陳茂波表示，金管局透過「多種央行數碼貨幣跨境網絡」（mBridge）項目作跨境結算，仍在初步探索相關應用場景。他提到，本港已有不同電子錢包，信用卡、轉數快、八達通等交易亦相當方便，認為零售層面上的競爭激烈，政府會鼓勵探索更多應用場景，但最終仍要交由市場決定。
-   <br/>
-   <br/>
-   他又表示，發展低空經濟方面已委任財政司副司長黃偉綸統籌跨部門工作，相信低空經濟不單止在無人機表演，在其他場景亦有成功的例子，只要小心謀劃相信會做得好。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774989-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774989-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 16:16:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      施政報告2024｜陳茂波稱放寬措施冀市民對後市有正面預期
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774990-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <br/>
-  <div class="itemFullText">
-   物業按揭成數上限昨日起放寬至劃一為七成；供款與入息比率劃一為五成。財政司司長陳茂波表示，希望可減低對市民正常樓宇買賣的影響，同時希望大家對後市有正面的預期。
-   <br/>
-   <br/>
-   陳茂波在記者會解釋表示，樓價由2021年9月至今，下調超過20%，交投量過去一段時間較淡靜，未來一手樓供應較充足，未來3至4年一手樓供應大約10萬8千個單位，因此沒有需要引入當年的措施。在新安排下，可方便市民無論自住、收租，以私人名義或公司名義置業，也可恢復正常市場情況處理。
-   <br/>
-   <br/>
-   另外，金管局及銀行公會早前成立「中小企融資專責小組」，陳茂波表示，至今接獲的個案，主要是由溝通問題引起，中小企若遇到困難，專責小組樂意協助。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774990-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774990-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 16:19:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      勞工處稱中高齡人士就業有優勢　再就業津貼亦令僱主受惠
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774991-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <br/>
-  <div class="itemFullText">
-   勞工處早前推出「再就業津貼試行計劃」。勞工處副處長何錦標表示，計劃推行約3個月，已經有超過2萬名參加者，中高齡人士於就業方面有很大優勢，相信有關計劃亦可以令僱主受惠，達相輔相承效果。
-   <br/>
-   <br/>
-   勞工處一連兩日於灣仔修頓場館舉行「再就業津貼試行計劃」招聘會。現場所見，吸引不少合資格人士到場，不同攤位都有人了解就業空缺。有參加者出席活動的分享會，表示於年初被公司栽員，透過計劃再投入職場，形容是新開始，亦能在工作中獲得滿足感。
-   <br/>
-   <br/>
-   為期兩日的招聘會共有近60間機構參加，合共提供超過2500個不同行業的全職或兼職空缺，包括零售、飲食、酒店、製造及運輸業。任何可在港合法受僱的40歲或以上香港居民，並已連續3個月或以上沒有從事任何獲酬工作，均可參加再就業計劃；若參加者連續完成6個月全職工作，可獲發1萬元津貼，連續完成12個月全職工作，則可再獲發1萬元津貼。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774991-20241017.htm" rel="nofollow">
-    https://news.rthk.hk/rthk/ch/component/k2/1774991-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 16:22:00 +0800
-     </pubdate>
-    </item>
-    <item>
-     <title>
-      恒指力守20000點收市　全日跌207點
-     </title>
-     <link/>
-     https://news.rthk.hk/rthk/ch/component/k2/1774987-20241017.htm
-     <description>
-      <![CDATA[<html>
- <body>
-  <img alt="港股由升轉跌，連跌4個交易日，恒生指數一度失守2萬點關口。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=15&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774987_1_20241017163228.jpg" style="width:100%;height:auto"/>
-  <br/>
-  <div class="itemFullText">
-   港股由升轉跌，連跌4個交易日，恒生指數一度失守2萬點關口，低見19977點，最多曾跌近310點，收市報20079點，跌207點，跌幅1.02%，主板成交額近1913億元，連續6日下滑。
-   <br/>
-   <br/>
-   科技指數跌約1.2%，ATMXJ個別發展，美團跌近2%，小米升近2%。
-   <br/>
-   <br/>
-   住建部等部委就房地產市場召開發布會，內房股受到的支持有限，龍湖集團跌近14%，華潤置地和中海外跌近6%至近7%，是表現最差的3隻藍籌股。融創中國折讓20%配股集資，股價急跌27%。
-   <br/>
-   <br/>
-   上日造好的本地地產股多數回吐，恒隆地產跌逾4%，新世界發展跌逾3%。內銀股下跌，公用股靠穩。
-   <br/>
-   <br/>
-   翰森製藥升逾3%，是表現最好的恒指成份股。
-  </div>
-  <br/>
-  <hr/>
-  <p>
-   原始網址 Original URL：
-   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774987-20241017.htm" rel="nofollow">
+   </link>
+  </image>
+  <language>
+   zh-HK
+  </language>
+  <webMaster>
+   webmaster@rthk.hk
+  </webMaster>
+  <item>
+   <title>
+    恒指力守20000點收市　全日跌207點
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1774987-20241017.htm
-   </a>
-  </p>
-  <p>
-   © rthk.hk
-  </p>
-  <p>
-   電子郵件 Email:
-   <a href="mailto:cnews@rthk.hk" rel="nofollow">
-    cnews@rthk.hk
-   </a>
-  </p>
- </body>
-</html>]]>
-     </description>
-     <pubdate>
-      Thu, 17 Oct 2024 16:26:00 +0800
-     </pubdate>
-    </item>
-   </channel>
-  </rss>
- </body>
-</html>
+   </link>
+   <description>
+    <![CDATA[<img alt="港股由升轉跌，連跌4個交易日，恒生指數一度失守2萬點關口。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=15&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774987_1_20241017163228.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 港股由升轉跌，連跌4個交易日，恒生指數一度失守2萬點關口，低見19977點，最多曾跌近310點，收市報20079點，跌207點，跌幅1.02%，主板成交額近1913億元，連續6日下滑。
+ <br>
+  <br/>
+  科技指數跌約1.2%，ATMXJ個別發展，美團跌近2%，小米升近2%。
+  <br/>
+  <br/>
+  住建部等部委就房地產市場召開發布會，內房股受到的支持有限，龍湖集團跌近14%，華潤置地和中海外跌近6%至近7%，是表現最差的3隻藍籌股。融創中國折讓20%配股集資，股價急跌27%。
+  <br/>
+  <br/>
+  上日造好的本地地產股多數回吐，恒隆地產跌逾4%，新世界發展跌逾3%。內銀股下跌，公用股靠穩。
+  <br/>
+  <br/>
+  翰森製藥升逾3%，是表現最好的恒指成份股。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774987-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774987-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 16:26:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    勞工處稱中高齡人士就業有優勢　再就業津貼亦令僱主受惠
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774991-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<br/>
+<div class="itemFullText">
+ 勞工處早前推出「再就業津貼試行計劃」。勞工處副處長何錦標表示，計劃推行約3個月，已經有超過2萬名參加者，中高齡人士於就業方面有很大優勢，相信有關計劃亦可以令僱主受惠，達相輔相承效果。
+ <br>
+  <br/>
+  勞工處一連兩日於灣仔修頓場館舉行「再就業津貼試行計劃」招聘會。現場所見，吸引不少合資格人士到場，不同攤位都有人了解就業空缺。有參加者出席活動的分享會，表示於年初被公司栽員，透過計劃再投入職場，形容是新開始，亦能在工作中獲得滿足感。
+  <br/>
+  <br/>
+  為期兩日的招聘會共有近60間機構參加，合共提供超過2500個不同行業的全職或兼職空缺，包括零售、飲食、酒店、製造及運輸業。任何可在港合法受僱的40歲或以上香港居民，並已連續3個月或以上沒有從事任何獲酬工作，均可參加再就業計劃；若參加者連續完成6個月全職工作，可獲發1萬元津貼，連續完成12個月全職工作，則可再獲發1萬元津貼。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774991-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774991-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 16:22:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜陳茂波稱放寬措施冀市民對後市有正面預期
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774990-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<br/>
+<div class="itemFullText">
+ 物業按揭成數上限昨日起放寬至劃一為七成；供款與入息比率劃一為五成。財政司司長陳茂波表示，希望可減低對市民正常樓宇買賣的影響，同時希望大家對後市有正面的預期。
+ <br>
+  <br/>
+  陳茂波在記者會解釋表示，樓價由2021年9月至今，下調超過20%，交投量過去一段時間較淡靜，未來一手樓供應較充足，未來3至4年一手樓供應大約10萬8千個單位，因此沒有需要引入當年的措施。在新安排下，可方便市民無論自住、收租，以私人名義或公司名義置業，也可恢復正常市場情況處理。
+  <br/>
+  <br/>
+  另外，金管局及銀行公會早前成立「中小企融資專責小組」，陳茂波表示，至今接獲的個案，主要是由溝通問題引起，中小企若遇到困難，專責小組樂意協助。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774990-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774990-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 16:19:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜陳茂波：鼓勵探索更多電子支付應用場景
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774989-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<br/>
+<div class="itemFullText">
+ 施政報告提出，政府繼續推動央行數碼貨幣、移動支付、虛擬銀行、虛擬保險及虛擬資產交易等創新金融服務。
+ <br>
+  <br/>
+  財政司司長陳茂波表示，金管局透過「多種央行數碼貨幣跨境網絡」（mBridge）項目作跨境結算，仍在初步探索相關應用場景。他提到，本港已有不同電子錢包，信用卡、轉數快、八達通等交易亦相當方便，認為零售層面上的競爭激烈，政府會鼓勵探索更多應用場景，但最終仍要交由市場決定。
+  <br/>
+  <br/>
+  他又表示，發展低空經濟方面已委任財政司副司長黃偉綸統籌跨部門工作，相信低空經濟不單止在無人機表演，在其他場景亦有成功的例子，只要小心謀劃相信會做得好。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774989-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774989-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 16:16:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜打擊濫用公屋獎賞三千元　當局稱重視鄰里關係
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774985-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="政府表示，日後的舉報要實名進行，並在當局成功發出收樓通知書才是成功舉報。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774985_1_20241017165816.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 為打擊濫用公屋，房委會明年1月會推出「善用公屋資源獎勵計劃」，為提供確切情報舉報濫用公屋的人士提供獎賞，找出更多濫用個案。
+ <br>
+  <br/>
+  房屋局常任秘書長羅淑佩表示，以往涉及濫用公屋的調查並不容易，透過舉報較容易找到線索和證據作調查，命中率會較高。她說，獎勵計劃會參考好市民獎、大約3000元獎勵，供房委會考慮。羅淑佩強調，日後的舉報要實名進行，並在當局成功發出收樓通知書才是成功舉報，以防有人濫報該計劃，又或因鄰里問題而舉報。如果涉及一個單位但有多人舉報，就會由首長級主持會議，審視個案決定。
+  <br/>
+  <br/>
+  另外，房委會將收緊公屋富戶政策，提高富戶額外租金及降低富戶入息限額，同時將居屋綠白表比例由現時金比六調整至五比五。房屋局局長何永賢表示，目前有富戶繳付現有租金一點半或兩倍的租金，即4000至5000元水平，比較面積及地點等因素，有意見認為與私人市場相比是偏低。另外，以4人家庭為例的入息限額為每月15萬多元，有意見認為，如要購買居屋是可負擔得起，認為要思考回復至公營房屋初心，協助低下階層，並鼓勵變得有能力的人士向上流。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774985-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774985-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 16:09:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜最快明年第四季劏房登記並接受簡樸房認證申請
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774983-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="在完成立法程序後，最快明年第四季開始為現有劏房進行登記，建議為期12至18個月，同步接受「簡樸房」認證申請。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774983_1_20241017161325.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 新一份施政報告提出以立法方式處理劏房問題，符合標準的單位將名為「簡樸房」，預料今年12月至明年2月開展諮詢，爭取在明年內通過法例，在完成立法程序後，最快明年第四季開始為現有劏房進行登記，建議為期12至18個月，同步接受「簡樸房」認證申請。
+ <br>
+  <br/>
+  規管對象是位於住宅樓宇或綜合用途大廈的住用部分分間單位，而工廈、商廈、非法建築物內的劏房本身就屬於違規，相關部門會繼續巡查執管。
+  <br/>
+  <br/>
+  除了面積不少於8平方米，「簡樸房」亦設有高度要求，樓面量度至天花不少於2.3米，要符合消防安全要求，要有獨立廁所，但容許是「黑廁」，如需明火煮食，需要有符合防火要求的獨立圍封廚房，另外亦要獨立水錶、電錶。
+  <br/>
+  <br/>
+  劏房登記期結束後，當局會因應情況決定採取執法行動的時機，政府強調執法行動不能操之過急，必須按部就班，以免引起基層住戶恐慌甚至流離失所，亦會按需要提供搬遷協助。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774983-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774983-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 16:05:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    許正宇：與倫敦金屬交易所正進行溝通
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774981-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="許正宇稱，倫敦金屬交易所（LME）正從法律角度，評估是否認證香港為亞洲區內一個指定交貨點。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774981_1_20241017161302.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告內提出要建立大宗商品交易生態圈。
+ <br>
+  <br/>
+  財經事務及庫務局局長許正宇表示，倫敦金屬交易所（LME）正從法律角度，評估是否認證香港為亞洲區內一個指定交貨點。當得到認證後，倉儲公司可以考慮或選擇在香港建立倉庫，令倉庫內進出的有色金屬符合交易合約要求。
+  <br/>
+  <br/>
+  許正宇說，倫敦金屬交易所是否認證香港由對方決定，但雙方有進行溝通，亦透過投資推廣署提供資料及協助。
+  <br/>
+  <br/>
+  財政司司長陳茂波指出，不一定要重新建立倉儲設施，只要設施符合要求，現有合適庫亦可以使用。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774981-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774981-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 16:01:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    MIRROR演唱會案　控方指屏幕連設備5萬磅較申報超重逾4倍
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774980-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="承辦商3名職員涉嫌向康文署虛報設備重量，3人否認串謀欺詐等罪。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774980_2_20241017160630.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 前年MIRROR演唱會發生舞台電視屏幕墮下事故，2名舞蹈員受傷，分別頸部及盆骨骨折。工程總承辦商藝能工程及延伸公司的3名職員，涉嫌向康文署虛報設備重量，3人否認串謀欺詐等罪，案件在區域法院開審。
+ <br>
+  <br/>
+  控方開案陳詞指，藝能先後兩次向康文署遞交懸吊設備負重表，報稱設備總重量約1.2萬磅、涉案電視屏幕重600磅，但電視屏幕實際重量超過400公斤，設備總重量達5萬磅，超重超過4.2倍。
+  <br/>
+  <br/>
+  3名被告中，吳凱瑩、林志華是藝能的項目經理；梁耀祖是廣域策劃有限公司的項目經理，負責計算和檢查場地天花負重。
+  <br/>
+  <br/>
+  開案陳詞提到，康文署、大國文化及藝能在演唱會舉行會面，署方要求提供負重表及索具裝配圖，吳凱瑩隨後發放多份相關文件，康文署將圖表轉發工程顧問審核結構安全。
+  <br/>
+  <br/>
+  事故前6天，藝能再發送文件，提到會在場館天花懸掛6部電視屏幕及8個喇叭，前者重量共3600磅，後者重量共1600磅。顧問公司審視後認為沒有超重，實地視察後發出證明書。
+  <br/>
+  <br/>
+  根據吳凱瑩同年5月發送給電視屏幕供應商的通訊軟件訊息，每部電視屏幕的重量至少約435公斤。藝能的文件亦顯示，10項懸吊裝置實際重量超過5萬磅，超重約4.2倍。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774980-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774980-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 15:56:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜茅台集團指減烈酒稅推動茅台更高質量走向世界
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774978-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="茅台集團表示，香港作為內地連接世界的重要窗口，是茅台走向國際化的橋頭堡。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774978_1_20241017155840.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 新一份施政報告宣布，進口價200元以上的烈酒，200元以上部分的稅率由100%減至10%。茅台集團表示，香港地區下調白酒關稅，對集團國際化進程無疑存在重要影響，後續將結合有關政策，因地制宜，因時制宜盡快制定並完善市場方案，推動茅台更高質量走向世界。
+ <br>
+  <br/>
+  茅台集團回覆本台查詢時表示，集團對國際化的重視由來已久，目前茅台產品已經銷往全球64個國家和地區，去年出口額超過43億元人民幣，佔中國白酒出口額77%。作為內地連接世界的重要窗口，香港是茅台走向國際化的橋頭堡，也是茅台重點耕耘市場，對於茅台國際化建設至關重要。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774978-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774978-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 15:43:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜黃偉綸：處理劏房問題不能操之過急須有序推進
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774977-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="黃偉綸表示，處理劏房問題不能操之過急須有序推進。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774977_1_20241017154756.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 財政司副司長黃偉綸說，本屆政府推出多項提量、提速、提效、提質措施，大幅提升房屋供應，覓得足夠土地提供公營房屋單位，滿足長遠需求，加上3萬個簡約公屋、2.1萬個過渡房屋單位，填補公營房屋短期供應缺口，合資格市民可以更快上樓，當局更有底氣逐步處理劣質劏房這個老大難問題。
+ <br>
+  <br/>
+  黃偉綸在施政報告記者會表示，全港有大約11萬劏房戶，涉及約22萬名居民，處理劣質劏房時不能操之過急，要穩慎有序，配合公營房屋供應步伐，小心部署，讓相關業主和住戶有足夠時間安排，避免引起居民混亂恐慌，甚至流離失所。
+  <br/>
+  <br/>
+  黃偉綸指出，施政報告宣布以立法方式制定住宅樓宇分間單位出租制度，合乎標準的單位命名為「簡樸房」，法例訂明最低標準，包括面積、樓底高度、消防、通風、衞生、獨立水電錶等要求，不符合標準的單位必須改建，由專業人士確認並申請認證。當局亦會設立登記制度和設立寬限期，讓業主有時間進行工程和申請認證，新進入市場的分間單位，必須申請認證才能出租。
+  <br/>
+  <br/>
+  他強調當局會以務實、以民為本的方向，配合市場新供應和公營房屋供應和政策，在登記期結束後，按部就班有序推進執法行動，逐步取締劣質劏房，直至清零。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774977-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774977-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 15:41:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    外交部：香港未來會更好　歡迎各國把握機遇共享繁榮
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774976-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="毛寧：香港的未來會更好，歡迎各國工商界人士把握機遇，共享繁榮。（外交部網站）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774976_1_20241017154726.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在北京，外交部發言人毛寧說，香港回歸以來，國際金融航運貿易中心的地位穩固，保持自由開放和世界一流的營商環境，持續被眾多的國際機構，評選為全球最自由經濟體和最具競爭力的地區之一，充分反映國際社會對香港獨特地位優勢，以及「一國兩制」發展前景的高度認同。
+ <br>
+  <br/>
+  在外交部例行會，毛寧回應有關香港在《世界經濟自由度 2024 年度報告》的165個經濟體中，獲評為全球最自由經濟體的提問時說，香港的未來會更好，歡迎各國工商界人士把握機遇，共享繁榮。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774976-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774976-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 15:34:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜籌備新醫學院工作組擬今年內邀有意者提交建議
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774975-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="政府宣布成立「籌備新醫學院工作組」，負責制定新醫學院的方向及準則。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774975_1_20241017154647.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告提出，支持本地大學籌建第三所醫學院。政府宣布成立「籌備新醫學院工作組」，負責制定新醫學院的方向及準則，並打算在今年內邀請有意開設新醫學院的本地大學提交建議書，以從中選出合適的大學，落實籌備第三所醫學院。
+ <br>
+  <br/>
+  醫務衞生局局長盧寵茂表示，期望新醫學院採取與現時兩所醫學院錯位發展的創新策略定位，包括在醫學課程、收生來源以至研究項目等。他說，工作組在審視大學的建議時將全面考慮多方面的因素，包括醫學院的策略定位、課程設計、收生安排、教學和培訓人手供求、設施、所需財政資源等。
+  <br/>
+  <br/>
+  當局設定工作組三大職權範圍，包括制定設立新醫學院的方向和準則，以及評核本地大學提交的新醫學院建議書的標準；與有意成立新醫學院的本地大學溝通，邀請他們提交建議書並進行評估，就設立新醫學院及相關安排向行政長官會同行政會議提出建議，以及與獲選成立新醫學院的大學就實施計劃保持溝通，並與當局協商，就指定校舍和教學醫院的臨時和長遠安排提供便利。
+  <br/>
+  <br/>
+  工作組聯席主席由教育局局長與醫務衞生局局長出任，成員包括現任香港醫務委員會主席鄧惠瓊、現任香港醫學專科學院主席梁嘉傑、前中大校長沈祖堯等6名專家顧問，另外有多個政策局的代表。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774975-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774975-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 15:32:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    休班警承認無牌及不小心駕駛九項罪名被判罰款及社會服務令
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774973-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="法庭認為，31歲被告余佳炳有悔意，再重犯機會低。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774973_1_20241017152303.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 一名警員休班期間多次無牌駕駛私家車，今年2月在觀塘駕駛時失控撞向行人過路處，其後棄車而逃，他早前承認無牌駕駛及不小心駕駛等9項罪名，今日在觀塘裁判法院被判罰6000元及200小時社會服務令。
+ <br>
+  <br/>
+  裁判官蘇惠德判刑時表示，報告內容正面，顯示31歲被告余佳炳有悔意，再重犯機會低，考慮被告認罪，已就撞欄損毀的物品作出賠償，感化官亦認為被告有深刻的反省及良好品格，判處4項無牌駕駛罪各判1000元罰款、1項不小心駕駛罪判2000元罰款、4項駕駛時沒有第三者保險罪判200小時社會服務令。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774973-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774973-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 15:23:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    本港暫停從意大利兩個省進口禽肉及禽類產品
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="中心指示業界暫停意大利倫巴第大區布雷西亞省和克雷莫納省進口禽肉，及包括禽蛋的禽類產品。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774971_1_20241017154605.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 食物安全中心宣布，因應世界動物衞生組織通報，指意大利倫巴第大區布雷西亞省和克雷莫納省爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉，及包括禽蛋的禽類產品。
+ <br>
+  <br/>
+  中心發言人說，根據政府統計處的資料，本港今年首6個月從意大利進口約40公噸冷藏禽肉及約1萬隻禽蛋。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 14:56:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    4款慳電膽1款洗衣機3款電磁爐能源效益不符標示需停售
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="機電署將4款慳電膽、1款洗衣機及3款電磁爐從表列型號紀錄冊中剔除。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774970_1_20241017154537.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 機電署根據《能源效益（產品標籤）條例》，將4款慳電膽、1款洗衣機及3款電磁爐從《條例》訂明的表列型號紀錄冊中剔除，即日起不得在本港供應。
+ <br>
+  <br/>
+  慳電膽進口商是麗影有限公司，品牌分別為陽光、Smart Design和佳之選；洗衣機進口商為譽力電業貿易有限公司，品牌是湯笙；電磁爐進口商有金樂電器有限公司、高端有限公司和億世集團有限公司，涉及品牌為金樂、ASKO和ecHome。
+  <br/>
+  <br/>
+  機電署表示，由於上述8個型號産品的測試結果未達相關的能源效益或功能特性表現，決定從紀錄冊中剔除。署方已向相關進口商發出通知書，進口商會於報章刊登通告，通知巿民有關產品會停止在本港供應。公眾如有查詢，請與進口商聯絡。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 14:52:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜許正宇：本港現有黃金倉儲容量接近飽和
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774969_1_20241017161444.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告提出，建立國際黃金交易市場和國際級黃金倉儲設施。
+ <br>
+  <br/>
+  財經事務及庫務局局長許正宇表示，本港現有的黃金倉儲已接近飽和，認為近年地緣政治等因素令黃金需求顯著增加，期望本港黃金交易市場能由現時本地層面，提升至國際水平。
+  <br/>
+  <br/>
+  他指出，財庫局爭取於年底前成立工作小組，就建立黃金交易市場的具體方向和措施作籌備工作，小組將由政府、監管機構、市場人士及整條黃金產業價值鏈的代表參與，以更全面接收市場訊息和意見。
+  <br/>
+  <br/>
+  許正宇表示，現時國際黃金交易量三分天下，分別為英國、紐約和上海，留意到不同機構有興趣在香港設立倉儲設施，反映現有政策和條件相對吸引，下一步希望將需求和供應匯聚。
+  <br/>
+  <br/>
+  至於於黃金產品納入互聯互通，許正宇說，股票通等互聯互通已發展成熟，相對下黃金納入互聯互通會在較後位置，香港要先做好自身工作，才能考慮與其他地方一起發展。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 14:42:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜陳茂波：減烈酒稅促進相關貿易及高端行業活動
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="陳茂波說，減烈酒稅目標是發展烈酒貿易，促進餐飲旅遊高消費行業活動。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774968_1_20241017143855.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 財政司司長陳茂波說，施政報告宣布減烈酒稅政策目標是發展烈酒貿易，促進餐飲旅遊高消費行業活動，會造成相連效益，業界有作出相關拆算，當局會跟進評估，相信影響正面。
+ <br>
+  <br/>
+  陳茂波在記者會提到，參考當年取消葡萄酒稅經驗，進口的紅酒價值升超過300%，但銷量只是增加雙位數字，促進高價值紅酒貿易的效用是明顯。當年取消了葡萄酒稅後，市民飲紅酒最初是增加了，但之後逐步回落，到個別年度更出現負增長，直至去年人均飲酒量與撤銷葡萄酒稅時差不多，政府會參考有關經驗，密切留意。
+  <br/>
+  <br/>
+  商務及經濟發展局局長丘應樺表示，高價烈酒佔市場15%，量不算多，但當局對烈酒貿易量增長則有樂觀估算，但增長不會一下子。至於進口烈酒增加或引致的物流、存倉成本，相信貿易量增加帶來的效益遠多於相關成本增幅。他表示，減烈酒稅會帶動物流和儲庫、旅遊和高端餐飲消費等高增值產業發展。
+  <br/>
+  <br/>
+  由昨日起，進口價200元以上的烈酒，當中200元以上部分的稅率，由100%大幅減至10%；至於200元及以下的部分，以及進口價在200元或以下的烈酒，稅率則維持不變。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 14:37:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜許正宇稱優化上市批核流程細節本周公布
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="許正宇表示。優化上市批核流程細節本周公布。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774963_1_20241017143158.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 財經事務及庫務局局長許正宇提到，證監會和港交所將優化上市批核流程，令上市申請審批時間更有確定性，相關細節安排本周內公布。
+ <br>
+  <br/>
+  他在施政報告記者會上說，財庫局重點政策措施圍繞三大範疇，包括強化香港國際資產及財富管理中心、國際風險管理中心雙重地位；持續優化互聯互通機制、強化香港作為最大離岸人民幣國際樞紐角色；以及積極拓展和深化海外網絡。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 14:21:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜陳茂波稱物業七成按揭已考慮樓價成交量等因素
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774960_1_20241017143000.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告昨日宣布，放寬物業按揭成數上限至劃一至七成，供款與入息比率上限劃一至五。財政司司長陳茂波表示，是參考了一籃子因素，包括樓價走勢、成交量、未來供應、本地經濟、外圍環境，而繼續維持銀行體系穩定的前提下，有空間將按揭成數回復至2009前水平。
+ <br>
+  <br/>
+  陳茂波在施政報告措施記者會表示，樓市今年以來大部分表現疲弱，但美國減息後，樓價有回穩跡象，交投量稍為回暖。股市方面，9月下旬以來顯著改善，美國減息及中央一系列支持措施，明顯振提市場氣氛。
+  <br/>
+  <br/>
+  陳茂波預料本港經濟在今年餘下時間繼續保持增長，美國進入減息周期，本港同時減息，可降低營商成本。內地經濟可望穩定增長，對私人消費亦有支持作用。
+  <br/>
+  <br/>
+  他又提到近日港股的淨買入，資金來源不少來自美國及歐洲投資者，當中九成來自長期基金經理或投資銀行，可見歐美投資者對香港及內地市場感興趣，只是一直等待時機入市，現在只是付諸行動。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 14:13:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜港澳辦：感受到銳意改革奮發進取造福民眾
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="港澳辦指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774955_1_20241017130054.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 國務院港澳辦發表的文章表示，行政長官李家超發表任內第三份施政報告，香港社會和國際社會高度關注並積極評論。從這份報告的豐富內容和各方面的熱烈反應中，可以感受到特區政府銳意改革、奮發進取、造福民眾的堅定信念和堅實行動。
+ <br>
+  <br/>
+  文章中指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能；致力為民幸福，彰顯責任擔當。
+  <br/>
+  <br/>
+  港澳辦表示，相信香港社會各界團結一致，以實際行動全力支持特區政府依法施政，美好願景必將變為輝煌現實。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:53:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超：向中央爭取政策希望盡快「瓜熟蒂落」
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774954-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超說，向中央爭取任何政策，都希望實事求是。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774954_1_20241017125541.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超出席立法會施政報告答問會。
+ <br>
+  <br/>
+  有議員希望，可盡快恢復深圳「一簽多行」和增加「一周一行」試點城市的政策，以幫助本港零售、飲食等業界。
+  <br/>
+  <br/>
+  李家超說，向中央爭取任何政策，都希望實事求是，很多探討中的事宜都不適合公開，但他希望盡快「瓜熟蒂落」。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774954-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774954-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:46:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱改革目的要明白「立甚麼」「破甚麼」
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超指出，改革是為了結果的提升，並非為改而改。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774953_1_20241017125457.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超在立法會施政報告答問會上重申，世界百年未有大變局正加速演進，香港亦處於關鍵經濟轉型期，又說改革只有進行時，沒有完結時，改革是為了結果的提升，並非為改而改，只講顛覆或只求推倒重來，是忘記了改革目的，必須要明白「立甚麼」、「破甚麼」，要因地制宜，張弛有道及拿捏得當。
+ <br>
+  <br/>
+  李家超說，改革要整個社會一起參與和推進，行政立法機關有帶領社會改革的角色。在要求他人改革的同時，更重要是從自身開始，自我革新，自我識變、應變和求變，亦是他將「齊改革、同發展」定為施政報告重點方向的原因和期望。
+  <br/>
+  <br/>
+  他期望這份施政報告在立法會充分討論後，能獲得議員支持。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:43:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超：政府會在18區搞打卡點　商戶要革新
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774952-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超表示，政府會在18區搞「打卡點」，呼籲商戶也要自我革新、「度橋」求變。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774952_1_20241017125520.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超表示，阻止港人離港消費是不切實際亦不應該，要認識市民北上消費習慣的轉變，是結構性不是周期性，政府會在18區搞「打卡點」，呼籲商戶也要自我革新、「度橋」求變。
+ <br>
+  <br/>
+  李家超又強調，啟德體育園是香港的機遇及亮點，不可浪費這個可容納5萬人的場地，如何安排活動，政府會有參與，不是放手不理。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774952-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774952-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:40:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜狄志遠指市民乏歸屬感　特首稱建關愛共融社會
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="狄志遠（左）指出，不少市民對社會缺乏歸屬感，對社會參與的積極性低；李家超（右）不同意見可以討論，政府亦願意聽。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774951_1_20241017125041.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行長官李家超出席立法會施政報告答問會，議員狄志遠關注香港的貧富差距越來越大，不少市民對社會缺乏歸屬感，對社會參與的積極性低，詢問特首會否擔心社會缺乏包容性的現象，從而影響香港的經濟發展。
+ <br>
+  <br/>
+  李家超表示，施政報告提出建立關愛共融社會是政策目標，社會對於事物有不同看法是正常，不同意見可以討論，政府亦願意聽。他又說，記者會的問題很尖銳，政府一一解答，有些是善意告誡，有些是尖銳批評，有些變成施政報告中一些措施，因此是很開放包容。
+  <br/>
+  <br/>
+  他又說，香港被評為世界上最自由的經濟體，可以做任何經濟活動，亦反映有合理的法律保障，這些保障就是給予最大的自由，亦是他希望建立的香港。
+  <br/>
+  <br/>
+  他說大家提出意見，特別在愛國者治港原則下，做一些共同讓香港有建設性的項目。他認為過程中有批評是正常，而更重要是求同存異。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:31:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超：會有措施協助受取締劏房影響住戶
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774950-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超表示，會有措施協助受取締劏房影響的住戶，不希望他們無家可歸。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774950_1_20241017125115.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超表示，針對出租不合標準劏房單位的刑罰要具阻嚇力，希望至少要2至3年監禁。他說，會有措施協助受取締劏房影響的住戶，不希望他們無家可歸。
+ <br>
+  <br/>
+  李家超又提到，會繼續研究以強積金供款協助青年儲首期置業，至於撤銷青年申請居屋的資產審查，他擔心會加劇資助出售房屋供不應求的情況。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774950-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774950-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:28:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超強調重視培育技術能力及知識競爭力
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超說，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=95&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774949_1_20241017125007.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告答問會早上在立法會舉行，工聯會議員吳秋北表示，本港勞動人口有減少和老化趨勢，關注報告提出加大培訓力度、鼓勵非本地畢業生留港等措施，對緩解勞動力的結構問題的作用。
+ <br>
+  <br/>
+  行政長官李家超說，年青勞動力下降是本港整體人口老化的現象，輸入勞工是針對短期問題，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力，今次政策重點是改革僱員再培訓局，並推出兩個地方讓有經驗勞工團隊作工業培訓，認為培訓要邁向全民化，15歲或以上市民就可參與，並以技術為本，因為有技能的人更容易轉變工作。
+  <br/>
+  <br/>
+  選委會議員何敬康關注，未來有何對策處理體育基本設施建設和場地分配。李家超表示，去年和今年的施政報告要延續性一起看，在場地提供方面，已經羅列整個計劃，當局投放在體育方面的資源很多，但更重視是否達到最好效果。他提到港協暨奧委會很快公布體系管治方面的結果，稍後再與文體旅局商討如何盡善盡美。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:27:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超指大宗商品交易從低點做起需時達至高點
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774948_1_20241017124929.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告提出要建立國際黃金交易市場及大宗商品交易圈，行政長官李家超到立法會出席施政報告答問會時表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫，有了倉庫就可以推動買賣。他指出，香港這個領域從一個低點起步，要到達高點是需要長時間，業界指出用5年至10年時間，可以做到百分之三十的大宗商品市場。
+ <br>
+  <br/>
+  另外，李家超說，香港在教育方面十分有優勢，是全球唯一擁有5間世界百強大學的城市，其他有著名大學的地區都是以整個國家計算，特區政府會致力推廣「留學香港」品牌。
+  <br/>
+  <br/>
+  他又說，啟德體育園是一個非常重要的工程，要確保開幕暢順，同時在整體配套、人流管理、處理突發事件方面都做得好，相信啟德體育園將會是讓香港再創高峰的新地標。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:22:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    港股半日升近1%
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="恒指中午收市報20460點，升174點，升幅0.86%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=1&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774946_1_20241017124458.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 港股今早上升，恒生指數早段曾升近500點，中午收市報20460點，升174點，升幅0.86%。主板半日成交約1077億元。
+ <br>
+  <br/>
+  科技指數半日升約1.4%。
+  <br/>
+  <br/>
+  另外，本地地產股普遍向好，其中恒地半日升逾2%。
+  <br/>
+  <br/>
+  內房股就有沽壓。龍湖集團半日跌近9%。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:15:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超指在有限資源下需提升公營醫療服務效益
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超表示，醫衞局除內部制度優化，亦希望在公私營合作上做得更暢順，並期望在大灣區合作上擴容。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774945_1_20241017123502.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告答問會早上在立法會舉行，議員林素蔚關注，報告中提出設立跨專科綜合門診的相關安排。
+ <br>
+  <br/>
+  行政長官李家超說，政府每年在醫療支出非常龐大，佔整體開支約兩成，在有限資源下需要提升公營服務的效益。跨專科統籌是指如果當有一名有泌尿科、心臟科和腎科問題的病人，屆時只需要看一個專科。醫衞局將在記者會或立法會交代技術性問題。除了內部制度優化，亦希望在公私營合作上做得更暢順，亦期望在大灣區合作上擴容。
+  <br/>
+  <br/>
+  工業界議員吳永嘉就關注，當局會否將工業旅遊列入旅遊熱點。李家超表示，多年前去過日本，參觀車廠的機械人裝車，當時很少地方有相關環節，印象非常深刻，本港工業絕對有優勢，期望生產力局加強宣傳。
+  <br/>
+  <br/>
+  李家超提到，「發展旅遊熱點工作組」由政務司副司長統籌，以加速或輔助相關工作，但強調責任仍在文體旅局方面。他又說，本港有非常好體系，包括18區民政專員是最了解當區吸引力，例如九龍城有一流食肆，應否發展為美食村，呼籲議員除了給予意見，亦要共同參與，因為大家都是建設者，不是評論員。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 12:09:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱推動留學本港是具吸引力金漆招牌
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超認為，DSE有認受性亦很優質，現時目標群是吸引外地大學生或專上教育學生來港。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774938_1_20241017121217.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 在立法會的施政報告答問會上，選委會議員郭玲麗表示，中學文憑試是國際承認的考試中最尊重中文和中國文化的考試，關注當局有何措施和方法推廣DSE國際化。
+ <br>
+  <br/>
+  行政長官李家超說，要多元化推動本港作為國際高端人才集聚高地，因此設立「教育、科技和人才委員會」，由政務司司長擔任主席，背後理念是參考國家主席習近平在全國教育大會上發表的重要講話，自己深受啓發，亦非常認同和支持。
+  <br/>
+  <br/>
+  李家超表示，其中一個是推動留學本港的品牌，形容是很有吸引力的金漆招牌，而DSE有認受性亦很優質，但現時目標群是吸引外地大學生或專上教育學生來港，如果下一步希望更多人讀DSE課程，則要參考其他國際教育課程例如IB的成功之處，因為不同地方都有相關課程設計和教師等教育體系建設。
+  <br/>
+  <br/>
+  他認為，現階段要實事求是爭取最大成功和回報，因為其他地方未建立DSE相關教育體系，仍需要時間，當有更多外地學生來港讀書，就會增加宣傳效益，形容如果到時「男有心、女有意」，可能會考慮同某些國家或地區合作建立體系，否則是有心無力，相信「教育、科技和人才委員會」將討論一系列問題。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 11:37:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱工作組多從需求角度發掘銀髮金融產品
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超說，政府非常重視養老事宜，「養老金融」亦都重要。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774937_2_20241017124811.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告提出，成立三個工作組及一個委員會以強化跨政策統籌工作，當中包括「促進銀髮經濟工作組」。
+ <br>
+  <br/>
+  李家超到立法會出席施政報告答問會時表示，政府非常重視養老事宜，「養老金融」亦都重要，因此施政報告有大量篇幅提及養老方面的工作。
+  <br/>
+  <br/>
+  李家超說，相關工作組由政務司副司長擔任組長，有五方面的工作，其中一方面正就是養老相關的財務方安排，現時一些退休金融產品推廣不足，工作組會多從需求角度發掘銀髮金融產品。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 11:28:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱向中央爭取政策　冀快些「瓜熟蒂落」
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774936_1_20241017112954.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 新一份施政報告提到，特區政府已向中央提出進一步優化內地居民來港旅遊簽注的請求，包括恢復深圳「一簽多行」個人遊簽注，以及擴大「一周一行」個人遊簽注政策試點城市範圍等，自由黨立法會議員邵家輝在立法會行政長官答問會提到，近期香港經濟比較疲弱，零售及飲食業面對新的轉型期，挑戰很大，關注是否有更多城市可以加入試點範圍，讓更多人來港，以及如何爭取中央盡快放寬。
+ <br>
+  <br/>
+  李家超說，充分體會到某些行業在經濟轉型期面對特別多挑戰，政府亦吸納了議員的意見，推出8項目措施幫助中小企。特區政府自走出疫情後，很多措施都很用心研究，亦非常感謝中央給予暢通渠道反映意見，而在政策推出的過程中，要克服很多困難，很多不同部委幫助香港解決不同需求，亦感謝中央對香港的關愛。
+  <br/>
+  <br/>
+  他表示，與中央溝通，爭取任何政策，希望實事求是，有很多探討的措施不適合公開，但希望快些「瓜熟蒂落」。他又說，交往最多的、以及交通最方便的城市都是可作採討。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 11:20:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱醫療及教育措施惠及所有市民包括中產
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超說，明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774933_1_20241017110258.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超出席施政報告聯合電台節目，有聽眾反映申請科研資助計劃的審批越來越慢，科研團隊亦要裁員，亦有市民關注施政報告並無惠及中產的措施。
+ <br>
+  <br/>
+  李家超說，對於關注資助項目申請手續時間性不符要求，會回去看看，他一向要求盡快處理，希望如有問題，可以反映。他明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產，醫療及教育措施，所有市民，包括中產亦會受惠。
+  <br/>
+  <br/>
+  李家超說，過渡房屋是臨時措施，歸根究底出現問題是整體房屋供應不足，因此上任後，政府提出提速、提效、提質及提量建屋，長遠來說，整體房屋供應該滿足到需求，因此政府有不同措施，其中簡約公屋有3萬個單位，在短期未有大量供應時作出填補。他相信在4年後，會有大量供應，以解決問題。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 11:02:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱北都區片區發展方式需視乎規模及用途
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774932_1_20241017105525.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超到立法會出席施政報告答問會。
+ <br>
+  <br/>
+  民建聯劉國勳關注，北部都會區3個試點片區的位置，如何令私人力量更加願意參與相關新發展模式。他又說，發展局早前發出通知，要求決策局和部門需採取便利發展及協同合作的思維，擔當促進者的角色，關注實際執行情況，包括有無具體措施令日後工程可加快及減低建造成本。
+  <br/>
+  <br/>
+  李家超說，北部都會區的片區試點，由於涉及不同考慮，會留待發展局交代，但指出，由於北都的發展超過10多年，只依靠政府的力量並不足夠，因此政府會用多元方法，按片區大小、性質等設定方案。
+  <br/>
+  <br/>
+  另外，李家超說，發展局下已成立專責小組，相關公告亦指出，每人在思維上都應有促進的責任。他形容自己是「心急人」，上任後當局已修訂一系列法例，縮短造地的時間。
+  <br/>
+  <br/>
+  他又說，近期的世界競爭力報告，香港特區政府的效率全球排第三，反映公務員都希望做到最好，發展局的公告希望在系統方面，不合部門之間磨合得更好。
+  <br/>
+  <br/>
+  勞工界議員周小松讚揚施政報告中的多項勞工政策，包括建議落實強積金全自由行等，但他關注當中未有提及落實為低收入人士代供強積金的落實方案和時間表。
+  <br/>
+  <br/>
+  李家超回應說，有關建議是上屆政府提出，目前勞工及福利局正在研究，他會與勞福局再作探討。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 10:55:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    誣衊露宿者藏毒6名警員妨礙司法公正判囚2年1個月至3年5個月
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774930-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="六名警員在區域法院分別被判監禁2年1個月至3年5個月。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774930_1_20241017105226.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 6名警員於2020年在深水埗通州街公園掃毒行動中涉誣衊露宿者藏毒，早前被裁定意圖妨礙司法公正罪成，今日被判監2年1個月至3年5個月。
+ <br>
+  <br/>
+  區域法院法官張潔宜判刑時表示，妨礙司法公正是嚴重罪行，如果警員涉及相關罪行，會令整個制度崩潰，破壞警方聲譽，更應嚴厲處理。案中各被告在各自的警員記事冊、證人供詞記錄虛假陳述，情節較其他同類罪行嚴重。
+  <br/>
+  <br/>
+  法官說，警方職責是保護市民生命及財產，在司法制度下擔當重要角色，市民對警隊有一定期望，各被告不但沒有履行職責，反而濫用職權，誣告無辜市民，行為令警隊蒙羞，令公眾對警隊的公正性失去信心，亦打擊公眾對司法制度的信心。
+  <br/>
+  <br/>
+  法官認為，各被告就部分控罪並非單獨行事，屬加刑因素。第五被告林華嘉作為案發現場最高級警員，理應有權限及責任監督隊員依法行事，但他反而參與犯案，刑責較其他被告重，但考慮到他極大可能失去長俸，審訊期間承受壓力，酌情減刑，總刑期監禁3年5個月。
+  <br/>
+  <br/>
+  第六被告莫志成、第七被告尹栢詩、第八被告陳守業分別判監3年1個月。第三被告梁飛鵬、第四被告龐雋詩判監2年1個月。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774930-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774930-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 10:52:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱繼續研究方法協助青年置業
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超說，已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774922_1_20241017094328.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超說，政府沒有放棄研究協助青年置業，他在電台聯播節目《行政長官施政答問》表示， 有聽眾來電說，不少青年置業是缺首期，建議讓市民動用強積金儲蓄作置業首期。
+ <br>
+  <br/>
+  李家超回應，當局初步研究認為，強積金始終是市民退休後生活保障，但現時沒有排除任何可能性，他已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮，例如儲錢後最終不買樓或儲不夠錢，應如何解決，當局會繼續研究。
+  <br/>
+  <br/>
+  有做裝修工作的市民來電指，現時獨居、綜緩戶面對劏房租金2000至3000元，已難以維生，如果將「簡樸房」定在8平方米，租金估計會上升至5000多元，這些住戶將無法負擔，最終會被「掃出街」。
+  <br/>
+  <br/>
+  李家超形容反映意見的市民是很愛香港，他回應指，現有劏房戶有四成有資格上公屋；有兩成要等待成為居港七年居民，也有機會上樓，因此有五成至六成住戶是有機會上公屋。他期望用真正公屋容納有關市民，現時是過渡措施，有些特別個案會作特別處理，政府不希望有人無家可歸，要有不同方法令他們「有瓦遮頭」。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 09:31:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱發展重質重量　啟德體育園成大型地標
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超認為，本港發展要重質重量，啟德體育園將成為大型地標。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774921_1_20241017100942.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 對於有意見認為香港應要聚焦舉辦盛事，有量亦要有質。行政長官李家超表示，三份施政報告面對的環境不一樣，2022年是疫情期；2023年是走出疫情期，目標是社會復常，要先有人氣財氣，先有量才作選擇；現時是安全保障期，由治及興，大展拳腳，現在已有實力，可以「上擂台」，因此又重質又重量，如何平衡要考技巧。
+ <br>
+  <br/>
+  李家超出席電台聯播節目時說，香港正處於轉型期，甚麼也要試，不要因為怕失敗就不試，好像早前搞夜經濟，不試就一定不成功，試或者有機會成功。
+  <br/>
+  <br/>
+  被問到周邊地區包括新加坡、高雄及澳門也有大型場地，舉辦演唱會吸引海外旅客，香港如何凸顯優勢。李家超回應說啟德體育園是香港的機遇及亮點，必須用好這個大型地標，這是整個政府及大家的共同責任，也要邀請承辦商及不同餐飲進入場館。他比喻說好的明星演戲與演技差的演員演戲，效果完全一樣，又說不可浪費這個5萬人場地。
+  <br/>
+  <br/>
+  李家超強調啟德體育園如何安排好活動，政府會有參與，不是放手不理，因為會影響整個香港。他表示，就場地的疏散安排，要求用加大倍數的安全系數處理，並作演練。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 09:25:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超：阻止港人離港消費不切實際
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774915_1_20241017093849.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超出席施政報告聯合電台節目，對於市民北上消費，李家超認為，社會要認識有關轉變不是周期性而是結構性，不能以舊有方法應對。
+ <br>
+  <br/>
+  他指出，阻止港人離港消費是不切實際亦不應該，香港是自由靈活的市場，市場營運者要自我革新，例如18區現時各有打卡熱點，商戶如何配合，將產品融入其中。李家超特別提到政府有政策支持熊貓經濟，熊貓亦深受市民和遊客喜愛，商界就要「度橋」搞好綽頭配合。
+  <br/>
+  <br/>
+  有聽眾致電節目，建議以八達通向旅客發放消費券刺激市道，李家超說，希望全社會推動消費，不只由政府去做，他指出，早前國慶長假期有3000多間商戶響應推出優惠活動，參與的商戶收入增加，他認為是好事。
+  <br/>
+  <br/>
+  另外，有聽眾致電，關注減烈酒稅或會令更多人飲酒，損害健康。李家超強調，政府不鼓勵市民飲酒，本港有85%烈酒進口價在200元以下，稅率不變，他指出，減烈酒稅是為了推動本港高端烈酒貿易，參考2008年全面取消紅酒稅經驗，發現對市民的影響小，經濟效益大，本港目前是世界第三大紅酒貿易市場。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 09:13:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱本港安全自由適合建黃金倉庫
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774912_1_20241017090453.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超出席施政報告聯合電台節目，他表示，香港屬開放型經濟，昨日菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，他認為政府做好規管，亦令到市場自由發揮得好，反映政策定得對，但在過渡期挑戰大一些，但落實措施刺激經濟，都是實實在在的。
+ <br>
+  <br/>
+  李家超說，面對市場要有大局觀， 要有新的增長點，今次施政報告是行動型，推動進一步強化目標，例如本港安全自由，適合建黃金倉庫以及進行大宗商品貿易，當大宗商品貿易家來港，其團隊亦會來港。
+  <br/>
+  <br/>
+  被問到現時零售業的情況，李家超認為，要正視問題，不要逃避，政府可以幫的會盡量幫，例如零售市道不是很好，因為旅客的結構性改變，有些人醒覺，知道客人需要甚麼而作出改變，過渡期內有起伏，每個人都要自強不息去改革。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 08:47:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超：處理劏房問題先易後難要有序
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774907_1_20241017083038.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 新一份施政報告提出制訂「住宅樓宇分間單位出租制度」，合標準單位名為「簡樸房」，取代劏房，行政長官李家超出席施政報告聯合電台節目，被問到不合標劏房「清零」的時間表，他表示，要務實看待問題，劏房問題積累多年，原因是市民有居住需要但供應不足，要做到供應足夠需要很長時間，但他不想劏房居民等得久，必須務實按部就班有序處理。
+ <br>
+  <br/>
+  李家超相信規管劏房相關立法最快明年進行，希望在立法會換屆前完成。至於登記期，建議在12至18個月，但如果在12個月內完成登記，意味每月要處理9000多個單位，必須增加人手。
+  <br/>
+  <br/>
+  李家超表示，對違規放租業主的刑罰要具阻嚇性，相信做生意的人不想坐監，他認為刑罰要以2年監禁為起點，亦可以是3年。他認為，劏房租金反映現實情況，目前有規管租金加幅，相信訂立「簡樸房」標準後，租金會反映單位的配套及周邊環境。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Thu, 17 Oct 2024 08:13:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024 | 《行政長官2024年施政報告論壇》
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="林健鋒（左二起）、鄭泳舜及麥萃才出席新聞部節目，討論新一份《施政報告》內容。（陳曉慶攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774879_1_20241016230425.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超發表任內第三份《施政報告》，提出多項措施解決房屋問題及刺激經濟。金管局放寬物業按揭貸款條件，按揭成數上限一律調整至七成； 針對劏房問題，行政長官李家超表明，決心以立法方式釐訂合標準單位，並正名為「簡樸房」；即日起減烈酒稅，進口價200元以上的烈酒，200元以上部分的稅率由100%，大幅減至10%。
+ <br>
+  <br/>
+  行政會議成員、經民聯立法會議員林健鋒在本台節目《施政報告論壇》表示，放寬物業按揭成數上限至七成，是回復至2009年時逆周期的水平，增加投資者的入市信心，部分地產股亦上升，反映措施帶來正面效果。
+  <br/>
+  <br/>
+  民建聯立法會議員鄭泳舜認為，提供不同房屋階梯是重要，相信會令到有意入市的市民更積極考慮。浸會大學會計、經濟及金融學系副教授麥萃才說，以往「細樓換大樓」不容易，因為「大樓」的按揭成數較低，但在新措施下，有利「換樓鏈」；新政策下，中小企亦可以將物業再按揭套現，以便改善現金流，相信對經濟有正面幫助。
+  <br/>
+  <br/>
+  對於《施政報告》提出以立法方式處理劏房，鄭泳舜認為，特區政府有決心解決這個問題，而且去到最後階段，他期望明年可以訂出時間表，逐步取締劏房，同時交代如何處理部分劏房居民的住屋需要。林健鋒說，業主如要改造劏房所需時間不長，最重要是「人人有屋住」，相信特首都不會容讓有市民要「瞓街」，目前已有簡約公屋，建議當局可以多利用空置校舍。麥萃才表示，取締劏房是扶貧的政策之一，未來會有簡約公屋等數萬間短期房屋供應，可以應付到由劏房搬出來、最有需要協助的市民，從而令政府可以清除最劣質劏房。
+  <br/>
+  <br/>
+  《施政報告》即日起減烈酒稅，醫學界表達反對聲音，本身是行會成員的林健鋒表示，明白大家的意見，但他強調，減烈酒稅可以鞏固香港作為國際名酒交易的集散中心地位，又認為可以搞活夜市。麥萃才說，不少高收入人士都喜好飲酒，提供較低稅率的烈酒，有助帶動存酒、物流及保險等方面的經濟市場，其他海外買家買酒後，亦可以將酒儲存在本港，日後再提取。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 23:05:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱轉型期政府有責任協助　各方亦要自強
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超表示在經濟轉型期，政府有責任協助，各方亦要檢視並創造自身優勢。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774883_1_20241016225044.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告提出一系列措施支援中小企，包括在「中小企融資擔保計劃」下，重推「還息不還本」安排。
+ <br>
+  <br/>
+  行政長官李家超表示，在經濟轉型期，政府有責任提供協助，各方亦要改革和自強，檢視並創造自身優勢。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 22:43:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱物業市場未見炒賣跡象　政策因時制宜
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超說，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774882_1_20241016224301.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告宣布，放寬物業按揭貸款成數上限，按揭成數上限劃一至七成；另外「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬港元。
+ <br>
+  <br/>
+  被問到有關措施會否令樓市「炒風」重現，行政長官李家超回應，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 22:40:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024 | 楊何蓓茵向公務員發信闡釋相關措施
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774880-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="公務員事務局局長楊何蓓茵與四個公務員中央評議會和四個主要跨部門公務員團體代表會面，簡介《施政報告》中與公務員事務相關的政策措施。（政府新聞處）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=30&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774880_1_20241016223052.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超發表新一份施政報告。公務員事務局局長楊何蓓茵向全體公務員發信，並與四個公務員中央評議會及四個主要跨部門公務員團體代表會面，簡介報告中相關政策措施。
+ <br>
+  <br/>
+  信中簡述施政報告中，局方加強公務員管理和推動數碼化等相關政策措施。楊何蓓茵表示，公務員須繼續以盡忠竭誠、不畏困難、敢於改革及創新的精神，積極服務市民，並要向前發展，建構更高質、高效的政府團隊。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774880-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774880-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 22:30:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    一款英國進口預先包裝凝脂奶油樣本總含菌量超標
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774878-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="食安中心已暫時撤銷較早前簽發予有關進口商銷售該款產品的進口准許。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774878_1_20241016221136.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 一批馬莎品牌、從英國進口的預先包裝凝脂奶油樣本，被檢出總含菌量超出法例標準，有關批次食品已被封存，因仍存在進口商貨倉，並無流出市面。
+ <br>
+  <br/>
+  食安中心表示，該款名為康沃爾凝脂奶油的產品，經巴士德消毒法處理。有關樣本經恆常食物監測計劃檢測，發現總含菌量分別每毫升逾62萬個、逾112萬個和逾150萬個，遠超相關規例的要求，即經巴士德消進行熱處理後的奶類，每毫升不得含有多於3萬個細菌。
+  <br/>
+  <br/>
+  食安中心已暫時撤銷較早前簽發予有關進口商銷售該款產品的進口准許，現時在市面上銷售該品牌的同類產品則不受影響。中心亦已通知英國當局。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774878-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774878-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 22:11:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024 | 房協支持完善置業階梯打擊濫用公屋等措施
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774875-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="房協表示，將積極探討可行的相應措施，以配合政府的整體政策。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774875_1_20241016220428.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 房協表示，對施政報告中提及有關完善置業階梯、打擊濫用公屋及推動房屋建築和管理數字化的措施表示支持。
+ <br>
+  <br/>
+  房協又表示，在回應市民住屋需求及善用房屋資源的大前提下，房協將積極探討可行的相應措施，以配合政府的整體政策。
+  <br/>
+  <br/>
+  房協將適度檢討現時發展規劃中的出租及資助出售單位比例和資助出售單位的銷售安排，包括綠白表比例、協助青年置業以及增加屢次向隅者購買資助出售單位機會等安排， 亦會參考房委會打擊濫用公屋的新舉措。
+  <br/>
+  <br/>
+  房協又說，在推動智慧建築和智慧管理是房協現行的業務策略，日後亦會逐步加強有關措施，以提升項目管理及屋邨管理的效率和質素。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774875-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774875-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 22:00:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024 | 醫管局歡迎有關醫療服務措施
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774874-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="醫管局相信，有關醫療服務措施，有助提升公營醫療服務及可持續發展，以加強對病人的支援。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774874_1_20241016220523.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超發表新施政報告，醫管局主席范鴻齡歡迎報告內，有關醫療服務措施，相信有助提升公營醫療服務及可持續發展，以加強對病人的支援。
+ <br>
+  <br/>
+  范鴻齡說，醫管局歡迎政府推動社區藥房的相關政策，會改善藥械採購程序，大幅縮減新藥引入藥物名冊的時間，透過理順和集中採購流程，促進成本效益及保證醫療資源用得其所；亦會進一步整合全港兒科服務，讓香港兒童醫院，更好發揮其功能，促進研究發展和專業培訓及開拓更多服務，如擴大新生兒篩查範圍、腦神經系統疾病治療等，提高本港兒科服務的質素。
+  <br/>
+  <br/>
+  醫管局表示，將加強專科門診的分流制度及轉介安排，使病情急切的病人更快得到專科服務，並安排輕度及穩定病症的病人留在適當地方跟進，減少不必要的專科轉介，以進一步縮短專科門診的輪候時間；並於下年度額外提升白內障手術量，積極為輪候病人完成手術。
+  <br/>
+  <br/>
+  此外，醫管局提出，會繼續優化服務，包括按國家認證標準，於威爾斯親王醫院設立第二間胸痛中心，另選址建設全港首間中風中心；以及於香港兒童醫院成立母乳庫，為有臨床需要的極早產及重症嬰兒提供母乳。
+  <br/>
+  <br/>
+  醫管局指，正致力推展第一個醫院發展計劃下的各項工程項目，並正因應未來的全港規劃，積極配合政府敲定第二個醫院發展計劃，持續提升公營醫院的服務量和更新醫院設施，以應付市民未來對醫療服務的需求。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774874-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774874-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 21:59:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱行業要自己幫自己　政府亦會提供協助
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774869_1_20241016223728.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 行政長官李家超表示，本港旅客結構已改變，並非周期性問題，因此要因時制宜推出新政策，吸引旅客來港，帶動本港的旅遊、餐飲及周邊行業。
+ <br>
+  <br/>
+  被問到港人北上消費，李家超出席施政報告電視論壇時表示，不同行業在經濟轉型期都會面對不同問題，政府有責任亦會提供協助，同時行業要自己幫自己。他說，轉型期間各方要改革和自強，檢視並創造自身優勢。
+  <br/>
+  <br/>
+  被問到新一份施政報告沒有提及夜經濟，李家超表示，沒有提及不代表不做，當局已要求18區舉辦活動推動經濟，而政務司副司長亦主持工作組推動發掘旅遊熱點，又強調要留意會否「興一利，生一弊」，例如出現嘈音問題。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 20:38:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜市建局： 全面配合加快市區重建等措施
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774867-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="市建局將繼續與相關政府部門研究，將舊區一些閒置政府土地、現用作臨時用途的用地以及未被充分利用的土地。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774867_1_20241016194904.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 新一份施政報告提出加快市區重建和進一步改善樓宇安全及大廈管理的措施，市建局表示歡迎，並會全面配合。
+ <br>
+  <br/>
+  市建局已就荃灣及深水埗進行的地區研究，完成第一及第二階段工作，包括收集區內不同持份者的意見，深化建議及完成各項技術評估後，期望能明年下半年向政府提出相關藍圖。
+  <br/>
+  <br/>
+  市建局將繼續與相關政府部門研究，將舊區一些閒置政府土地、現用作臨時用途的用地以及未被充分利用的土地，透過「一地多用」的模式，整合相關的政府社區設施，釋放更多土地資源；亦會在合適選址採用新規劃工具，把舊區的部分樓面面積，轉移到新的發展用地，創造容量、提升重建的可行性，推動私人市場參與市區重建，協助處理舊區樓宇老化的問題。
+  <br/>
+  <br/>
+  對於施政報告提及政府明年於選定小區推行「聯廈聯管」試驗計劃，市建表示支持，並會總結在「龍城」區試行「聯廈聯管」的經驗，提交予有關部門參考。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774867-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774867-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 19:44:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024 | 發展局：引入片區開發模式　設計更協調
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774866-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="發展局表示，今年的施政報告展現政府持續造地和推動基建的決心，亦體現勇於變革，嘗試新的發展模式。（發展局社交網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774866_1_20241016194835.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 發展局表示，政府造地不再局限於發展房屋和基本設施，亦會透過土地規劃和發展推動旅遊、康樂及遊艇等產業。當局會盡早邀請企業提交發展意向書，以善用市場力量，加快建設「南大嶼生態康樂走廊」、發展前南丫石礦場用地、發展尖鼻咀和白泥為生態旅遊節點等。
+ <br>
+  <br/>
+  發展局在社交平台表示，引入「片區開發」模式，揀選具規模及商業價值和將會提供公共設施的三個片區，由項目發展商綜合開發，使片區提速落成，設計更為協調。
+  <br/>
+  <br/>
+  發展局表示，今年的施政報告展現政府持續造地和推動基建的決心，亦體現勇於變革，嘗試新的發展模式。當局會利用好香港豐富和獨特的資源，打造香港成為更宜居的城市。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774866-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774866-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 19:41:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱觀察按揭成數放寬至七成有否負面影響
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774865-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774865_1_20241016194525.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告宣布，即日起放寬物業按揭上限至七成，另外「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬元。被問到措施會否令「炒風」重現，行政長官李家超表示，制定政策需因時制宜，按實際情況而定。
+ <br>
+  <br/>
+  李家超強調，過往曾因應樓市炒賣情況嚴重，推出需求管控措施，但目前「炒風」已不復見，樓市逐漸回穩，故現階段延續以往做法並不合適。他又說，物業市場健康發展是政府的政策目標，一方面能滿足市民住房需求，亦能為經濟作出貢獻。
+  <br/>
+  <br/>
+  李家超說，類似放寬按揭成數至七成的安排，於過去某時期曾推行，因此現時最重要是，研究措施有否負面因素，如有需要會隨時作出調整。
+  <br/>
+  <br/>
+  至於施政報告中提出有關協助青年人置業措施。根據新措施，40歲以下白表青年家庭及1人申請者分派多一個抽籤號碼。被問到有意見指，措施或會令「白表」申請競爭更激烈，李家超回應，居屋備受歡迎，反映市民渴望擁有自己的居所，政府正著力從多方面增加房屋供應。
+  <br/>
+  <br/>
+  李家超強調，在公營房屋方面，政府需照顧最大部分的是公屋，但推出「綠置居」的好處是，一方面讓更多人擁有自己的房子，亦能騰空公屋單位予其他合資格人士入住，讓更多有需要的市民受惠。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774865-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774865-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 19:36:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    香港獲評為全球最自由經濟體　政府稱反映優勢獲國際認同
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774863-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，排名較去年上升一位。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=35&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774863_1_20241016194600.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，排名較去年上升一位。政府發言人表示，長期以來，香港充分發揮自由市場的優勢，維持自由開放、高效和公平的營商環境，相關排名充分反映這優勢獲國際認同。
+ <br>
+  <br/>
+  報告顯示，香港在165個經濟體中，獲評為全球最自由經濟體，當中在五個評估大項中，香港在「國際貿易自由」及「監管」均位列首位，在「穩健貨幣」的排名亦升至全球第三。
+  <br/>
+  <br/>
+  就報告中有關香港在經濟和其他自由方面的提述，發言人強調，政府嚴格按照《憲法》和《基本法》保障香港居民的權利和自由，而企業和投資者的利益亦依法得到充分保障，希望日後的《世界經濟自由度》評估，可以充分反映有關的事實。
+  <br/>
+  <br/>
+  發言人說，本港自由市場和優越營商環境，受惠於「一國兩制」的獨特制度優勢，有超過9000家海外及內地企業選擇，以香港作為基地，充分利用香港「超級聯繫人」和「超級增值人」的角色和功能。今年首9個月，投資推廣署亦協助了470家內地及海外企業落戶或擴展在港業務，較去年同期增長約57%；在吸引人才方面，自2022年底至上月，各項人才計劃共錄得超過38萬宗申請，當中接近24萬宗獲批，約16萬人已經來港。
+  <br/>
+  <br/>
+  發言人表示，在國家的堅實支持下，香港會繼續積極融入國家發展大局，對接好國家發展戰略，維持和完善自由開放的營商環境，行政長官今日發表新一份施政報告，就鞏固提升香港國際金融、航運、貿易中心的地位、打造國際高端人才集聚高地、因地制宜發展新質生產力，以至深化粵港澳大灣區的合作，提出了明確方向、具體和有力的政策措施，進一步提升香港的發展動能，全力推動香港經濟朝高質量發展。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774863-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774863-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 19:25:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超：劏房問題累積多年　須按部就班處理
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774862_3_20241016225555.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 新一份施政報告提出，將以立法方式處理劏房問題，符合標準的單位將名為「簡樸房」，包括必須有窗、有獨立廁所、面積不少於8平方米等。
+ <br>
+  <br/>
+  行政長官李家超出席施政報告電視論壇時表示，他是心急的人，但劏房問題累積多年，不可一蹴即就，應按部就班，務實處理，至於日後是否取締劏房會按風險程度等因素。
+  <br/>
+  <br/>
+  李家超認為，劏房問題錯綜複雜，社會上不同劏房良莠不齊，條件差異很大。不過，調研指出，有人居住在劏房是因為認為交通方便，以及租金水平、居住面積、治安環境及衛生條件符合要求等。
+  <br/>
+  <br/>
+  他表示，今次提出訂立的是最低標準，希望透過將分間單位標準化，讓劣質單位不復存在，強調有些底線要守，包括面積不少於8平方米，而獨立廁所亦重要，希望日後市場的簡樸房條件高於標準，亦期望香港人未來無論是租住或置業的單位都可住大些。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 19:13:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜德勤：各環節配合可望提高新股上市效率
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774860-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="歐振興表示，本港新股上市審批過程已屬高效，相信在港交所及證監會協調下，連同各個環節優化可提升上市效率。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774860_1_20241016190234.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告提出多項進一步優化證券市場措施，包括落實追蹤香港股票指數的ETF在中東上市、吸引國際及內地大型企業來港上市、優化上市審批流程等。
+ <br>
+  <br/>
+  會計師事務所德勤中國華南區主管合伙人歐振興表示，本港新股上市審批過程已屬高效，申請上市文件已經電子化，亦具相當透明度，相信在港交所及證監會協調下，連同加強清晰指引令保薦人助企業交齊文件並作出足夠披露等，各個環節優化可提升上市效率。
+  <br/>
+  <br/>
+  另外，施政報告亦提到，在金融領域上尋求進一步與伊斯蘭市場合作。
+  <br/>
+  <br/>
+  歐振興認為，香港可更積極推動與伊斯蘭市場的互聯互通，政府可考慮再度發行伊斯蘭債券，並探索更多伊斯蘭金融產品種類，例如伊斯蘭人民幣債券、綠色及可持續債券等，以引更多伊斯蘭投資者在港投資不同類型產品。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774860-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774860-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 19:02:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱減烈酒稅已平衡不鼓勵飲酒及推動貿易
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774859-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="李家超強調，措施並非鼓勵市民飲酒，又說已經在不鼓勵飲酒及推動貿易間作出平衡。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774859_1_20241016190235.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 新一份施政報告提出減烈酒稅，即日起，進口價200元以上的烈酒，200元以上部分的稅率，由100%大幅減至10%。200元及以下的部分，以及進口價在200元或以下的烈酒，稅率則維持不變。
+ <br>
+  <br/>
+  行政長官李家超強調，措施並非鼓勵市民飲酒，又說已經在不鼓勵飲酒及推動貿易間作出平衡。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774859-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774859-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 18:55:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜李家超稱新資本入境計劃已考慮市民置業因素
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774858-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬元。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774858_1_20241016185948.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 施政報告宣布，即日起，放寬物業按揭貸款成數上限，住宅物業及非住宅物業，不論自用或公司持有，以及是否首置，按揭成數上限劃一至七成，供款與入息比率劃一為五成。
+ <br>
+  <br/>
+  另外，即日起，「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬元。行政長官李家超表示，已考慮會否影響香港市民置業的因素。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774858-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774858-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 18:52:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    外籍香港居民赴內地獲發最長5年、停留期不超過180天多次簽證
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774857-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="外籍香港居民赴內地從事商務、旅遊、探親、訪問等活動，均可獲發有效期最長為5年、停留期不超過180天的多次簽證。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774857_1_20241016190023.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 外交部駐港公署即日起，為外籍香港永久性居民、外籍香港居民提供更加便利的簽證政策。上述人員赴內地從事商務、旅遊、探親、訪問等活動，均可獲發有效期最長為5年、停留期不超過180天的多次簽證。
+ <br>
+  <br/>
+  而上述人員申請簽證時，免於提交往返交通票據和酒店訂單；上述人員曾在中國駐外簽證機關留存過指紋並獲發簽證者，向外交部駐港公署申請簽證時可免採指紋。
+  <br/>
+  <br/>
+  公署說，以上簽證政策不涉及外籍家庭傭工。基於個案情況的不同，簽證官員可能會調整簽證有效期、停留期和入境次數，或要求申請人補充材料、接受面談，申請人並不當然獲發最長有效期或停留期的多次簽證。此外，適用中國與部分國家互發多年多次簽證安排的人員，相關安排不變。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774857-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774857-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 18:50:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜倡熊貓與賽馬旅遊 推動「香港無處不旅遊」
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774838-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774838_1_20241016184603.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 《施政報告》提出措施推動生態、遊艇、熊貓和賽馬旅遊，希望做到「香港無處不旅遊」。
+ <br>
+  <br/>
+  另外，為吸引更多旅客訪港，特區政府已經向中央提出，恢復深圳「一簽多行」個人遊簽注，以及擴大「一周一行」簽注試點城市安排。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774838-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774838-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 18:46:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024 | 有房委會委員冀增單位面積　提高購買意欲
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774856-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="有房委會委員期望當局可增加單位的面積，提高申請人的購買意欲。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774856_1_20241016185107.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 對於施政報告提出支持青年購買資助出售單位，有曾經多次申請居屋和白居二的年輕人相信，大部分申請者都是40歲以下，即使分派多一個抽籤號碼和增加1500個配額，亦不代表提高中籤機會。
+ <br>
+  <br/>
+  有房委會委員表示，支持施政報告提出完善置業階梯的方向，但期望當局可增加單位的面積，提高申請人的購買意欲。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774856-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774856-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 18:45:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    施政報告2024｜多項措施支援中小企　烈酒稅大幅調低
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1774828-20241016.htm
+   </link>
+   <description>
+    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=95&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774828_1_20241016184526.jpg" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ 《施政報告》推出多項支援中小企措施，包括容許「中小企融資擔保計劃」的借款企業，申請最多12個月「還息不還本」；政府將向「BUD專項基金」注資10億元，通過基金協助中小企升級轉型和拓展新市場。
+ <br>
+  <br/>
+  烈酒稅即日起下調。進口價200元以上的烈酒，200元以上部分的稅率由100%，大幅減至10%。200元及以下的部分，以及進口價在200元或以下的烈酒，稅率則維持不變。
+  <br/>
+  <br/>
+  進一步優化證券市場方面，政府會吸引國際企業及內地大型企業來港上市，爭取短期內實現更多標誌性的公開招股。證監會和港交所將公布進一步優化上市批核流程的具體措施，又會提升市場效率及降低交易成本，包括檢視保證金的存入安排、優化保證金和抵押品要求等。
+ </br>
+</div>
+<br/>
+<hr/>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1774828-20241016.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1774828-20241016.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]>
+   </description>
+   <pubDate>
+    Wed, 16 Oct 2024 18:45:00 +0800
+   </pubDate>
+  </item>
+ </channel>
+</rss>
