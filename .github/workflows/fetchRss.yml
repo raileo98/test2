@@ -96,10 +96,14 @@ jobs:
       run: |
         for i in {1..10}; do sudo systemctl status redis && break; done
 
-    - name: 上傳 RSS 文件
+    - name: 拉取遠端更改
       run: |
         git config --global user.email "github-actions@github.com"
         git config --global user.name "github-actions"
+        git pull origin main --rebase
+
+    - name: 上傳 RSS 文件
+      run: |
         git add *.rss
         git commit -m "Upload RSS file"
         git push origin main
