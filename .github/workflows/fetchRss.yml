@@ -61,7 +61,7 @@ jobs:
         echo 6
         warp-cli --accept-tos settings
         echo 7
-        warp-cli tunnel protocol set MASQUE
+        warp-cli --accept-tos tunnel protocol set MASQUE
         echo 8
         warp-cli --accept-tos settings | grep protocol
         echo 9
