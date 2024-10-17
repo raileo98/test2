@@ -126,5 +126,10 @@ jobs:
     - name: 上傳 RSS 文件
       run: |
           git add *.rss
-          git commit -m "Upload RSS file"
-          git push origin main
+          # 檢查是否有變更
+          if git diff --cached --exit-code; then
+              echo "沒有變更可提交，跳過上傳"
+          else
+              git commit -m "Upload RSS file"
+              git push origin main
+          fi
