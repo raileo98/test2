@@ -1,2530 +1,2667 @@
-<?xml version="1.0" encoding="utf-8"?>
-<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
- <channel>
-  <title>
-   rthk - 財經
-  </title>
-  <link>
-   https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=5&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  </link>
-  <description>
-   rthk - 財經
-  </description>
-  <copyright>
-   © 香港電台 RTHK
-  </copyright>
-  <docs>
-   http://www.rssboard.org/rss-specification
-  </docs>
-  <generator>
-   python-feedgen
-  </generator>
-  <image>
-   <url>
-    <![CDATA[https://images.weserv.nl/?n=-1&output=webp&trim=1&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
-   </url>
-   <title>
-    rthk - 財經
-   </title>
-   <link>
+<?xml version='1.0' encoding='UTF-8'?>
+<html>
+ <body>
+  <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+   <channel>
+    <title>
+     rthk - 財經
+    </title>
+    <link/>
     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=5&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-   </link>
-  </image>
-  <language>
-   zh-HK
-  </language>
-  <webMaster>
-   webmaster@rthk.hk
-  </webMaster>
-  <item>
-   <title>
-    本港暫停從意大利兩個省進口禽肉及禽類產品
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<br/>
-<div class="itemFullText">
- 食物安全中心宣布，因應世界動物衞生組織通報，指意大利倫巴第大區布雷西亞省和克雷莫納省爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉，及包括禽蛋的禽類產品。
- <br>
-  <br/>
-  中心發言人說，根據政府統計處的資料，本港今年首6個月從意大利進口約40公噸冷藏禽肉及約1萬隻禽蛋。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:56:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    4款慳電膽1款洗衣機3款電磁爐能源效益不符標示需停售
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<br/>
-<div class="itemFullText">
- 機電署根據《能源效益（產品標籤）條例》，將4款慳電膽、1款洗衣機及3款電磁爐從《條例》訂明的表列型號紀錄冊中剔除，即日起不得在本港供應。
- <br>
-  <br/>
-  慳電膽進口商是麗影有限公司，品牌分別為陽光、Smart Design和佳之選；洗衣機進口商為譽力電業貿易有限公司，品牌是湯笙；電磁爐進口商有金樂電器有限公司、高端有限公司和億世集團有限公司，涉及品牌為金樂、ASKO和ecHome。
-  <br/>
-  <br/>
-  機電署表示，由於上述8個型號産品的測試結果未達相關的能源效益或功能特性表現，決定從紀錄冊中剔除。署方已向相關進口商發出通知書，進口商會於報章刊登通告，通知巿民有關產品會停止在本港供應。公眾如有查詢，請與進口商聯絡。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:52:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜許正宇：本港現有黃金倉儲容量接近用盡
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<br/>
-<div class="itemFullText">
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    韓股收市偏軟
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774967-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="首爾綜合指數收市報2609點，跌1點，跌幅0.04%。（南韓證券交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774967_1_20241017143612.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 南韓股市收市偏軟，首爾綜合指數報2609點，跌1點，跌幅0.04%。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774967-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774967-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:40:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜陳茂波：減烈酒稅促進相關貿易及高端行業活動
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="進口價200元以上的烈酒，200元以上部分的稅率由100%大幅減至10%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774968_1_20241017143855.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:37:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜許正宇稱優化上市批核流程細節本周公布
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="許正宇表示。優化上市批核流程細節本周公布。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774963_1_20241017143158.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日股低收近0.7%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774962-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日經平均指數收市報38911點，跌269點，跌幅0.69%。（日本交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774962_1_20241017141722.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 日本股市收市向下，日經平均指數報38911點，跌269點，跌幅0.69%。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774962-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774962-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:20:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    台股高收近0.2%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774961-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="台灣加權指數收市報23053點，升42點，升幅0.19%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=65&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774961_1_20241017141357.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 台灣股市收市微升，加權指數報23053點，升42點，升幅0.19%。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774961-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774961-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:16:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜陳茂波稱物業七成按揭已考慮樓價成交量等因素
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="陳茂波說，樓市表現仍然疲弱，但交投量稍為回暖。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774960_1_20241017143000.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 施政報告宣布，放寬物業按揭成數上限至劃一至七成，供款與入息比率上限劃一至五成。財政司司長陳茂波說，是參考了一籃子因素，包括樓價走勢、成交量、未來供應、本地經濟、外圍環境，繼續維持銀行體系穩定的前提下，有空間將按揭成數回復至2009前水平。
- <br>
-  <br/>
-  陳茂波在施政報告措施記者會表示，樓市表現仍然疲弱，但交投量稍為回暖，美國9月下旬減息後，情況顯著改善，中央一系列支持措施，亦振提市場氣氛。
-  <br/>
-  <br/>
-  陳茂波預料本港經濟在今年餘下時間繼續保持增長，美國進入減息周期，本港同時減息，可降低營商成本，內地經濟可望穩定增長，對私人消費亦有支持作用。
-  <br/>
-  <br/>
-  他提到，近日港股的淨買入，不少來自美國及歐洲，當中九成來自基金或投資銀行，可見歐美對香港及內地市場有興趣，只是一直等待時機。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    金管總局：白名單房地產項目已審批通過貸款逾2萬億元人民幣
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774959-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="肖遠企稱當局將優化完善房地產「白名單」項目融資機制。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774959_1_20241017141546.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 金融監管總局副局長肖遠企表示，經過認真研究，把商品住房的房地產開發貸款項目全部納入「白名單」的條件已經具備，今後符合「白名單」標準條件的房地產項目，均應該按照「白名單」管理。
- <br>
-  <br/>
-  肖遠企指出，截至10月16日，「白名單」房地產項目已審批通過貸款達到2.23萬億元人民幣。預計到2024年底，「白名單」項目貸款審批通過金額將翻倍，至超過4萬億元人民幣。當局將進一步優化完善房地產「白名單」項目融資機制，做到合格項目「應進盡進」，已審貸款「應貸盡貸」，資金撥付「能早盡早」。
-  <br/>
-  <br/>
-  被問到金融支持房地產的具體政策措施，肖遠企說，要打好房地產各項融資工具的「組合拳」，形成集成規模效應，增強精準適配性。截至今年9月底，銀行開發貸款較年初增加逾4000億元人民幣。
-  <br/>
-  <br/>
-  他又指，會與有關部門一起積極研究政策性銀行、商業銀行支持盤活閒置存量土地的具體舉措，對閒置存量土地的收購發放一定比例的貸款，以推動更加高效利用好閒置土地，同時改善和釋放房地產行業的現金流。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774959-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774959-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 14:07:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股下午開市後升逾百點
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774956-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="恒指較早時報20415點，升128點；科技指數報4451點，升幅1.1%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=15&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774956_1_20241017130927.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 港股造好，恒生指數較早時報20415點，升128點，升幅0.63%。
- <br>
-  <br/>
-  科技指數報4451點，升48點，升幅1.1%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774956-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774956-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 13:09:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜港澳辦：感受到銳意改革奮發進取造福民眾
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="港澳辦指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774955_1_20241017130054.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 國務院港澳辦發表的文章表示，行政長官李家超發表任內第三份施政報告，香港社會和國際社會高度關注並積極評論。從這份報告的豐富內容和各方面的熱烈反應中，可以感受到特區政府銳意改革、奮發進取、造福民眾的堅定信念和堅實行動。
- <br>
-  <br/>
-  文章中指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能；致力為民幸福，彰顯責任擔當。
-  <br/>
-  <br/>
-  港澳辦表示，相信香港社會各界團結一致，以實際行動全力支持特區政府依法施政，美好願景必將變為輝煌現實。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 12:53:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱改革目的要明白「立甚麼」「破甚麼」
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超指出，改革是為了結果的提升，並非為改而改。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774953_1_20241017125457.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超在立法會施政報告答問會上重申，世界百年未有大變局正加速演進，香港亦處於關鍵經濟轉型期，又說改革只有進行時，沒有完結時，改革是為了結果的提升，並非為改而改，只講顛覆或只求推倒重來，是忘記了改革目的，必須要明白「立甚麼」、「破甚麼」，要因地制宜，張弛有道及拿捏得當。
- <br>
-  <br/>
-  李家超說，改革要整個社會一起參與和推進，行政立法機關有帶領社會改革的角色。在要求他人改革的同時，更重要是從自身開始，自我革新，自我識變、應變和求變，亦是他將「齊改革、同發展」定為施政報告重點方向的原因和期望。
-  <br/>
-  <br/>
-  他期望這份施政報告在立法會充分討論後，能獲得議員支持。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 12:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜狄志遠指市民乏歸屬感　特首稱建關愛共融社會
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="狄志遠（左）指出，不少市民對社會缺乏歸屬感，對社會參與的積極性低；李家超（右）不同意見可以討論，政府亦願意聽。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774951_1_20241017125041.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行長官李家超出席立法會施政報告答問會，議員狄志遠關注香港的貧富差距越來越大，不少市民對社會缺乏歸屬感，對社會參與的積極性低，詢問特首會否擔心社會缺乏包容性的現象，從而影響香港的經濟發展。
- <br>
-  <br/>
-  李家超表示，施政報告提出建立關愛共融社會是政策目標，社會對於事物有不同看法是正常，不同意見可以討論，政府亦願意聽。他又說，記者會的問題很尖銳，政府一一解答，有些是善意告誡，有些是尖銳批評，有些變成施政報告中一些措施，因此是很開放包容。
-  <br/>
-  <br/>
-  他又說，香港被評為世界上最自由的經濟體，可以做任何經濟活動，亦反映有合理的法律保障，這些保障就是給予最大的自由，亦是他希望建立的香港。
-  <br/>
-  <br/>
-  他說大家提出意見，特別在愛國者治港原則下，做一些共同讓香港有建設性的項目。他認為過程中有批評是正常，而更重要是求同存異。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 12:31:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超強調重視培育技術能力及知識競爭力
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超說，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=95&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774949_1_20241017125007.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 施政報告答問會早上在立法會舉行，工聯會議員吳秋北表示，本港勞動人口有減少和老化趨勢，關注報告提出加大培訓力度、鼓勵非本地畢業生留港等措施，對緩解勞動力的結構問題的作用。
- <br>
-  <br/>
-  行政長官李家超說，年青勞動力下降是本港整體人口老化的現象，輸入勞工是針對短期問題，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力，今次政策重點是改革僱員再培訓局，並推出兩個地方讓有經驗勞工團隊作工業培訓，認為培訓要邁向全民化，15歲或以上市民就可參與，並以技術為本，因為有技能的人更容易轉變工作。
-  <br/>
-  <br/>
-  選委會議員何敬康關注，未來有何對策處理體育基本設施建設和場地分配。李家超表示，去年和今年的施政報告要延續性一起看，在場地提供方面，已經羅列整個計劃，當局投放在體育方面的資源很多，但更重視是否達到最好效果。他提到港協暨奧委會很快公布體系管治方面的結果，稍後再與文體旅局商討如何盡善盡美。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 12:27:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超指大宗商品交易從低點做起需時達至高點
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774948_1_20241017124929.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 施政報告提出要建立國際黃金交易市場及大宗商品交易圈，行政長官李家超到立法會出席施政報告答問會時表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫，有了倉庫就可以推動買賣。他指出，香港這個領域從一個低點起步，要到達高點是需要長時間，業界指出用5年至10年時間，可以做到百分之三十的大宗商品市場。
- <br>
-  <br/>
-  另外，李家超說，香港在教育方面十分有優勢，是全球唯一擁有5間世界百強大學的城市，其他有著名大學的地區都是以整個國家計算，特區政府會致力推廣「留學香港」品牌。
-  <br/>
-  <br/>
-  他又說，啟德體育園是一個非常重要的工程，要確保開幕暢順，同時在整體配套、人流管理、處理突發事件方面都做得好，相信啟德體育園將會是讓香港再創高峰的新地標。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 12:22:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股半日升近1%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="恒指中午收市報20460點，升174點，升幅0.86%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=1&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774946_1_20241017124458.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 港股今早上升，恒生指數早段曾升近500點，中午收市報20460點，升174點，升幅0.86%。主板半日成交約1077億元。
- <br>
-  <br/>
-  科技指數半日升約1.4%。
-  <br/>
-  <br/>
-  另外，本地地產股普遍向好，其中恒地半日升逾2%。
-  <br/>
-  <br/>
-  內房股就有沽壓。龍湖集團半日跌近9%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 12:15:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超指在有限資源下需提升公營醫療服務效益
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超表示，醫衞局除內部制度優化，亦希望在公私營合作上做得更暢順，並期望在大灣區合作上擴容。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774945_1_20241017123502.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 施政報告答問會早上在立法會舉行，議員林素蔚關注，報告中提出設立跨專科綜合門診的相關安排。
- <br>
-  <br/>
-  行政長官李家超說，政府每年在醫療支出非常龐大，佔整體開支約兩成，在有限資源下需要提升公營服務的效益。跨專科統籌是指如果當有一名有泌尿科、心臟科和腎科問題的病人，屆時只需要看一個專科。醫衞局將在記者會或立法會交代技術性問題。除了內部制度優化，亦希望在公私營合作上做得更暢順，亦期望在大灣區合作上擴容。
-  <br/>
-  <br/>
-  工業界議員吳永嘉就關注，當局會否將工業旅遊列入旅遊熱點。李家超表示，多年前去過日本，參觀車廠的機械人裝車，當時很少地方有相關環節，印象非常深刻，本港工業絕對有優勢，期望生產力局加強宣傳。
-  <br/>
-  <br/>
-  李家超提到，「發展旅遊熱點工作組」由政務司副司長統籌，以加速或輔助相關工作，但強調責任仍在文體旅局方面。他又說，本港有非常好體系，包括18區民政專員是最了解當區吸引力，例如九龍城有一流食肆，應否發展為美食村，呼籲議員除了給予意見，亦要共同參與，因為大家都是建設者，不是評論員。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 12:09:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    住建部：首9個月已經建設籌集保障性住房148萬套
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774944-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="倪虹表示，預計年底可讓450萬新市民、青年人住進保障性住房。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774944_1_20241017130021.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 住房城鄉建設部部長倪虹表示，各城市政府結合當地實際優化完善房地產政策的同時，加大保障力度，兜牢住房保障底線。今年1至9月，已經建設籌集保障性住房148萬套，預計年底可讓450萬新市民、青年人住進保障性住房。
- <br>
-  <br/>
-  倪虹指出，在籌集房源的工作上，有關當局已考慮新形勢變化，為適應生育二孩及以上家庭的需要，要求和支持地方結合實際，適度增加保障性住房面積。
-  <br/>
-  <br/>
-  倪虹稱，下一步將與有關部門一起，指導各地加大保障性住房建設、籌集、供給，著力解決困難群眾住房問題，努力實現全體人民住有所居。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774944-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774944-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    住建部：樓市已開始築底　對房地產止跌回穩充滿信心
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774943-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774943_1_20241017124545.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 住建部部長倪虹表示，內地房地產市場在一系列政策作用下，經過3年不斷調整，已開始築底。他指，房地產主要指標明顯好轉，特別是一線城市10月以來全線回穩，相信10月數據一定是一個積極、樂觀結果。
- <br>
-  <br/>
-  倪虹表示，促進房地產市場止跌回穩政策具體採取的措施都很強，力度足夠大，接下來要同心協力打好組合拳，他對房地產止跌回穩充滿信心。
-  <br/>
-  <br/>
-  他又說，國務院部署打好保障房攻堅戰宣布至今剛好5個月，已交付246萬套，成效很明顯，形容對購房人是吃下定心丸，市場預期出現巨大改變。他強調，要一手抓白名單，解決項目建設資金問題，一手抓項目進度，爭取住房早日交付。他相信，白名單項目有信貸支持，加上房企積極努力，可打贏保障房攻堅戰，讓供房人士早日拿到房子。
-  <br/>
-  <br/>
-  他提到，對資不抵債項目，要按照法治化、市場化原則，加快破產重整或清算，維護購房人合法權益。對於違法違規、損害購房人利益行為，要堅決查處，不能矇混過關。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774943-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774943-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:44:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    滬深股市反覆靠穩　上證指數半日升3點
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774939-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="上證綜合指數中午收市報3205點，升3點。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=70&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774939_1_20241017113814.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 內地股市今早反覆靠穩。
- <br>
-  <br/>
-  上證綜合指數中午收市報3205點，升3點。
-  <br/>
-  <br/>
-  深證成份指數報10014點，升49點，升幅0.5%。
-  <br/>
-  <br/>
-  創業板指數報2058點，升18點，升幅0.91%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774939-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774939-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱推動留學本港是具吸引力金漆招牌
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超認為，DSE有認受性亦很優質，現時目標群是吸引外地大學生或專上教育學生來港。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774938_1_20241017121217.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 在立法會的施政報告答問會上，選委會議員郭玲麗表示，中學文憑試是國際承認的考試中最尊重中文和中國文化的考試，關注當局有何措施和方法推廣DSE國際化。
- <br>
-  <br/>
-  行政長官李家超說，要多元化推動本港作為國際高端人才集聚高地，因此設立「教育、科技和人才委員會」，由政務司司長擔任主席，背後理念是參考國家主席習近平在全國教育大會上發表的重要講話，自己深受啓發，亦非常認同和支持。
-  <br/>
-  <br/>
-  李家超表示，其中一個是推動留學本港的品牌，形容是很有吸引力的金漆招牌，而DSE有認受性亦很優質，但現時目標群是吸引外地大學生或專上教育學生來港，如果下一步希望更多人讀DSE課程，則要參考其他國際教育課程例如IB的成功之處，因為不同地方都有相關課程設計和教師等教育體系建設。
-  <br/>
-  <br/>
-  他認為，現階段要實事求是爭取最大成功和回報，因為其他地方未建立DSE相關教育體系，仍需要時間，當有更多外地學生來港讀書，就會增加宣傳效益，形容如果到時「男有心、女有意」，可能會考慮同某些國家或地區合作建立體系，否則是有心無力，相信「教育、科技和人才委員會」將討論一系列問題。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:37:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱工作組多從需求角度發掘銀髮金融產品
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超說，政府非常重視養老事宜，「養老金融」亦都重要。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774937_2_20241017124811.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 施政報告提出，成立三個工作組及一個委員會以強化跨政策統籌工作，當中包括「促進銀髮經濟工作組」。
- <br>
-  <br/>
-  李家超到立法會出席施政報告答問會時表示，政府非常重視養老事宜，「養老金融」亦都重要，因此施政報告有大量篇幅提及養老方面的工作。
-  <br/>
-  <br/>
-  李家超說，相關工作組由政務司副司長擔任組長，有五方面的工作，其中一方面正就是養老相關的財務方安排，現時一些退休金融產品推廣不足，工作組會多從需求角度發掘銀髮金融產品。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:28:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱向中央爭取政策　冀快些「瓜熟蒂落」
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774936_1_20241017112954.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 新一份施政報告提到，特區政府已向中央提出進一步優化內地居民來港旅遊簽注的請求，包括恢復深圳「一簽多行」個人遊簽注，以及擴大「一周一行」個人遊簽注政策試點城市範圍等，自由黨立法會議員邵家輝在立法會行政長官答問會提到，近期香港經濟比較疲弱，零售及飲食業面對新的轉型期，挑戰很大，關注是否有更多城市可以加入試點範圍，讓更多人來港，以及如何爭取中央盡快放寬。
- <br>
-  <br/>
-  李家超說，充分體會到某些行業在經濟轉型期面對特別多挑戰，政府亦吸納了議員的意見，推出8項目措施幫助中小企。特區政府自走出疫情後，很多措施都很用心研究，亦非常感謝中央給予暢通渠道反映意見，而在政策推出的過程中，要克服很多困難，很多不同部委幫助香港解決不同需求，亦感謝中央對香港的關愛。
-  <br/>
-  <br/>
-  他表示，與中央溝通，爭取任何政策，希望實事求是，有很多探討的措施不適合公開，但希望快些「瓜熟蒂落」。他又說，交往最多的、以及交通最方便的城市都是可作採討。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:20:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    人行預期存量房貸本月底前完成批量下調房貸利率
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774935-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="陶玲稱存量房貸利率平均下降50個基點，節省利率支出1500億元人民幣，惠及5千萬個家庭。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774935_1_20241017130223.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 人民銀行副行長陶玲預計，大部分存量房貸將於本月25日批量下調房貸利率，中小型銀行完成調整時間略遲，但估計月底前全部完成。她指，絕大部分借款人毋須到銀行網點辦理，採用浮動利率的房貸毋須提出申請，銀行系統會批量調整，佔存量房貸90%以上；採用固定利率的房貸，可透過手機銀行、網上銀行等辦理。
- <br>
-  <br/>
-  陶玲指，存量房貸利率平均下降50個基點，節省利率支出1500億元人民幣，惠及5000萬個家庭、1.5億名居民。以北京為例，調整存量房貸利率後，房貸利率由4.4厘降至3.55厘，以100萬元、25年期貸款為例，每月節省469元，總額節省逾14萬元。
-  <br/>
-  <br/>
-  她又指，除了上海、深圳自主採取差異化安排，全國其他城市不再分首套房、二套房，統一最低首付比例15%，不少城市亦同步調整房地產調控措施，市場信心及銷售出現改善。
-  <br/>
-  <br/>
-  她提到，正與有關部門研究，容許政策性銀行、商業銀行，向有條件企業發放貸款收購存量土地，人行提供必要再貸款支持。部分房地產金融政策期限延長至2026年底，包括放寬全國商業銀行經營性物業貸款用途，有助房企改善資金狀況。她說，加上近期推出減息降準等一攬子政策，對提振信心穩定，將產生積極作用。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774935-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774935-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:14:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱醫療及教育措施惠及所有市民包括中產
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超說，明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774933_1_20241017110258.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超出席施政報告聯合電台節目，有聽眾反映申請科研資助計劃的審批越來越慢，科研團隊亦要裁員，亦有市民關注施政報告並無惠及中產的措施。
- <br>
-  <br/>
-  李家超說，對於關注資助項目申請手續時間性不符要求，會回去看看，他一向要求盡快處理，希望如有問題，可以反映。他明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產，醫療及教育措施，所有市民，包括中產亦會受惠。
-  <br/>
-  <br/>
-  李家超說，過渡房屋是臨時措施，歸根究底出現問題是整體房屋供應不足，因此上任後，政府提出提速、提效、提質及提量建屋，長遠來說，整體房屋供應該滿足到需求，因此政府有不同措施，其中簡約公屋有3萬個單位，在短期未有大量供應時作出填補。他相信在4年後，會有大量供應，以解決問題。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 11:02:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱北都區片區發展方式需視乎規模及用途
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774932_1_20241017105525.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超到立法會出席施政報告答問會。
- <br>
-  <br/>
-  民建聯劉國勳關注，北部都會區3個試點片區的位置，如何令私人力量更加願意參與相關新發展模式。他又說，發展局早前發出通知，要求決策局和部門需採取便利發展及協同合作的思維，擔當促進者的角色，關注實際執行情況，包括有無具體措施令日後工程可加快及減低建造成本。
-  <br/>
-  <br/>
-  李家超說，北部都會區的片區試點，由於涉及不同考慮，會留待發展局交代，但指出，由於北都的發展超過10多年，只依靠政府的力量並不足夠，因此政府會用多元方法，按片區大小、性質等設定方案。
-  <br/>
-  <br/>
-  另外，李家超說，發展局下已成立專責小組，相關公告亦指出，每人在思維上都應有促進的責任。他形容自己是「心急人」，上任後當局已修訂一系列法例，縮短造地的時間。
-  <br/>
-  <br/>
-  他又說，近期的世界競爭力報告，香港特區政府的效率全球排第三，反映公務員都希望做到最好，發展局的公告希望在系統方面，不合部門之間磨合得更好。
-  <br/>
-  <br/>
-  勞工界議員周小松讚揚施政報告中的多項勞工政策，包括建議落實強積金全自由行等，但他關注當中未有提及落實為低收入人士代供強積金的落實方案和時間表。
-  <br/>
-  <br/>
-  李家超回應說，有關建議是上屆政府提出，目前勞工及福利局正在研究，他會與勞福局再作探討。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 10:55:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日股半日跌0.6%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774931-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日經指數半日跌235點，報38944點，跌幅0.6%。（交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774931_1_20241017105239.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 東京股市下跌。日經指數半日跌235點，報38944點，跌幅0.6%。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774931-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774931-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 10:52:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    住建部：35個大城市需改造城中村達170萬套
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774929-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="倪虹稱城中村安全隱患多，居民改造意願迫切。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774929_1_20241017130358.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 住建部部長倪虹表示，將通過貨幣化安置等方式，新增實施100萬套城中村改造、危舊房改造。他指，城中村安全隱患多，居民改造意願迫切。據統計，35個大城市需要改造的城中村多達170萬套，其他城市亦有改造需求，全國需要改造的危舊房有50萬套，需求很大。
- <br>
-  <br/>
-  倪虹又說，有關改造有利消化存量商品房，只要前期工作做得好，可以在100萬套基礎上，加大支持力度。
-  <br/>
-  <br/>
-  他提到，4個一線城市9月底調整了樓市調控措施，北京、上海放寬限購條件，廣州全部取消，深圳則部分取消，充分體現了各城市因城施策。
-  <br/>
-  <br/>
-  他指，「虹吸效應」是世界各城市普遍存在現象，人口、產業向大城市集中。他認為，「虹吸效應」有利有弊，但在不同城市發展階段，「虹吸效應」亦有不同影響。而在城鎮化進程，中國著重引導大中城市及小城鎮協調發展，是防止房地產領域虹吸負面作用的制度安排。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774929-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774929-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 10:48:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    住建部：政策效果開始顯現　爭取所有合格房地產項目納入白名單
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774926-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="倪虹稱年底前將「白名單」項目信貸規模增加至4萬億元人民幣。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=45&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774926_1_20241017102924.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 住房城鄉建設部部長倪虹表示，自9月底新政策公布以來，一手房睇樓量及簽約量明顯增加，二手房交易量亦持續上升，市場出現積極變化，政策效果已開始顯現。
- <br>
-  <br/>
-  他在國新辦記者會上指出，年底前將「白名單」項目信貸規模增加至4萬億元人民幣，將所有房地產合格項目都爭取納入「白名單」。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774926-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774926-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 10:18:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    滬深股市初段升約0.5%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774924-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="內地股市初段靠穩，3大指數升約0.5%。上證指數較早時報3217點，升幅0.45%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774924_1_20241017093421.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 內地股市初段靠穩，3大指數升約0.5%。
- <br>
-  <br/>
-  上證指數較早時報3217點，升14點，升幅0.45%。
-  <br/>
-  <br/>
-  深證成份指數重上1萬點，報10013點，升48點，升幅0.49%。
-  <br/>
-  <br/>
-  創業板指數報2049點，升9點，升幅0.48%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774924-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774924-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:36:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    人行逆回購操作1326億元人民幣　淨回籠174億元
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774923-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="人行公開市場開展1326億元人民幣7天期逆回購操作，規模遠低於昨日。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=20&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774923_1_20241017093152.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 人民銀行公開市場開展1326億元人民幣7天期逆回購操作，規模遠低於昨日，利率維持1.5厘。對沖到期量後，單日淨回籠174億元。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774923-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774923-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:33:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱繼續研究方法協助青年置業
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超說，已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774922_1_20241017094328.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超說，政府沒有放棄研究協助青年置業，他在電台聯播節目《行政長官施政答問》表示， 有聽眾來電說，不少青年置業是缺首期，建議讓市民動用強積金儲蓄作置業首期。
- <br>
-  <br/>
-  李家超回應，當局初步研究認為，強積金始終是市民退休後生活保障，但現時沒有排除任何可能性，他已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮，例如儲錢後最終不買樓或儲不夠錢，應如何解決，當局會繼續研究。
-  <br/>
-  <br/>
-  有做裝修工作的市民來電指，現時獨居、綜緩戶面對劏房租金2000至3000元，已難以維生，如果將「簡樸房」定在8平方米，租金估計會上升至5000多元，這些住戶將無法負擔，最終會被「掃出街」。
-  <br/>
-  <br/>
-  李家超形容反映意見的市民是很愛香港，他回應指，現有劏房戶有四成有資格上公屋；有兩成要等待成為居港七年居民，也有機會上樓，因此有五成至六成住戶是有機會上公屋。他期望用真正公屋容納有關市民，現時是過渡措施，有些特別個案會作特別處理，政府不希望有人無家可歸，要有不同方法令他們「有瓦遮頭」。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:31:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股競價時段升約1%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774920-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="恒生指數競價時段報20471點，升185點，升幅0.91%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774920_1_20241017092431.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 恒生指數競價時段報20471點，升185點，升幅0.91%。
- <br>
-  <br/>
-  科技指數報4449點，升47點，升幅1.07%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774920-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774920-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:25:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱發展重質重量　啟德體育園成大型地標
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超認為，本港發展要重質重量，啟德體育園將成為大型地標。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774921_1_20241017100942.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 對於有意見認為香港應要聚焦舉辦盛事，有量亦要有質。行政長官李家超表示，三份施政報告面對的環境不一樣，2022年是疫情期；2023年是走出疫情期，目標是社會復常，要先有人氣財氣，先有量才作選擇；現時是安全保障期，由治及興，大展拳腳，現在已有實力，可以「上擂台」，因此又重質又重量，如何平衡要考技巧。
- <br>
-  <br/>
-  李家超出席電台聯播節目時說，香港正處於轉型期，甚麼也要試，不要因為怕失敗就不試，好像早前搞夜經濟，不試就一定不成功，試或者有機會成功。
-  <br/>
-  <br/>
-  被問到周邊地區包括新加坡、高雄及澳門也有大型場地，舉辦演唱會吸引海外旅客，香港如何凸顯優勢。李家超回應說啟德體育園是香港的機遇及亮點，必須用好這個大型地標，這是整個政府及大家的共同責任，也要邀請承辦商及不同餐飲進入場館。他比喻說好的明星演戲與演技差的演員演戲，效果完全一樣，又說不可浪費這個5萬人場地。
-  <br/>
-  <br/>
-  李家超強調啟德體育園如何安排好活動，政府會有參與，不是放手不理，因為會影響整個香港。他表示，就場地的疏散安排，要求用加大倍數的安全系數處理，並作演練。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:25:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    融創中國擬配股集資約12億元人民幣　支持境內公司債解決方案
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774916-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="融創中國配售價每股2.465元，較昨日收市價折讓近20%，集資總額約12.05億元。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774916_1_20241017091403.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 融創中國計劃以先舊後新方式配售最多4.89億股新股，相當於擴大後發行股本約5.31%，配售價每股2.465元，較昨日收市價折讓近20%，集資總額約12.05億元，集資淨額約11.92億元。
- <br>
-  <br/>
-  融創表示，集資所得款項淨額主要用於支持境內公司債長期解決方案落地，以及一般營運資金。董事會認為交易將更好支持化解境內公開市場債務風險，有利於推進保交付工作及恢復營運。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774916-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774916-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    人民幣兌美元中間價再跌29點子　創逾1個半月新低
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774918-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="人民幣兌美元中間價報7.122兌1美元，再跌29點子，創逾1個半月新低。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=25&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774918_1_20241017091738.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 人民幣兌美元中間價跌勢持續，報7.122兌1美元，較昨日中間價再跌29點子，創逾1個半月新低。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774918-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774918-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:19:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日本上月出口按年跌1.7%遜預期　10個月以來首次跌
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774917-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日本9月出口按年下跌1.7%，是10個月來首次下跌，市場原來估計增長0.5%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774917_1_20241017091525.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 日本財務省公布，9月出口按年下跌1.7%，是10個月來首次下跌，市場原來估計增長0.5%。
- <br>
-  <br/>
-  日本9月進口按年增長2.1%，增幅小過市場預期。9月貿易逆差2943億日圓，相當於19.7億美元，多過市場預期。
-  <br/>
-  <br/>
-  數據顯示，日本9月對亞洲出口按年增長0.3%，當中對中國出口按年減少7.3%；對美國及歐盟出口分別減少2.4%及9%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774917-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774917-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:15:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超：阻止港人離港消費不切實際
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774915_1_20241017093849.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超出席施政報告聯合電台節目，對於市民北上消費，李家超認為，社會要認識有關轉變不是周期性而是結構性，不能以舊有方法應對。
- <br>
-  <br/>
-  他指出，阻止港人離港消費是不切實際亦不應該，香港是自由靈活的市場，市場營運者要自我革新，例如18區現時各有打卡熱點，商戶如何配合，將產品融入其中。李家超特別提到政府有政策支持熊貓經濟，熊貓亦深受市民和遊客喜愛，商界就要「度橋」搞好綽頭配合。
-  <br/>
-  <br/>
-  有聽眾致電節目，建議以八達通向旅客發放消費券刺激市道，李家超說，希望全社會推動消費，不只由政府去做，他指出，早前國慶長假期有3000多間商戶響應推出優惠活動，參與的商戶收入增加，他認為是好事。
-  <br/>
-  <br/>
-  另外，有聽眾致電，關注減烈酒稅或會令更多人飲酒，損害健康。李家超強調，政府不鼓勵市民飲酒，本港有85%烈酒進口價在200元以下，稅率不變，他指出，減烈酒稅是為了推動本港高端烈酒貿易，參考2008年全面取消紅酒稅經驗，發現對市民的影響小，經濟效益大，本港目前是世界第三大紅酒貿易市場。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    台股開市後靠穩
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774914-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="台灣加權指數較早時報23083點，升72點，升幅0.31%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774914_1_20241017090921.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 台灣股市靠穩。加權指數較早時報23083點，升72點，升幅0.31%。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774914-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774914-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 09:10:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱本港安全自由適合建黃金倉庫
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774912_1_20241017090453.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超出席施政報告聯合電台節目，他表示，香港屬開放型經濟，昨日菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，他認為政府做好規管，亦令到市場自由發揮得好，反映政策定得對，但在過渡期挑戰大一些，但落實措施刺激經濟，都是實實在在的。
- <br>
-  <br/>
-  李家超說，面對市場要有大局觀， 要有新的增長點，今次施政報告是行動型，推動進一步強化目標，例如本港安全自由，適合建黃金倉庫以及進行大宗商品貿易，當大宗商品貿易家來港，其團隊亦會來港。
-  <br/>
-  <br/>
-  被問到現時零售業的情況，李家超認為，要正視問題，不要逃避，政府可以幫的會盡量幫，例如零售市道不是很好，因為旅客的結構性改變，有些人醒覺，知道客人需要甚麼而作出改變，過渡期內有起伏，每個人都要自強不息去改革。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 08:47:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    韓股開市後靠穩
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774906-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="首爾綜合指數較早時報2617點，升6點，升幅0.26%。（交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774906_1_20241017081258.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 南韓股市靠穩。首爾綜合指數較早時報2617點，升6點，升幅0.26%。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774906-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774906-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 08:14:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    日股開市後變動不大
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774904-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="日經指數較早時報39160點，跌19點。（交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774904_1_20241017081125.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 東京股市變動不大。日經指數較早時報39160點，跌19點。
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774904-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774904-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 08:14:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超：處理劏房問題先易後難要有序
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774907_1_20241017083038.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 新一份施政報告提出制訂「住宅樓宇分間單位出租制度」，合標準單位名為「簡樸房」，取代劏房，行政長官李家超出席施政報告聯合電台節目，被問到不合標劏房「清零」的時間表，他表示，要務實看待問題，劏房問題積累多年，原因是市民有居住需要但供應不足，要做到供應足夠需要很長時間，但他不想劏房居民等得久，必須務實按部就班有序處理。
- <br>
-  <br/>
-  李家超相信規管劏房相關立法最快明年進行，希望在立法會換屆前完成。至於登記期，建議在12至18個月，但如果在12個月內完成登記，意味每月要處理9000多個單位，必須增加人手。
-  <br/>
-  <br/>
-  李家超表示，對違規放租業主的刑罰要具阻嚇性，相信做生意的人不想坐監，他認為刑罰要以2年監禁為起點，亦可以是3年。他認為，劏房租金反映現實情況，目前有規管租金加幅，相信訂立「簡樸房」標準後，租金會反映單位的配套及周邊環境。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 08:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美元兌主要貨幣創11周新高
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774898-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美元匯價創11周新高，投資者預計主要央行未來減息幅度將超過聯儲局。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774898_1_20241017055938.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美元匯價創11周新高，投資者普遍預期聯儲局下月減息幅度收窄至0.25厘，並且預計主要央行未來減息幅度將超過聯儲局，支持美元。
- <br>
-  <br/>
-  英鎊兌美元跌穿1.3，創兩個月新低。英國9月通脹率降至1.7%，是2021年4月以來最低，為英倫銀行更大幅度減息提供空間。
-  <br/>
-  <br/>
-  歐元兌美元較早時報1.086水平。英鎊兌美元報1.299。美元兌日圓報149.6。
-  <br/>
-  <br/>
-  至於美國10年期國債孳息率下跌2.6個基點，連續3日下跌，跌至4.012厘，較早時跌穿4厘。30年期國債孳息率下跌3.3個基點。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774898-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774898-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 06:27:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    港股美國預託證券較本港收市普遍上升
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774899-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="滙控美國預託證券較本港收市升逾1%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774899_1_20241017060716.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 滙控美國預託證券折合68.54港元，較本港收市升逾1%。
- <br>
-  <br/>
-  友邦及美團的美國預託證券較本港收市升近1%。
-  <br/>
-  <br/>
-  不過，多隻內銀股的美國預託證券較本港收市都下跌。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774899-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774899-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 06:27:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    紐約期金高收約0.5%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774896-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國國債孳息率偏軟，主要央行預期減息，都支持金價。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774896_1_20241017054216.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 外圍金價上升。美國國債孳息率偏軟，主要央行預期減息，都支持金價。
- <br>
-  <br/>
-  紐約12月期金收市報每盎士2691.3美元，升12.4美元，升幅約0.5%。
-  <br/>
-  <br/>
-  現貨金較早時在2674美元附近。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774896-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774896-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 05:45:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美股造好　道指再創收市新高　金融股帶動
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774894-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="道指收市再創新高，資金由科技股流向大型金融股及細價股。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774894_1_20241017051817.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 紐約股市上升，道瓊斯指數再創收市新高，資金由科技股流向大型金融股及細價股。
- <br>
-  <br/>
-  道瓊斯指數收市報43077點，升337點，升幅0.79%。
-  <br/>
-  <br/>
-  納斯達克指數報18367點，升51點，升幅0.28%。
-  <br/>
-  <br/>
-  標準普爾500指數報5842點，升27點，升幅0.47%。
-  <br/>
-  <br/>
-  摩根士丹利高收逾6%，創收市新高，受業績理想帶動。其他大型區域銀行股亦造好。
-  <br/>
-  <br/>
-  科技股偏軟。蘋果低收近1%，Meta跌逾1.6%。不過，晶片股Nvidia就先跌後升，高收逾3%。
-  <br/>
-  <br/>
-  航空股顯著造好，聯合航空收市升逾12%。公司預期第4季業績好過市場預期。達美航空及美國航空亦升7%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774894-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774894-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 05:25:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    歐洲主要股市個別發展　英股高收近1%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774891-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="英股收市升0.97%，德股及法股偏軟。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774891_1_20241017044403.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 歐洲主要股市個別發展。ASML及LVMH業績令市場失望，衝擊科技股及奢侈品股份表現。歐洲央行政策會議舉行前，投資者入市態度審慎。
- <br>
-  <br/>
-  倫敦富時指數收市報8329點，升79點，升幅0.97%。
-  <br/>
-  <br/>
-  巴黎CAC40指數報7492點，跌29點，跌幅0.4%。
-  <br/>
-  <br/>
-  法蘭克福DAX指數報19432點，跌53點，跌幅0.27%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774891-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774891-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 04:57:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    紐約期油低收19美仙
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774893-20241017.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="原油期貨價格繼續在兩周低位附近，但跌幅收窄。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774893_1_20241017045534.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 原油期貨價格繼續在兩周低位附近，但跌幅收窄。中東緊張局勢稍為緩和，紓緩投資者對供應的憂慮。
- <br>
-  <br/>
-  紐約11月期油收市報每桶70.39美元，跌19美仙。
-  <br/>
-  <br/>
-  布蘭特12月期油收市報每桶74.22美元，跌3美仙。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774893-20241017.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774893-20241017.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Thu, 17 Oct 2024 04:57:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    李寧旗下非凡領越擬私有化堡獅龍國際
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774884-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="非凡領越計劃以協議安排方式私有化堡獅龍國際，代價為每5股堡獅龍股份，獲發1股新非凡股份。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=65&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774884_1_20241016232749.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 非凡領越公布，計劃以協議安排方式私有化堡獅龍國際，代價為每5股堡獅龍股份，獲發1股新非凡股份，堡獅龍將向聯交所申請撤回股份上市地位。
- <br>
-  <br/>
-  每股堡獅龍股份價值0.108元，較停牌前0.123元的收市價折讓約12.2%。
-  <br/>
-  <br/>
-  非凡領越和堡獅龍國際將於明早復牌。
-  <br/>
-  <br/>
-  非凡領越主席兼行政總裁為體操名將李寧。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774884-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774884-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 23:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024 | 《行政長官2024年施政報告論壇》
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="林健鋒（左二起）、鄭泳舜及麥萃才出席新聞部節目，討論新一份《施政報告》內容。（陳曉慶攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774879_1_20241016230425.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超發表任內第三份《施政報告》，提出多項措施解決房屋問題及刺激經濟。金管局放寬物業按揭貸款條件，按揭成數上限一律調整至七成； 針對劏房問題，行政長官李家超表明，決心以立法方式釐訂合標準單位，並正名為「簡樸房」；即日起減烈酒稅，進口價200元以上的烈酒，200元以上部分的稅率由100%，大幅減至10%。
- <br>
-  <br/>
-  行政會議成員、經民聯立法會議員林健鋒在本台節目《施政報告論壇》表示，放寬物業按揭成數上限至七成，是回復至2009年時逆周期的水平，增加投資者的入市信心，部分地產股亦上升，反映措施帶來正面效果。
-  <br/>
-  <br/>
-  民建聯立法會議員鄭泳舜認為，提供不同房屋階梯是重要，相信會令到有意入市的市民更積極考慮。浸會大學會計、經濟及金融學系副教授麥萃才說，以往「細樓換大樓」不容易，因為「大樓」的按揭成數較低，但在新措施下，有利「換樓鏈」；新政策下，中小企亦可以將物業再按揭套現，以便改善現金流，相信對經濟有正面幫助。
-  <br/>
-  <br/>
-  對於《施政報告》提出以立法方式處理劏房，鄭泳舜認為，特區政府有決心解決這個問題，而且去到最後階段，他期望明年可以訂出時間表，逐步取締劏房，同時交代如何處理部分劏房居民的住屋需要。林健鋒說，業主如要改造劏房所需時間不長，最重要是「人人有屋住」，相信特首都不會容讓有市民要「瞓街」，目前已有簡約公屋，建議當局可以多利用空置校舍。麥萃才表示，取締劏房是扶貧的政策之一，未來會有簡約公屋等數萬間短期房屋供應，可以應付到由劏房搬出來、最有需要協助的市民，從而令政府可以清除最劣質劏房。
-  <br/>
-  <br/>
-  《施政報告》即日起減烈酒稅，醫學界表達反對聲音，本身是行會成員的林健鋒表示，明白大家的意見，但他強調，減烈酒稅可以鞏固香港作為國際名酒交易的集散中心地位，又認為可以搞活夜市。麥萃才說，不少高收入人士都喜好飲酒，提供較低稅率的烈酒，有助帶動存酒、物流及保險等方面的經濟市場，其他海外買家買酒後，亦可以將酒儲存在本港，日後再提取。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 23:05:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱轉型期政府有責任協助　各方亦要自強
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超表示在經濟轉型期，政府有責任協助，各方亦要檢視並創造自身優勢。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774883_1_20241016225044.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 施政報告提出一系列措施支援中小企，包括在「中小企融資擔保計劃」下，重推「還息不還本」安排。
- <br>
-  <br/>
-  行政長官李家超表示，在經濟轉型期，政府有責任提供協助，各方亦要改革和自強，檢視並創造自身優勢。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 22:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱物業市場未見炒賣跡象　政策因時制宜
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超說，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774882_1_20241016224301.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 施政報告宣布，放寬物業按揭貸款成數上限，按揭成數上限劃一至七成；另外「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬港元。
- <br>
-  <br/>
-  被問到有關措施會否令樓市「炒風」重現，行政長官李家超回應，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 22:40:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美股初段個別發展
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774873-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="道瓊斯指數較早時報42791點，升51點，升幅0.1%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774873_1_20241016213748.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美股在開市初段個別發展。
- <br>
-  <br/>
-  道瓊斯指數較早時報42791點，升51點，升幅0.1%。
-  <br/>
-  <br/>
-  標準普爾500指數報5813點，跌1點。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774873-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774873-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 21:38:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    摩根士丹利上季業績勝預期　股價盤前升約4%
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774871-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="摩根士丹利上季盈利按年增長32%至近31.9億美元，每股盈利1.88美元，好過市場預期。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=10&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774871_1_20241016211406.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 摩根士丹利公布，上季盈利按年增長32%至近31.9億美元，每股盈利1.88美元，好過市場預期，受到交易量回升帶動。
- <br>
-  <br/>
-  期內，收入增長近16%至153.8億美元，高過預期。財富管理部門收入升約14%至72.7億美元，結束連續4個季度的跌勢。投資管理部門收入升約9%至近14.6億美元。
-  <br/>
-  <br/>
-  機構證券部門收入升20%至近68.2億美元，其中投行業務收入升56%至14.6億美元。
-  <br/>
-  <br/>
-  大摩股價在開市前交易時段升約4%。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774871-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774871-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 21:19:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    美國9月出口物價按月跌0.7%遜預期
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774870-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="美國9月出口物價按月跌0.7%，進口物價跌0.4%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774870_1_20241016205127.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 美國勞工部公布，美國9月出口物價按月跌0.7%，跌幅多過市場預期的0.4%。
- <br>
-  <br/>
-  期內，進口物價按月跌0.4%，創9個月以來最大跌幅，符合預期。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774870-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774870-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 20:54:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超稱行業要自己幫自己　政府亦會提供協助
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774869_1_20241016223728.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 行政長官李家超表示，本港旅客結構已改變，並非周期性問題，因此要因時制宜推出新政策，吸引旅客來港，帶動本港的旅遊、餐飲及周邊行業。
- <br>
-  <br/>
-  被問到港人北上消費，李家超出席施政報告電視論壇時表示，不同行業在經濟轉型期都會面對不同問題，政府有責任亦會提供協助，同時行業要自己幫自己。他說，轉型期間各方要改革和自強，檢視並創造自身優勢。
-  <br/>
-  <br/>
-  被問到新一份施政報告沒有提及夜經濟，李家超表示，沒有提及不代表不做，當局已要求18區舉辦活動推動經濟，而政務司副司長亦主持工作組推動發掘旅遊熱點，又強調要留意會否「興一利，生一弊」，例如出現嘈音問題。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 20:38:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    中人壽料首3季盈利按年升最少1.65倍
-   </title>
-   <link>
+    <description>
+     rthk - 財經
+    </description>
+    <copyright>
+     © 香港電台 RTHK
+    </copyright>
+    <docs>
+     http://www.rssboard.org/rss-specification
+    </docs>
+    <generator>
+     python-feedgen
+    </generator>
+    <image>
+     <url>
+      <![CDATA[https://images.weserv.nl/?n=-1&output=webp&trim=1&url=https%3A%2F%2Ffavicone.com%2Fnews.rthk.hk]]>
+     </url>
+     <title>
+      rthk - 財經
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=5&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
+    </image>
+    <language>
+     zh-HK
+    </language>
+    <lastbuilddate>
+     Thu, 17 Oct 2024 07:02:02 +0000
+    </lastbuilddate>
+    <webmaster>
+     webmaster@rthk.hk
+    </webmaster>
+    <item>
+     <title>
+      中人壽料首3季盈利按年升最少1.65倍
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774861-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="中人壽預計，在中國企業會計準則下，首3季盈利按年增長約1.65倍至1.85倍。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774861_1_20241016191318.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   中國人壽公布，預計在中國企業會計準則下，今年首3季盈利介乎1011.35億至1087.67億元人民幣，按年增長約1.65倍至1.85倍。
+   <br/>
+   <br/>
+   集團表示，今年第3季股票市場顯著回暖，公司投資收益按年大幅提升。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774861-20241016.htm" rel="nofollow">
     https://news.rthk.hk/rthk/ch/component/k2/1774861-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="中人壽預計，在中國企業會計準則下，首3季盈利按年增長約1.65倍至1.85倍。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774861_1_20241016191318.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 中國人壽公布，預計在中國企業會計準則下，今年首3季盈利介乎1011.35億至1087.67億元人民幣，按年增長約1.65倍至1.85倍。
- <br>
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 19:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超：劏房問題累積多年　須按部就班處理
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774862_3_20241016225555.jpg" style="width:100%;height:auto"/>
   <br/>
-  集團表示，今年第3季股票市場顯著回暖，公司投資收益按年大幅提升。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774861-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774861-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 19:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    施政報告2024｜李家超：劏房問題累積多年　須按部就班處理
-   </title>
-   <link>
+  <div class="itemFullText">
+   新一份施政報告提出，將以立法方式處理劏房問題，符合標準的單位將名為「簡樸房」，包括必須有窗、有獨立廁所、面積不少於8平方米等。
+   <br/>
+   <br/>
+   行政長官李家超出席施政報告電視論壇時表示，他是心急的人，但劏房問題累積多年，不可一蹴即就，應按部就班，務實處理，至於日後是否取締劏房會按風險程度等因素。
+   <br/>
+   <br/>
+   李家超認為，劏房問題錯綜複雜，社會上不同劏房良莠不齊，條件差異很大。不過，調研指出，有人居住在劏房是因為認為交通方便，以及租金水平、居住面積、治安環境及衛生條件符合要求等。
+   <br/>
+   <br/>
+   他表示，今次提出訂立的是最低標準，希望透過將分間單位標準化，讓劣質單位不復存在，強調有些底線要守，包括面積不少於8平方米，而獨立廁所亦重要，希望日後市場的簡樸房條件高於標準，亦期望香港人未來無論是租住或置業的單位都可住大些。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm" rel="nofollow">
     https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774862_3_20241016225555.jpg" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 新一份施政報告提出，將以立法方式處理劏房問題，符合標準的單位將名為「簡樸房」，包括必須有窗、有獨立廁所、面積不少於8平方米等。
- <br>
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 19:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱行業要自己幫自己　政府亦會提供協助
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774869_1_20241016223728.jpg" style="width:100%;height:auto"/>
   <br/>
-  行政長官李家超出席施政報告電視論壇時表示，他是心急的人，但劏房問題累積多年，不可一蹴即就，應按部就班，務實處理，至於日後是否取締劏房會按風險程度等因素。
+  <div class="itemFullText">
+   行政長官李家超表示，本港旅客結構已改變，並非周期性問題，因此要因時制宜推出新政策，吸引旅客來港，帶動本港的旅遊、餐飲及周邊行業。
+   <br/>
+   <br/>
+   被問到港人北上消費，李家超出席施政報告電視論壇時表示，不同行業在經濟轉型期都會面對不同問題，政府有責任亦會提供協助，同時行業要自己幫自己。他說，轉型期間各方要改革和自強，檢視並創造自身優勢。
+   <br/>
+   <br/>
+   被問到新一份施政報告沒有提及夜經濟，李家超表示，沒有提及不代表不做，當局已要求18區舉辦活動推動經濟，而政務司副司長亦主持工作組推動發掘旅遊熱點，又強調要留意會否「興一利，生一弊」，例如出現嘈音問題。
+  </div>
   <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774869-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 20:38:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美國9月出口物價按月跌0.7%遜預期
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774870-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="美國9月出口物價按月跌0.7%，進口物價跌0.4%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774870_1_20241016205127.jpg" style="width:100%;height:auto"/>
   <br/>
-  李家超認為，劏房問題錯綜複雜，社會上不同劏房良莠不齊，條件差異很大。不過，調研指出，有人居住在劏房是因為認為交通方便，以及租金水平、居住面積、治安環境及衛生條件符合要求等。
+  <div class="itemFullText">
+   美國勞工部公布，美國9月出口物價按月跌0.7%，跌幅多過市場預期的0.4%。
+   <br/>
+   <br/>
+   期內，進口物價按月跌0.4%，創9個月以來最大跌幅，符合預期。
+  </div>
   <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774870-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774870-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 20:54:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      摩根士丹利上季業績勝預期　股價盤前升約4%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774871-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="摩根士丹利上季盈利按年增長32%至近31.9億美元，每股盈利1.88美元，好過市場預期。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=10&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774871_1_20241016211406.jpg" style="width:100%;height:auto"/>
   <br/>
-  他表示，今次提出訂立的是最低標準，希望透過將分間單位標準化，讓劣質單位不復存在，強調有些底線要守，包括面積不少於8平方米，而獨立廁所亦重要，希望日後市場的簡樸房條件高於標準，亦期望香港人未來無論是租住或置業的單位都可住大些。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1774862-20241016.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <pubDate>
-    Wed, 16 Oct 2024 19:13:00 +0800
-   </pubDate>
-  </item>
- </channel>
-</rss>
+  <div class="itemFullText">
+   摩根士丹利公布，上季盈利按年增長32%至近31.9億美元，每股盈利1.88美元，好過市場預期，受到交易量回升帶動。
+   <br/>
+   <br/>
+   期內，收入增長近16%至153.8億美元，高過預期。財富管理部門收入升約14%至72.7億美元，結束連續4個季度的跌勢。投資管理部門收入升約9%至近14.6億美元。
+   <br/>
+   <br/>
+   機構證券部門收入升20%至近68.2億美元，其中投行業務收入升56%至14.6億美元。
+   <br/>
+   <br/>
+   大摩股價在開市前交易時段升約4%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774871-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774871-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 21:19:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美股初段個別發展
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774873-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="道瓊斯指數較早時報42791點，升51點，升幅0.1%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774873_1_20241016213748.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   美股在開市初段個別發展。
+   <br/>
+   <br/>
+   道瓊斯指數較早時報42791點，升51點，升幅0.1%。
+   <br/>
+   <br/>
+   標準普爾500指數報5813點，跌1點。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774873-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774873-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 21:38:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱物業市場未見炒賣跡象　政策因時制宜
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超說，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774882_1_20241016224301.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   施政報告宣布，放寬物業按揭貸款成數上限，按揭成數上限劃一至七成；另外「新資本投資者入境計劃」容許申請人投資住宅物業，單一物業成交價須至少5000萬港元。
+   <br/>
+   <br/>
+   被問到有關措施會否令樓市「炒風」重現，行政長官李家超回應，目前物業市場未見有炒賣的跡象，強調政策要因時制宜，令物業市場健康發展。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774882-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 22:40:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱轉型期政府有責任協助　各方亦要自強
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超表示在經濟轉型期，政府有責任協助，各方亦要檢視並創造自身優勢。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774883_1_20241016225044.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   施政報告提出一系列措施支援中小企，包括在「中小企融資擔保計劃」下，重推「還息不還本」安排。
+   <br/>
+   <br/>
+   行政長官李家超表示，在經濟轉型期，政府有責任提供協助，各方亦要改革和自強，檢視並創造自身優勢。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774883-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 22:43:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024 | 《行政長官2024年施政報告論壇》
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="林健鋒（左二起）、鄭泳舜及麥萃才出席新聞部節目，討論新一份《施政報告》內容。（陳曉慶攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774879_1_20241016230425.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行政長官李家超發表任內第三份《施政報告》，提出多項措施解決房屋問題及刺激經濟。金管局放寬物業按揭貸款條件，按揭成數上限一律調整至七成； 針對劏房問題，行政長官李家超表明，決心以立法方式釐訂合標準單位，並正名為「簡樸房」；即日起減烈酒稅，進口價200元以上的烈酒，200元以上部分的稅率由100%，大幅減至10%。
+   <br/>
+   <br/>
+   行政會議成員、經民聯立法會議員林健鋒在本台節目《施政報告論壇》表示，放寬物業按揭成數上限至七成，是回復至2009年時逆周期的水平，增加投資者的入市信心，部分地產股亦上升，反映措施帶來正面效果。
+   <br/>
+   <br/>
+   民建聯立法會議員鄭泳舜認為，提供不同房屋階梯是重要，相信會令到有意入市的市民更積極考慮。浸會大學會計、經濟及金融學系副教授麥萃才說，以往「細樓換大樓」不容易，因為「大樓」的按揭成數較低，但在新措施下，有利「換樓鏈」；新政策下，中小企亦可以將物業再按揭套現，以便改善現金流，相信對經濟有正面幫助。
+   <br/>
+   <br/>
+   對於《施政報告》提出以立法方式處理劏房，鄭泳舜認為，特區政府有決心解決這個問題，而且去到最後階段，他期望明年可以訂出時間表，逐步取締劏房，同時交代如何處理部分劏房居民的住屋需要。林健鋒說，業主如要改造劏房所需時間不長，最重要是「人人有屋住」，相信特首都不會容讓有市民要「瞓街」，目前已有簡約公屋，建議當局可以多利用空置校舍。麥萃才表示，取締劏房是扶貧的政策之一，未來會有簡約公屋等數萬間短期房屋供應，可以應付到由劏房搬出來、最有需要協助的市民，從而令政府可以清除最劣質劏房。
+   <br/>
+   <br/>
+   《施政報告》即日起減烈酒稅，醫學界表達反對聲音，本身是行會成員的林健鋒表示，明白大家的意見，但他強調，減烈酒稅可以鞏固香港作為國際名酒交易的集散中心地位，又認為可以搞活夜市。麥萃才說，不少高收入人士都喜好飲酒，提供較低稅率的烈酒，有助帶動存酒、物流及保險等方面的經濟市場，其他海外買家買酒後，亦可以將酒儲存在本港，日後再提取。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774879-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 23:05:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      李寧旗下非凡領越擬私有化堡獅龍國際
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774884-20241016.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="非凡領越計劃以協議安排方式私有化堡獅龍國際，代價為每5股堡獅龍股份，獲發1股新非凡股份。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=65&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774884_1_20241016232749.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   非凡領越公布，計劃以協議安排方式私有化堡獅龍國際，代價為每5股堡獅龍股份，獲發1股新非凡股份，堡獅龍將向聯交所申請撤回股份上市地位。
+   <br/>
+   <br/>
+   每股堡獅龍股份價值0.108元，較停牌前0.123元的收市價折讓約12.2%。
+   <br/>
+   <br/>
+   非凡領越和堡獅龍國際將於明早復牌。
+   <br/>
+   <br/>
+   非凡領越主席兼行政總裁為體操名將李寧。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774884-20241016.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774884-20241016.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Wed, 16 Oct 2024 23:39:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      歐洲主要股市個別發展　英股高收近1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774891-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="英股收市升0.97%，德股及法股偏軟。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774891_1_20241017044403.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   歐洲主要股市個別發展。ASML及LVMH業績令市場失望，衝擊科技股及奢侈品股份表現。歐洲央行政策會議舉行前，投資者入市態度審慎。
+   <br/>
+   <br/>
+   倫敦富時指數收市報8329點，升79點，升幅0.97%。
+   <br/>
+   <br/>
+   巴黎CAC40指數報7492點，跌29點，跌幅0.4%。
+   <br/>
+   <br/>
+   法蘭克福DAX指數報19432點，跌53點，跌幅0.27%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774891-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774891-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 04:57:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      紐約期油低收19美仙
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774893-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="原油期貨價格繼續在兩周低位附近，但跌幅收窄。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774893_1_20241017045534.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   原油期貨價格繼續在兩周低位附近，但跌幅收窄。中東緊張局勢稍為緩和，紓緩投資者對供應的憂慮。
+   <br/>
+   <br/>
+   紐約11月期油收市報每桶70.39美元，跌19美仙。
+   <br/>
+   <br/>
+   布蘭特12月期油收市報每桶74.22美元，跌3美仙。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774893-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774893-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 04:57:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美股造好　道指再創收市新高　金融股帶動
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774894-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="道指收市再創新高，資金由科技股流向大型金融股及細價股。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774894_1_20241017051817.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   紐約股市上升，道瓊斯指數再創收市新高，資金由科技股流向大型金融股及細價股。
+   <br/>
+   <br/>
+   道瓊斯指數收市報43077點，升337點，升幅0.79%。
+   <br/>
+   <br/>
+   納斯達克指數報18367點，升51點，升幅0.28%。
+   <br/>
+   <br/>
+   標準普爾500指數報5842點，升27點，升幅0.47%。
+   <br/>
+   <br/>
+   摩根士丹利高收逾6%，創收市新高，受業績理想帶動。其他大型區域銀行股亦造好。
+   <br/>
+   <br/>
+   科技股偏軟。蘋果低收近1%，Meta跌逾1.6%。不過，晶片股Nvidia就先跌後升，高收逾3%。
+   <br/>
+   <br/>
+   航空股顯著造好，聯合航空收市升逾12%。公司預期第4季業績好過市場預期。達美航空及美國航空亦升7%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774894-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774894-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 05:25:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      紐約期金高收約0.5%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774896-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="美國國債孳息率偏軟，主要央行預期減息，都支持金價。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774896_1_20241017054216.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   外圍金價上升。美國國債孳息率偏軟，主要央行預期減息，都支持金價。
+   <br/>
+   <br/>
+   紐約12月期金收市報每盎士2691.3美元，升12.4美元，升幅約0.5%。
+   <br/>
+   <br/>
+   現貨金較早時在2674美元附近。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774896-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774896-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 05:45:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      美元兌主要貨幣創11周新高
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774898-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="美元匯價創11周新高，投資者預計主要央行未來減息幅度將超過聯儲局。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774898_1_20241017055938.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   美元匯價創11周新高，投資者普遍預期聯儲局下月減息幅度收窄至0.25厘，並且預計主要央行未來減息幅度將超過聯儲局，支持美元。
+   <br/>
+   <br/>
+   英鎊兌美元跌穿1.3，創兩個月新低。英國9月通脹率降至1.7%，是2021年4月以來最低，為英倫銀行更大幅度減息提供空間。
+   <br/>
+   <br/>
+   歐元兌美元較早時報1.086水平。英鎊兌美元報1.299。美元兌日圓報149.6。
+   <br/>
+   <br/>
+   至於美國10年期國債孳息率下跌2.6個基點，連續3日下跌，跌至4.012厘，較早時跌穿4厘。30年期國債孳息率下跌3.3個基點。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774898-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774898-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 06:27:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股美國預託證券較本港收市普遍上升
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774899-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="滙控美國預託證券較本港收市升逾1%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774899_1_20241017060716.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   滙控美國預託證券折合68.54港元，較本港收市升逾1%。
+   <br/>
+   <br/>
+   友邦及美團的美國預託證券較本港收市升近1%。
+   <br/>
+   <br/>
+   不過，多隻內銀股的美國預託證券較本港收市都下跌。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774899-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774899-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 06:27:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超：處理劏房問題先易後難要有序
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774907_1_20241017083038.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   新一份施政報告提出制訂「住宅樓宇分間單位出租制度」，合標準單位名為「簡樸房」，取代劏房，行政長官李家超出席施政報告聯合電台節目，被問到不合標劏房「清零」的時間表，他表示，要務實看待問題，劏房問題積累多年，原因是市民有居住需要但供應不足，要做到供應足夠需要很長時間，但他不想劏房居民等得久，必須務實按部就班有序處理。
+   <br/>
+   <br/>
+   李家超相信規管劏房相關立法最快明年進行，希望在立法會換屆前完成。至於登記期，建議在12至18個月，但如果在12個月內完成登記，意味每月要處理9000多個單位，必須增加人手。
+   <br/>
+   <br/>
+   李家超表示，對違規放租業主的刑罰要具阻嚇性，相信做生意的人不想坐監，他認為刑罰要以2年監禁為起點，亦可以是3年。他認為，劏房租金反映現實情況，目前有規管租金加幅，相信訂立「簡樸房」標準後，租金會反映單位的配套及周邊環境。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774907-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 08:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      韓股開市後靠穩
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774906-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="首爾綜合指數較早時報2617點，升6點，升幅0.26%。（交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774906_1_20241017081258.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   南韓股市靠穩。首爾綜合指數較早時報2617點，升6點，升幅0.26%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774906-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774906-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 08:14:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日股開市後變動不大
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774904-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="日經指數較早時報39160點，跌19點。（交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774904_1_20241017081125.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   東京股市變動不大。日經指數較早時報39160點，跌19點。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774904-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774904-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 08:14:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱本港安全自由適合建黃金倉庫
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774912_1_20241017090453.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行政長官李家超出席施政報告聯合電台節目，他表示，香港屬開放型經濟，昨日菲沙研究所發布《世界經濟自由度2024年度報告》，香港獲評為全球最自由經濟體，他認為政府做好規管，亦令到市場自由發揮得好，反映政策定得對，但在過渡期挑戰大一些，但落實措施刺激經濟，都是實實在在的。
+   <br/>
+   <br/>
+   李家超說，面對市場要有大局觀， 要有新的增長點，今次施政報告是行動型，推動進一步強化目標，例如本港安全自由，適合建黃金倉庫以及進行大宗商品貿易，當大宗商品貿易家來港，其團隊亦會來港。
+   <br/>
+   <br/>
+   被問到現時零售業的情況，李家超認為，要正視問題，不要逃避，政府可以幫的會盡量幫，例如零售市道不是很好，因為旅客的結構性改變，有些人醒覺，知道客人需要甚麼而作出改變，過渡期內有起伏，每個人都要自強不息去改革。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774912-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 08:47:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      台股開市後靠穩
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774914-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="台灣加權指數較早時報23083點，升72點，升幅0.31%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774914_1_20241017090921.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   台灣股市靠穩。加權指數較早時報23083點，升72點，升幅0.31%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774914-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774914-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:10:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超：阻止港人離港消費不切實際
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774915_1_20241017093849.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行政長官李家超出席施政報告聯合電台節目，對於市民北上消費，李家超認為，社會要認識有關轉變不是周期性而是結構性，不能以舊有方法應對。
+   <br/>
+   <br/>
+   他指出，阻止港人離港消費是不切實際亦不應該，香港是自由靈活的市場，市場營運者要自我革新，例如18區現時各有打卡熱點，商戶如何配合，將產品融入其中。李家超特別提到政府有政策支持熊貓經濟，熊貓亦深受市民和遊客喜愛，商界就要「度橋」搞好綽頭配合。
+   <br/>
+   <br/>
+   有聽眾致電節目，建議以八達通向旅客發放消費券刺激市道，李家超說，希望全社會推動消費，不只由政府去做，他指出，早前國慶長假期有3000多間商戶響應推出優惠活動，參與的商戶收入增加，他認為是好事。
+   <br/>
+   <br/>
+   另外，有聽眾致電，關注減烈酒稅或會令更多人飲酒，損害健康。李家超強調，政府不鼓勵市民飲酒，本港有85%烈酒進口價在200元以下，稅率不變，他指出，減烈酒稅是為了推動本港高端烈酒貿易，參考2008年全面取消紅酒稅經驗，發現對市民的影響小，經濟效益大，本港目前是世界第三大紅酒貿易市場。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774915-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日本上月出口按年跌1.7%遜預期　10個月以來首次跌
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774917-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="日本9月出口按年下跌1.7%，是10個月來首次下跌，市場原來估計增長0.5%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774917_1_20241017091525.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   日本財務省公布，9月出口按年下跌1.7%，是10個月來首次下跌，市場原來估計增長0.5%。
+   <br/>
+   <br/>
+   日本9月進口按年增長2.1%，增幅小過市場預期。9月貿易逆差2943億日圓，相當於19.7億美元，多過市場預期。
+   <br/>
+   <br/>
+   數據顯示，日本9月對亞洲出口按年增長0.3%，當中對中國出口按年減少7.3%；對美國及歐盟出口分別減少2.4%及9%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774917-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774917-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:15:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      人民幣兌美元中間價再跌29點子　創逾1個半月新低
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774918-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="人民幣兌美元中間價報7.122兌1美元，再跌29點子，創逾1個半月新低。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=25&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774918_1_20241017091738.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   人民幣兌美元中間價跌勢持續，報7.122兌1美元，較昨日中間價再跌29點子，創逾1個半月新低。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774918-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774918-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:19:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      融創中國擬配股集資約12億元人民幣　支持境內公司債解決方案
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774916-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="融創中國配售價每股2.465元，較昨日收市價折讓近20%，集資總額約12.05億元。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774916_1_20241017091403.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   融創中國計劃以先舊後新方式配售最多4.89億股新股，相當於擴大後發行股本約5.31%，配售價每股2.465元，較昨日收市價折讓近20%，集資總額約12.05億元，集資淨額約11.92億元。
+   <br/>
+   <br/>
+   融創表示，集資所得款項淨額主要用於支持境內公司債長期解決方案落地，以及一般營運資金。董事會認為交易將更好支持化解境內公開市場債務風險，有利於推進保交付工作及恢復營運。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774916-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774916-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:21:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股競價時段升約1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774920-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="恒生指數競價時段報20471點，升185點，升幅0.91%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774920_1_20241017092431.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   恒生指數競價時段報20471點，升185點，升幅0.91%。
+   <br/>
+   <br/>
+   科技指數報4449點，升47點，升幅1.07%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774920-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774920-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:25:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱發展重質重量　啟德體育園成大型地標
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超認為，本港發展要重質重量，啟德體育園將成為大型地標。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774921_1_20241017100942.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   對於有意見認為香港應要聚焦舉辦盛事，有量亦要有質。行政長官李家超表示，三份施政報告面對的環境不一樣，2022年是疫情期；2023年是走出疫情期，目標是社會復常，要先有人氣財氣，先有量才作選擇；現時是安全保障期，由治及興，大展拳腳，現在已有實力，可以「上擂台」，因此又重質又重量，如何平衡要考技巧。
+   <br/>
+   <br/>
+   李家超出席電台聯播節目時說，香港正處於轉型期，甚麼也要試，不要因為怕失敗就不試，好像早前搞夜經濟，不試就一定不成功，試或者有機會成功。
+   <br/>
+   <br/>
+   被問到周邊地區包括新加坡、高雄及澳門也有大型場地，舉辦演唱會吸引海外旅客，香港如何凸顯優勢。李家超回應說啟德體育園是香港的機遇及亮點，必須用好這個大型地標，這是整個政府及大家的共同責任，也要邀請承辦商及不同餐飲進入場館。他比喻說好的明星演戲與演技差的演員演戲，效果完全一樣，又說不可浪費這個5萬人場地。
+   <br/>
+   <br/>
+   李家超強調啟德體育園如何安排好活動，政府會有參與，不是放手不理，因為會影響整個香港。他表示，就場地的疏散安排，要求用加大倍數的安全系數處理，並作演練。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774921-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:25:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱繼續研究方法協助青年置業
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超說，已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774922_1_20241017094328.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行政長官李家超說，政府沒有放棄研究協助青年置業，他在電台聯播節目《行政長官施政答問》表示， 有聽眾來電說，不少青年置業是缺首期，建議讓市民動用強積金儲蓄作置業首期。
+   <br/>
+   <br/>
+   李家超回應，當局初步研究認為，強積金始終是市民退休後生活保障，但現時沒有排除任何可能性，他已著同事繼續研究，包括考慮其他方法，但涉及不少細節要考慮，例如儲錢後最終不買樓或儲不夠錢，應如何解決，當局會繼續研究。
+   <br/>
+   <br/>
+   有做裝修工作的市民來電指，現時獨居、綜緩戶面對劏房租金2000至3000元，已難以維生，如果將「簡樸房」定在8平方米，租金估計會上升至5000多元，這些住戶將無法負擔，最終會被「掃出街」。
+   <br/>
+   <br/>
+   李家超形容反映意見的市民是很愛香港，他回應指，現有劏房戶有四成有資格上公屋；有兩成要等待成為居港七年居民，也有機會上樓，因此有五成至六成住戶是有機會上公屋。他期望用真正公屋容納有關市民，現時是過渡措施，有些特別個案會作特別處理，政府不希望有人無家可歸，要有不同方法令他們「有瓦遮頭」。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774922-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:31:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      人行逆回購操作1326億元人民幣　淨回籠174億元
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774923-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="人行公開市場開展1326億元人民幣7天期逆回購操作，規模遠低於昨日。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=20&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774923_1_20241017093152.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   人民銀行公開市場開展1326億元人民幣7天期逆回購操作，規模遠低於昨日，利率維持1.5厘。對沖到期量後，單日淨回籠174億元。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774923-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774923-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:33:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      滬深股市初段升約0.5%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774924-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="內地股市初段靠穩，3大指數升約0.5%。上證指數較早時報3217點，升幅0.45%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774924_1_20241017093421.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   內地股市初段靠穩，3大指數升約0.5%。
+   <br/>
+   <br/>
+   上證指數較早時報3217點，升14點，升幅0.45%。
+   <br/>
+   <br/>
+   深證成份指數重上1萬點，報10013點，升48點，升幅0.49%。
+   <br/>
+   <br/>
+   創業板指數報2049點，升9點，升幅0.48%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774924-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774924-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 09:36:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      住建部：政策效果開始顯現　爭取所有合格房地產項目納入白名單
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774926-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="倪虹稱年底前將「白名單」項目信貸規模增加至4萬億元人民幣。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=45&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774926_1_20241017102924.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   住房城鄉建設部部長倪虹表示，自9月底新政策公布以來，一手房睇樓量及簽約量明顯增加，二手房交易量亦持續上升，市場出現積極變化，政策效果已開始顯現。
+   <br/>
+   <br/>
+   他在國新辦記者會上指出，年底前將「白名單」項目信貸規模增加至4萬億元人民幣，將所有房地產合格項目都爭取納入「白名單」。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774926-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774926-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 10:18:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      住建部：35個大城市需改造城中村達170萬套
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774929-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="倪虹稱城中村安全隱患多，居民改造意願迫切。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774929_1_20241017130358.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   住建部部長倪虹表示，將通過貨幣化安置等方式，新增實施100萬套城中村改造、危舊房改造。他指，城中村安全隱患多，居民改造意願迫切。據統計，35個大城市需要改造的城中村多達170萬套，其他城市亦有改造需求，全國需要改造的危舊房有50萬套，需求很大。
+   <br/>
+   <br/>
+   倪虹又說，有關改造有利消化存量商品房，只要前期工作做得好，可以在100萬套基礎上，加大支持力度。
+   <br/>
+   <br/>
+   他提到，4個一線城市9月底調整了樓市調控措施，北京、上海放寬限購條件，廣州全部取消，深圳則部分取消，充分體現了各城市因城施策。
+   <br/>
+   <br/>
+   他指，「虹吸效應」是世界各城市普遍存在現象，人口、產業向大城市集中。他認為，「虹吸效應」有利有弊，但在不同城市發展階段，「虹吸效應」亦有不同影響。而在城鎮化進程，中國著重引導大中城市及小城鎮協調發展，是防止房地產領域虹吸負面作用的制度安排。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774929-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774929-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 10:48:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日股半日跌0.6%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774931-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="日經指數半日跌235點，報38944點，跌幅0.6%。（交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=75&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774931_1_20241017105239.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   東京股市下跌。日經指數半日跌235點，報38944點，跌幅0.6%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774931-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774931-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 10:52:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱北都區片區發展方式需視乎規模及用途
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774932_1_20241017105525.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行政長官李家超到立法會出席施政報告答問會。
+   <br/>
+   <br/>
+   民建聯劉國勳關注，北部都會區3個試點片區的位置，如何令私人力量更加願意參與相關新發展模式。他又說，發展局早前發出通知，要求決策局和部門需採取便利發展及協同合作的思維，擔當促進者的角色，關注實際執行情況，包括有無具體措施令日後工程可加快及減低建造成本。
+   <br/>
+   <br/>
+   李家超說，北部都會區的片區試點，由於涉及不同考慮，會留待發展局交代，但指出，由於北都的發展超過10多年，只依靠政府的力量並不足夠，因此政府會用多元方法，按片區大小、性質等設定方案。
+   <br/>
+   <br/>
+   另外，李家超說，發展局下已成立專責小組，相關公告亦指出，每人在思維上都應有促進的責任。他形容自己是「心急人」，上任後當局已修訂一系列法例，縮短造地的時間。
+   <br/>
+   <br/>
+   他又說，近期的世界競爭力報告，香港特區政府的效率全球排第三，反映公務員都希望做到最好，發展局的公告希望在系統方面，不合部門之間磨合得更好。
+   <br/>
+   <br/>
+   勞工界議員周小松讚揚施政報告中的多項勞工政策，包括建議落實強積金全自由行等，但他關注當中未有提及落實為低收入人士代供強積金的落實方案和時間表。
+   <br/>
+   <br/>
+   李家超回應說，有關建議是上屆政府提出，目前勞工及福利局正在研究，他會與勞福局再作探討。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774932-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 10:55:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱醫療及教育措施惠及所有市民包括中產
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超說，明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774933_1_20241017110258.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行政長官李家超出席施政報告聯合電台節目，有聽眾反映申請科研資助計劃的審批越來越慢，科研團隊亦要裁員，亦有市民關注施政報告並無惠及中產的措施。
+   <br/>
+   <br/>
+   李家超說，對於關注資助項目申請手續時間性不符要求，會回去看看，他一向要求盡快處理，希望如有問題，可以反映。他明白到施政報告無寫明針對中產的章節，但中小企當中亦有很多中產，醫療及教育措施，所有市民，包括中產亦會受惠。
+   <br/>
+   <br/>
+   李家超說，過渡房屋是臨時措施，歸根究底出現問題是整體房屋供應不足，因此上任後，政府提出提速、提效、提質及提量建屋，長遠來說，整體房屋供應該滿足到需求，因此政府有不同措施，其中簡約公屋有3萬個單位，在短期未有大量供應時作出填補。他相信在4年後，會有大量供應，以解決問題。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774933-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:02:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      人行預期存量房貸本月底前完成批量下調房貸利率
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774935-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="陶玲稱存量房貸利率平均下降50個基點，節省利率支出1500億元人民幣，惠及5千萬個家庭。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774935_1_20241017130223.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   人民銀行副行長陶玲預計，大部分存量房貸將於本月25日批量下調房貸利率，中小型銀行完成調整時間略遲，但估計月底前全部完成。她指，絕大部分借款人毋須到銀行網點辦理，採用浮動利率的房貸毋須提出申請，銀行系統會批量調整，佔存量房貸90%以上；採用固定利率的房貸，可透過手機銀行、網上銀行等辦理。
+   <br/>
+   <br/>
+   陶玲指，存量房貸利率平均下降50個基點，節省利率支出1500億元人民幣，惠及5000萬個家庭、1.5億名居民。以北京為例，調整存量房貸利率後，房貸利率由4.4厘降至3.55厘，以100萬元、25年期貸款為例，每月節省469元，總額節省逾14萬元。
+   <br/>
+   <br/>
+   她又指，除了上海、深圳自主採取差異化安排，全國其他城市不再分首套房、二套房，統一最低首付比例15%，不少城市亦同步調整房地產調控措施，市場信心及銷售出現改善。
+   <br/>
+   <br/>
+   她提到，正與有關部門研究，容許政策性銀行、商業銀行，向有條件企業發放貸款收購存量土地，人行提供必要再貸款支持。部分房地產金融政策期限延長至2026年底，包括放寬全國商業銀行經營性物業貸款用途，有助房企改善資金狀況。她說，加上近期推出減息降準等一攬子政策，對提振信心穩定，將產生積極作用。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774935-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774935-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:14:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱向中央爭取政策　冀快些「瓜熟蒂落」
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774936_1_20241017112954.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   新一份施政報告提到，特區政府已向中央提出進一步優化內地居民來港旅遊簽注的請求，包括恢復深圳「一簽多行」個人遊簽注，以及擴大「一周一行」個人遊簽注政策試點城市範圍等，自由黨立法會議員邵家輝在立法會行政長官答問會提到，近期香港經濟比較疲弱，零售及飲食業面對新的轉型期，挑戰很大，關注是否有更多城市可以加入試點範圍，讓更多人來港，以及如何爭取中央盡快放寬。
+   <br/>
+   <br/>
+   李家超說，充分體會到某些行業在經濟轉型期面對特別多挑戰，政府亦吸納了議員的意見，推出8項目措施幫助中小企。特區政府自走出疫情後，很多措施都很用心研究，亦非常感謝中央給予暢通渠道反映意見，而在政策推出的過程中，要克服很多困難，很多不同部委幫助香港解決不同需求，亦感謝中央對香港的關愛。
+   <br/>
+   <br/>
+   他表示，與中央溝通，爭取任何政策，希望實事求是，有很多探討的措施不適合公開，但希望快些「瓜熟蒂落」。他又說，交往最多的、以及交通最方便的城市都是可作採討。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774936-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:20:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱工作組多從需求角度發掘銀髮金融產品
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超說，政府非常重視養老事宜，「養老金融」亦都重要。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774937_2_20241017124811.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   施政報告提出，成立三個工作組及一個委員會以強化跨政策統籌工作，當中包括「促進銀髮經濟工作組」。
+   <br/>
+   <br/>
+   李家超到立法會出席施政報告答問會時表示，政府非常重視養老事宜，「養老金融」亦都重要，因此施政報告有大量篇幅提及養老方面的工作。
+   <br/>
+   <br/>
+   李家超說，相關工作組由政務司副司長擔任組長，有五方面的工作，其中一方面正就是養老相關的財務方安排，現時一些退休金融產品推廣不足，工作組會多從需求角度發掘銀髮金融產品。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774937-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:28:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱推動留學本港是具吸引力金漆招牌
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超認為，DSE有認受性亦很優質，現時目標群是吸引外地大學生或專上教育學生來港。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774938_1_20241017121217.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   在立法會的施政報告答問會上，選委會議員郭玲麗表示，中學文憑試是國際承認的考試中最尊重中文和中國文化的考試，關注當局有何措施和方法推廣DSE國際化。
+   <br/>
+   <br/>
+   行政長官李家超說，要多元化推動本港作為國際高端人才集聚高地，因此設立「教育、科技和人才委員會」，由政務司司長擔任主席，背後理念是參考國家主席習近平在全國教育大會上發表的重要講話，自己深受啓發，亦非常認同和支持。
+   <br/>
+   <br/>
+   李家超表示，其中一個是推動留學本港的品牌，形容是很有吸引力的金漆招牌，而DSE有認受性亦很優質，但現時目標群是吸引外地大學生或專上教育學生來港，如果下一步希望更多人讀DSE課程，則要參考其他國際教育課程例如IB的成功之處，因為不同地方都有相關課程設計和教師等教育體系建設。
+   <br/>
+   <br/>
+   他認為，現階段要實事求是爭取最大成功和回報，因為其他地方未建立DSE相關教育體系，仍需要時間，當有更多外地學生來港讀書，就會增加宣傳效益，形容如果到時「男有心、女有意」，可能會考慮同某些國家或地區合作建立體系，否則是有心無力，相信「教育、科技和人才委員會」將討論一系列問題。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774938-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:37:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      滬深股市反覆靠穩　上證指數半日升3點
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774939-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="上證綜合指數中午收市報3205點，升3點。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=70&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774939_1_20241017113814.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   內地股市今早反覆靠穩。
+   <br/>
+   <br/>
+   上證綜合指數中午收市報3205點，升3點。
+   <br/>
+   <br/>
+   深證成份指數報10014點，升49點，升幅0.5%。
+   <br/>
+   <br/>
+   創業板指數報2058點，升18點，升幅0.91%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774939-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774939-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:39:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      住建部：樓市已開始築底　對房地產止跌回穩充滿信心
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774943-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774943_1_20241017124545.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   住建部部長倪虹表示，內地房地產市場在一系列政策作用下，經過3年不斷調整，已開始築底。他指，房地產主要指標明顯好轉，特別是一線城市10月以來全線回穩，相信10月數據一定是一個積極、樂觀結果。
+   <br/>
+   <br/>
+   倪虹表示，促進房地產市場止跌回穩政策具體採取的措施都很強，力度足夠大，接下來要同心協力打好組合拳，他對房地產止跌回穩充滿信心。
+   <br/>
+   <br/>
+   他又說，國務院部署打好保障房攻堅戰宣布至今剛好5個月，已交付246萬套，成效很明顯，形容對購房人是吃下定心丸，市場預期出現巨大改變。他強調，要一手抓白名單，解決項目建設資金問題，一手抓項目進度，爭取住房早日交付。他相信，白名單項目有信貸支持，加上房企積極努力，可打贏保障房攻堅戰，讓供房人士早日拿到房子。
+   <br/>
+   <br/>
+   他提到，對資不抵債項目，要按照法治化、市場化原則，加快破產重整或清算，維護購房人合法權益。對於違法違規、損害購房人利益行為，要堅決查處，不能矇混過關。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774943-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774943-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:44:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      住建部：首9個月已經建設籌集保障性住房148萬套
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774944-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="倪虹表示，預計年底可讓450萬新市民、青年人住進保障性住房。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774944_1_20241017130021.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   住房城鄉建設部部長倪虹表示，各城市政府結合當地實際優化完善房地產政策的同時，加大保障力度，兜牢住房保障底線。今年1至9月，已經建設籌集保障性住房148萬套，預計年底可讓450萬新市民、青年人住進保障性住房。
+   <br/>
+   <br/>
+   倪虹指出，在籌集房源的工作上，有關當局已考慮新形勢變化，為適應生育二孩及以上家庭的需要，要求和支持地方結合實際，適度增加保障性住房面積。
+   <br/>
+   <br/>
+   倪虹稱，下一步將與有關部門一起，指導各地加大保障性住房建設、籌集、供給，著力解決困難群眾住房問題，努力實現全體人民住有所居。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774944-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774944-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 11:50:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超指在有限資源下需提升公營醫療服務效益
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超表示，醫衞局除內部制度優化，亦希望在公私營合作上做得更暢順，並期望在大灣區合作上擴容。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=90&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774945_1_20241017123502.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   施政報告答問會早上在立法會舉行，議員林素蔚關注，報告中提出設立跨專科綜合門診的相關安排。
+   <br/>
+   <br/>
+   行政長官李家超說，政府每年在醫療支出非常龐大，佔整體開支約兩成，在有限資源下需要提升公營服務的效益。跨專科統籌是指如果當有一名有泌尿科、心臟科和腎科問題的病人，屆時只需要看一個專科。醫衞局將在記者會或立法會交代技術性問題。除了內部制度優化，亦希望在公私營合作上做得更暢順，亦期望在大灣區合作上擴容。
+   <br/>
+   <br/>
+   工業界議員吳永嘉就關注，當局會否將工業旅遊列入旅遊熱點。李家超表示，多年前去過日本，參觀車廠的機械人裝車，當時很少地方有相關環節，印象非常深刻，本港工業絕對有優勢，期望生產力局加強宣傳。
+   <br/>
+   <br/>
+   李家超提到，「發展旅遊熱點工作組」由政務司副司長統籌，以加速或輔助相關工作，但強調責任仍在文體旅局方面。他又說，本港有非常好體系，包括18區民政專員是最了解當區吸引力，例如九龍城有一流食肆，應否發展為美食村，呼籲議員除了給予意見，亦要共同參與，因為大家都是建設者，不是評論員。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774945-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 12:09:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股半日升近1%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="恒指中午收市報20460點，升174點，升幅0.86%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=1&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774946_1_20241017124458.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   港股今早上升，恒生指數早段曾升近500點，中午收市報20460點，升174點，升幅0.86%。主板半日成交約1077億元。
+   <br/>
+   <br/>
+   科技指數半日升約1.4%。
+   <br/>
+   <br/>
+   另外，本地地產股普遍向好，其中恒地半日升逾2%。
+   <br/>
+   <br/>
+   內房股就有沽壓。龍湖集團半日跌近9%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774946-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 12:15:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超指大宗商品交易從低點做起需時達至高點
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774948_1_20241017124929.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   施政報告提出要建立國際黃金交易市場及大宗商品交易圈，行政長官李家超到立法會出席施政報告答問會時表示，政府十分重視大宗商品交易生態圈，已經有一個國際性的大宗商品交易商表明，會在香港建立有色金屬倉庫，有了倉庫就可以推動買賣。他指出，香港這個領域從一個低點起步，要到達高點是需要長時間，業界指出用5年至10年時間，可以做到百分之三十的大宗商品市場。
+   <br/>
+   <br/>
+   另外，李家超說，香港在教育方面十分有優勢，是全球唯一擁有5間世界百強大學的城市，其他有著名大學的地區都是以整個國家計算，特區政府會致力推廣「留學香港」品牌。
+   <br/>
+   <br/>
+   他又說，啟德體育園是一個非常重要的工程，要確保開幕暢順，同時在整體配套、人流管理、處理突發事件方面都做得好，相信啟德體育園將會是讓香港再創高峰的新地標。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774948-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 12:22:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超強調重視培育技術能力及知識競爭力
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超說，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=95&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774949_1_20241017125007.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   施政報告答問會早上在立法會舉行，工聯會議員吳秋北表示，本港勞動人口有減少和老化趨勢，關注報告提出加大培訓力度、鼓勵非本地畢業生留港等措施，對緩解勞動力的結構問題的作用。
+   <br/>
+   <br/>
+   行政長官李家超說，年青勞動力下降是本港整體人口老化的現象，輸入勞工是針對短期問題，長遠一定本地勞工優先、以及重視培育技術能力和知識競爭力，今次政策重點是改革僱員再培訓局，並推出兩個地方讓有經驗勞工團隊作工業培訓，認為培訓要邁向全民化，15歲或以上市民就可參與，並以技術為本，因為有技能的人更容易轉變工作。
+   <br/>
+   <br/>
+   選委會議員何敬康關注，未來有何對策處理體育基本設施建設和場地分配。李家超表示，去年和今年的施政報告要延續性一起看，在場地提供方面，已經羅列整個計劃，當局投放在體育方面的資源很多，但更重視是否達到最好效果。他提到港協暨奧委會很快公布體系管治方面的結果，稍後再與文體旅局商討如何盡善盡美。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774949-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 12:27:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜狄志遠指市民乏歸屬感　特首稱建關愛共融社會
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="狄志遠（左）指出，不少市民對社會缺乏歸屬感，對社會參與的積極性低；李家超（右）不同意見可以討論，政府亦願意聽。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774951_1_20241017125041.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行長官李家超出席立法會施政報告答問會，議員狄志遠關注香港的貧富差距越來越大，不少市民對社會缺乏歸屬感，對社會參與的積極性低，詢問特首會否擔心社會缺乏包容性的現象，從而影響香港的經濟發展。
+   <br/>
+   <br/>
+   李家超表示，施政報告提出建立關愛共融社會是政策目標，社會對於事物有不同看法是正常，不同意見可以討論，政府亦願意聽。他又說，記者會的問題很尖銳，政府一一解答，有些是善意告誡，有些是尖銳批評，有些變成施政報告中一些措施，因此是很開放包容。
+   <br/>
+   <br/>
+   他又說，香港被評為世界上最自由的經濟體，可以做任何經濟活動，亦反映有合理的法律保障，這些保障就是給予最大的自由，亦是他希望建立的香港。
+   <br/>
+   <br/>
+   他說大家提出意見，特別在愛國者治港原則下，做一些共同讓香港有建設性的項目。他認為過程中有批評是正常，而更重要是求同存異。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774951-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 12:31:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜李家超稱改革目的要明白「立甚麼」「破甚麼」
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="李家超指出，改革是為了結果的提升，並非為改而改。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774953_1_20241017125457.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   行政長官李家超在立法會施政報告答問會上重申，世界百年未有大變局正加速演進，香港亦處於關鍵經濟轉型期，又說改革只有進行時，沒有完結時，改革是為了結果的提升，並非為改而改，只講顛覆或只求推倒重來，是忘記了改革目的，必須要明白「立甚麼」、「破甚麼」，要因地制宜，張弛有道及拿捏得當。
+   <br/>
+   <br/>
+   李家超說，改革要整個社會一起參與和推進，行政立法機關有帶領社會改革的角色。在要求他人改革的同時，更重要是從自身開始，自我革新，自我識變、應變和求變，亦是他將「齊改革、同發展」定為施政報告重點方向的原因和期望。
+   <br/>
+   <br/>
+   他期望這份施政報告在立法會充分討論後，能獲得議員支持。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774953-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 12:43:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜港澳辦：感受到銳意改革奮發進取造福民眾
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="港澳辦指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774955_1_20241017130054.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   國務院港澳辦發表的文章表示，行政長官李家超發表任內第三份施政報告，香港社會和國際社會高度關注並積極評論。從這份報告的豐富內容和各方面的熱烈反應中，可以感受到特區政府銳意改革、奮發進取、造福民眾的堅定信念和堅實行動。
+   <br/>
+   <br/>
+   文章中指出，施政報告貫穿改革精神，展現決心意志；突出優勢發揮，為發展添動能；致力為民幸福，彰顯責任擔當。
+   <br/>
+   <br/>
+   港澳辦表示，相信香港社會各界團結一致，以實際行動全力支持特區政府依法施政，美好願景必將變為輝煌現實。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774955-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 12:53:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      港股下午開市後升逾百點
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774956-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="恒指較早時報20415點，升128點；科技指數報4451點，升幅1.1%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=15&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774956_1_20241017130927.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   港股造好，恒生指數較早時報20415點，升128點，升幅0.63%。
+   <br/>
+   <br/>
+   科技指數報4451點，升48點，升幅1.1%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774956-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774956-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 13:09:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      金管總局：白名單房地產項目已審批通過貸款逾2萬億元人民幣
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774959-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="肖遠企稱當局將優化完善房地產「白名單」項目融資機制。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774959_1_20241017141546.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   金融監管總局副局長肖遠企表示，經過認真研究，把商品住房的房地產開發貸款項目全部納入「白名單」的條件已經具備，今後符合「白名單」標準條件的房地產項目，均應該按照「白名單」管理。
+   <br/>
+   <br/>
+   肖遠企指出，截至10月16日，「白名單」房地產項目已審批通過貸款達到2.23萬億元人民幣。預計到2024年底，「白名單」項目貸款審批通過金額將翻倍，至超過4萬億元人民幣。當局將進一步優化完善房地產「白名單」項目融資機制，做到合格項目「應進盡進」，已審貸款「應貸盡貸」，資金撥付「能早盡早」。
+   <br/>
+   <br/>
+   被問到金融支持房地產的具體政策措施，肖遠企說，要打好房地產各項融資工具的「組合拳」，形成集成規模效應，增強精準適配性。截至今年9月底，銀行開發貸款較年初增加逾4000億元人民幣。
+   <br/>
+   <br/>
+   他又指，會與有關部門一起積極研究政策性銀行、商業銀行支持盤活閒置存量土地的具體舉措，對閒置存量土地的收購發放一定比例的貸款，以推動更加高效利用好閒置土地，同時改善和釋放房地產行業的現金流。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774959-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774959-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:07:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜陳茂波稱物業七成按揭已考慮樓價成交量等因素
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="陳茂波說，樓市表現仍然疲弱，但交投量稍為回暖。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774960_1_20241017143000.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   施政報告宣布，放寬物業按揭成數上限至劃一至七成，供款與入息比率上限劃一至五成。財政司司長陳茂波說，是參考了一籃子因素，包括樓價走勢、成交量、未來供應、本地經濟、外圍環境，繼續維持銀行體系穩定的前提下，有空間將按揭成數回復至2009前水平。
+   <br/>
+   <br/>
+   陳茂波在施政報告措施記者會表示，樓市表現仍然疲弱，但交投量稍為回暖，美國9月下旬減息後，情況顯著改善，中央一系列支持措施，亦振提市場氣氛。
+   <br/>
+   <br/>
+   陳茂波預料本港經濟在今年餘下時間繼續保持增長，美國進入減息周期，本港同時減息，可降低營商成本，內地經濟可望穩定增長，對私人消費亦有支持作用。
+   <br/>
+   <br/>
+   他提到，近日港股的淨買入，不少來自美國及歐洲，當中九成來自基金或投資銀行，可見歐美對香港及內地市場有興趣，只是一直等待時機。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774960-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:13:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      台股高收近0.2%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774961-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="台灣加權指數收市報23053點，升42點，升幅0.19%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=65&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774961_1_20241017141357.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   台灣股市收市微升，加權指數報23053點，升42點，升幅0.19%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774961-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774961-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:16:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      日股低收近0.7%
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774962-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="日經平均指數收市報38911點，跌269點，跌幅0.69%。（日本交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=80&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774962_1_20241017141722.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   日本股市收市向下，日經平均指數報38911點，跌269點，跌幅0.69%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774962-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774962-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:20:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜許正宇稱優化上市批核流程細節本周公布
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="許正宇表示。優化上市批核流程細節本周公布。（郭志強攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774963_1_20241017143158.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774963-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:21:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜陳茂波：減烈酒稅促進相關貿易及高端行業活動
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="進口價200元以上的烈酒，200元以上部分的稅率由100%大幅減至10%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=85&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774968_1_20241017143855.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774968-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:37:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      韓股收市偏軟
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774967-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <img alt="首爾綜合指數收市報2609點，跌1點，跌幅0.04%。（南韓證券交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&q=99&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1774967_1_20241017143612.jpg" style="width:100%;height:auto"/>
+  <br/>
+  <div class="itemFullText">
+   南韓股市收市偏軟，首爾綜合指數報2609點，跌1點，跌幅0.04%。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774967-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774967-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:40:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      施政報告2024｜許正宇：本港現有黃金倉儲容量接近用盡
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <br/>
+  <div class="itemFullText">
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774969-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:42:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      4款慳電膽1款洗衣機3款電磁爐能源效益不符標示需停售
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <br/>
+  <div class="itemFullText">
+   機電署根據《能源效益（產品標籤）條例》，將4款慳電膽、1款洗衣機及3款電磁爐從《條例》訂明的表列型號紀錄冊中剔除，即日起不得在本港供應。
+   <br/>
+   <br/>
+   慳電膽進口商是麗影有限公司，品牌分別為陽光、Smart Design和佳之選；洗衣機進口商為譽力電業貿易有限公司，品牌是湯笙；電磁爐進口商有金樂電器有限公司、高端有限公司和億世集團有限公司，涉及品牌為金樂、ASKO和ecHome。
+   <br/>
+   <br/>
+   機電署表示，由於上述8個型號産品的測試結果未達相關的能源效益或功能特性表現，決定從紀錄冊中剔除。署方已向相關進口商發出通知書，進口商會於報章刊登通告，通知巿民有關產品會停止在本港供應。公眾如有查詢，請與進口商聯絡。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774970-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:52:00 +0800
+     </pubdate>
+    </item>
+    <item>
+     <title>
+      本港暫停從意大利兩個省進口禽肉及禽類產品
+     </title>
+     <link/>
+     https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
+     <description>
+      <![CDATA[<html>
+ <body>
+  <br/>
+  <div class="itemFullText">
+   食物安全中心宣布，因應世界動物衞生組織通報，指意大利倫巴第大區布雷西亞省和克雷莫納省爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉，及包括禽蛋的禽類產品。
+   <br/>
+   <br/>
+   中心發言人說，根據政府統計處的資料，本港今年首6個月從意大利進口約40公噸冷藏禽肉及約1萬隻禽蛋。
+  </div>
+  <br/>
+  <hr/>
+  <p>
+   原始網址 Original URL：
+   <a href="https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm" rel="nofollow">
+    https://news.rthk.hk/rthk/ch/component/k2/1774971-20241017.htm
+   </a>
+  </p>
+  <p>
+   © rthk.hk
+  </p>
+  <p>
+   電子郵件 Email:
+   <a href="mailto:cnews@rthk.hk" rel="nofollow">
+    cnews@rthk.hk
+   </a>
+  </p>
+ </body>
+</html>]]>
+     </description>
+     <pubdate>
+      Thu, 17 Oct 2024 14:56:00 +0800
+     </pubdate>
+    </item>
+   </channel>
+  </rss>
+ </body>
+</html>
