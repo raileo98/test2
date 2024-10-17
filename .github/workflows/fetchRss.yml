@@ -98,27 +98,26 @@ jobs:
 
     - name: 拉取遠端更改並自動重試
       run: |
-        git config --global user.email "github-actions@github.com"
-        git config --global user.name "github-actions"
-        
-        # 設定重試次數
-        RETRIES = 10
-        COUNT = 0
-        
-        while [ $COUNT -lt $RETRIES ]; do
-          if git pull origin main --rebase; then
-            echo "拉取成功"
-            break
-          else
-            echo "拉取失敗，正在重試..."
-            COUNT=$((COUNT + 1))
-            sleep 1  # 等待 1 秒後再重試
-          fi
-        done
+          git config --global user.email "github-actions@github.com"
+          git config --global user.name "github-actions"
+          
+          # 設定重試次數
+          export RETRIES = 10
+          export COUNT = 0
+          
+          while [ $COUNT -lt $RETRIES ]; do
+            if git pull origin main --rebase; then
+              echo "拉取成功"
+              break
+            else
+              echo "拉取失敗，正在重試..."
+              export COUNT = $((COUNT + 1))
+              sleep 1  # 等待 1 秒後再重試
+            fi
+          done
 
     - name: 上傳 RSS 文件
       run: |
-        git add *.rss
-        git commit -m "Upload RSS file"
-        git push origin main
-        
+          git add *.rss
+          git commit -m "Upload RSS file"
+          git push origin main
