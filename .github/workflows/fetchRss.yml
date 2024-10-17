@@ -33,15 +33,25 @@ jobs:
 
     - name: Install and configure Cloudflare WARP
       run: |
+        echo 1
         for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
+        echo 2
         for i in {1..10}; do curl https://pkg.cloudflareclient.com/pubkey.gpg | sudo gpg --dearmor -o /usr/share/keyrings/cloudflare-warp-archive-keyring.gpg && break; done
+        echo 3
         for i in {1..10}; do echo "deb [arch=amd64 signed-by=/usr/share/keyrings/cloudflare-warp-archive-keyring.gpg] https://pkg.cloudflareclient.com/ $(lsb_release -cs) main" | sudo tee /etc/apt/sources.list.d/cloudflare-client.list && break; done
+        echo 4
         for i in {1..10}; do sudo apt update -y && break; done
+        echo 5
         for i in {1..10}; do sudo apt install -y cloudflare-warp && break; done
+        echo 6
         for i in {1..10}; do warp-cli --accept-tos registration new && break; done
+        echo 7
         for i in {1..10}; do warp-cli --accept-tos mode warp+doh && break; done
+        echo 8
         for i in {1..10}; do warp-cli --accept-tos tunnel ip add 127.0.0.1 && break; done
+        echo 9
         for i in {1..10}; do warp-cli --accept-tos tunnel host add localhost && break; done
+        echo 10
         for i in {1..10}; do warp-cli --accept-tos connect && break; done
 
     - name: Testing WARP
