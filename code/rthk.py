@@ -228,7 +228,7 @@ async def process_category(category, url):
     for item in sorted_items:
         soup_rss.channel.append(item)
 
-    rss_filename = f'{category}.rss'
+    rss_filename = f'{category}.xml'
     
     # 找到<lastBuildDate>標籤並移除它們
     tag = soup_rss.find('lastBuildDate')
