@@ -83,6 +83,23 @@ def check():
             headersForCheck['Cache-Control'] = 'no-cache'
             headersForCheck['Pragma'] = 'no-cache'
             print( f'headersForCheck: { headersForCheck }' )
+            response = get_response.get(url, timeout=2, headers=headersForCheck )
+            if response.ok:
+                # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
+                print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
+            else:
+                print(f'使用代理獲取 {url} 失敗:\n{response.status_code}\n')
+        except Exception as e:
+            print(f'使用代理獲取 {url} 出錯:\n{e}\n')
+        except:
+            print(f'使用代理獲取 {url} 出現未知錯誤\n')
+    
+    for url in urls:
+        try:
+            headersForCheck = dict(session.headers)
+            headersForCheck['Cache-Control'] = 'no-cache'
+            headersForCheck['Pragma'] = 'no-cache'
+            print( f'headersForCheck: { headersForCheck }' )
             response = session.get(url, timeout=2, headers=headersForCheck )
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
