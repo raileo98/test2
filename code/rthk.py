@@ -488,6 +488,7 @@ async def optimize_image_quality(imgUrl):
 
 async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
     global total_requests, cache_hits
+    global verCount11, verCount20, verCount30
     total_requests += 1
     while True:
         try:
