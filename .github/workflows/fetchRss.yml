@@ -25,13 +25,16 @@ jobs:
 
     steps:
     - name: 檢出代碼
+      timeout-minutes: 1
       uses: actions/checkout@v4
 
     - name: 檢出代碼 2
+      timeout-minutes: 1
       run: |
         for i in {1..100}; do git pull && break; done
 
     - name: Install and configure Cloudflare WARP
+      timeout-minutes: 1
       run: |
         echo 1
         for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
@@ -55,6 +58,7 @@ jobs:
         for i in {1..10}; do warp-cli --accept-tos connect && break; done
 
     - name: Testing WARP
+      timeout-minutes: 1
       run: |
         echo 1
         while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
@@ -75,10 +79,12 @@ jobs:
         echo 9
 
     - name: 檢出代碼 3
+      timeout-minutes: 1
       run: |
         for i in {1..100}; do git pull && break; done
 
     - name: 安裝依賴
+      timeout-minutes: 1
       run: |
         for i in {1..10}; do sudo apt update -y && break; done
         for i in {1..10}; do sudo apt install python3 python3-pip redis-server -y && break; done
@@ -89,6 +95,7 @@ jobs:
         for i in {1..10}; do sudo systemctl status redis && break; done
 
     - name: 執行 Python 腳本
+      timeout-minutes: 10
       run: |
         python3 code/rthk.py
 
