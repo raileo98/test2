@@ -499,13 +499,13 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
 
             if response.http_version:
                 
-                if response.http_version == 11:
+                if response.raw.version == 11:
                     verCount11 += 1
 
-                if response.http_version == 20:
+                if response.raw.version == 20:
                     verCount20 += 1
 
-                if response.http_version == 30:
+                if response.raw.version == 30:
                     verCount30 += 1
             
             return response
