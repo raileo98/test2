@@ -28,6 +28,10 @@ import logging
 import threading
 import sys
 
+verCount11 = 0
+verCount20 = 0
+verCount30 = 0
+
 print('222')
 
 # 設置環境變數
@@ -489,8 +493,21 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
         try:
             session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
             response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
+            
             if response.from_cache:
                 cache_hits += 1
+
+            if response.http_version:
+                
+                if response.http_version == 11:
+                    verCount11 += 1
+
+                if response.http_version == 20:
+                    verCount20 += 1
+
+                if response.http_version == 30:
+                    verCount30 += 1
+            
             return response
         except Exception as e:
             print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
@@ -535,6 +552,9 @@ if __name__ == '__main__':
     print(f'總請求數: {total_requests}')
     print(f'緩存命中數: {cache_hits}')
     print(f'緩存命中率: {cache_hit_rate:.2f}%')
+    print( f'HTTP/1.1 數: { verCount11 }' )
+    print( f'HTTP/2.0 數: { verCount20 }' )
+    print( f'HTTP/3.0 數: { verCount30 }' )
 
     memUsage()
     # print(f'len( session.cache.responses.values ): { len( session.cache.responses.values ) }')
