@@ -496,7 +496,7 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
     total_requests += 1
     while True:
         try:
-            session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
+            # session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
             response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
             
             if response.from_cache:
