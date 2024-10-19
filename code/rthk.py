@@ -411,7 +411,7 @@ async def optimize_image_quality(imgUrl):
             if response.status_code >= 400 and response.status_code < 600:
                 if not q == 1:
                     q = 1
-                    logging.info(f'[INFO] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
+                    logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: { response.status_code } - imageUrl: {imgUrl}')
                 else:
                     if latestAvailableQ:
                         latest_imgUrl = latestAvailableQ
@@ -471,7 +471,7 @@ async def optimize_image_quality(imgUrl):
         except Exception as e:
             print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
             logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
-            logging.info(f'[INFO] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
+            logging.error(f'[ERROR] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
             if not q == 1:
                 q = 1
             else:
@@ -485,7 +485,7 @@ async def optimize_image_quality(imgUrl):
             exception_type, exception_value, exception_traceback = sys.exc_info()
             print(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
             logging.error(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
-            logging.info(f'[INFO] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
+            logging.error(f'[ERROR] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
             if not q == 1:
                 q = 1
             else:
