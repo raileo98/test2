@@ -70,7 +70,28 @@ session.headers['User-Agent'] = secrets.choice(userAgent)
 # localhost_session = niquests.Session(pool_connections=10, pool_maxsize=10000, retries=1)
 
 # 設置日誌記錄
-logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
+# logging.basicConfig(filename='rthk_feed.log', level=logging.ERROR, format='%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
+
+# 創建一個日誌器
+logger = logging.getLogger()
+logger.setLevel(logging.INFO)  # 設置日誌器的級別為 INFO
+
+# 創建一個處理器，用於寫入文件
+file_handler = logging.FileHandler('rthk_feed.log')
+file_handler.setLevel(logging.WARNING)  # 只記錄 WARNING 和 ERROR 級別的日誌
+
+# 創建一個處理器，用於輸出到控制台
+console_handler = logging.StreamHandler()
+console_handler.setLevel(logging.INFO)  # 記錄所有 INFO 級別的日誌
+
+# 設置日誌格式
+formatter = logging.Formatter('%(asctime)s %(levelname)s: %(message)s', datefmt='%Y-%m-%d %H:%M:%S')
+file_handler.setFormatter(formatter)
+console_handler.setFormatter(formatter)
+
+# 將處理器添加到日誌器
+logger.addHandler(file_handler)
+logger.addHandler(console_handler)
 
 def memUsage():
     memory = psutil.virtual_memory()
