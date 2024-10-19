@@ -81,6 +81,10 @@ jobs:
         echo 8
         warp-cli --accept-tos settings | grep protocol
         echo 9
+        curl -v https://images.weserv.nl/quota
+        echo 10
+        curl -v https://wsrv.nl/quota
+        echo 11
 
     - name: 檢出代碼 3
       timeout-minutes: 1
