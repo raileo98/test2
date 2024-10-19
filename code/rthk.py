@@ -390,12 +390,12 @@ async def cache_image(imageUrl):
             if response.from_cache:
                 print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
-        print(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
-        logging.error(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
+        # print(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
+        logging.error(f'[ERROR] 緩存 {imageUrl} - response.status_code: { response.status_code } - response.headers: { response.headers } - 出錯: {e}')
     except:
         exception_type, exception_value, exception_traceback = sys.exc_info()
-        print(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
-        logging.error(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
+        # print(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
+        logging.error(f'[ERROR] 緩存 {imageUrl} - response.status_code: { response.status_code } - response.headers: { response.headers } - 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def optimize_image_quality(imgUrl):
     q = 99
@@ -411,7 +411,7 @@ async def optimize_image_quality(imgUrl):
             if response.status_code >= 400 and response.status_code < 600:
                 if not q == 1:
                     q = 1
-                    logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: { response.status_code } - imageUrl: {imgUrl}')
+                    logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: { response.status_code } - imageUrl: {imgUrl} - response.headers: { response.headers }')
                     logging.info(f'[INFO] 將質量參數 q 設置為 1')
                 else:
                     if latestAvailableQ:
@@ -470,8 +470,8 @@ async def optimize_image_quality(imgUrl):
                         latest_imgUrl = imgUrlWithQ
                     break
         except Exception as e:
-            print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
-            logging.error(f'[ERROR] 獲取圖片大小出錯 將質量參數 q 設置為 1 - imageUrl: {imgUrl} - 錯誤: {e}')
+            # print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
+            logging.error(f'[ERROR] 獲取圖片大小出錯 將質量參數 q 設置為 1 - imageUrl: {imgUrl} - response.status_code: { response.status_code } - response.headers: { response.headers } - 錯誤: {e}')
             logging.info(f'[INFO] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
             if not q == 1:
                 q = 1
@@ -484,8 +484,8 @@ async def optimize_image_quality(imgUrl):
         
         except:
             exception_type, exception_value, exception_traceback = sys.exc_info()
-            print(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
-            logging.error(f'[ERROR] 獲取圖片大小出現未知錯誤 將質量參數 q 設置為 1 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
+            # print(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - response.headers: { response.headers } - 錯誤: {exception_type.__name__} - {exception_value}')
+            logging.error(f'[ERROR] 獲取圖片大小出現未知錯誤 將質量參數 q 設置為 1 - imageUrl: {imgUrl} - response.status_code: { response.status_code } - response.headers: { response.headers } - 錯誤: {exception_type.__name__} - {exception_value}')
             logging.info(f'[INFO] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
             if not q == 1:
                 q = 1
@@ -524,12 +524,12 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             
             return response
         except Exception as e:
-            print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
-            logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+            # print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+            logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - response.status_code: { response.status_code } - response.headers: { response.headers } - 錯誤: {e}')
         except:
             exception_type, exception_value, exception_traceback = sys.exc_info()
-            print(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
-            logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+            # print(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+            logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - response.status_code: { response.status_code } - response.headers: { response.headers } - 錯誤: {exception_type.__name__} - {exception_value}')
         if mustFetch:
             continue
         else:
