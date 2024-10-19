@@ -498,7 +498,7 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             if response.from_cache:
                 cache_hits += 1
 
-            if response.raw.version:
+            if response.from_cache == False and response.raw.version:
                 
                 if response.raw.version == 11:
                     verCount11 += 1
