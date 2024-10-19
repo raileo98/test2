@@ -85,7 +85,7 @@ def check():
             headersForCheck['Cache-Control'] = 'no-cache'
             headersForCheck['Pragma'] = 'no-cache'
             print( f'headersForCheck: { headersForCheck }' )
-            response = get_response.get(url, timeout=2, headers=headersForCheck )
+            response = get_response( url, timeout=2, headers=headersForCheck )
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
                 print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
