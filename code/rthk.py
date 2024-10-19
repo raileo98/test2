@@ -47,7 +47,7 @@ else:
 class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
-session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=5, pool_maxsize=10000, retries=1, backend='redis', happy_eyeballs=True)
+session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=1, pool_maxsize=10000, retries=1, backend='redis', happy_eyeballs=True)
 # session = CachedSession(allowable_methods=('GET'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='redis', happy_eyeballs=True)
 time.sleep(1) # 'Cannot select a disposable connection to ease the charge'
 
