@@ -27,7 +27,7 @@ import time
 import logging
 import threading
 import sys
-from urllib3_future.util import Retry
+# from urllib3_future.util import Retry
 from niquests.adapters import HTTPAdapter, Retry
 
 verCount11 = 0
