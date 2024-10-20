@@ -28,6 +28,7 @@ import logging
 import threading
 import sys
 from urllib3_future.util import Retry
+from niquests.adapters import HTTPAdapter, Retry
 
 verCount11 = 0
 verCount20 = 0
@@ -49,12 +50,14 @@ class CachedSession(requests_cache.session.CacheMixin, niquests.Session):
     pass
 
 retries = Retry(
-    total=2,
-    backoff_factor=1,
+    total = 2,
+    backoff_factor = 1,
 )
 
 session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=1, pool_maxsize=10000, retries=retries, backend='redis', happy_eyeballs=True)
-# session = CachedSession(allowable_methods=('GET'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, retries=1, backend='redis', happy_eyeballs=True)
+adapter = HTTPAdapter(max_retries=retries)
+session.mount("https://", adapter=adapter)
+session.mount("http://", adapter=adapter)
 time.sleep(1) # 'Cannot select a disposable connection to ease the charge'
 
 session.quic_cache_layer.add_domain('images.weserv.nl')
