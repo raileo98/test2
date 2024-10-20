@@ -55,7 +55,7 @@ retries = Retry(
 )
 
 # session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=1, pool_maxsize=10000, retries=retries, backend='redis', happy_eyeballs=True)
-session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=1, pool_maxsize=10000, backend='redis', happy_eyeballs=True )
+session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=10, pool_maxsize=10000, backend='redis', happy_eyeballs=True )
 adapter = HTTPAdapter( max_retries=retries )
 session.mount("https://", adapter=adapter)
 session.mount("http://", adapter=adapter)
