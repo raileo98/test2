@@ -85,6 +85,9 @@ jobs:
         echo 10
         curl -v https://wsrv.nl/quota
         echo 11
+        curl -v https://github.com/raileo98/test2/raw/refs/heads/main/hk_rthk_ch.xml
+        curl -v https://raw.githubusercontent.com/raileo98/test2/refs/heads/main/hk_rthk_ch.xml
+        echo 12
 
     - name: 檢出代碼 3
       timeout-minutes: 2
