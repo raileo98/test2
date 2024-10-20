@@ -440,7 +440,11 @@ async def optimize_image_quality(imgUrl):
                     break
                 
                 if content_length > 1000 * 500 or content_length > upstream_response_length:
-                    q = max(1, q - 5)  # 確保 q 不會低於 1
+                    if q == 99:
+                        q = 95
+                        
+                    if q <= 95:
+                        q = max(1, q - 5)  # 確保 q 不會低於 1
                 
                 elif content_length < 1000 * 500:
                     logging.info(f'[INFO] 圖片大小小於 500KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
