@@ -128,7 +128,7 @@ def check():
             response = session.get(url, timeout=2, headers=headersForCheck )
             if response.ok:
                 # print(f'使用代理獲取 {url} 成功: \nhttp_version: {response.http_version} \n{response.text}\n')
-                print(f'使用代理獲取 {url} 成功: \n{response.text}\n')
+                print(f'使用代理獲取 {url} 成功: \n{ response.text.splitlines()[:10] }\n')
             else:
                 print(f'使用代理獲取 {url} 失敗:\n{response.status_code}\n')
         except Exception as e:
