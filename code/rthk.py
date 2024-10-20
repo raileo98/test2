@@ -399,7 +399,7 @@ async def cache_image(imageUrl):
 
 async def optimize_image_quality(imgUrl):
     q = 99
-    latest_imgUrl = None
+    latest_imgUrl = imgUrl  # 預設為原始圖片 URL
     latestAvailableQ = None
     
     while True:
@@ -409,21 +409,11 @@ async def optimize_image_quality(imgUrl):
             response = await get_response(imgUrlWithQ, method='HEAD', session=session)
             
             if response.status_code >= 400 and response.status_code < 600:
-                
-                if not q == 1:
+                if q > 1:
                     q = 1
-                    logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: { response.status_code } - imageUrl: {imgUrl} - response.headers: { response.headers }')
-                    logging.info(f'[INFO] 將質量參數 q 設置為 1')
-                
+                    logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: {response.status_code} - imageUrl: {imgUrl}')
                 else:
-                    if latestAvailableQ:
-                        latest_imgUrl = latestAvailableQ
-                        logging.error(f'[ERROR] 將質量參數 q 設置為 latestAvailableQ: { latestAvailableQ } - response.status_code: { response.status_code } - imageUrl: {imgUrl} - response.headers: { response.headers }')
-                    
-                    else:
-                        latest_imgUrl = imgUrlWithQ
-                        logging.error(f'[ERROR] 將質量參數 q 設置為 imgUrlWithQ: { imgUrlWithQ } - response.status_code: { response.status_code } - imageUrl: {imgUrl} - response.headers: { response.headers }')
-                    
+                    latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
                     
             elif response.ok:
@@ -433,76 +423,21 @@ async def optimize_image_quality(imgUrl):
                 
                 logging.info(f'[INFO] 獲取圖片大小成功 - imageUrl: {imgUrl} - content_length: {content_length} - upstream_response_length: {upstream_response_length} - 當前質量參數 q: {q}')
                 
-                if content_length > 1000 * 500:
-                    if q == 99:
-                        q = 95
-                    elif q > 5:
-                        q -= 5
-                    elif q == 5:
-                        q = 1
-                    elif q == 1:
-                        if latestAvailableQ:
-                            latest_imgUrl = latestAvailableQ
-                        else:
-                            latest_imgUrl = imgUrlWithQ
-                        break
-                    else:
-                        q = 5
-                elif content_length > upstream_response_length:
-                    if q == 99:
-                        q = 95
-                    elif q > 5:
-                        q -= 5
-                    elif q == 5:
-                        q = 1
-                    elif q == 1:
-                        if latestAvailableQ:
-                            latest_imgUrl = latestAvailableQ
-                        else:
-                            latest_imgUrl = imgUrlWithQ
-                        break
-                    else:
-                        q = 5
+                if content_length > 1000 * 500 or content_length > upstream_response_length:
+                    q = max(1, q - 5)  # 確保 q 不會低於 1
                 elif content_length < 1000 * 500:
                     logging.info(f'[INFO] 圖片大小小於 500KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
-                    if latestAvailableQ:
-                        latest_imgUrl = latestAvailableQ
-                    else:
-                        latest_imgUrl = imgUrlWithQ
+                    latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
-                else:
-                    if latestAvailableQ:
-                        latest_imgUrl = latestAvailableQ
-                    else:
-                        latest_imgUrl = imgUrlWithQ
-                    break
+            else:
+                latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
+                break
         except Exception as e:
-            # print(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
-            logging.error(f'[ERROR] 獲取圖片大小出錯 將質量參數 q 設置為 1 - imageUrl: {imgUrl} - 錯誤: {e}')
-            logging.info(f'[INFO] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
-            if not q == 1:
-                q = 1
-            else:
-                if latestAvailableQ:
-                    latest_imgUrl = latestAvailableQ
-                else:
-                    latest_imgUrl = imgUrlWithQ
-                break
-        
-        except:
-            exception_type, exception_value, exception_traceback = sys.exc_info()
-            # print(f'[ERROR] 獲取圖片大小出現未知錯誤 - imageUrl: {imgUrl} - response.headers: { response.headers } - 錯誤: {exception_type.__name__} - {exception_value}')
-            logging.error(f'[ERROR] 獲取圖片大小出現未知錯誤 將質量參數 q 設置為 1 - imageUrl: {imgUrl} - 錯誤: {exception_type.__name__} - {exception_value}')
-            logging.info(f'[INFO] 將質量參數 q 設置為 1 - imageUrl: {imgUrl}')
-            if not q == 1:
-                q = 1
-            else:
-                if latestAvailableQ:
-                    latest_imgUrl = latestAvailableQ
-                else:
-                    latest_imgUrl = imgUrlWithQ
-                break
-    
+            logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
+            q = 1  # 將質量參數設置為 1
+            latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
+            break
+
     return latest_imgUrl
 
 async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
