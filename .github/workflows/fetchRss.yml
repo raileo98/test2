@@ -81,13 +81,13 @@ jobs:
         echo 8
         warp-cli --accept-tos settings | grep protocol
         echo 9
-        curl -v https://images.weserv.nl/quota
+        for i in {1..10}; do curl -s curl -v https://images.weserv.nl/quota && break; done
         echo 10
-        curl -v https://wsrv.nl/quota
+        for i in {1..10}; do curl -s curl -v https://wsrv.nl/quota && break; done
         echo 11
-        curl -s https://github.com/raileo98/test2/raw/refs/heads/main/hk_rthk_ch.xml | head -n 10
+        for i in {1..10}; do curl -s https://github.com/raileo98/test2/raw/refs/heads/main/hk_rthk_ch.xml | head -n 10 && break; done
         echo 12
-        curl -s https://raw.githubusercontent.com/raileo98/test2/refs/heads/main/hk_rthk_ch.xml | head -n 10
+        for i in {1..10}; do curl -s https://raw.githubusercontent.com/raileo98/test2/refs/heads/main/hk_rthk_ch.xml | head -n 10 && break; done
         echo 13
 
     - name: 檢出代碼 3
