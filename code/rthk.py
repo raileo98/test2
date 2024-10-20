@@ -114,7 +114,9 @@ def check():
         'https://1.1.1.1/cdn-cgi/trace',
         'https://mozilla.cloudflare-dns.com/cdn-cgi/trace',
         'https://images.weserv.nl/cdn-cgi/trace',
-        'https://images.weserv.nl/quota'
+        'https://images.weserv.nl/quota',
+        'https://github.com/raileo98/test2/raw/refs/heads/main/hk_rthk_ch.xml',
+        'https://raw.githubusercontent.com/raileo98/test2/refs/heads/main/hk_rthk_ch.xml',
     ]
     
     for url in urls:
