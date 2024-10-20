@@ -27,6 +27,7 @@ import time
 import logging
 import threading
 import sys
+from urllib3_future.util import Retry
 
 verCount11 = 0
 verCount20 = 0
