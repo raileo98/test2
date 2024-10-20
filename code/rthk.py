@@ -411,28 +411,29 @@ async def optimize_image_quality(imgUrl):
     q = 99
     latest_imgUrl = imgUrl  # 預設為原始圖片 URL
     latestAvailableQ = None
-    
+
     while True:
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
-        
+
         try:
             response = await get_response(imgUrlWithQ, method='HEAD', session=session)
-            
+
             if response.status_code >= 400 and response.status_code < 600:
                 if q > 1:
-                    q = 1
+                    q = 1  # 降低質量參數
                     logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: {response.status_code} - imageUrl: {imgUrl}')
                 else:
-                    latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
+                    # 如果 q 已經是 1，則退出迴圈
+                    logging.error(f'[ERROR] 無法獲取有效圖片，退出迴圈 - imageUrl: {imgUrl}')
                     break
-                    
+
             elif response.ok:
                 latestAvailableQ = imgUrlWithQ
                 content_length = int(response.headers['Content-Length'])
                 upstream_response_length = int(response.headers['x-upstream-response-length'])
-                
+
                 logging.info(f'[INFO] 獲取圖片大小成功 - imageUrl: {imgUrl} - content_length: {content_length} - upstream_response_length: {upstream_response_length} - 當前質量參數 q: {q}')
-                
+
                 if content_length > 1000 * 500 or content_length > upstream_response_length:
                     q = max(1, q - 5)  # 確保 q 不會低於 1
                 elif content_length < 1000 * 500:
@@ -442,6 +443,7 @@ async def optimize_image_quality(imgUrl):
             else:
                 latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                 break
+
         except Exception as e:
             logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
             q = 1  # 將質量參數設置為 1
