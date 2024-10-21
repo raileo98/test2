@@ -4,7 +4,7 @@ tqdm==4.66.5
 aiofiles==24.1.0
 requests-cache==1.2.1
 qh3==1.2.1
-urllib3-future==2.10.906
+urllib3-future==2.11.900
 niquests==3.9.1
 niquests[speedups]==3.9.1
 niquests[socks]==3.9.1
