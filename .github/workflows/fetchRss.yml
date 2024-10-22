@@ -148,7 +148,7 @@ jobs:
 
     - name: 檢查合併衝突
       run: |
-          if git diff --check; then
+          if git diff --check --ignore-space-at-eol; then
               echo "沒有合併衝突，繼續上傳"
           else
               echo "檢測到合併衝突，跳過上傳"
