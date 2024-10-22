@@ -412,7 +412,8 @@ async def cache_image(imageUrl):
 
 async def optimize_image_quality(imgUrl):
     q = 99
-    latest_imgUrl = imgUrl  # 預設為原始圖片 URL
+    # latest_imgUrl = imgUrl  # 預設為原始圖片 URL
+    latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q=1')
     latestAvailableQ = None
 
     while True:
