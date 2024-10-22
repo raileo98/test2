@@ -123,46 +123,12 @@ jobs:
       run: |
           git config --global user.email "github-actions@github.com"
           git config --global user.name "github-actions"
+          git stash
           
-          # 設定重試次數
-          RETRIES=100
-          COUNT=0
-          
-          while [ $COUNT -lt $RETRIES ]; do
-            # 暫存未提交的更改
-            git stash
-            
-            if git pull origin main --rebase; then
-              echo "拉取成功"
-              break
-            else
-              echo "拉取失敗，正在重試..."
-              COUNT=$((COUNT + 1))
-              sleep 1  # 等待 1 秒後再重試
-            fi
-          done
-
-    - name: 恢復暫存的更改
-      run: |
-          git stash pop || echo "沒有暫存的更改可恢復"
-
-    - name: 檢查合併衝突
-      run: |
-          if git diff --check --ignore-space-at-eol; then
-              echo "沒有合併衝突，繼續上傳"
-          else
-              echo "檢測到合併衝突，跳過上傳"
-              exit 1  # 終止流程
-          fi
-
     - name: 上傳 RSS 文件
       run: |
           git add *.xml
-          # 檢查是否有變更
-          if git diff --cached --exit-code; then
-              echo "沒有變更可提交，跳過上傳"
-          else
-              git commit -m "Upload RSS file"
-              git push origin main
-          fi
+          git commit -m "Upload RSS file"
+          git push origin main
+
           
