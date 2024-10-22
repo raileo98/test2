@@ -321,7 +321,7 @@ async def process_article(fg, category, article):
             latest_imgUrl = await optimize_image_quality(imgUrl)
 
             imgAlt = image.get('alt', '')
-            imgAlt = html.escape(imgAlt.strip())
+            imgAlt = html.escape(imgAlt.strip()).strip()
             
             if latest_imgUrl:
                 latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
@@ -357,7 +357,7 @@ async def process_article(fg, category, article):
                         latest_imgUrl = await optimize_image_quality(imgUrl)
     
                         imgAlt = article_soup.select_one('.detailNewsSlideTitleText').get_text()
-                        imgAlt = html.escape(imgAlt.strip())
+                        imgAlt = html.escape(imgAlt.strip()).strip()
                         
                         if latest_imgUrl:
                             latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
