@@ -148,7 +148,7 @@ jobs:
 
     - name: 檢查合併衝突
       run: |
-          git apply --whitespace=fix trailing-whitespace-fix.patch
+          git apply --whitespace=fix *.xml
           
           if git diff --check; then
               echo "沒有合併衝突，繼續上傳"
