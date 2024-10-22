@@ -147,11 +147,11 @@ def parse_pub_date(date_str):
 def get_item_pub_date(item):
     pub_date = item.find('pubDate')
     if pub_date:
-        return pub_date.text
+        return pub_date.text.strip()
 
     published = item.find('published')
     if published:
-        return published.text
+        return published.text.strip()
 
     return None
 
@@ -214,7 +214,7 @@ async def process_category(category, url):
     try:
         response = await get_response(url)
         if response.ok:
-            web_content = response.text
+            web_content = response.text.strip()
         else:
             print(f'{category} 處理失敗，即將重試!')
             logging.error(f'{category} 處理失敗，HTTP 狀態碼: {response.status_code}')
@@ -261,7 +261,7 @@ async def process_category(category, url):
             item.description.string = CData(html.unescape(item.description.string.strip()))
 
     if soup_rss.find('url') is not None:
-        soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string))
+        soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string.strip()))
     
     sorted_items = sorted(soup_rss.find_all('item'), key=lambda x: datetime.strptime(get_item_pub_date(x), '%a, %d %b %Y %H:%M:%S %z') if get_item_pub_date(x) else datetime.min, reverse=True)
 
@@ -279,7 +279,7 @@ async def process_category(category, url):
         tag.decompose()
     
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
-        await file.write(soup_rss.prettify().rstrip())
+        await file.write(soup_rss.prettify().strip())
 
     print(f'{category} 處理完成!')
 
@@ -288,17 +288,17 @@ async def process_article(fg, category, article):
     try:
         fe = fg.add_entry()
                 
-        articleTitle = article.select_one('.ns2-title').text
+        articleTitle = article.select_one('.ns2-title').text.strip()
         articleLink = article.select_one('.ns2-title a')['href']
-        articleLink = articleLink.replace('?spTabChangeable=0', '')
+        articleLink = articleLink.replace('?spTabChangeable=0', '').strip()
         
         print( f'{articleTitle} started!' )
 
         article_response = await get_response(articleLink)
-        article_content = article_response.text
+        article_content = article_response.text.strip()
         article_soup = BeautifulSoup(article_content, 'lxml')
 
-        feedDescription = article_soup.select_one('.itemFullText').prettify()
+        feedDescription = article_soup.select_one('.itemFullText').prettify().strip()
 
         # 處理圖片
         images = article_soup.select('.items_content .imgPhotoAfterLoad')
@@ -374,12 +374,12 @@ async def process_article(fg, category, article):
         # 緩存圖片
         await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
-        pub_date = article.select_one('.ns2-created').text
+        pub_date = article.select_one('.ns2-created').text.strip()
         formatted_pub_date = parse_pub_date(pub_date)
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         
-        feedDescription = BeautifulSoup(feedDescription, 'lxml').prettify()
+        feedDescription = BeautifulSoup(feedDescription, 'lxml').prettify().strip()
         
         fe.title(articleTitle)
         fe.link(href=articleLink)
