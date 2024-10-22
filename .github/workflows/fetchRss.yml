@@ -118,16 +118,13 @@ jobs:
     - name: Redis 狀態
       run: |
         for i in {1..10}; do sudo systemctl status redis && break; done
-
-    - name: 拉取遠端更改並自動重試
+     
+    - name: 上傳 RSS 文件
       run: |
           git config --global user.email "github-actions@github.com"
           git config --global user.name "github-actions"
-          git stash
-          
-    - name: 上傳 RSS 文件
-      run: |
           git add *.xml
+          git stash
           git commit -m "Upload RSS file"
           git push origin main
 
