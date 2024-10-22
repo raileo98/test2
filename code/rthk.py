@@ -279,7 +279,7 @@ async def process_category(category, url):
         tag.decompose()
     
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
-        await file.write(soup_rss.prettify())
+        await file.write(soup_rss.prettify().rstrip())
 
     print(f'{category} 處理完成!')
 
