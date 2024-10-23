@@ -33,6 +33,7 @@ from niquests.adapters import HTTPAdapter, Retry
 verCount11 = 0
 verCount20 = 0
 verCount30 = 0
+netlocList = []
 
 print('222')
 
@@ -489,7 +490,10 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
     total_requests += 1
     while True:
         try:
-            session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
+            if urllib.parse.urlparse( url ).netloc not in netlocList:
+                session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
+                netlocList.append( urllib.parse.urlparse( url ).netloc )
+            
             response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
             
             if response.from_cache:
@@ -544,8 +548,6 @@ if __name__ == '__main__':
     check()
     check()
     print('444')
-    session.quic_cache_layer.add_domain('images.weserv.nl')
-    session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
     print('555')
     main()
     check()
