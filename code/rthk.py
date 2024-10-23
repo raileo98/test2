@@ -61,8 +61,9 @@ session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), res
 adapter = HTTPAdapter( max_retries=retries )
 session.mount("https://", adapter=adapter)
 session.mount("http://", adapter=adapter)
-time.sleep(1) # 'Cannot select a disposable connection to ease the charge'
+# time.sleep(1) # 'Cannot select a disposable connection to ease the charge'
 
+session.quic_cache_layer.add_domain( 'mozilla.cloudflare-dns.com' )
 # session.headers['Cache-Control'] = 'no-cache'
 # session.headers['Pragma'] = 'no-cache'
 userAgent = [
