@@ -207,23 +207,24 @@ categories_data = {
 total_requests = 0
 cache_hits = 0
 
+
 async def process_category(category, url):
     try:
         response = await get_response(url)
         if response.ok:
             web_content = response.text.strip()
         else:
-            print(f'{category} 處理失敗，即將重試!')
+            print(f'{category} 處理失敗，即將結束程序!')
             logging.error(f'{category} 處理失敗，HTTP 狀態碼: {response.status_code}')
-            return
+            sys.exit(1)  # 結束程序
     except Exception as e:
-        print(f'{category} 獲取響應出錯，即將重試!')
+        print(f'{category} 獲取響應出錯，即將結束程序!')
         logging.error(f'{category} 獲取響應出錯: {e}')
-        return
+        sys.exit(1)  # 結束程序
     except:
-        print(f'{category} 出現未知錯誤，即將重試!')
+        print(f'{category} 出現未知錯誤，即將結束程序!')
         logging.error(f'{category} 出現未知錯誤')
-        return
+        sys.exit(1)  # 結束程序
 
     soup = BeautifulSoup(web_content, 'lxml')
 
