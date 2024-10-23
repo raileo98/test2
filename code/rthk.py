@@ -290,9 +290,15 @@ async def process_article(fg, category, article):
         articleLink = article.select_one('.ns2-title a')['href']
         articleLink = articleLink.replace('?spTabChangeable=0', '').strip()
         
-        print( f'{articleTitle} started!' )
+        print(f'{articleTitle} started!')
 
         article_response = await get_response(articleLink)
+		
+        if not article_response.ok:
+            print(f'{articleTitle} 處理失敗，將跳過此文章!')
+            logging.error(f'{articleTitle} 處理失敗，HTTP 狀態碼: {article_response.status_code}')
+            return  # 跳過該文章，繼續處理下一篇文章
+        
         article_content = article_response.text.strip()
         article_soup = BeautifulSoup(article_content, 'lxml')
 
