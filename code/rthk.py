@@ -489,8 +489,14 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             
             return response
         except Exception as e:
-            # print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
-            logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+            if e == 'Cannot select a disposable connection to ease the charge':
+                total_requests -= 1
+                continue
+            
+            else:
+                # print(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+                logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+        
         except:
             exception_type, exception_value, exception_traceback = sys.exc_info()
             # print(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
