@@ -565,5 +565,7 @@ if __name__ == '__main__':
     print( f'HTTP/3.0 數: { verCount30 }' )
 
     memUsage()
+    print( f'len( netlocList ): { len( netlocList ) }' )
+    print( f'netlocList: { netlocList }' )
     # print(f'len( session.cache.responses.values ): { len( session.cache.responses.values ) }')
     print(f'執行時間：{execution_time}秒')
