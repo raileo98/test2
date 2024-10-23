@@ -499,7 +499,6 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             return response
         except Exception as e:
             if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
-                total_requests -= 1
                 continue
             
             else:
