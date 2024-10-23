@@ -409,7 +409,6 @@ async def cache_image(imageUrl):
 
 async def optimize_image_quality(imgUrl):
     q = 99
-    # latest_imgUrl = imgUrl  # 預設為原始圖片 URL
     latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q=1')
     latestAvailableQ = None
 
@@ -457,16 +456,23 @@ async def optimize_image_quality(imgUrl):
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
     
-                # 如果之前已經滿足過條件，則額外減少 q
-                if has_matched_condition:
-                    q = max(1, q - 5)  # 確保 q 不會低於 1
-    
         except Exception as e:
             logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
             q = 1  # 將質量參數設置為 1
             latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
             break
-    
+
+    # 在迴圈結束後檢查是否滿足過條件，並額外減少 q
+    if has_matched_condition:
+        if q == 99:
+            q = 95
+
+        if q <= 95:
+            q = max(1, q - 5)  # 確保 q 不會低於 1
+
+        # 更新 latest_imgUrl 以反映最終的 q 值
+        latest_imgUrl = imgUrl.replace('q=1', f'q={q}')
+
     return latest_imgUrl
 
 async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
