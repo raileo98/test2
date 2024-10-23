@@ -416,8 +416,8 @@ async def optimize_image_quality(imgUrl):
     latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q=1')
     latestAvailableQ = None
 
-# 在函數開始時新增一個布林變數
-has_matched_condition = False
+    # 在函數開始時新增一個布林變數
+    has_matched_condition = False
 
     while True:
         imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
