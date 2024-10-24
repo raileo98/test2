@@ -472,7 +472,7 @@ async def optimize_image_quality(imgUrl):
             break
 
     # 在迴圈結束後檢查是否滿足過條件，並額外減少 q
-    if has_matched_condition:
+    if has_matched_condition and upstream_response_length < 1000 * 100:
         if q == 99:
             q = 95
 
