@@ -445,6 +445,9 @@ async def optimize_image_quality(imgUrl):
     
                 logging.info(f'[INFO] 獲取圖片大小成功 - imageUrl: {imgUrl} - content_length: {content_length} - upstream_response_length: {upstream_response_length} - 當前質量參數 q: {q}')
     
+                if q == 99:
+                    content_length_q99 = content_length
+                
                 if q == 1:
                     logging.error(f'[ERROR] 當前質量參數 q 為 1，退出迴圈 - imageUrl: {imgUrl}')
                     break
@@ -472,7 +475,7 @@ async def optimize_image_quality(imgUrl):
             break
 
     # 在迴圈結束後檢查是否滿足過條件，並額外減少 q
-    if has_matched_condition and upstream_response_length < 1000 * 100:
+    if has_matched_condition and (upstream_response_length < 1000 * 100 or content_length_q99 < 1000 * 100):
         if q == 99:
             q = 95
 
