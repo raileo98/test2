@@ -310,7 +310,7 @@ async def process_article(fg, category, article):
         imgHtml = ''
         imgList = set()
         for image in images:
-            imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src']), 99)
+            imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src']), 99)
             print(f"{articleLink} - {articleTitle}: {imgUrl}")
             imgList.add(imgUrl)
             
@@ -344,7 +344,7 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail), 99)
+                        imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail), 99)
                         print(f"{articleLink} - {articleTitle}: {imgUrl}")
                         imgList.add(imgUrl)
                         
