@@ -384,6 +384,7 @@ async def process_article(fg, category, article):
         
         fe.title(articleTitle)
         fe.link(href=articleLink)
+        fe.guid(guid=articleLink, permalink=True)
         fe.description(feedDescription)
         fe.pubDate(formatted_pub_date)
         
