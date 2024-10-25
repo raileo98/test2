@@ -415,8 +415,6 @@ async def optimize_image_quality(imgUrl):
     latest_imgUrl = modify_image_url(imgUrl, 1)
     latestAvailableQ = None
 
-    has_matched_condition = False
-
     while True:
         imgUrlWithQ = modify_image_url(imgUrl, q)
     
@@ -451,9 +449,6 @@ async def optimize_image_quality(imgUrl):
                     
                     if q <= 95:
                         q = max(1, q - 5)  # 確保 q 不會低於 1
-                    
-                    if content_length > upstream_response_length:
-                        has_matched_condition = True  # 設置為 True
     
                 elif content_length < 1000 * 100:
                     logging.info(f'[INFO] 圖片大小小於 500KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
@@ -465,17 +460,6 @@ async def optimize_image_quality(imgUrl):
             q = 1  # 將質量參數設置為 1
             latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
             break
-
-    # 在迴圈結束後檢查是否滿足過條件，並額外減少 q
-    if has_matched_condition and (upstream_response_length < 1000 * 100 or content_length_q99 < 1000 * 100):
-        if q == 99:
-            q = 95
-
-        if q <= 95:
-            q = max(1, q - 5)  # 確保 q 不會低於 1
-
-        # 更新 latest_imgUrl 以反映最終的 q 值
-        latest_imgUrl = modify_image_url(imgUrl, q)
 
     return latest_imgUrl
 
