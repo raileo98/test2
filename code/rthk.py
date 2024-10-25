@@ -283,7 +283,6 @@ async def process_category(category, url):
 
     print(f'{category} 處理完成!')
 
-
 async def process_article(fg, category, article):
     try:
         fe = fg.add_entry()
@@ -311,17 +310,17 @@ async def process_article(fg, category, article):
         imgHtml = ''
         imgList = set()
         for image in images:
-            imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src'])
-            print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
-            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
+            imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src']), 99)
+            print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            imgList.add(imgUrl)
             
             imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-            print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
-            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
+            print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            imgList.add(imgUrl)
             
             imgUrl = imgUrl.replace('_L_', '_')
-            print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
-            imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
+            print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            imgList.add(imgUrl)
 
             # 根據圖片大小調整壓縮質量
             latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -330,13 +329,11 @@ async def process_article(fg, category, article):
             imgAlt = html.escape(imgAlt.strip()).strip()
             
             if latest_imgUrl:
-                latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
-                imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                 imgList.add(latest_imgUrl)
                 print(f'Final imgUrlWithQ: {latest_imgUrl}')
             else:
-                imgUrl = imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
-                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style=width:100%;height:auto>'
+                imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                 imgList.add(imgUrl)
                 print(f'Final imgUrl: {imgUrl}')
 
@@ -347,17 +344,17 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        imgUrl = 'https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail)
-                        print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
+                        imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail), 99)
+                        print(f"{articleLink} - {articleTitle}: {imgUrl}")
+                        imgList.add(imgUrl)
                         
                         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-                        print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
+                        print(f"{articleLink} - {articleTitle}: {imgUrl}")
+                        imgList.add(imgUrl)
                         
                         imgUrl = imgUrl.replace('_L_', '_')
-                        print(f"{articleLink} - {articleTitle}: {imgUrl.replace('n=-1', 'n=-1&q=99')}")
-                        imgList.add(imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/').replace('n=-1', 'n=-1&q=99'))
+                        print(f"{articleLink} - {articleTitle}: {imgUrl}")
+                        imgList.add(imgUrl)
                         
                         # 根據圖片大小調整壓縮質量
                         latest_imgUrl = await optimize_image_quality(imgUrl)
@@ -366,12 +363,10 @@ async def process_article(fg, category, article):
                         imgAlt = html.escape(imgAlt.strip()).strip()
                         
                         if latest_imgUrl:
-                            latest_imgUrl = latest_imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
                             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                             imgList.add(latest_imgUrl)
                             print(f'Final imgUrlWithQ: {latest_imgUrl}')
                         else:
-                            imgUrl = imgUrl.replace('https://images.weserv.nl/', 'https://images.weserv.nl/')
                             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                             imgList.add(imgUrl)
                             print(f'Final imgUrl: {imgUrl}')
@@ -392,7 +387,7 @@ async def process_article(fg, category, article):
         fe.description(feedDescription)
         fe.pubDate(formatted_pub_date)
         
-        print( f'{articleTitle} done!' )
+        print(f'{articleTitle} done!')
         memUsage()
     except Exception as e:
         print(f'{articleTitle} 處理出錯: {e}')
@@ -409,30 +404,27 @@ async def cache_image(imageUrl):
             if response.from_cache:
                 print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
     except Exception as e:
-        # print(f'[ERROR] 緩存 {imageUrl} 出錯: {e}')
         logging.error(f'[ERROR] 緩存 {imageUrl} - 出錯: {e}')
     except:
         exception_type, exception_value, exception_traceback = sys.exc_info()
-        # print(f'[ERROR] 緩存 {imageUrl} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
         logging.error(f'[ERROR] 緩存 {imageUrl} - 出現未知錯誤: {exception_type.__name__} - {exception_value}')
 
 async def optimize_image_quality(imgUrl):
     q = 99
-    latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q=1')
+    latest_imgUrl = modify_image_url(imgUrl, 1)
     latestAvailableQ = None
 
-    # 在函數開始時新增一個布林變數
     has_matched_condition = False
 
     while True:
-        imgUrlWithQ = imgUrl.replace('n=-1', f'n=-1&q={q}')
+        imgUrlWithQ = modify_image_url(imgUrl, q)
     
         try:
             response = await get_response(imgUrlWithQ, method='HEAD', session=session)
     
             if response.status_code >= 400 and response.status_code < 600:
                 if q > 1:
-                    q = 1  # 降低質量參數
+                    q = 1
                     logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: {response.status_code} - imageUrl: {imgUrl}')
                 else:
                     logging.error(f'[ERROR] 無法獲取有效圖片，退出迴圈 - imageUrl: {imgUrl}')
@@ -459,7 +451,6 @@ async def optimize_image_quality(imgUrl):
                     if q <= 95:
                         q = max(1, q - 5)  # 確保 q 不會低於 1
                     
-                    # 檢查是否已經滿足過條件
                     if content_length > upstream_response_length:
                         has_matched_condition = True  # 設置為 True
     
@@ -483,9 +474,27 @@ async def optimize_image_quality(imgUrl):
             q = max(1, q - 5)  # 確保 q 不會低於 1
 
         # 更新 latest_imgUrl 以反映最終的 q 值
-        latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q={q}')
+        latest_imgUrl = modify_image_url(imgUrl, q)
 
     return latest_imgUrl
+
+def modify_image_url(imageUrl, new_quality):
+    # 解析 URL
+    parsed_url = urllib.parse.urlparse(imageUrl)
+    
+    # 解析查詢參數
+    query_params = urllib.parse.parse_qs(parsed_url.query)
+    
+    # 只修改質量參數 q
+    query_params['q'] = [str(new_quality)]
+    
+    # 重新組合查詢參數
+    new_query = urllib.parse.urlencode(query_params, doseq=True)
+    
+    # 重新組合 URL
+    new_url = urllib.parse.urlunparse(parsed_url._replace(query=new_query))
+    
+    return new_url
 
 async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
     # global total_requests, cache_hits
