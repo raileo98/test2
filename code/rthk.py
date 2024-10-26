@@ -443,15 +443,15 @@ async def optimize_image_quality(imgUrl):
                     logging.error(f'[ERROR] 當前質量參數 q 為 1，退出迴圈 - imageUrl: {imgUrl}')
                     break
                 
-                if content_length > 1000 * 100 or content_length > upstream_response_length:
+                if content_length > 1000 * 150 or content_length > upstream_response_length:
                     if q == 99:
                         q = 95
                     
                     if q <= 95:
                         q = max(1, q - 5)  # 確保 q 不會低於 1
     
-                elif content_length < 1000 * 100:
-                    logging.info(f'[INFO] 圖片大小小於 500KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
+                elif content_length < 1000 * 150:
+                    logging.info(f'[INFO] 圖片大小小於 150 KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
     
