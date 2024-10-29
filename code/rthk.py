@@ -374,7 +374,7 @@ async def process_article(fg, category, article):
                         break
         
         # 緩存圖片
-        await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
+        # await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
         pub_date = article.select_one('.ns2-created').text.strip()
         formatted_pub_date = parse_pub_date(pub_date)
