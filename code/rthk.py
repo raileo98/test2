@@ -237,7 +237,8 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    feedImg = f"https://images.weserv.nl/?n=-1&output=webp&trim=1&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
+    # feedImg = f"https://images.weserv.nl/?n=-1&output=webp&trim=1&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
+    feedImg = 'https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png'
     fg.logo(feedImg)
 
     fg.copyright('© 香港電台 RTHK')
