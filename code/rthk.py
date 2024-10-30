@@ -481,7 +481,8 @@ async def optimize_image_quality(imgUrl):
             q = max(1, q - 10)  # 確保 q 不會低於 1
 
         # 更新 latest_imgUrl 以反映最終的 q 值
-        latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q={q}')
+        # latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q={q}')
+	latest_imgUrl = modify_image_url(imgUrl, q)
         print( f'圖像小於 150 KB，{ imgUrl } --> { latest_imgUrl }' )
 
     return latest_imgUrl
