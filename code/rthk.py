@@ -477,7 +477,7 @@ async def optimize_image_quality(imgUrl):
         if q == 99:
             q = 90
 
-        if q <= 95:
+        elif q <= 95:
             q = max(1, q - 10)  # 確保 q 不會低於 1
 
         # 更新 latest_imgUrl 以反映最終的 q 值
