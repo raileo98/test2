@@ -416,6 +416,9 @@ async def optimize_image_quality(imgUrl):
     q = 99
     latest_imgUrl = modify_image_url(imgUrl, 1)
     latestAvailableQ = None
+    
+    # 在函數開始時新增一個布林變數
+    has_matched_condition = False
 
     while True:
         imgUrlWithQ = modify_image_url(imgUrl, q)
@@ -451,6 +454,10 @@ async def optimize_image_quality(imgUrl):
                     
                     if q <= 95:
                         q = max(1, q - 5)  # 確保 q 不會低於 1
+
+                    # 檢查是否已經滿足過條件
+                    if content_length > upstream_response_length:
+                        has_matched_condition = True  # 設置為 True
     
                 elif content_length < 1000 * 150:
                     logging.info(f'[INFO] 圖片大小小於 150 KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
@@ -462,6 +469,20 @@ async def optimize_image_quality(imgUrl):
             q = 1  # 將質量參數設置為 1
             latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
             break
+
+    # 在迴圈結束後檢查是否滿足過條件，並額外減少 q
+    # if has_matched_condition and (upstream_response_length < 1000 * 150 or content_length_q99 < 1000 * 150):
+    # if has_matched_condition and (upstream_response_length < 1000 * 100 or content_length_q99 < 1000 * 100):
+    if upstream_response_length < 1000 * 150 or content_length_q99 < 1000 * 150:
+        if q == 99:
+            q = 90
+
+        if q <= 95:
+            q = max(1, q - 10)  # 確保 q 不會低於 1
+
+        # 更新 latest_imgUrl 以反映最終的 q 值
+        latest_imgUrl = imgUrl.replace('n=-1', f'n=-1&q={q}')
+        print( f'圖像小於 150 KB，{ imgUrl } --> { latest_imgUrl }' )
 
     return latest_imgUrl
 
