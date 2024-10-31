@@ -57,7 +57,7 @@ retries = Retry(
 
 # session = CachedSession( trust_env=False, allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=1, pool_maxsize=10000, retries=retries, backend='redis', happy_eyeballs=True)
 # pool_connections = len( categories_data )
-session = CachedSession( allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=12, pool_maxsize=10000, backend='redis', happy_eyeballs=True )
+session = CachedSession( allowable_methods=('GET', 'HEAD'), resolver="doh://mozilla.cloudflare-dns.com/dns-query", pool_connections=1, pool_maxsize=10000, backend='redis', happy_eyeballs=True )
 adapter = HTTPAdapter( max_retries=retries )
 session.mount("https://", adapter=adapter)
 session.mount("http://", adapter=adapter)
@@ -375,7 +375,7 @@ async def process_article(fg, category, article):
                         break
         
         # 緩存圖片
-        # await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
+        await asyncio.gather(*(cache_image(imageUrl) for imageUrl in imgList))
 
         pub_date = article.select_one('.ns2-created').text.strip()
         formatted_pub_date = parse_pub_date(pub_date)
