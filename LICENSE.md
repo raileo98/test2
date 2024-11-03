@@ -4,7 +4,7 @@
 
 ## 使用條款
 
-1. **在組織中的使用**：若您希望將本專案的代碼用於盈利目的，或在盈利組織、商業組織、政府組織、宗教組織或政治組織中使用，您必須先與我們聯繫並進行討論。未經我們的同意，您不得以任何形式將本專案的代碼用於盈利。如果您屬於任何盈利組織、商業組織、政府組織、宗教組織或政治組織，請務必在使用前與我們聯繫。
+1. **在組織中的使用**：若您希望將本專案的代碼用於盈利目的，或在盈利組織、商業組織、政府組織、宗教組織或政治組織中使用，您必須先與我們聯繫並進行討論。未經我們的同意，您不得以任何形式將本專案的代碼用於盈利。如果您屬於任何盈利組織、商業組織、政府組織、宗教組織或政治組織，請務必在使用前與我們聯繫。**若未聯繫我們，您不被允許將代碼用於 AI 訓練。**
 
 2. **開源要求**：根據AGPL的要求，若您對本專案的代碼進行了修改，您必須向所有使用該代碼的用戶提供修改後的源代碼。如果您在互聯網、內部網絡、雲端或伺服器上使用或上傳本代碼，您必須開放您的代碼。
 
@@ -22,7 +22,7 @@ This project is licensed under the GNU Affero General Public License (AGPL) vers
 
 ## Terms of Use
 
-1. **Use in Organizations**: If you wish to use the code for profit or in a for-profit organization, commercial organization, government organization, religious organization, or political organization, you must contact us and discuss it first. You may not use the code for profit in any form without our consent. If you belong to any for-profit organization, commercial organization, government organization, religious organization, or political organization, please be sure to contact us before use.
+1. **Use in Organizations**: If you wish to use the code for profit or in a for-profit organization, commercial organization, government organization, religious organization, or political organization, you must contact us and discuss it first. You may not use the code for profit in any form without our consent. If you belong to any for-profit organization, commercial organization, government organization, religious organization, or political organization, please be sure to contact us before use. **If you do not reach us, you are not allowed to use the code for AI training.**
 
 2. **Open Source Requirement**: According to AGPL, if you modify the code of this project, you must provide the modified source code to all users of the code. If you use or upload this code on the internet, intranet, cloud, or server, you must open your code.
 
