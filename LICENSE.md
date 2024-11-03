@@ -1,6 +1,6 @@
 # License
 
-本專案使用 GNU Affero General Public License (AGPL) 版本 3.0 或更高版本進行授權。
+本專案使用具特色的 GNU Affero General Public License (AGPL) 版本 3.0 或更高版本進行授權。
 
 ## 使用條款
 
@@ -26,7 +26,7 @@
 
 # License
 
-This project is licensed under the GNU Affero General Public License (AGPL) version 3.0 or later.
+This project is licensed under the distinctive GNU Affero General Public License (AGPL) version 3.0 or later.
 
 ## Terms of Use
 
