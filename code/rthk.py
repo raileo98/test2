@@ -514,10 +514,11 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
     total_requests += 1
     while True:
         try:
-            if urllib.parse.urlparse( url ).netloc not in netlocList:
-                session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
-                netlocList.append( urllib.parse.urlparse( url ).netloc )
+            # if urllib.parse.urlparse( url ).netloc not in netlocList:
+                # session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
+                # netlocList.append( urllib.parse.urlparse( url ).netloc )
             
+            session.quic_cache_layer.add_domain( urllib.parse.urlparse( url ).netloc )
             response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
             
             if response.from_cache:
@@ -547,6 +548,7 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
             exception_type, exception_value, exception_traceback = sys.exc_info()
             # print(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
             logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+        
         if mustFetch:
             continue
         else:
