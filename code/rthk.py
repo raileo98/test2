@@ -65,6 +65,7 @@ session.trust_env = False
 # time.sleep(1) # 'Cannot select a disposable connection to ease the charge'
 
 session.quic_cache_layer.add_domain( 'mozilla.cloudflare-dns.com' )
+session.quic_cache_layer.add_domain( 'ocsp1.ecert.gov.hk' )
 # session.headers['Cache-Control'] = 'no-cache'
 # session.headers['Pragma'] = 'no-cache'
 userAgent = [
