@@ -29,6 +29,8 @@ import threading
 import sys
 # from urllib3_future.util import Retry
 from niquests.adapters import HTTPAdapter, Retry
+from lxml import html
+from lxml.html.clean import Cleaner
 
 verCount11 = 0
 verCount20 = 0
@@ -211,6 +213,18 @@ categories_data = {
 total_requests = 0
 cache_hits = 0
 
+# 創建 Cleaner 實例，設置 safe_attrs_only 為 True
+cleaner = Cleaner(
+    scripts=True,  # 刪除所有 <script> 標籤
+    javascript=True,  # 刪除所有 JavaScript
+    comments=True,  # 刪除所有註解
+    style=True,  # 刪除所有 <style> 標籤
+    safe_attrs_only=True,  # 僅保留安全屬性
+    remove_unknown_tags=True,
+    page_structure=True,
+    inline_style=True,
+    add_nofollow=True,
+)
 
 async def process_category(category, url):
     try:
@@ -282,8 +296,18 @@ async def process_category(category, url):
     if tag:
         tag.decompose()
     
+    soup_rss = soup_rss.prettify().strip()
+    # 解析 HTML
+    document = html.fromstring(soup_rss)
+
+    # 使用 Cleaner 清理文檔
+    clean_html = cleaner.clean_html(document)
+
+    # 將清理後的 HTML 轉換為字符串
+    clean_html_str = html.tostring(clean_html, pretty_print=True, encoding='unicode')
+    
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
-        await file.write(soup_rss.prettify().strip())
+        await file.write(clean_html_str)
 
     print(f'{category} 處理完成!')
 
