@@ -298,7 +298,8 @@ async def process_category(category, url):
     
     soup_rss = soup_rss.prettify().strip()
     # 解析 HTML
-    document = lxmlhtml.fromstring(soup_rss)
+    # document = lxmlhtml.fromstring(soup_rss)
+    document = lxmlhtml.fromstring(soup_rss.encode('utf-8'))
 
     # 使用 Cleaner 清理文檔
     clean_html = cleaner.clean_html(document)
