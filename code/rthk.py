@@ -128,6 +128,7 @@ def check():
             headersForCheck = dict(session.headers)
             headersForCheck['Cache-Control'] = 'no-cache'
             headersForCheck['Pragma'] = 'no-cache'
+            headersForCheck['User-Agent'] = secrets.choice(userAgent)
             print( f'headersForCheck: { headersForCheck }' )
             response = session.get(url, timeout=2, headers=headersForCheck )
             if response.ok:
