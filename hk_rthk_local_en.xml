@@ -1,99 +1,88 @@
-<?xml version="1.0" encoding="utf-8"?>
-<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
- <channel>
-  <title>
+<div>
+ 
+  
    rthk - Local
-  </title>
-  <link>
+  
+  
    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&amp;cat=8&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  </link>
-  <description>
+  
+  
    rthk - Local
-  </description>
-  <copyright>
+  
+  
    © 香港電台 RTHK
-  </copyright>
-  <docs>
+  
+  
    http://www.rssboard.org/rss-specification
-  </docs>
-  <generator>
+  
+  
    python-feedgen
-  </generator>
-  <image>
-   <url>
-    <![CDATA[https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png]]>
-   </url>
-   <title>
-    rthk - Local
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&amp;cat=8&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-   </link>
-  </image>
-  <language>
+  
+  <img>
+  
    zh-HK
-  </language>
-  <webMaster>
+  
+  
    webmaster@rthk.hk
-  </webMaster>
-  <item>
-   <title>
+  
+  
+   
     'Rainbow wall' at Choi Hung Estate must go: govt
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777769-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Rosanna Law said officials will study whether the rainbow wall can be restored at the redeveloped Choi Hung Estate. Image: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777769_1_20241106112709.jpg&q=70" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Housing director Rosanna Law said an iconic rainbow wall of Choi Hung Estate will have to be demolished, but officials will seriously look at restoring the spot after redevelopment.
  <br>
-  <br/>
+  <br>
   Officials plan on moving the first batch of affected tenants to an estate in Kowloon City as early as four years from now, as an estimated 15 years will be needed to complete the phased renewal of the estate.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Speaking to RTHK, Law said the "rainbow" block of Tan Fung House and the sports courts next to it, which is above a multi-storey car park, would have to go.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "If we say we retain the rainbow wall and the car park, not only will we have fewer flats in the redeveloped estate, but I think it would be rather difficult in terms of having enough space, to improve the traffic conditions nearby," she said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "But we understand how the public loves this photo spot. Our team of architects will seriously think about ways of restoring this 'rainbow' at the new Choi Hung Estate."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Law said authorities made the redevelopment announcement early, so that tenants can be psychologically prepared about having to move out and take part in the process.
-  <br/>
-  <br/>
+  <br>
+  <br>
   She said if they don't want to move to Kowloon City and stay nearby, officials will try to accommodate if there are suitable flats available.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Law stressed that the second and third phase of the redevelopment - due to begin around 2035 - are still in a conceptual stage.
-  <br/>
-  <br/>
+  <br>
+  <br>
   She explained the new blocks were meant to be up to 50-storeys high and officials cannot conduct works such as exploring the ground's foundation until after tenants have moved out.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chief Executive John Lee also announced in his Policy Address last month plans to regulate sub-divided flats while requiring landlords to turn them into "basic housing units".
-  <br/>
-  <br/>
+  <br>
+  <br>
   Law said it is illegal for landlords to break existing rental contracts early and force out tenants in the name of renovating the flats and she said tenants can report this to the authorities.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "In fact, the government has yet to set the standards [for basic housing units]. We haven't completed our public consultation and enact new laws. Do landlords have to rush to [renovate]?" the director of housing said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I appeal to the landlords, even if you're eager to make sure your flats comply with the new standards, you really should wait a little bit until we have promulgated the new standards. Otherwise you may waste your money."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Law said around 40 percent of tenants currently living in the potentially affected sub-divided flats, or around 40,000 households, should be ineligible to apply for public housing.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Authorities, she said, will not conduct large-scale law enforcement in future unless officials are confident they can find re-settlements for affected residents.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777769-20241106.htm" rel="nofollow">
@@ -108,37 +97,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777769-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 11:54:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Local stocks drop at open
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777763-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The Hang Seng Index fell 1.02 percent to open at 20,791. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777763_1_20241106105412.jpg&q=25" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Most Asian markets rose with the dollar and bitcoin on Wednesday as traders await the outcome of the knife-edge US presidential election, with bets increasing on a Donald Trump victory as early results rolled in.
  <br>
-  <br/>
+  <br>
   The Hang Seng Index fell 1.02 percent to open at 20,791.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Shanghai Composite Index opened up 0.24 percent to open at 3,395, while the Shenzhen Component Index opened 0.16 percent higher at 11,024. (Agencies)
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777763-20241106.htm" rel="nofollow">
@@ -153,52 +142,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777763-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 10:54:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Govt probes fatal scaffolding incident in Kowloon City
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777705-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Officers investigate the case at a building in Kowloon City. Photo courtesy of the Hong Kong Construction Industry Employees General Union" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777705_1_20241105221128.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  The Labour Department (LD) said it was investigating a fatal industrial incident in Kowloon City in which a worker fell to his death while dismantling scaffolding at a building.
  <br>
-  <br/>
+  <br>
   The incident happened on Tuesday afternoon, when the man fell onto the canopy on the first floor while dismantling a bamboo scaffold at the external wall of the building on Ma Tau Kok Road.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He was declared dead in hospital.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The department said it issued suspension notices to the contractors involved and stopped all scaffolding work.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The contractors cannot resume the work until the LD is satisfied that measures to abate the relevant risks have been taken," it wrote in a statement.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The department added that it will try to find out what caused the incident and who might be responsible, and take legal actions if there is any violation of work safety legislation.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Hong Kong Construction Industry Employees General Union expressed regret over the tragedy.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It urged employers to provide workers with safety equipment such as full-body safety harness and lifelines to prevent similar cases.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777705-20241105.htm" rel="nofollow">
@@ -213,61 +202,61 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777705-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 22:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'Oct saw most non-mainland visitors to HK this year'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777688-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The government says arrivals of non-mainland visitors exceed 950,000 in October. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777688_1_20241105192632.jpg&q=75" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Tourism minister Kevin Yeung said on Tuesday that Hong Kong recorded nearly a million arrivals of non-mainland visitors last month, the most so far this year for a single month.
  <br>
-  <br/>
+  <br>
   He said total visitor arrivals in October topped 4 million, with non-mainland tourists exceeding 950,000.
-  <br/>
-  <br/>
+  <br>
+  <br>
   For the first 10 months of the year, tourist arrivals reached 36.6 million, a 37 percent jump from the same period last year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   At a Legco panel meeting, lawmakers discussed the idea of promoting horse-racing tourism, which was included by Chief Executive John Lee in his Policy Address.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Third Side councillor Tik Chi-yuen expressed concerns that the move could encourage gambling, especially among the younger generation.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Yeung said the aim is not to encourage people to gamble.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Our target is the tourists... Horse-racing is an attractive event in their eyes," the secretary for culture, sports and tourism said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He described the SAR as the only place in the region that can host world-class, distinguished races.
-  <br/>
-  <br/>
+  <br>
+  <br>
   On the Kai Tak Sports Park which is set to come into use in the first quarter of 2025, Election Committee councillor Chan Siu-hung asked whether officials can ensure that shops and facilities near the park will enjoy a high usage rate during days when mega events are not being held.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan noted the nearby cruise terminal could go very quiet at times.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Yeung said you can't compare the two. He said the sports park is a public facility, and individuals and groups can book and use the facilities there on non-game days.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777688-20241105.htm" rel="nofollow">
@@ -282,52 +271,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777688-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 21:28:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'Preserve collective memory of Choi Hung Estate'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777676-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Wong Tai Sin district councillor Godfrey Ngai says a colourful exterior wall and a basketball court at Choi Hung Estate should be preserved. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777676_1_20241105175551.jpg&q=20" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  District councillors have urged officials to think of ways to keep alive the heritage and collective memory of Choi Hung Estate, which is set to be redeveloped in three phases over about two decades.
  <br>
-  <br/>
+  <br>
   The first phase of the facelift for the rainbow-themed housing complex, built in the 1960s and famous for its colourful exterior wall and photogenic basketball court, involves three blocks and two vacant school sites.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In a Wong Tai Sin district council meeting on Tuesday to discuss the redevelopment plan, councillor Godfrey Ngai said the exterior wall and the basketball court should be preserved.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “We propose setting up a Choi Hung museum in the new [Choi Hung] estate, which would include the estate's existing iconic signage, retro vending machines and nostalgic items... This would help preserve the unique features and collective memory of Choi Hung Estate,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Another councillor, Deannie Yew, said she is worried about the wall effect, after Secretary for Housing Winnie Ho revealed earlier that the blocks at the future estate will be over 50-storey high.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "If each building is going to be 50 storeys high, it would be like a 'giant' in the district because many buildings in the area aren't that tall. In such a densely populated area, wouldn't this potentially create the wall effect?" she questioned.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In response, chief architect Tim Li from the Housing Department said a study has already taken the wall effect into consideration, and 50-storey designs are not new.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Li added that each redevelopment cycle of Choi Hung Estate would take about seven years, which includes moving residents out, tearing down old buildings and building new foundations.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777676-20241105.htm" rel="nofollow">
@@ -342,64 +331,64 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777676-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 19:06:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'HK's economic growth internationally recognised'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777663-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Zhou Ji, executive deputy director of the Hong Kong and Macau Affairs Office, says recent data on the city's economy and competitiveness show the SAR is full of opportunities. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777663_1_20241105165923.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  A senior Beijing official overseeing Hong Kong affairs on Tuesday said the territory’s economic development has been recognised internationally and that the SAR has unlimited opportunities.
  <br>
-  <br/>
+  <br>
   Zhou Ji, executive deputy director of the Hong Kong and Macau Affairs Office, also hailed Chief Executive John Lee’s leadership in supporting the economy, seeking development opportunities and improving people’s livelihoods.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Hong Kong's economy has continued to expand. Its external economic and trade relations have also continued to improve. And the capital market is full of vitality," Zhou told the China International Import Expo in Shanghai.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “These achievements have also been fully recognised and highly praised by the international community.”
-  <br/>
-  <br/>
+  <br>
+  <br>
   Citing recent data on the city’s economy and competitiveness, Zhou added that Hong Kong is full of business opportunities and development potential.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He also said Beijing would continue to work with different departments to roll out measures beneficial to the SAR, while supporting cooperation between the city and Shanghai.
-  <br/>
-  <br/>
+  <br>
+  <br>
   At the same event, Chief Executive John Lee said Hong Kong could become a financing platform for mainland enterprises. He said there are more than 2,000 mainland firms in the city with more than 1,400 listed on the city’s bourse.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Among them were nearly 200 Shanghai companies that had a market value of more than HK$2 trillion. This fully demonstrates that Hong Kong can become an investment and financing platform serving the development of Shanghai and mainland enterprises," Lee said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "We welcome more Shanghai and mainland enterprises to use Hong Kong to go global and achieve mutual development."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Lee led a delegation that included Financial Secretary Paul Chan and commerce minister Algernon Yau to attend the seventh edition of the expo, where he toured the Hong Kong exhibition area and reported to Premier Li Qiang on the city's development.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The finance chief, for his part, said Hong Kong is a prime treasury centre with a free flow of capital.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan added that the SAR could facilitate the allocation of funds for mainland firms that set up their headquarters in Hong Kong, while providing tax concessions.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777663-20241105.htm" rel="nofollow">
@@ -414,40 +403,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777663-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 17:22:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Xia Baolong to hold seminar on HK development: sources
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777659-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Xia Baolong meets Jardine Matheson's executive chairman Ben Keswick. Photo courtesy of HKMAO" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777659_1_20241105164519.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  RTHK has learnt that Hong Kong and Macau Affairs Office director Xia Baolong will hold a seminar on Hong Kong’s development in Shenzhen on Friday.
  <br>
-  <br/>
+  <br>
   Sources have suggested Chief Executive John Lee, the director of Beijing’s liaison office Zheng Yanxiong, representatives of Hong Kong’s chambers of commerce and some international firms will participate in the seminar.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Last month, Xia met HSBC group chairman Mark Tucker, and expressed the hope that the bank could actively participate in the nation’s high-quality development, and contribute to Hong Kong’s prosperity and development.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Xia also met Jardine Matheson’s executive chairman Ben Keswick last week and said he hopes the group could help boost the international community’s understanding of Hong Kong.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777659-20241105.htm" rel="nofollow">
@@ -462,49 +451,49 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777659-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 16:58:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Tickets for Kai Tak's Rugby Sevens go on sale
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777647-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The Rugby Sevens in March will be held at the Kai Tak Stadium for the first time. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777647_1_20241105162129.jpg&q=25" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Tickets for the upcoming Hong Kong Rugby Sevens – the first to be held at the Kai Tak Stadium – went on sale on Tuesday.
  <br>
-  <br/>
+  <br>
   The tournament, scheduled for March 28 to 30, will be among the first major sporting events held at the 50,000-seat stadium.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Organisers said three-day passes for the tournament – which took place at the Hong Kong Stadium for decades – are priced at HK$1,950 for adults, and HK$950 for children 12 and under.
-  <br/>
-  <br/>
+  <br>
+  <br>
   A small amount of single-day tickets are also available via online ticket-seller, Klook, priced at up to HK$1,200.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Event organisers Hong Kong China Rugby said prices are frozen at 2019 levels and that a HK$750 pass will grant priority access to the new South Stand and cover a free flow of drinks.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "[We hope] the opportunity to be at one of the first events at the stadium, as well as the increased stadium capacity of the venue, will draw thousands of new fans to experience Hong Kong’s biggest party in the city’s biggest stadium," organisers said in a statement.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Tickets for last year’s sevens were sold out for the first time since the end of the pandemic.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777647-20241105.htm" rel="nofollow">
@@ -519,52 +508,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777647-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 16:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Labour group hopes for 5.5 percent pay rise next year
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777629-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="A recent survey of more than 1,100 workers showed that more than six out of ten interviewees got an average pay rise of 4.5 percent this year. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777629_2_20241105144507.jpg&q=35" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  The Federation of Hong Kong and Kowloon Labour Unions on Tuesday urged bosses to give their workers a raise of 5.5 percent next year.
  <br>
-  <br/>
+  <br>
   The group noted its recent survey of more than 1,100 workers showed that more than six out of ten interviewees got an average pay rise of 4.5 percent this year, while most of the rest saw their salaries frozen.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Over half of all respondents said they were unhappy with the salary adjustment, and over 70 percent think their pay should be adjusted based on inflation, the group said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The federation’s chairman Lam Chun-sing said the group had scaled back its expectations compared to last year after looking at factors such as inflation, the business situation and economic growth.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “We suggest a salary increase of 5.5 percent, which is a little bit lower than last year because last year we suggested an increase of six percent,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “Because last year the inflation was much higher than this year and also this year some of the sectors also face some challenges because of the economic situation.”
-  <br/>
-  <br/>
+  <br>
+  <br>
   Lam noted while the transportation sector saw bigger salary increases, some employees in industries like construction and catering faced a salary freeze.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I think this is because of the economic situation... Also for the construction industry, some private construction projects are also delayed.”
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777629-20241105.htm" rel="nofollow">
@@ -579,52 +568,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777629-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 14:45:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'Three-runway system strengthens HK as aviation hub'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777615-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Deputy Financial Secretary Michael Wong says he expects airlines to make use of the new runway to introduce new routes. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777615_1_20241105114054.jpg&q=60" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Deputy Financial Secretary Michael Wong on Tuesday said the airport’s three-runway system, which opens on November 28, will strengthen Hong Kong’s status as an aviation hub.
  <br>
-  <br/>
+  <br>
   Speaking at the Super Terminal Expo, Wong said the Hong Kong International Airport would be able to handle 120 million passengers and 10 million tonnes of cargo annually after the launch of the third runway, more than double the current figures.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He said the airport currently connects the SAR with nearly 200 global destinations, and that he expects airlines to make use of the new runway to introduce new routes.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It will make Hong Kong an even stronger aviation hub and allow us to serve the region and beyond even better. And for you as key stakeholders in the world's aviation and logistics communities, this means Hong Kong will provide you with a lot of business and profit opportunities," Wong said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "[The authorities] will proactively engage new and existing aviation partners, and markets in Belt and Road countries, including those in the Middle East and Asean."
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Airport Authority said it successfully conducted safety checks at the airport in the past few months.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The Airport Authority continues to take forward the preparatory work for the commissioning of the three-runway system, including an aircraft crash and rescue exercise on the Centre Runway in the early hours of October 15," it wrote in a statement.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It added that the airport’s expanded Terminal 2 will be put into service in phases from the end of 2025.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777615-20241105.htm" rel="nofollow">
@@ -639,69 +628,69 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777615-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 12:01:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Kowloon City court ramps up security
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777601-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777601_1_20241105110435.jpg&q=30" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Security at Kowloon City court on Tuesday was ramped up a day after a man was arrested for allegedly attempting to attack a magistrate who had earlier convicted him.
  <br>
-  <br/>
+  <br>
   The judiciary said it will “progressively implement enhanced security measures”, such as bag screenings and deploying extra manpower.
-  <br/>
-  <br/>
+  <br>
+  <br>
   An RTHK reporter at the Kowloon City Magistrates' Courts saw security personnel asking people to open their bags for inspections outside courtrooms. People were asked to empty their water bottles and sharp objects were not allowed in.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “If these items are discovered, we will call the police,” a notice displayed at the screening area read.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In a courtroom mainly hearing criminal cases, roughly three security guards were present and about four police officers were in the dock.
-  <br/>
-  <br/>
+  <br>
+  <br>
   On floors without courtrooms, security checks were not required.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Sources suggest Edward Wong was the magistrate who was allegedly targeted as court proceedings were underway on Monday.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The court diary on the judiciary’s website showed Wong was not presiding over any cases on Tuesday.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Unlike West Kowloon Magistrates’ Courts, where national security cases are heard, there are no walk-through metal detectors and people are not asked to empty their pockets at the Kowloon City courthouse.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Meanwhile, police have laid a holding charge against a man, 32, suspected of involvement in Monday's attack.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The case will be mentioned at Kowloon City Magistracy on Wednesday morning.
-  <br/>
+  <br>
   _____________________________
-  <br/>
-  <font my="my" style="font-size:90%">
+  <br>
+  <font>
    <i>
     Last updated: 2024-11-05 HKT 21:39
    </i>
   </font>
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777601-20241105.htm" rel="nofollow">
@@ -716,64 +705,64 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777601-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 10:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     New prostate cancer therapy could save lives
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777550-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Doctor Kenneth Wong (right) said around one in two patients who receive the new treatment will see their tumour shrink or eliminated altogether. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777550_1_20241104222357.jpg&q=75" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  There may be fresh hope for prostate cancer patients who develop resistance to traditional forms of therapies, as oncologists say a new third-line treatment is showing promising results so far.
  <br>
-  <br/>
+  <br>
   The Hong Kong Society of Uro-Oncology said the targeted radiotherapy treatment -- lutetium-177-PSMA-617 -- can boost cancer survival rates and improve patients' quality of life.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Half of the patients also reported a reduction in tumour size, while others had cancer cells completely eradicated.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The treatment is used when the patient no longer reacts to both hormonal therapy and chemotherapy, and presents symptoms such as difficulty in urinating, blood in urine, and even spinal cord pain.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Clinical oncologist Kenneth Wong said the treatment is also associated with less side effects.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "There are certainly some side effects associated with the use of this drug, including dry mouth, fatigue, nausea, anaemia and so on," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   But that was still better than traditional chemotherapy, Wong stressed, in which patients had to deal with suppressed bone marrow function and an increased risk of infection.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The theranostic medicine is administered intravenously every six weeks, for up to six sessions. It locates cancer cells in the body and delivers targeted radiation to kill those cells.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Wong said patients are required to drink large amounts of water to purge the remnants of the drug which are not absorbed by the tumour.
-  <br/>
-  <br/>
+  <br>
+  <br>
   They should also avoid close contact with people for up to two weeks, especially children and pregnant women.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Each injection costs HK$100,000 and public hospital patients have to pay out of their own pockets. Charity group St James' Settlement currently provides a subsidy of up to HK$30,000 for each treatment programme.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Prostate cancer was the third most common cancer among men in Hong Kong in 2021. More than half of the patients were only diagnosed at an advanced stage.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777550-20241105.htm" rel="nofollow">
@@ -788,46 +777,46 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777550-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 05:36:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Man jailed over fake academic certificate
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777551-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The police arrested the man in August on suspicion of attempting to obtain services by deception. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777551_1_20241104224003.jpg&q=25" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  The Fanling Magistrates' Court on Monday sentenced a 23-year-old mainland student to three months in jail for using fake academic credentials to apply for a master's degree programme at a Hong Kong university.
  <br>
-  <br/>
+  <br>
   Police said the man had passed an online interview for the Health and Physical Education programme at Education University, and received a conditional offer.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He was then asked to submit his qualifications, including an English proficiency test.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Upon verification the institution realised the actual score attained by the applicant did not match his claim, and reported the case to police.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The man pleaded guilty to a count of attempting to obtain services by deception.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Police warned people against using bogus academic qualifications, saying it will adopt a zero-tolerance approach to maintain the reputation of Hong Kong's higher education.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777551-20241104.htm" rel="nofollow">
@@ -842,43 +831,43 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777551-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 22:54:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Student assessment scores 'generally stable'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777513-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The Education Bureau says it will use different ways to enhance learning. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777513_1_20241104163633.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Education officials on Monday said the results of this year’s Territory-wide System Assessment (TSA), which tests students on the subjects of Chinese, English and maths, remained “generally steady”.
  <br>
-  <br/>
+  <br>
   Primary three students’ scores were all slightly down this year in all the subjects, with an 80.9 percent, 78.7 percent, and 85.3 percent proficiency in Chinese, English and maths respectively.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Secondary three pupils did better in Chinese and maths this year, but their English proficiency was down from last year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "As compared to that of last year, the performance of the primary three and secondary three students participating in the assessment of the three major subjects of Chinese Language, English Language and mathematics this year remains generally steady," the Education Bureau said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It added that it will use different ways to help enhance learning and teaching effectiveness.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777513-20241104.htm" rel="nofollow">
@@ -893,61 +882,61 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777513-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 17:46:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'Stricter laws needed to stop illegal anaesthetic use'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777506-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt='Often inhaled through vapes, "space oil" usually contains etomidate, a regulated sedative that can only be prescribed by a doctor. File photo: AFP' referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777506_1_20241104155333.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  A pharmacist on Monday said regulations on short-acting anaesthetics were not strong enough to deter their recreational use.
  <br>
-  <br/>
+  <br>
   Hong Kong has this year recorded at least three deaths caused by the suspected usage of “space oil”, according to the Toxicology Reference Laboratory of the Hong Kong Poison Control Centre.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Often inhaled through vapes, “space oil” usually contains etomidate, a regulated sedative that is prescribed by a doctor. The anaesthetic is classified as a Part 1 poison.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The president of the Society of Hospital Pharmacists of Hong Kong So Yiu-wah said the long-term use of etomidate could be deadly.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The drug will suppress the cortisol level inside our body. Once the cortisol is lowered, then our blood potassium will also be lowered, making muscles, especially the legs, seem very weak," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Because the potassium level is low, the heartbeat may become irregular. If those people already have some heart disease, it may be even fatal."
-  <br/>
-  <br/>
+  <br>
+  <br>
   He also said penalties for the illegal use of the drug are not stringent enough.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “The penalty is high not enough, because for those people who violate the [regulation], the maximum penalty is a HK$100,000 [fine] and being kept in jail for two years,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The government is seeking to list the sedative as a dangerous drug in the first half of 2025, according to security minister Chris Tang, who also said taking “space oil” would be equivalent to taking drugs.
-  <br/>
-  <br/>
+  <br>
+  <br>
   If etomidate is listed as a dangerous drug, those illegally possessing or consuming “space oil” containing the substance would face a maximum of seven years in prison and a fine of HK$1 million.
-  <br/>
-  <br/>
+  <br>
+  <br>
   And those trafficking or illegally importing the drug would be liable to a maximum penalty of life imprisonment and a fine of HK$5 million.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777506-20241104.htm" rel="nofollow">
@@ -962,85 +951,85 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777506-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 16:59:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Man held for attempted attack on magistrate
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777499-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Detectives investigate the case at Kowloon City Magistrates’ Courts. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777499_1_20241104152536.jpg&q=40" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Police on Monday arrested a man who allegedly attempted to attack a magistrate with a knife inside Kowloon City Magistrates’ Courts.
  <br>
-  <br/>
+  <br>
   The case took place shortly after 10am, when the court was in session.
-  <br/>
-  <br/>
+  <br>
+  <br>
   As proceedings were under way, the 32-year-old suspect allegedly emerged from the public gallery and charged towards the magistrate, while pulling out a knife from his bag.
-  <br/>
-  <br/>
+  <br>
+  <br>
   A police officer intervened quickly and the man never got to the magistrate.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The man then tried to flee the scene but was subdued outside the courtroom. Three officers suffered minor injuries in the process.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The suspect was later arrested on suspicion of attempted wounding.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Superintendent Gar Kam-lam told reporters at a briefing that the man was carrying four knives of 27 to 46cm long, as well as flammable liquids and lighters.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Gar also confirmed the suspect was convicted of indecent assault in 2020, and was awaiting appeal.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "He brought along documents and papers which suggested he was upset with the ruling," Gar said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Sources suggest Edward Wong was the presiding magistrate for that case. The same magistrate was at the court this morning.
-  <br/>
-  <br/>
+  <br>
+  <br>
   There are currently no security checks at most of the city's Magistrates' Courts.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The judiciary said it will "progressively implement enhanced security measures" from Tuesday, including screenings and extra manpower.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It will also liaise with police on strengthening patrols and ensure the safety of judges, judicial officers, court staff and users.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Department of Justice strongly condemned the case, saying any threat to judicial officers’ personal safety cannot be tolerated.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Bar Association, for its part, also condemned the case "in the strongest possible terms".
-  <br/>
-  <br/>
+  <br>
+  <br>
   It said any threat or violent act made with the intent to frighten or pressure judicial officers, or retaliate against their decisions is a serious assault on judicial independence.
-  <br/>
-  <br/>
+  <br>
+  <br>
   _____________________________
-  <br/>
-  <font my="my" style="font-size:90%">
+  <br>
+  <font>
    <i>
     Last updated: 2024-11-04 HKT 20:15
    </i>
   </font>
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777499-20241104.htm" rel="nofollow">
@@ -1055,52 +1044,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777499-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 16:30:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Govt probing Tung Chung water outage
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777502-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Roger Wong says 120,000 people were affected by the water outage. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777502_1_20241104153511.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  The Director of Water Supplies on Monday said officials are investigating what caused a pipe burst that resulted in a water outage in Tung Chung, and apologised to those affected.
  <br>
-  <br/>
+  <br>
   Tung Chung was cut off from fresh water for about 12 hours because urgent repairs on a 1.2 metre-diameter pipe were needed following an operational incident near the Siu Ho Wan Water Treatment Works.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Authorities said they originally planned to turn the taps back on at 6am on Monday, but fresh water only returned to Tung Chung at 10am.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Speaking to reporters, Roger Wong apologised to the 120,000 affected residents.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Because of the site constraints, and also because of the special failure mode of this incident, we take time to investigate and find out the leakage point,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “The leakage point is also at the bottom of the pipe, so it is hard to carry out the repair works. That's why the progress of [repair] works has been slightly delayed."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Wong added more time was needed to find out the exact cause and a report will be submitted to the Development Bureau.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Built in the 1990s, the burst water pipe is the only one servicing the Tung Chung area.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777502-20241104.htm" rel="nofollow">
@@ -1115,55 +1104,55 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777502-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 15:35:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Exchange Fund sees record income for first nine months
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777488-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777488_1_20241104133929.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Hong Kong's Exchange Fund recorded a record-breaking investment income of HK$224.7 billion for the first nine months of the year, the Monetary Authority (HKMA) revealed on Monday.
  <br>
-  <br/>
+  <br>
   The fund posted gains of HK$114.6 billion in the third quarter alone, with the largest gain coming from bond investments, which contributed HK$66 billion.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Investments in Hong Kong stocks posted gains for the second consecutive quarter, adding about HK$22 billion.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Gains from other stocks totalled HK$18 billion while the valuation of foreign exchange brought in HK$8 billion.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The figure for the first three quarters saw the investment income falling just HK$40 billion short of the total annual record of HK$264 billion in 2017.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Speaking to reporters, the HKMA’s chief executive Eddie Yue said it is difficult to tell if this year’s annual figure will set a new record.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “We’ve got two more months to go, and the financial market, even a week or month, is a very long period. During those two months, even within this week, we are seeing different developments that will have an impact on the market,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “For example, the pace of the US interest rate reduction is still unknown. The market is expecting that at the [Federal Open Market Committee] meeting this week, the Federal Reserve will continue with the reduction path, with a cut of let's say 25 basis points as expected by the market. But what the commentary will be, and how they will assess the forward path will have an impact on the market.”
-  <br/>
-  <br/>
+  <br>
+  <br>
   Yue also noted factors – such as whether China will announce more economic stimulus measures, as well as uncertainties arising from the geopolitical conditions – will influence the fund’s performance.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777488-20241104.htm" rel="nofollow">
@@ -1178,58 +1167,58 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777488-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 13:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     SAR a hub for legal collaboration: justice chief
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777474-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777474_1_20241104113530.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Hong Kong’s justice secretary on Monday said the SAR is well positioned to be a hub for legal and economic collaboration, with Beijing saying it will give its unwavering support to back the SAR in its role as a super-connector.
  <br>
-  <br/>
+  <br>
   At the opening of Hong Kong Legal Week, Secretary for Justice Paul Lam said the SAR serves as a gateway between China, the Asia-Pacific and the rest of the world.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Under the One Country, Two Systems principle, Hong Kong is the only common law jurisdiction within China. Our strong legal foundation, coupled with our close ties with and support from the mainland, position us as a critical hub for legal and economic collaboration across the region and beyond," Lam said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The minister also said efforts to set up a training academy for international legal talents are underway, with a ceremony set to take place on Friday to mark the new initiative.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The academy – first outlined in last year’s Policy Address – will regularly organise training courses, seminars and international exchange programmes.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Also speaking at the event, Commissioner of the Foreign Ministry’s Office in Hong Kong Cui Jianchun, said the central government’s unwavering commitment to the One Country, Two Systems principle is the strongest foundation for the territory’s development.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He called on the SAR to continue to boost its unique role as a super-connector to facilitate trade and investment between Chinese and foreign enterprises.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Another role that the territory could play, Cui noted, would be uniting diverse market participants and expanding international connections.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "We believe Hong Kong's uniqueness not only serves and links the mainland with the international community, [but also] we believe here, the common law, the unique law system, can pave the way for the development of the international community."
-  <br/>
-  <br/>
+  <br>
+  <br>
   The commissioner added the SAR could act as a bridge for multicultural interactions, facilitating legal assistance and cooperation, as well as the exchange of legal experience.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777474-20241104.htm" rel="nofollow">
@@ -1244,69 +1233,69 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777474-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 12:01:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Tung Chung fresh water supply restored
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777463-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The Water Supplies Department says it ordered water trucks to the area to provide a temporary supply of fresh water to residents and businesses. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777463_1_20241104104544.jpg&q=75" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Authorities on Monday said that water supply to Tung Chung was restored shortly after 10am, after the area was cut off from fresh water for about 12 hours due to urgent overnight repairs.
  <br>
-  <br/>
+  <br>
   The Water Supplies Department had originally planned to restore the supply of water at 6am but was forced to delay it several times.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Islands District Councillor Lau Chin-pang told RTHK the arrangements were unsatisfactory.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “I think the delay is not good for our residents because 7am to 8am is the most important time for the students and for the workers. So I don't think it's a suitable case. I think they can improve,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Huizaifa, a food delivery worker who lives in Yat Tung Estate in Tung Chung, was one of the affected residents.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “Now I go to work [but there was] just a little water only [for] face wash… I feel very bad because when I came home, no water and when I go toilet no [water]” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   At a wet market, an angry congee shop owner surnamed Fu said no water meant no business.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “Of course the water outage has a huge impact, affecting the whole world. It makes things very inconvenient. Everything needs water. Even if you want to eat, there’s nothing to eat. So there’s no business,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The department said earlier that it ordered water trucks and water tanks to the area to provide a temporary supply of fresh water to residents and businesses.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It said the repairs for the 1,200-millimetre-diameter fresh-water pipe were needed following an operational incident near the Siu Ho Wan Water Treatment Works.
-  <br/>
-  <br/>
+  <br>
+  <br>
   A department document said the works is a key facility to supply water to Tung Chung, Hong Kong International Airport, Tai Ho, and Discovery Bay.
-  <br/>
+  <br>
   _____________________________
-  <br/>
-  <font my="my" style="font-size:90%">
+  <br>
+  <font>
    <i>
     Last updated: 2024-11-04 HKT 12:22
    </i>
   </font>
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777463-20241104.htm" rel="nofollow">
@@ -1321,66 +1310,66 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777463-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 10:45:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Pipe repair causes Tung Chung water supply suspension
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777416-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The Water Supplies Department says urgent repairs are needed to a fresh-water pipe near Siu Ho Wan Water Treatment Works. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777416_1_20241103211509.jpg&q=70" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Urgent repair work is taking place on a pipe that provides fresh water to Tung Chung, after water supplies were suspended to the area at 10pm on Sunday.
  <br>
-  <br/>
+  <br>
   The Water Supplies Department says water supply to the area will gradually resume on Monday morning.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In a statement, the department said the repairs were needed to a 1,200-millimetre-diameter fresh-water pipe following an operational incident near the Siu Ho Wan Water Treatment Works.
-  <br/>
-  <br/>
+  <br>
+  <br>
   A department document said the works is a key facility to supply water to Tung Chung, Hong Kong International Airport, Tai Ho and Discovery Bay.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Officials have cordoned off part of Cheung Tung Road to make the repairs.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The department said it has ordered water trucks and water tanks to the area to provide a temporary supply of fresh water to residents and businesses.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It added that it has contacted the Tung Chung district councillor and care team to offer support to people affected.
-  <br/>
-  <br/>
+  <br>
+  <br>
   One Tung Chung resident surnamed Cheung was heading to the market to buy water. He said he had to rush back home to take a shower before the suspension.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The water suspension is annoying. I will go to bed earlier. I need to work tomorrow. I have asked my younger sister to boil some water so we have water to drink," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Hospital Authority has said the operation of North Lantau Hospital in Tung Chung will not be affected.
-  <br/>
+  <br>
   _____________________________
-  <br/>
-  <font my="my" style="font-size:90%">
+  <br>
+  <font>
    <i>
     Last updated: 2024-11-03 HKT 23:07
    </i>
   </font>
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777416-20241103.htm" rel="nofollow">
@@ -1395,61 +1384,61 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777416-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 21:22:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     More than 10 injured in Sha Tin cycling race
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777398-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="More than 700 people took part in the Sha Tin Cycling Festival. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777398_1_20241103170148.jpg&q=30" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Two people on Sunday were hospitalised, and nine others were injured following accidents at the Sha Tin Cycling Festival, with riders reporting that the path was uneven.
  <br>
-  <br/>
+  <br>
   More than 700 people took part in the inaugural event with 11 races held along the Shing Mun River.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The accidents took place in the youth and elite group competitions, involving nine male and two female riders. Most suffered minor injuries, while two needed hospital treatment.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In one of the accidents, a cyclist lost control and crashed into a first aid station, causing other bikers to fall as well, while video footage showed a cyclist in a neck brace.
-  <br/>
-  <br/>
+  <br>
+  <br>
   KT Ng from race organisers Hong Kong Flash Exchange Association said there was not enough time to tidy up.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "There are cars that usually drive on this path on a daily basis. I could see some uneven areas on the road before the race. I contacted the Highways Department during the week to pave the road," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The road was closed at four in the morning and races started at 6.30am. There wasn't enough time, so some things might have been overlooked during the clean-up."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Retired cyclist and event ambassador, Wong Kam-po, said the roads met specifications.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It will be better with more experience, because most of the accidents were caused by collisions. Some cyclists might not have good control when it comes to maintaining their position," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "They also might not have sufficient experience or it could be nerves."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Wong added that he hopes to see more competitions take place in Hong Kong.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777398-20241103.htm" rel="nofollow">
@@ -1464,52 +1453,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777398-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 17:52:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Labour chief: top talent scheme vital for HK
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777394-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777394_3_20241103171616.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Secretary for Welfare and Labour Chris Sun on Sunday said it is vital for Hong Kong to attract well-qualified talents from outside its borders, in view of a shortage of local graduates.
  <br>
-  <br/>
+  <br>
   Speaking on an RTHK programme, the minister noted there are currently about 50,000 local graduates each year, much lower than when he graduated decades ago.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Sun said that the combination of lower graduate numbers and there being many more career paths than before has left Hong Kong short on talent.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He noted that the Top Talent Pass Scheme – where applicants are not required to have a job offer before applying for a visa – shows that the government is being more flexible in importing skilled workers.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “Over the years, Hong Kong has been attractive to talent, but the actual number of people coming here is quite low because our vetting process has been pretty strict. However, as the economy tries to return to normal after the pandemic and with fewer young people around, we really need more highly qualified talent. So, what can we do? That’s when I thought of asking for specific qualification requirements, leading to the Top Talent Pass Scheme,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Currently, there’s no annual quota, with tens of thousands of people arriving in the city through the scheme.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The minister added he is not concerned that bringing in too many people might potentially harm the city.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “I believe Hong Kong is an expensive place to live, and it’s tough to make a living. If someone can thrive here, they’re definitely talented. If they can’t make it, they’ll simply leave. It’s a natural process of elimination. While talent chooses Hong Kong, we also choose them,” Sun said.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777394-20241103.htm" rel="nofollow">
@@ -1524,52 +1513,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777394-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 17:12:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Govt mulling ways to reform HK healthcare
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777397-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Lo Chung-mau says people with the flu should first consult their family doctor. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777397_1_20241103162845.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  The health chief Lo Chung-mau on Sunday said the government is working on its review of the SAR's healthcare system.
  <br>
-  <br/>
+  <br>
   Lo's comments came after the Chief Executive said the government will reform the functions and divisions of work at the Hospital Authority, Department of Health and the newly-established Primary Healthcare Commission.
-  <br/>
-  <br/>
+  <br>
+  <br>
   On a TVB programme, Lo explained how the healthcare system could be rearranged.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "For example, chest and dermatological services have been provided by the Department of Health. But we would like to redistribute these services to either the Hospital Authority or the Primary Healthcare Commission," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The Department of Health, meanwhile, will focus on disease prevention and control, health promotion and take on a monitoring role."
-  <br/>
-  <br/>
+  <br>
+  <br>
   The health chief also urged those with chronic or episodic illnesses, such as the flu, not to immediately seek help from the Hospital Authority.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Lo said they should first consult their family doctor, and offered assurances that the government would still take care of the underprivileged.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "For those who cannot afford this, such as people on low incomes and who are receiving the comprehensive social security assistance, the government will be responsible for them. We will take care of them at the general out-patient clinics."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777397-20241103.htm" rel="nofollow">
@@ -1584,46 +1573,46 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777397-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 16:28:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     HK-Middle East cooperation to deepen: FS
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777387-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Paul Chan led a business delegation to Riyadh last week. Photo courtesy of Paul Chan's blog" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777387_1_20241103133007.jpg&q=65" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Financial Secretary Paul Chan on Sunday said that Hong Kong's deepening cooperation with the Middle East can go beyond finance, innovation and technology, and investment.
  <br>
-  <br/>
+  <br>
   Writing in his blog, Chan said the SAR can also promote more people-to-people and cultural exchanges, and mutual learning between China and the Middle East.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "During meetings and exchanges, many Middle Eastern investment institutions said that Hong Kong is international, diverse, and can respect different cultural values, allowing both parties to deepen cooperation on the basis of mutual respect and mutual benefit," he wrote.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "To them, Hong Kong's role as a 'super connector' not only connects the mainland with European, American and Middle Eastern markets, but can also be extended to connecting emerging markets with different backgrounds and cultures."
-  <br/>
-  <br/>
+  <br>
+  <br>
   The minister also said his visit to Riyadh the past week was fruitful and that a series of projects were being facilitated as a result, proving that “Brand Hong Kong” not only has unique value, but also great development potential.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan also said he is in talks with the Saudi Arabia’s Future Investment Initiative to host its second summit in the SAR next year.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777387-20241103.htm" rel="nofollow">
@@ -1638,43 +1627,43 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777387-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 15:20:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Starry Lee to promote HK as talent hub at NPC meeting
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777378-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777378_1_20241103121251.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Sunday said she hopes to promote the SAR as a talent hub at the upcoming National People’s Congress Standing Committee meeting in Beijing.
  <br>
-  <br/>
+  <br>
   Lee said the top legislative body will at the meeting review several bills and reports, including on developing world-class universities on the mainland.
-  <br/>
-  <br/>
+  <br>
+  <br>
   She expressed the hope that these institutions will boost cooperation with universities in Hong Kong.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “I want to hear about what policies there will be in terms of the cooperation between the mainland’s ‘double first-class universities’ and Hong Kong’s universities. These are important for building Hong Kong into an international hub for top talents,” Lee told reporters at the airport.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The five-day NPC session will be held from Monday to Friday.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777378-20241103.htm" rel="nofollow">
@@ -1689,61 +1678,61 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777378-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 13:06:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Record number of runners join HK Disney run
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777376-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777376_1_20241103120840.jpg&q=55" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Hong Kong Disneyland on Sunday wrapped up its weekend running event, with a record number of people attending.
  <br>
-  <br/>
+  <br>
   Nearly 20,000 people – including children and those with visual, hearing and physical disabilities – signed up for the event, a record for the Hong Kong Disneyland 10K Weekend 2024.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Financial Secretary Paul Chan, one of the guests of honour, said it was the first time runners could jog through World of Frozen, the world’s first and largest attraction themed on the popular Disney franchise. Chan said this shows that the SAR is full of attractions.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “This event shows that as long as we use our brains to think of new ideas we can draw more people to Hong Kong because there are so many attractive places here,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “There are so many people from the mainland and other places in the world. We welcome you.”
-  <br/>
-  <br/>
+  <br>
+  <br>
   One runner, dressed as Queen Anna from Frozen, travelled with her family from Thailand. She said she visits the SAR a lot and loves the city.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Hong Kong, first of all, is close and another thing is like we enjoy local food very much. We like to taste food and all the culture and this trip I plan to take them on the tram to see all the scenery of Hong Kong," she said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I love it very much. The mountain, the ocean and the city is all so good."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Another participant, who is visually impaired, said he completed his first 10-kilometre race in about 70 minutes and that racing through the theme park was a whole new experience.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The race in Disneyland is so different from other races. They play music in these races, while most races don't," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I think music is a form of motivation, and Disney music sounds really good. When they play it while you are running, it is like an adrenaline rush."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777376-20241103.htm" rel="nofollow">
@@ -1758,49 +1747,49 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777376-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 12:34:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Man arrested for robbery and assaulting police officer
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777373-20241103.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777373_1_20241103115049.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Police have arrested a 36-year-old man on suspicion of assaulting a police officer and robbery, after an off-duty sergeant was attacked and had his wallet snatched in Jordan.
  <br>
-  <br/>
+  <br>
   The incident happened in the small hours of Saturday on Nathan Road near Wing On Plus department store.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Senior Inspector So Man-ho said the victim got into a scuffle with the suspect after realising his wallet had been stolen.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “The victim identified himself as a police officer, but the man attacked his neck and limbs multiple times with a sharp object. The victim tried several times to stop the assault but failed," So said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Another passerby attempted to intervene, and filmed the incident with his phone. The attacker fled empty-handed,” he added.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The sergeant was treated at Queen Elizabeth Hospital and was discharged on the same day.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Officers on Saturday arrested the attacker, who is a foreign man on a temporary entry permit, at his home in Hung Hom.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777373-20241103.htm" rel="nofollow">
@@ -1815,49 +1804,49 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777373-20241103.htm
-   </guid>
-   <pubDate>
+   
+   
     Sun, 03 Nov 2024 12:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Eight arrested over prison officer attack
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777332-20241102.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Eight were arrested after a prison officer was attacked near Pik Uk prison in Sai Kung. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777332_1_20241102180721.jpg&q=60" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Police have arrested eight men reportedly with a triad background after a prison officer was attacked outside Pik Uk prison in Sai Kung on Friday.
  <br>
-  <br/>
+  <br>
   According to the police, three masked men equipped with "long hard objects" attacked the corrections officer when he was waiting for a bus near the prison at about 12:50pm.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The trio, aged 16 to 37, then got in a private car with a fake licence plate and fled the scene.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Superintendent Lam Kai-chor said while they are still investigating a motive for the attack and whether it's related to the victim's job, no evidence showed correlation to the victim's financial situation or personal life.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "There are a total of six cuts that are five to 10 centimetres long on the victim's head and upper limbs, and a fracture on his right wrist. The victim is now stable and remains in hospital for treatment," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Also, during the chaos, the three men hit a 33-year-old woman and her two-year-old daughter. They sustained minor injuries and left the hospital after treatment without any issues."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Lam did not rule out the possibility of further arrests.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777332-20241102.htm" rel="nofollow">
@@ -1872,51 +1861,51 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777332-20241102.htm
-   </guid>
-   <pubDate>
+   
+   
     Sat, 02 Nov 2024 18:27:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Motorcyclist dies after collision with car
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777318-20241102.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The motorcyclist was killed after his bike collided with a private car in Kowloon Bay. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777318_1_20241102152450.jpg&q=40" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  A motorcyclist lost his life after his bike collided with a private car in Kowloon Bay on Saturday morning.
  <br>
-  <br/>
+  <br>
   The accident happened at around 11:30 am at the junction of Wang Chiu Road and Kai Cheung Road, outside the Auxiliary Police Headquarters.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Medics rushed the 67-year-old unconscious rider to the United Christian Hospital, where he was pronounced dead.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The bike's pillion passenger, as well as the driver of the car sustained minor injuries and were sent to Queen Elizabeth Hospital and United Christian Hospital respectively.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The car driver was arrested on suspicion of dangerous driving causing death.
-  <br/>
+  <br>
   ______________________________
-  <br/>
-  <font my="my" style="font-size:90%">
+  <br>
+  <font>
    <i>
     Last updated: 2024-11-02 HKT 16:45
    </i>
   </font>
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777318-20241102.htm" rel="nofollow">
@@ -1931,46 +1920,46 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777318-20241102.htm
-   </guid>
-   <pubDate>
+   
+   
     Sat, 02 Nov 2024 16:01:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'Bordertown country park key to conservation'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777316-20241102.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777316_1_20241102145629.jpg&q=55" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  A country park near the border with Shenzhen is key to ecological conservation and revitalisation, according to the Environment minister Tse Chin-wan.
  <br>
-  <br/>
+  <br>
   Located in Sha Tau Kok, the 530-hectare Robin's Nest Country Park was once a prime mining site.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The area, which was established this year as the 25th country park in Hong Kong, also supports one of the most important bat colonies in the territory.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The Agriculture, Fisheries and Conservation Department is gradually constructing recreational facilities, such as hiking trail networks and viewing points in Robin's Nest Country Park," Tse said at the park's opening ceremony on Saturday.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It also expects to complete the revitalisation of the Lin Ma Hang Lead Mine by the end of the year and open it to the public, allowing people to deepen their understanding of Hong Kong's mining history, and bat ecology there."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Robin's Nest is connected to Shenzhen Wutong Mountain, forming a cross-border ecological corridor between the SAR and neighbouring Shenzhen. The park is rich in biodiversity with many species of high conservation value.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777316-20241102.htm" rel="nofollow">
@@ -1985,52 +1974,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777316-20241102.htm
-   </guid>
-   <pubDate>
+   
+   
     Sat, 02 Nov 2024 15:33:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Immigration head facilitated O'Sullivan move to SAR
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777312-20241102.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777312_1_20241102125703.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  The immigration chief has revealed that he personally reached out to snooker superstar Ronnie O'Sullivan, recommending a suitable visa scheme for the Briton to come to Hong Kong.
  <br>
-  <br/>
+  <br>
   The 48-year-old, known as "the Rocket" for his fast and attacking playing style, recently became a Hong Kong resident through the Quality Migrant Admission Scheme, saying the territory is a great place to live because of the food, culture and a low tax regime.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In a televised interview on Saturday, Director of Immigration Benson Kwok revealed he found out from a friend that O'Sullivan had interest to develop his career in the SAR.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "As the director of immigration, of course, I have to recommend some visa schemes that are suitable for him. He quickly chose the Quality Migrant Admission Scheme, and his application was approved by the committee on quality migrants and professionals," Kwok said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The result was ideal because O'Sullivan has been helpful, promoting Hong Kong's attractiveness."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Labour and welfare minister Chris Sun, for his part, said the snooker player's decision to obtain Hong Kong residency was a testament to the city's attractiveness.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The fact that O'Sullivan has decided to come to Hong Kong and become a part of us speaks volumes about the attraction of the SAR," Sun said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "We hope to achieve more success, because we truly believe in the attraction of Hong Kong. Be it our tax system, our natural beauty, the convenience, the great food and all the great things here in Hong Kong, it's a huge attraction for top talent all over the world."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777312-20241102.htm" rel="nofollow">
@@ -2045,58 +2034,58 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777312-20241102.htm
-   </guid>
-   <pubDate>
+   
+   
     Sat, 02 Nov 2024 14:03:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'More staple attractions needed to widen tourist base'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777306-20241102.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Michael Tien says more attractions like Disneyland and Kai Tak Sports Park can generate revenue perpetually for the local economy. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777306_1_20241102114122.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  A lawmaker has highlighted the need for Hong Kong to have more large-scale, staple infrastructure in order to deepen and broaden its tourist base.
  <br>
-  <br/>
+  <br>
   Michael Tien made the remarks on Saturday on a Commercial Radio Programme, where he pointed out that even though tourism has only contributed less than 10 percent to the local GDP, it's crucial to other sectors, like retail and the food and beverage industry.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Tien emphasised that, rather than relying on mainland visitors, the territory can set up more permanent attractions like Disneyland and Kai Tak to draw more visitors from around the world.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Kai Tak - the largest sports park in Hong Kong with 50,000 seats - is set to open its doors next March, and will host British rock band Coldplay a month later.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Kai Tak so far, and Disneyland are about the only two continuous attractions we have to attract people from overseas to come to Hong Kong to spend, to consume, and we need a few more of this," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I've been advocating for a race track with reclamation at Penny's Bay. That could be a third long-term tourist infrastructure...the beauty about Disneyland and Kai Tak is that they're perpetual - they can generate new economic activity, day after day."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Separately, Tien, who's also a businessman, called on the government to offer two years of rates concessions to ease the burden on tenants.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He said many are paying "astronomical rents" for agreements that were signed at a time when tourist traffic was much higher.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "We are now currently paying rental to support actually a much larger consumer base, dating back to 2017 and 2018, when a lot of mainlanders were coming down to Hong Kong to spend money, so we lost about 30 percent on that consumer base," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Therefore, based on a free market economy, the rents are going to come down. So we need breathing space of about two years to have new tenancy to be in effect. So this is the two-year relief that I am asking the government to help us on."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777306-20241102.htm" rel="nofollow">
@@ -2111,49 +2100,49 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777306-20241102.htm
-   </guid>
-   <pubDate>
+   
+   
     Sat, 02 Nov 2024 12:48:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Talent scheme screening system 'robust': labour chief
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777304-20241102.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777304_1_20241102113957.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Labour and welfare chief Chris Sun has assured there is a strict system to screen people applying to enter Hong Kong under the top talent scheme.
  <br>
-  <br/>
+  <br>
   He said on Saturday that officials have not found anyone providing fake credentials, following earlier reports of people allegedly forging documents to cheat their way into a local university.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "We have built in a very, very robust system to make sure that all the qualifications submitted to us are true, and can be verified," Sun told reporters after a radio programme.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "For submissions, say, from mainland China, it's a mandatory requirement. They have to verify via a third-party system, or they have to verify directly with the institution granting them the qualifications."
-  <br/>
-  <br/>
+  <br>
+  <br>
   The administration had said visa holders under the scheme will be given an extra two months to apply for an extension.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Extension approvals will be granted based on various factors, including the person's income, tax payments and time spent in Hong Kong.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The labour minister pointed out that officials do not currently have an estimate on how many individuals would have their visas extended.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777304-20241102.htm" rel="nofollow">
@@ -2168,49 +2157,49 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777304-20241102.htm
-   </guid>
-   <pubDate>
+   
+   
     Sat, 02 Nov 2024 11:57:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Drivers to hand over phone number or email for licence
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777226-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777226_1_20241101172556.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Drivers will have to provide a verified Hong Kong mobile number or email address when applying for or renewing their licence from November 18, the Transport Department announced on Friday.
  <br>
-  <br/>
+  <br>
   The requirement will enable the police to start issuing any fixed penalty notices by digital means – a move which is set to begin in the first half of next year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I don't think there is much difficulty because nowadays people get used to technology a lot. What we are changing is only from a paper ticket to an electronic form. All the information is provided in that SMS or email," police superintendent Nip Hoi-kwan said at a press conference.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Nip added that he thinks the digitalisation will cut the time officers spend on paperwork for a penalty notice, from around 30 minutes to 15.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Helen Lee, a principal executive officer with the Transport Department, said measures are in place to ensure the security of the information collected.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The Transport Department adopts the government cloud infrastructure services, which provide a very reliable and secure infrastructure for the Transport Department to collect and keep the personal data collected through the verification platform," she said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Moreover, the data collected will be transferred to our central system immediately, so we will not keep any data in the platform."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777226-20241101.htm" rel="nofollow">
@@ -2225,55 +2214,55 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777226-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 17:41:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Retail sales drop 6.9 percent in September
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777220-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The government says a change in consumer patterns will continue to affect the retail sector in the near future. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777220_1_20241101165645.jpg&q=10" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Retail sales were down 6.9 percent in September compared to the same month last year, marking the seventh consecutive month of year-on-year declines.
  <br>
-  <br/>
+  <br>
   Official data released on Friday showed that the total value of retail sales came in at HK$29.6 billion.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The drop followed a revised 10 percent fall in August and an 11.7 percent decrease in July.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Sales of motor vehicles and parts saw the most dramatic fall, with a 26.7 percent drop.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Officials said a change in consumer patterns will continue to affect the retail sector in the near future.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Nevertheless, an improved outlook for the mainland economy following the recent introduction of a wide range of stimulus measures, and a possible easing of the Hong Kong dollar alongside the US dollar with the commencement of the US interest rate cut, would be conducive to boosting sentiment and supporting spending," a government spokesman said in a statement.
-  <br/>
-  <br/>
+  <br>
+  <br>
   However, the executive director of the Retail Management Association, Bond Law, said the sector is pessimistic about sales for the rest of the year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It's anticipated that many local people will travel abroad during the Christmas period, and certain domestic-related retail categories are expected to see a decline in business," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Due to the absence of Christmas holidays on the mainland, the tourist-related retail categories, such as watches and jewellery, are also expected to perform worse than last year."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777220-20241101.htm" rel="nofollow">
@@ -2288,46 +2277,46 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777220-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 17:07:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'Extraordinary for HK to join country's polar venture'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777205-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777205_1_20241101155729.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Chief Secretary Eric Chan says it's extraordinary that Hong Kong scientists are joining the country's latest Antarctica exploration, with icebreakers Xuelong and Xuelong 2 setting sail along with a third ship on Friday.
  <br>
-  <br/>
+  <br>
   The mission to the South Pole is China's 41st and will last for more than half a year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Speaking at a ceremony marking the ships' journey, Chan said Hongkongers' participation in the mission marks an important milestone.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Not only does this show the country's recognition of Hong Kong's polar scientific research, it also highlights how the SAR can play a pro-active role in the country's scientific research missions," the minister said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan expressed the hope that local scientists can make full use of the country's platform to conduct solid research and make greater contributions to the nation in science and innovation.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He also noted that this year is the 40th anniversary of the start of China's polar expeditions, saying the country's efforts and achievements attract global attention and reflect a powerful nation's responsibility to build a community with a shared future for mankind.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777205-20241101.htm" rel="nofollow">
@@ -2342,58 +2331,58 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777205-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 16:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     More universities added to Top Talent Pass Scheme
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777197-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="There are now 198 universities included in the Top Talent Pass Scheme. Photo: Xinhua" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777197_1_20241101151149.jpg&q=20" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Another nine universities on the mainland and four overseas have been added to the list of institutions covered by Hong Kong's Top Talent Pass Scheme, bringing the total to 198.
  <br>
-  <br/>
+  <br>
   The new mainland additions are Sichuan University, Beihang University, Southeast University, Beijing Institute of Technology, Tongji University, Renmin University of China, Beijing Normal University, Nankai University and Tianjin University.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The overseas newcomers are the Royal College of Art, University of the Arts London, Parsons School of Design, The New School, and Rhode Island School of Design.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Labour Bureau said that in January, the complete list of universities will be reviewed and subsequently updated, given that their eligibility is based on world rankings which will change.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The first arrivals under the scheme will see their visas expire in the first quarter of next year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   To make it easier for them to renew their visas, the Immigration Department said it will bring the application period forward, from the current four weeks before expiry, to three months.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Secretary for Labour Chris Sun said extension approvals will be granted based on various factors, such as the person’s income, tax payments and time spent in Hong Kong.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Meanwhile, the Labour Bureau said Category A applicants of the scheme – those who had an annual income of at least HK$2.5 million prior to application – will now have their first visa validity period extended to three years instead of two.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The bureau explained that these people enjoy a better employment rate in Hong Kong compared to other applicants.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It added that almost all of the Category A applicants are married and it hopes a longer visa will encourage them to bring their families to settle down in the SAR.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777197-20241101.htm" rel="nofollow">
@@ -2408,52 +2397,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777197-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 16:30:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Patient injected 10 times prescribed sedative dosage
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777200-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Tuen Mun Hospital says the individual showed no abnormal reaction after being administered 10 times the prescribed dose of a sedative. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777200_1_20241101151814.jpg&q=30" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Tuen Mun Hospital revealed on Friday that a patient was administered 10 times the prescribed dose of a sedative last month.
  <br>
-  <br/>
+  <br>
   The hospital said the patient is in stable condition.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Tuen Mun Hospital said the individual sought treatment at its accident and emergency department on October 18 and was arranged to transfer to intensive care because of a medical condition.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "While in the accident and emergency department, the patient was prescribed sedatives to assist with the subsequent medical procedures. Before being transferred to the intensive care unit, medical staff discovered that the dosage of the sedative injection received by the patient was 10 times the prescribed dosage," a hospital spokesperson said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The patient did not show any abnormal reaction, and is now staying in a general ward.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The hospital is very concerned about the incident, and has contacted the patient's family to explain and apologise," the spokesperson added.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The hospital said it had reminded staff to follow guidelines on the injection of drugs, while vowing to review the workflow of the accident and emergency unit.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Tuen Mun Hospital has reported the case to the Hospital Authority, and set up a committee to the investigate the root cause and make recommendations for improvements.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777200-20241101.htm" rel="nofollow">
@@ -2468,52 +2457,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777200-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 16:29:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     AI tech to scan for abuse at children's home
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777207-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777207_1_20241101161040.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Surveillance cameras equipped with artificial intelligence (AI) technology are to be used to look for any signs of abuse at one of the city's residential homes for children, the government said on Friday.
  <br>
-  <br/>
+  <br>
   The AI should automatically raise the alarm if it detects inappropriate behaviour such as children been slapped or shaken.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Welfare Secretary Chris Sun said money for the technology was made available to the Hong Kong Society for the Protection of Children (HKSPC) after its Children's Residential Home in Prince Edward was embroiled in an abuse scandal involving multiple members of staff in 2021.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "To help the Society for the Protection of Children improve the quality of care given to children and increase their efficiency in monitoring childcare services, the government has appropriated money from the Lotteries Fund, allowing the society to use AI technology in surveillance cameras, so that inappropriate actions can be identified at an early stage," Sun said at a seminar on child protection.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The AI-equipped cameras should be in use from June next year, the minister added.
-  <br/>
-  <br/>
+  <br>
+  <br>
   HKSPC said that two years ago it began monitoring its surveillance camera footage on a weekly basis.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "There are two levels of monitoring, first by Children's Residential Home staff. They will randomly choose two hours of CCTV footage to review and see if there is any misbehaviour or questionable behaviour," said director Subrina Chow.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It will then be followed by a second review from a child safeguarding consultant. They will review what has already been reviewed by first level staff, and randomly choose another two hours of footage to see if there is any condition that requires attention."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777207-20241101.htm" rel="nofollow">
@@ -2528,52 +2517,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777207-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 16:10:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     HK to host assembly of National Olympic Committees
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777190-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The ANOC announced on Thursday that the SAR had won the bid to organise the general assembly. Photo courtesy of the Sports Federation and Olympic Committee of Hong Kong, China." referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777190_1_20241101141624.jpg&q=15" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Hong Kong will host a general assembly of the Association of National Olympic Committees (ANOC) for the first time in 2026.
  <br>
-  <br/>
+  <br>
   The association, which consists of 206 National Olympic Committees, announced on Thursday that the SAR had won the bid to organise the event.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The association gathers all its members at a general assembly every year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The international sports body plans to organise a five-day gathering in Hong Kong, which will include seminars and an awards ceremony.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In a statement released on Friday, the Culture, Sports and Tourism Secretary, Kevin Yeung, said the successful bid demonstrates international confidence in Hong Kong's capacity to host large-scale sports events.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The government of the Hong Kong Special Administrative Region will fully support and guide the Sports Federation and Olympic Committee of Hong Kong, China in hosting this important international meeting, co-ordinating close co-operation between relevant government departments and various sectors including tourism and business," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The president of the sports federation and Olympic committee, Timothy Fok, said they will start working with government departments as well as the sports and business sectors to prepare for the assembly.
-  <br/>
-  <br/>
+  <br>
+  <br>
   DAB lawmaker Vincent Cheng also said the hosting of the assembly will strengthen the SAR's status as a hub for mega events in Asia.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777190-20241101.htm" rel="nofollow">
@@ -2588,58 +2577,58 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777190-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 15:43:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Talent vetting process redesigned to tackle huge queue
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777188-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt='Applicants for the Quality Migrant Admission System now just need to complete a questionnaire with 12 "yes or no" questions. File photo: RTHK' referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777188_1_20241101135842.jpg&q=55" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Officials on Friday advised tens of thousands of people waiting for months to find out whether they can move to Hong Kong under the Quality Migrant Admission System to scrap their applications and start again via a new process they hope will be quicker.
  <br>
-  <br/>
+  <br>
   Some 80,000 applications are in limbo, with the waiting time for them to be vetted stretching to about nine months, according to the Immigration Department.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Officials say the new process they've devised should slash the application process down to about six months.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Instead of filling out details and having officials score them item by item, from now on applicants will only have to complete an online questionnaire and answer 12 "yes or no" questions.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Younger people will no longer get a higher score and applicants now just need to state whether they are 50 or under.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Multiple doctoral or master's degrees won't improve an applicant's chances anymore and they just need to state whether they have one from one of 198 universities covered by the Top Talent Pass Scheme, or one of six business schools ranked among the top ten in the world over the past five years.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Other ways to get a “yes” include having an annual income of HK$1 million or above, owning a company with an annual profit of HK$5 million or above, or having work experience of five years or more.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Being bilingual or having good English writing and speaking skills is another way to get a "yes".
-  <br/>
-  <br/>
+  <br>
+  <br>
   Those who get six or more “yesses” on the questionnaire will be referred to a government internal review committee, run by Secretary for Labour Chris Sun, who will then pass its recommendation to the Immigration Department for a final decision.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The Labour Bureau said it would advise existing applicants still waiting to find out whether they've been accepted to withdraw their original application and file another one to get a speedier decision.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777188-20241101.htm" rel="nofollow">
@@ -2654,58 +2643,58 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777188-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 15:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'More proactive approach needed to protect children'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777193-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Hong Kong Society for the Protection of Children director Subrina Chow (left) says the public need to do more to ensure a safe environment for children. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777193_1_20241101144225.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  The Hong Kong Society for the Protection of Children on Friday urged the public and businesses to do their bit to create a safe and positive environment where children can thrive.
  <br>
-  <br/>
+  <br>
   The call came as the society carried out what it said was the city's first survey on awareness and perception of child safety.
-  <br/>
-  <br/>
+  <br>
+  <br>
   A poll of more than 1,400 people over the summer found that about 75 percent lacked an understanding of the issue, the group said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "[Child safeguarding] is actually a more proactive approach. We look at the entire environment more comprehensively to adopt preventative measures to protect our children," said the society's director, Subrina Chow.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The general public needs to understand there are a lot of precautions or preventative measures that organisations, schools, the government, individuals and private enterprises can take to ensure the environment is safe and healthy enough for children to use and experience," she added.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Four hundred of those surveyed work with children and 71 percent said they did not receive any training on child protection, while 62 percent were unaware of whether their company has policies in this area.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The society said only 37 percent of the workers reported having completed a Sexual Conviction Record Check (SCRC) before starting their jobs.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The scheme is important for colleagues who work with children face-to-face and especially those who will work alone with children," Chow said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Having the government to mandate the SCRC for certain services would be important, for example residential services, where staff would be staying in the same space with children most of the day, they should definitely go through the check before being allowed to work with children."
-  <br/>
-  <br/>
+  <br>
+  <br>
   The society suggested the government strengthen public awareness on safeguarding children and lay out protection policies.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777193-20241101.htm" rel="nofollow">
@@ -2720,53 +2709,53 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777193-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 14:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     34 taken to hospital after ferry crashes into pier
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777165-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Marine officers were seen inspecting the vessel docked in Central. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777165_2_20241101114313.jpg&q=35" style="width:100%;height:auto"/>
-<img alt="Firefighters were also on board the Tsui Wah 32 ferry. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777165_3_20241101114313.jpg&q=70" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="Firefighters were also on board the Tsui Wah 32 ferry. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777165_3_20241101114313.jpg&amp;q=70">
+<br>
 <div class="itemFullText">
  More than 30 people reportedly suffered minor injuries and one was more seriously hurt on Friday when a ferry collided with a pier in Central.
  <br>
-  <br/>
+  <br>
   A vessel operated by Tsui Wah Ferry smashed into Central Pier No 9 as it was docking there at around 7am, officials said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The chartered ferry had earlier left Tsim Sha Tsui and was to take workers to an HK Electric construction site in Lamma.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Assistant Divisional Officer Hung Shing-yau from the Fire Services Department said the 34 injured passengers were taken to hospital for treatment, with one of them suffering rather serious injuries to the back and hand.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Hung added that there were 118 passengers and two members of staff on board the vessel at the time, with the rescue operation completed in around 20 minutes.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Senior Marine Officer Cory Keung said an investigation is underway.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “After the inspection, the ship... is not seriously [damaged]. No water intake and no oil pollution was found,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “The last inspection was conducted in March this year and all was in good condition.”
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777165-20241101.htm" rel="nofollow">
@@ -2781,40 +2770,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777165-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 12:01:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Worker rescued after being suspended from building
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777152-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777152_1_20241101103729.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  A worker was rescued on Friday morning after being suspended mid-air from a building in Kowloon Bay for about an hour.
  <br>
-  <br/>
+  <br>
   The incident happened at around 9am when a suspended platform fell from the sixth floor of Telford House on Wang Hoi Road, leaving a worker hanging by his safety harness.
-  <br/>
-  <br/>
+  <br>
+  <br>
   It is understood that the man was carrying out maintenance work on the building's exterior when a suspected mechanical failure caused the platform to drop.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Emergency personnel were called to the scene and brought the worker to ground safely.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777152-20241101.htm" rel="nofollow">
@@ -2829,52 +2818,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777152-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 10:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Halloween brings Lan Kwai Fong back to life
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777142-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Most of those who showed up in costumes and props were in the mood for photos. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777142_2_20241101104914.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Halloween has helped bring thousands of revellers out to wine and dine in the city's night clubs, with Lan Kwai Fong chairman Allan Zeman calling it the busiest he could remember.
  <br>
-  <br/>
+  <br>
   "It was probably the busiest I've ever seen and I started Lan Kwai Fong about 30 years ago," Zeman told Hong Kong Today.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He estimated that more than 60,000 people came out to celebrate.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Ahead of the big night, some bar representatives had forecast a 10 percent rise in sales, but Zeman said many businesses reported a revenue surge of 25 percent or more.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He said Hongkongers were in the mood to celebrate after some tough years and there was pent-up demand.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It was just a sea of bodies and costumes and just people having the greatest time that they've ever had. I've never seen so many people come out (to Halloween)," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Zeman said there was a good mix of revellers, with about 25 percent from mainland China. Another 15 to 20 percent were westerners - probably tourists - and the rest were locals.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He said many bars and clubs were booked up two weeks in advance, including reservations made a month in advance "which we've never ever had before".
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777142-20241101.htm" rel="nofollow">
@@ -2889,84 +2878,84 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777142-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 10:49:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Hong Kong to relaunch Islamic finance drive: Paul Chan
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777149-20241101.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777149_1_20241101102221.jpg&q=75" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Financial Secretary Paul Chan says Hong Kong is ready to relaunch its drive to develop Islamic finance, after a three-day trip to the Saudi capital Riyadh opened his eyes to the untapped potential of developing more financial products that comply with Islamic law.
  <br>
-  <br/>
+  <br>
   During the visit, the Hong Kong delegation led by the finance chief signed 10 memoranda of understanding to further cooperation between the two sides.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The agreements covered areas from mutual investment to collaborations in technology and innovation development, while a local tech firm signed on to launch insurance products with two Saudi companies.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Speaking to reporters on Thursday to conclude his visit, Chan said his exchanges made it apparent that Saudi Arabia is more interested in the Hong Kong, mainland and Asian markets than he had previously thought.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He told reporters that he came to understand that the kingdom wants to attract different sources of funding to support its infrastructure and industrial development, and hence there’s a demand for diverse forms of financing.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Previously, we thought that market demand for Islamic finance wasn't that high. But after talking to them, we think we'll relaunch Islamic finance soon," Chan said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "They have to do a lot of infrastructure work. During our exchanges with them, we discussed Islamic finance, as well as using funds raised from issuing green and sustainable bonds in the Hong Kong bond market to support them."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Islamic finance involves business transactions that are in full compliance with Islamic law – and which prohibits any involvement with, for example, gambling, alcohol and pork, while interest payments are also banned.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The finance minister also revealed that the Future Investment Initiative, or FII Institute, is eager to stage the FII Priority Summit in Hong Kong again.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He pointed out that Saudi Arabia is very interested in research and development of technologies, and welcomes SAR companies to set up shop in the kingdom.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Saudi Arabia found that it is worth taking reference to Hong Kong's way of nurturing start-ups and talent, according to Chan.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "They think that our way of nurturing talent through two parks and offering funds to support them, or even the tailor-made listing regime that allows start-ups without profits and income to be listed, is very worth taking reference to."
-  <br/>
-  <br/>
+  <br>
+  <br>
   "As for nurturing talent, their insurance authority recently went to Hong Kong for an exchange with the local authority. They want to send someone to Hong Kong on secondment, so as to introduce some of our practice to the country. I think this is a good thing."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan also said there was no need to adjust Hong Kong’s full-year economic growth forecast, even though the city’s third quarter growth has slowed to 1.8 percent.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "During the announcement of the Financial Budget at the beginning of this year, we expected the economy to grow by 2.5 to 3.5 percent. I think that the growth could still be within this range. Therefore there's no need to adjust it," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He added that the government will remain both cautious and optimistic.
-  <br/>
+  <br>
   _____________________________
-  <br/>
-  <font my="my" style="font-size:90%">
+  <br>
+  <font>
    <i>
     Last updated: 2024-11-01 HKT 11:33
    </i>
   </font>
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777149-20241101.htm" rel="nofollow">
@@ -2981,48 +2970,48 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777149-20241101.htm
-   </guid>
-   <pubDate>
+   
+   
     Fri, 01 Nov 2024 10:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Xia Baolong lauds HK universities
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777096-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Meeting Lam Tai-fai (L) and Teng Jin-guang in Beijing, Xia Baolong (C) fully affirmed PolyU's work, saying it has pulled together in recent years. Photo courtesy of the Hong Kong and Macau Affairs Office" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777096_1_20241031232911.jpg&q=90" style="width:100%;height:auto"/>
-<img alt="Xia pointed out that Hong Kong’s major universities shoulder the important mission of fostering virtues. Photo courtesy of the Hong Kong and Macau Affairs Office" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777096_2_20241031232911.jpg&q=90" style="width:100%;height:auto"/>
-<img alt="Xia expressed the hope that all tertiary institutions in the SAR will focus on the needs of the country and the strengths of Hong Kong. Photo courtesy of the Hong Kong and Macau Affairs Office" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777096_3_20241031232911.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="Xia pointed out that Hong Kong’s major universities shoulder the important mission of fostering virtues. Photo courtesy of the Hong Kong and Macau Affairs Office" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777096_2_20241031232911.jpg&amp;q=90">
+<img alt="Xia expressed the hope that all tertiary institutions in the SAR will focus on the needs of the country and the strengths of Hong Kong. Photo courtesy of the Hong Kong and Macau Affairs Office" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777096_3_20241031232911.jpg&amp;q=90">
+<br>
 <div class="itemFullText">
  The director of the Hong Kong and Macau Affairs Office Xia Baolong has met Polytechnic University Council Chairman Lam Tai-fai and its President Teng Jin-guang in Beijing.
  <br>
-  <br/>
+  <br>
   Xia told them that the SAR’s universities have a long history, boast a glorious tradition, have a good international reputation and are valuable resources for the nation’s higher education.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He pointed out that Hong Kong’s major universities shoulder the important mission of fostering virtues, adding they should not only devote themselves to this mission, but should also give firm support to the Chief Executive and the SAR government, and together work to level up higher education in the territory.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Xia fully affirmed the work of the PolyU, saying it has pulled together in recent years and achieved excellent results in areas such as research and innovation, and had contributed to major national projects.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He also said central authorities firmly support the Hong Kong SAR in developing the education sector in accordance with the “One Country, Two Systems” principle.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Xia expressed the hope that all tertiary institutions in the SAR will focus on the needs of the country and the strengths of Hong Kong and harness the strength of the “One Country Two Systems” principle to keep up with the times and strive to foster talented people to help realise national rejuvenation.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777096-20241031.htm" rel="nofollow">
@@ -3037,40 +3026,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777096-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 23:29:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Police lays charge on Aberdeen murder suspect
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777085-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Police have laid a holding charge against a 34-year-old foreign man with one count of murder. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777085_1_20241031212129.jpg&q=15" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Police on Thursday said they laid a holding charge against a 34-year-old foreign man with one count of murder.
  <br>
-  <br/>
+  <br>
   The man was arrested on Tuesday following the death of a 25-year-old foreign woman on Monday in Aberdeen.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The case will be mentioned at Eastern Magistrates' Courts on Friday.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Police had also arrested a 36-year-old local woman in connection with the case. She was released on bail and is required to report back to officers in late November.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777085-20241031.htm" rel="nofollow">
@@ -3085,40 +3074,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777085-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 21:28:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Viral footage leads to dangerous driving arrest
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777078-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Footage of the incident, on the Tai Lam section of Castle Peak Highway, emerged on Wednesday. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777078_1_20241031203201.jpg&q=75" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Viral online footage of a car appearing to run a red light, and narrowly missing a woman pushing a stroller carrying a child, has led to the arrest of a 50-year-old man.
  <br>
-  <br/>
+  <br>
   The footage of the incident, on the Tai Lam section of Castle Peak Highway, emerged on Wednesday.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Police arrested the man, surnamed Fu, on suspicion of dangerous driving.
-  <br/>
-  <br/>
+  <br>
+  <br>
   No one was hurt in the incident.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777078-20241031.htm" rel="nofollow">
@@ -3133,55 +3122,55 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777078-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 20:32:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     HK economy grows 1.8 percent in Q3
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777041-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The government says the local economy will continue to grow. File photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777041_1_20241031170822.jpg&q=65" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Hong Kong's economy grew by 1.8 percent in the third quarter on a year-on-year basis, according to official figures released on Thursday.
  <br>
-  <br/>
+  <br>
   Growth was slower than the previous two quarters – the second quarter saw a 3.2 percent expansion and first quarter GDP grew by 2.8 percent.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In a statement, the government said growth in exports was down, while private consumption expenditure continued to decline.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Officials said the local economy will continue to grow.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "While global economic uncertainties and trade conflicts may affect Hong Kong's exports of goods, monetary easing across major central banks and an improved outlook for the mainland economy following the recent introduction of a wide range of stimulus measures would help support sentiment and activities in the domestic market," the statement said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The government had projected the economy to grow by 2.5 to 3.5 percent this year.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Samuel Tse, an economist at DBS Bank, said he expects the economy to improve in the fourth quarter.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I think the economy hasn't been doing well in the past few quarters. But I think for the fourth quarter, it will be doing a little bit better, given the interest rate cut cycle from the Fed (US Federal Reserve) has already commenced. Mainland China has also started their stimulus packages," he told RTHK.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "So, these will be translating into some positive effects onto the consumption as well as the investment."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777041-20241031.htm" rel="nofollow">
@@ -3196,52 +3185,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777041-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 17:30:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'New medical school can reference the US system'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777025-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777025_1_20241031155355.jpg&q=75" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Secretary for Health Lo Chung-mau on Thursday said Hong Kong’s planned third medical school could be modelled on the American system and focus on admitting students with bachelor’s degrees.
  <br>
-  <br/>
+  <br>
   In his latest Policy Address, Chief Executive John Lee said the administration would support local universities in establishing a third medical school in the SAR to increase doctor numbers. Authorities would also reserve a site in the Northern Metropolis for the facility.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In an exclusive interview with RTHK, Lo said the new medical school should be innovative in its operations, including on funding and admissions.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He said the institution could reference the American medical school curriculum, which usually lasts for four years and admits those with an undergraduate degree.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "This would give us another avenue for admission, because some students were initially undecided about whether they wanted to become a doctor. They might study for a degree first, before realising they really wanted to study medicine. There are other benefits too, such as the students being more mature," Lo said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The health chief also said there should be a minimum number of students when the new medical school opens.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “The number of students cannot be too low, or else it will not be cost-effective... Normally speaking, a medical school of the smallest scale would have 50 students as a starting point," Lo said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He added the new institution and a hospital for teaching and research in Ngau Tam Mei, a rural village in Yuen Long, could possibly cover 2.5 million people in the new development area.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777025-20241031.htm" rel="nofollow">
@@ -3256,55 +3245,55 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777025-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 16:17:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Labour reps urge action over worker exploitation
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777010-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777010_1_20241031155626.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Worker representatives on Thursday met the labour secretary, who they said promised to take steps to stop the exploitation of migrant employees.
  <br>
-  <br/>
+  <br>
   Mainland employees seeking work in Hong Kong under various labour importation schemes must apply through authorised agents, which reportedly charge them fees that can add up to tens of thousands of dollars.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Following a meeting with Secretary for Labour and Welfare Chris Sun, an employee representative on the Labour Advisory Board, Lam Wai-kong, said the minister had promised to take legal and administrative steps to tackle the issue.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “Actually the secretary didn’t specify what the legal and administrative steps would be. But from my own understanding,  the salary for the import workers should be based on the median salary of local workers. If they are not paid correctly that means the agents have broken the law,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “As for administrative steps, in the vetting process for individual labour import applications, I believe the Labour and Welfare Bureau has the ability to make changes to decide whether each case gets approved or not.”
-  <br/>
-  <br/>
+  <br>
+  <br>
   Lam added that Sun had also agreed to review labour importation schemes sooner, instead of waiting every two years.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Meanwhile, another representative on the board, Jenny Tam, said they are also worried about the government’s plan to bring in 10,000 skilled workers aged 35 or under over the next three years.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “The secretary had cited the shortage of A-Grade electricians as an example. But we think there are actually enough workers in this field, with many holding licences. We are worried that importing more workers could affect local employment,” she said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Tam added that Sun responded by saying officials will be prudent and listen to different views.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777010-20241031.htm" rel="nofollow">
@@ -3319,49 +3308,49 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777010-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 15:56:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Snooker star O'Sullivan becomes HK resident
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777019-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777019_1_20241031151117.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Snooker superstar Ronnie O’Sullivan has become a Hong Kong resident through the Quality Migrant Admission Scheme, the Immigration Department said on social media on Thursday.
  <br>
-  <br/>
+  <br>
   The 48-year-old, known as the Rocket for his fast and attacking playing style, said he enjoyed his time in the SAR in the past and his sport is very popular in the city.
-  <br/>
-  <br/>
+  <br>
+  <br>
   O'Sullivan also said it’s a great place to live because of the food, culture and a low tax regime.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "My plan in Hong Kong is, obviously, here to do some work. But I love the food. I love to just, relax here in Hong Kong," he said in a video clip on Instagram.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Maybe I'm going to play some snooker, just see some friends maybe. It's just really nice to be back in Hong Kong again."
-  <br/>
-  <br/>
+  <br>
+  <br>
   O'Sullivan, currently ranked fifth in the world, won the Hong Kong Snooker Masters two years ago, saying at the time that he enjoyed the hiking trails in the city.
-  <br/>
-  <br/>
+  <br>
+  <br>
   His decision to obtain Hong Kong residency comes after a similar move last year by retired basketball star Stephon Marbury, whose playing career spanned over two decades in the National Basketball Association in the US and the Chinese Basketball Association.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777019-20241031.htm" rel="nofollow">
@@ -3376,52 +3365,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777019-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 15:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     HKUST pioneers 'medical ChatGPT'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777009-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777009_1_20241031142726.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Researchers from the Hong Kong University of Science and Technology on Thursday said they have developed a new AI medical model that answers questions like ChatGPT.
  <br>
-  <br/>
+  <br>
   The chatbot is one of four new AI models unveiled by the university which can diagnose up to 30 types of cancers and diseases.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Professor Chen Hao, who led the project, said the "MedDr" model can generate reports and provide initial diagnoses based on medical images.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Users can send close-up images and the chatbot will then analyse what is wrong and offer treatment suggestions.
-  <br/>
-  <br/>
+  <br>
+  <br>
   He said it can save a lot of time spent on doctor's appointments.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “We hope to actually see 30 to 40 percent [reduction in time]. Some doctors are very interested in using this in the waiting room, because the patients spend a lot of time in the waiting room but when they see a doctor it’s just actually a few minutes,” he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “We wanted to actually leverage this multimodal language model to let the patients ask the questions and then you have a summary and then doctors will quickly actually see the summary and understand the background of the patients.”
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chen added that the university will work with local hospitals and consult more medical practitioners to ensure the tool's accuracy.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1777009-20241031.htm" rel="nofollow">
@@ -3436,52 +3425,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1777009-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 14:27:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     CityU students offered chance of Cambridge scholarship
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776989-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Madeleine Atkins of Lucy Cavendish College (right) says graduates of all disciplines are welcome to apply for the scholarship programme. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776989_1_20241031121119.jpg&q=35" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Up to 20 students per year are to be given scholarships to study postgraduate courses at the University of Cambridge, under an initiative launched by the world-renowned British institution and City University of Hong Kong (CityU).
  <br>
-  <br/>
+  <br>
   The funding, totalling HK$10 million per year, will enable the students to do a one-year, full-time master's programme at Lucy Cavendish College, one of the largest constituent colleges of Cambridge.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The aim is to have our students, graduates going for this course, to stay at Lucy Cavendish [College] and become a graduate for the world," said CityU president Freddy Boey on Thursday.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "This programme does not require them to come back to Hong Kong, but I'm pretty sure, as graduate alumni of this special programme, they will do us proud anywhere in the world."
-  <br/>
-  <br/>
+  <br>
+  <br>
   The programme, which will initially run for five years, will also accept applications from other students if the slots are not filled up by CityU graduates.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Madeleine Atkins, president of Lucy Cavendish College, said graduates of all disciplines are welcome, adding that Hong Kong students are "highly competitive candidates" for master's courses at Cambridge.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "We take students from across all the master's programmes at Cambridge, because we believe that many of the problems in this world require interdisciplinary solutions. By living and learning together on this programme, students from different academic backgrounds do benefit from the experience of working closely on projects and teams with those from other disciplines," said Atkins.
-  <br/>
-  <br/>
+  <br>
+  <br>
   CityU has also partnered with the British college for the Future Global Leaders Programme, which equips students with skills to address pressing global issues.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1776989-20241031.htm" rel="nofollow">
@@ -3496,52 +3485,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776989-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 12:25:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Bars, restaurants enjoy Halloween sales boost
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776980-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Lan Kwai Fong Group chairman Allan Zeman says people have been heading to Lan Kwai Fong for Halloween celebrations since last Saturday. Photo courtesy of Allan Zeman." referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776980_1_20241031112148.jpg&q=35" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Bar owners can expect Halloween to bring them at least a 10 percent boost in business, industry representatives said on Thursday.
  <br>
-  <br/>
+  <br>
   Lan Kwai Fong Group chairman Allan Zeman said the build up to Halloween this year has been the best to date, with people heading out to celebrate since last Saturday.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "This year especially, what the restaurants in Lan Kwai Fong are doing, one's doing a hell's wedding theme, with Halloween menus. Another one's got cult class zombie movies with a big banquet. Every restaurant's doing dress-up parties," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Zeman said he believes business will surge by 10 to 25 percent, adding that restaurants in the area are almost fully booked.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It's been packed. I think tonight will be very very busy, and I am not even sure it will go until tomorrow or even Sunday. But it's totally different. It's not a one-day holiday now, this year especially they started early... I was surprised, totally surprised along with everyone else."
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chin Chun-wing who chairs the Hong Kong Bar and Club Association said he is anticipating a minimum 10 percent growth in business over the next two nights.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Halloween isn't a thing on the mainland. Therefore we see a lot of mainlanders coming to Hong Kong to really experience the vibes, as well as take photos with revellers," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "Many people put on Halloween make-up. You can see that this year, there were a lot more youths of around 20 years old, all of them put on heavy make-up to enjoy the festival."
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1776980-20241031.htm" rel="nofollow">
@@ -3556,52 +3545,52 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776980-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 11:46:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     FS continues his visit to Riyadh, Saudi Arabia
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776978-20241031.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="Paul Chan co-hosted a roundtable with Chairman of the Saudi Capital Market Authority, Mohammed bin Abdullah Elkuwaiz. Photo courtesy of Information Services Department" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776978_1_20241031105141.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Financial Secretary Paul Chan on Wednesday spent a second day in Riyadh promoting business opportunities for Hong Kong in Saudi Arabia.
  <br>
-  <br/>
+  <br>
   The financial chief is leading a delegation of more than 110 people on a three-day trip to the Saudi capital.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Following the morning listing ceremony for the first exchange-traded fund in Saudi Arabia that invests in Hong Kong stocks on the Saudi Exchange, Chan met with Chinese Ambassador to Saudi Arabia, Chang Hua, at noon.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan updated the ambassador on Hong Kong's economy while the pair talked about cooperation between China and Saudi Arabia.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The financial secretary then co-hosted a roundtable with the chairman of the Saudi Capital Market Authority, Mohammed bin Abdullah Elkuwaiz, in which representatives from regulatory bodies and various asset management firms gathered to discuss recent developments in financial markets.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan later met with the Governor of the Saudi Central Bank, Ayman Alsayari, and pair discussed strengthening ties in investment and financial markets between Hong Kong, Saudi Arabia and the Middle East, along with cooperation in digital finance.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In the evening, the Hong Kong Science and Technology Parks held an event featuring over 20 startups in fields like green tech and AI, hoping to connect with investors and business partners.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Chan will wrap up his visit today and is expected to arrive back in Hong Kong at around noon on Friday.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1776978-20241031.htm" rel="nofollow">
@@ -3616,73 +3605,73 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776978-20241031.htm
-   </guid>
-   <pubDate>
+   
+   
     Thu, 31 Oct 2024 11:04:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     'Give Choi Hung Estate residents more housing options'
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776915-20241030.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="The redeveloped Choi Hung Estate will be able to accommodate 9,200 households, up from the current 7,400. Photo: RTHK" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776915_1_20241030213527.jpg&q=20" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Lawmaker Bill Tang on Wednesday urged the government to offer more options to residents of Choi Hung Estate who need to be rehoused in the first phase of a massive redevelopment plan.
  <br>
-  <br/>
+  <br>
   Authorities say 2,450 flats at the new Mei Tung Estate in Wong Tai Sin will be available to house the first batch of residents affected when construction starts in 2028, and they can also consider buying a Home Ownership Scheme flat.
-  <br/>
-  <br/>
+  <br>
+  <br>
   But Tang, who represents the Kowloon East Constituency, says authorities should also allow affected residents to move into any empty flats available in other parts of Choi Hung Estate that will only be redeveloped in 2035 or later.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The residents who live in the first phase… they know they need to move out, but they really want to stay in Choi Hung. We suggest there should be diverse options for the phase one residents," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The lawmaker also noted that volunteers will need to be recruited to assist elderly families that will have to relocate.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Tang also expressed concerns that the current timetable for the entire redevelopment project spans two decades from 2028 to 2048, saying buildings will be so old by the end they may be unsafe.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The residents living in Choi Hung [Estate] must live with a construction site for over 20 years,” he said. “The first building will be removed and then rebuilt and from the first building to the last building, it will be over 20 years. That means the last building will be removed maybe at the age of 80 years old," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Choi Hung resident Tsang said while the current arrangements aren’t perfect, he’s planning to move to Mei Tung Estate.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "I'm somewhat satisfied but transportation is not as convenient as Choi Hung. You have to walk quite a bit either to Lok Fu or Wong Tai Sin Station – but what can you do? It's better than nothing and we have a place to settle down," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Fellow resident Pang said he will be closing his small shop of 20 years in Choi Hung Estate soon.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "It's hard to maintain a small shop in a public housing estate, especially with everyone shopping up north. The spending patterns have changed significantly and the ageing population is increasing," he said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   A woman surnamed Fan meanwhile, said she hopes that authorities could maintain some key elements of Choi Hung Estate – famed for its rainbow colour scheme – as they bring good memories to many people.
-  <br/>
-  <br/>
+  <br>
+  <br>
   _____________________________
-  <br/>
-  <font my="my" style="font-size:90%">
+  <br>
+  <font>
    <i>
     Last updated: 2024-10-31 HKT 07:01
    </i>
   </font>
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1776915-20241030.htm" rel="nofollow">
@@ -3697,55 +3686,55 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776915-20241030.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 30 Oct 2024 22:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     Choi Hung Estate to be redeveloped in three phases
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776877-20241030.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776877_1_20241030171126.jpg&q=45" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  Choi Hung Estate will be redeveloped in three phases, with the first batch of affected residents set to be relocated in about four years’ time, according to a paper submitted by housing authorities on Wednesday.
  <br>
-  <br/>
+  <br>
   The redevelopment plan’s timeline for the estate built in the 1960s and famous for its rainbow colour theme was unveiled in the paper submitted to the Wong Tai Sin District Council, in which the Housing Department said the first phase would involve three blocks – Pik Hoi House, Kam Pik House and Tan Fung House – as well as two vacant school sites.
-  <br/>
-  <br/>
+  <br>
+  <br>
   "The new Mei Tung Estate, which is expected to start taking in residents in 2028-29, will provide 2,450 units for the first phase of relocation, accommodating about one-third of the affected Choi Hung Estate residents," the paper said.
-  <br/>
-  <br/>
+  <br>
+  <br>
   After the area in the first phase is cleared out, construction will begin immediately and it will be able to provide about 3,200 units to residents of four blocks affected by the second stage of redevelopment, expected to take place from 2035-36.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The area involved in the second phase will then be able to take care of the last batch of households. These residents will move into some 4,100 newly built units between 2042 and 2043.
-  <br/>
-  <br/>
+  <br>
+  <br>
   The relocation process would take roughly 15 years, the department added, and by 2048, the last phase of the estate is expected to be redeveloped to offer 1,900 flats.
-  <br/>
-  <br/>
+  <br>
+  <br>
   In total, the new Choi Hung Estate will be able to accommodate 9,200 households, up from the current 7,400.
-  <br/>
-  <br/>
+  <br>
+  <br>
   Officials said the redevelopment would also provide an opportunity to improve traffic conditions at the Choi Hung Interchange.
-  <br/>
-  <br/>
+  <br>
+  <br>
   “The Housing Authority has begun discussions with relevant departments to free up part of the Choi Hung Estate site to alleviate traffic congestion in the area,” the paper said.
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/en/component/k2/1776877-20241030.htm" rel="nofollow">
@@ -3760,14 +3749,14 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/en/component/k2/1776877-20241030.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 30 Oct 2024 17:52:00 +0800
-   </pubDate>
-  </item>
- </channel>
-</rss>
+   
+  
+ 
+</div>

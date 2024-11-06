@@ -1,62 +1,146 @@
-<?xml version="1.0" encoding="utf-8"?>
-<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
- <channel>
-  <title>
+<div>
+ 
+  
    rthk - 大中華
-  </title>
-  <link>
+  
+  
    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=2&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  </link>
-  <description>
+  
+  
    rthk - 大中華
-  </description>
-  <copyright>
+  
+  
    © 香港電台 RTHK
-  </copyright>
-  <docs>
+  
+  
    http://www.rssboard.org/rss-specification
-  </docs>
-  <generator>
+  
+  
    python-feedgen
-  </generator>
-  <image>
-   <url>
-    <![CDATA[https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png]]>
-   </url>
-   <title>
-    rthk - 大中華
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=2&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-   </link>
-  </image>
-  <language>
+  
+  <img>
+  
    zh-HK
-  </language>
-  <webMaster>
+  
+  
    webmaster@rthk.hk
-  </webMaster>
-  <item>
-   <title>
+  
+  
+   
+    孫東稱致力推動生命健康科技發展成具優勢及策略意義科技產業
+   
+   
+    https://news.rthk.hk/rthk/ch/component/k2/1777780-20241106.htm
+   
+   
+    
+<img alt="孫東（右六）與加拿大參議員胡元豹（右七）及其他嘉賓合照。（政府新聞處）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777780_2_20241106123007.jpg&amp;q=55">
+<img alt="孫東（左）拜會中國駐加拿大大使王鏑（右），向對方介紹推動建設為國際創科中心的進展。（政府新聞處）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777780_3_20241106123007.jpg&amp;q=70">
+<br>
+<div class="itemFullText">
+ 創新科技及工業局局長孫東到渥太華繼續訪問行程。他在當地國會大廈出席由港加商會與投資推廣署合辦的全球健康與生命科學創新研討會，在發表主旨演講表示，加拿大一直以來被視為是生命健康科學領域的強國，香港也正積極發展成為國際創新科技中心，特區政府致力推動生命健康科技發展成具優勢及策略意義的科技產業。
+ <br>
+  <br>
+  孫東提出多項香港在發展生命健康科技上享有的重要優勢。香港的旗艦研發項目InnoHK已經與超過30所世界知名大學和研究機構建立合作關係，來自包括加拿大在內的12個經濟體，在InnoHK下成立共29個研發實驗室，當中16個聚焦與生命健康相關科技。
+  <br>
+  <br>
+  他表示，政府亦已推出60億元的資助計劃，支持本地大學設立生命健康研發院，以及30億元的前沿科技研究支援計劃，加快跨領域的研究。他表示，在「一國兩制」下，香港享有背靠祖國、聯通世界的優勢，是連接內地和全球創科人才和企業的最佳平台。
+  <br>
+  <br>
+  孫東又拜會中國駐加拿大大使王鏑，介紹香港在推動建設為國際創科中心的進展，以及一直在融入國家的創科發展大局方面所作出的努力。
+  <br>
+  <br>
+  孫東將於多倫多時間今日，轉到滑鐵盧繼續訪問行程。
+ 
+</div>
+<br>
+<hr>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1777780-20241106.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1777780-20241106.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]&gt;
+   
+   
+    https://news.rthk.hk/rthk/ch/component/k2/1777780-20241106.htm
+   
+   
+    Wed, 06 Nov 2024 12:30:00 +0800
+   
+  
+  
+   
+    有上海芯片企業落戶香港　冀增強本港芯片設計競爭力
+   
+   
+    https://news.rthk.hk/rthk/ch/component/k2/1777779-20241106.htm
+   
+   
+    
+<div class="itemFullText">
+ 繼續有內地企業選擇來港發展業務，有生產半導體芯片產品的上海企業，本月落戶香港，來自香港的公司創辦人希望幫助本港增加芯片設計競爭力。
+ <br>
+  <br>
+  有研發醫療機器人的上海企業同樣有意落戶本港，希望加快將技術帶入國際市場，又相信美國大選後的國際形勢，不會對業務造成影響。
+ 
+</div>
+<br>
+<hr>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1777779-20241106.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1777779-20241106.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>]]&gt;
+   
+   
+    https://news.rthk.hk/rthk/ch/component/k2/1777779-20241106.htm
+   
+   
+    Wed, 06 Nov 2024 12:25:00 +0800
+   
+  
+  
+   
     《遇見美麗中國》《美麗香港系列》專題片於立法會大堂循環播放
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777767-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  環境及生態局聯同國家生態環境部宣傳教育中心製作的《遇見美麗中國》和《美麗香港系列》專題片，在立法會舉行大會會議前，於大堂舉行播放巡禮，議員一起觀賞專題片精華片段。
  <br>
-  <br/>
+  <br>
   立法會主席梁君彥致辭表示，專題片影像賞心悅目，將在立法會大樓循環播放，讓立法會參觀者及學生可觀賞。正如專題片所說，學會欣賞便更懂珍惜，期望大家更愛國家和香港，立法會支持說好國家、說好自然生態故事。
-  <br/>
-  <br/>
+  <br>
+  <br>
   環境及生態局局長謝展寰說，國家主席習近平提出「綠水青山就是金山銀山」理念，國家在生態保護做了很多工作，《美麗香港系列》首集播出以「美麗香港海灣」為題的專題片，希望讓年輕人更認識國家和香港。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777767-20241106.htm" rel="nofollow">
@@ -71,43 +155,43 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777767-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 11:16:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     盧偉國稱航空客流續升要做好準備　物流界指如無三跑難滿足需求
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777759-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="盧偉國（左）認為，雖然本港空運在世界前列，但仍要準備好自己；袁美儀（右）說，現時本港機場空運貨量不只看今年，未來計劃更重要。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777759_1_20241106105522.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  香港機場三跑系統本月28日全面投入運作。
  <br>
-  <br/>
+  <br>
   機管局預料三跑每年可以處理1億2千萬名旅客及1000萬噸貨物，對於有意見指現時客量仍有距離，會否供過於求，機管局三跑道系統及工程委員會主席盧偉國說，疫情後經濟復蘇雖然未及預期快，但航空客流一直增加，本港空運亦在世界前列，香港仍要準備好自己，不用過於憂慮。
-  <br/>
-  <br/>
+  <br>
+  <br>
   盧偉國在本台節目《千禧年代》表示，不能低估與大灣區優勢互補的正面作用，現時透過大灣區海陸空聯運，貨物在東莞虎門港上船後可直接到香港機場，本港清關特別安排在時間成本上很有優勢，因此不要單看目前數字，要看發展趨勢。
-  <br/>
-  <br/>
+  <br>
+  <br>
   香港物流協會會長袁美儀在同一節目表示，環球經濟未如理想，現時本港機場空貨量相當於疫情前八成，但要有地方才可增加需求，不只看今年，未來計劃更重要。
-  <br/>
-  <br/>
+  <br>
+  <br>
   她表示，如果能招攬更多航空公司來港，會吸引不同商機，特別是電商需求一直上升，越有效率，價值越高，更加強大的航空樞紐很重要，如果無三跑則難以滿足需要。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777759-20241106.htm" rel="nofollow">
@@ -122,37 +206,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777759-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 10:12:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     潘功勝：堅持支持性貨幣政策立場　加大貨幣政策逆周期調節力度
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777758-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="潘功勝指出，要為經濟穩定增長及高質量發展營造良好貨幣金融環境。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777758_1_20241106094528.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  人民銀行行長潘功勝強調，將堅持支持性貨幣政策立場，加大貨幣政策逆周期調節力度，為經濟穩定增長及高質量發展營造良好貨幣金融環境。
  <br>
-  <br/>
+  <br>
   他在全國人大常委會匯報金融工作情況時表示，要全面加強監管，切實提高監管有效性；積極穩妥防範化解金融風險，全力維護金融體系整體穩定。
-  <br/>
-  <br/>
+  <br>
+  <br>
   他又指出，要持續提升金融服務質效、加大金融支持經濟高質量發展力度；不斷深化金融改革開放，加快構建中國特色現代金融體系。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777758-20241106.htm" rel="nofollow">
@@ -167,47 +251,47 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777758-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 09:49:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     上海企業稱香港匯聚人才擬落戶發展　無懼中美關係緊張影響
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="有上海企業落戶香港發展，相信有助走進國際市場，業務是透過人工智能病房機器人，代替醫護人員進入隔離病房，助減省醫護人手。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777735_1_20241106075958.jpg&q=75" style="width:100%;height:auto"/>
-<img alt="病房機器人可幫助例如接受放射治療的癌症患者檢查體溫、血壓、體內輻射量、送藥和遙距問診等工作。（陳曉筠攝 )" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777735_2_20241106082416.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="病房機器人可幫助例如接受放射治療的癌症患者檢查體溫、血壓、體內輻射量、送藥和遙距問診等工作。（陳曉筠攝 )" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777735_2_20241106082416.jpg&amp;q=85">
+<br>
 <div class="itemFullText">
  有上海企業在進博會期間舉行的「投資香港推介大會」，簽署滬港兩地合作備忘錄，計劃落戶香港。
  <br>
-  <br/>
+  <br>
   其中一間企業，是包括生產半導體芯片產品，並用於智能手機及電腦的「升新科技」，本月落戶香港，預算未來三年在港投資一億多元。創辦人羅志耀來自香港，4年前到內地創業。他指香港匯聚國際人才，希望幫助香港增加芯片設計的競爭力，政府和科學園等也提供很多便利落地政策，適合發展創科。
-  <br/>
-  <br/>
+  <br>
+  <br>
   羅志耀提到，現時中美關係較緊張，美國制裁較高端產品，包括通訊領域芯片業務，但自己會透過創新技術走「彎道超車」，希望將6G和衞星通訊芯片帶到香港應用，也希望兩、三年內研發出更先進的技術。
-  <br/>
-  <br/>
+  <br>
+  <br>
   此外，2016年成立的「上海鈦米機器人」，也有意落戶香港，透過具備人工智能系統的病房機器人，代替醫護人員進入隔離病房，為需要接受放射治療的癌症患者檢查體溫、血壓及體內輻射量、送藥和遙距問診，減省醫護人手，同時避免醫護人員進入病房後受到輻射影響，現時已在內地多間大型醫院應用。
-  <br/>
-  <br/>
+  <br>
+  <br>
   公司董事長潘晶說，全球均面對醫療服務需求問題，希望引入香港後，透過具國際水平的醫療體制，令機器人融合相關管理標準，加快面向國際市場。至於如何確保系統準確度，減少誤差風險，潘晶說，醫療器械有嚴格的准入門檻，技術已通過多項技術認證，亦已在內地完成大範圍臨床研究，近年在不同學術會議已有醫療機構表達合作意向。
-  <br/>
-  <br/>
+  <br>
+  <br>
   被問到機器人產品涉及芯片技術，現時國際形勢對業務的影響，潘晶說，雖然中美之間在芯片等高科技領域出現激烈競爭，但醫療服務是普世需求，相信各方會採取開放態度，又指對於技術型企業而言，毋須過份憂慮不可控因素，不論美國大選結果如何，也需要醫療技術滿足民眾對健康的追求。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm" rel="nofollow">
@@ -222,40 +306,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 07:59:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     巴基斯坦卡拉奇兩名中國公民遭保安員槍擊受傷
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="卡拉奇紡織廠外發生開槍事後，大批警員到場，封鎖現場調查。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777728_1_20241106071707.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  巴基斯坦再有中國公民遇襲，兩人受傷，醫院消息指，其中一人傷勢嚴重。
  <br>
-  <br/>
+  <br>
   事發在南部港口城市卡拉奇一個工業區。當地時間星期二，一名保安員在一間紡織廠外開槍，大批警員到場，封鎖現場調查。警方證實兩名中國人中槍受傷，涉案保安已經被捕，正調查他犯案的動機。
-  <br/>
-  <br/>
+  <br>
+  <br>
   巴基斯坦外交部表示，事發前有人與涉案保安發生爭執，外交部正與中國大使館保持密切聯繫。
-  <br/>
-  <br/>
+  <br>
+  <br>
   卡拉奇國際機場附近上月亦發生襲擊，造成中方人員兩死一傷。中國駐巴基斯坦大使姜再冬早前已要求巴基斯坦當局，務必採取切實有效措施，全力確保在巴中國公民、機構和項目安全。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm" rel="nofollow">
@@ -270,40 +354,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 06:32:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李強與安華會晤　冀紮實推進東海岸鐵路等項目並推進簽證便利化
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李強在上海會見出席進博會的馬來西亞總理安華。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777717_2_20241106071807.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  國務院總理李強在上海，會見出席進博會的馬來西亞總理安華，並共同出席兩國共建「一帶一路」合作規劃等合作文本交換儀式。
  <br>
-  <br/>
+  <br>
   李強表示，當前中馬關係進入新的歷史發展階段，中方願同馬方加強發展戰略對接和治國理政經驗交流，完善各領域合作佈局，以高水平戰略合作助推兩國現代化進程。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李強又說，雙方要紮實推進東海岸鐵路、「兩國雙園」等旗艦項目，深挖新興領域合作潛力，不斷拓展合作新空間。中方願同馬方持續推進文明交流互鑒，繼續加強教育合作，推進簽證便利化。
-  <br/>
-  <br/>
+  <br>
+  <br>
   安華表示，馬方願同中方繼續在相互尊重、相互信任的基礎上，加強高層交往，深化共建「一帶一路」合作，拓展貿易、投資、通信、數字經濟、教育等領域合作，密切人文交流。馬方支持中國加入《全面與進步跨太平洋伙伴關係協定》。馬方明年將接任東盟輪值主席國，願以此為契機，密切同中方在國際和地區問題上的協作。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm" rel="nofollow">
@@ -318,38 +402,38 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 02:13:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李強在上海會見出席進博會的塞爾維亞總理及蒙古總理
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李強在上海會見塞爾維亞總理武切維奇。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777714_1_20241106002325.jpg&q=85" style="width:100%;height:auto"/>
-<img alt="李強在上海會見蒙古總理奧雲額爾登。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777714_2_20241106002325.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="李強在上海會見蒙古總理奧雲額爾登。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777714_2_20241106002325.jpg&amp;q=85">
+<br>
 <div class="itemFullText">
  國務院總理李強在上海會見出席進博會的與會領導人。
  <br>
-  <br/>
+  <br>
   李強在會見塞爾維亞總理武切維奇時表示，中方始終高度重視中塞關係，願同塞方更加緊密團結協作，推動兩國各領域合作邁上新水平。中方願同塞方加強「一帶一路」倡議同「塞爾維亞2027——躍向未來」規劃對接，共同做好中塞自由貿易協定執行工作，建設運營好匈塞鐵路等重點合作項目，加快綠色、數字、人工智能等創新領域合作，取得更多互利共贏成果。
-  <br/>
-  <br/>
+  <br>
+  <br>
   另外，李強在會見蒙古總理奧雲額爾登時說，中方願同蒙方進一步對接發展戰略，繼續擴大貿易投資合作規模，加強口岸聯通、礦產開發、水電站等基礎設施建設合作，發掘高新技術、綠色發展等新興領域合作潛力。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm" rel="nofollow">
@@ -364,37 +448,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm
-   </guid>
-   <pubDate>
+   
+   
     Wed, 06 Nov 2024 00:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     陳茂波向內地企業推介香港　指可用港優良國際化營商環境走出全球
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777701-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="陳茂波說，內地企業可以利用好香港優良的國際化營商環境走出全球、拓展事業，實現更好的發展。（陳茂波社交專頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777701_1_20241105215236.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  行政長官李家超和財政司司長陳茂波在上海，出席由特區政府和貿發局合辦的「2024投資香港推介大會——上海專場」，並分別在會上致辭。
  <br>
-  <br/>
+  <br>
   陳茂波說，他向在場超過400個位內地企業代表推介香港優勢，指香港匯聚國際資金、人才，中西文化交融、擁有開放和高效的市場，國際化優勢突出、規則制度與國際最佳標準無縫銜接，而且是全球唯一中英雙語並用的普通法體系。內地企業可以利用好香港優良的國際化營商環境走出全球、拓展事業，實現更好的發展。
-  <br/>
-  <br/>
+  <br>
+  <br>
   陳茂波又說，在三中全會的精神指導、行政長官的帶領下，特區政府全力鞏固提升香港國際金融、航運和貿易中心的地位，繼續充分發揮好香港在「一國兩制」下作為「超級聯繫人」和「超級增值人」的角色和功能，致力為國家和世界的更深度的雙向連接、搭建更寬廣的合作通道作出貢獻。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777701-20241105.htm" rel="nofollow">
@@ -409,37 +493,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777701-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 21:52:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     出席投資香港推介大會　李家超：向約400企業代表介紹香港優勢
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777700-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超表示，把握機會主動接觸當地企業代表，與他們交流，加強各界對香港的了解和到香港投資的信心。（李家超社交專頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777700_1_20241105215006.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  行政長官李家超表示，他在進博會「投資香港推介大會 — 上海專場」分享會和晚宴期間，把握機會主動接觸當地企業代表，與他們交流，加強各界對香港的了解和到香港投資的信心。
  <br>
-  <br/>
+  <br>
   李家超在社交專頁說，向約400位企業代表介紹香港具國際水平的專業服務和簡單低稅制等各領域的優勢和機遇，鼓勵企業投資和落戶香港，開拓商機。
-  <br/>
-  <br/>
+  <br>
+  <br>
   他又說，很高興在現場見證了多個合作項目的簽約儀式，亦聽到多間內地企業落戶香港的成功經驗，特區政府將繼續努力爭取更多企業落戶香港，推動滬港合作。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777700-20241105.htm" rel="nofollow">
@@ -454,34 +538,34 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777700-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 21:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     全國人大常委會會議審議國務院關於2023年度國有資產管理情況
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777696-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="全國人大常委會會議上午在北京舉行第二次全體會議。（央視片段截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777696_1_20241105220628.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  全國人大常委會會議上午在北京舉行第二次全體會議。央視新聞聯播報道，會議聽取中國人民銀行行長潘功勝受國務院委託關於金融工作情況的報告。
  <br>
-  <br/>
+  <br>
   會議亦審議國務院關於2023年度國有資產管理情況的綜合報告，聽取財政部部長藍佛安關於2023年度行政事業性國有資產管理情況的專項報告，並聽取人大財政經濟委員會副主任、常委會預算工作委員會許宏才的監督調研報告。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777696-20241105.htm" rel="nofollow">
@@ -496,37 +580,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777696-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 20:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     林世雄稱低空經濟須做到與大灣區互聯互通否則規模會小很多
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777692-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="林世雄形容，低空經濟是一門大有可為的新經濟模式，但必須建立在跨境基礎上，做到與大灣區互聯互通。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777692_1_20241105204647.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  運輸及物流局局長林世雄表示，香港國際機場在高峰期的單日客運量已回復至疫情前約八成半，今年9月份有約130間航空公司服務近200個航點，數目為疫情前約九成，隨著三跑系統將於本月28日投入營運，當局會把握這個機遇，大力擴展航空網絡，支持機場開拓新航點及航班。
  <br>
-  <br/>
+  <br>
   施政報告提出成立發展低空經濟工作組制定發展策略，林世雄在立法會一個委員會上表示，工作組會在明年上半年展開，並由明年初起陸續推行試點項目，試驗不同低空飛行的應用場景，同時正研究修改法例，包括放寬超時距飛行、無人機重量和載貨限制，以及是否需要就載人無人機制定專屬法例，同時會加強與内地的技術對接。
-  <br/>
-  <br/>
+  <br>
+  <br>
   林世雄形容，低空經濟是一門大有可為的新經濟模式，但必須建立在跨境基礎上，做到與大灣區互聯互通，否則規模就會小很多，當局會與内地就貨物清關、載人等情況作出商討，包括探索一地兩檢的可行性，不過他說低空飛行或會有多個航點，如果限制飛行點未必是一件好事。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777692-20241105.htm" rel="nofollow">
@@ -541,37 +625,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777692-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 20:38:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李家超向李強匯報香港最新發展　港澳辦稱支持各部門續推惠港政策
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777680-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超表示，本港將善用「一國兩制」優勢，與上海企業共同發展。 （杜雅莉攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777680_1_20241105185455.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  出席進博會開幕式的行政長官李家超，向國務院總理李強匯報香港的最新發展，又與參展的港商交流。
  <br>
-  <br/>
+  <br>
   特區政府下午舉辦投資香港推介大會，投資推廣署與多家上海企業進行重點合作項目的簽約儀式。李家超表示，香港將善用「一國兩制」優勢，與上海企業共同發展。
-  <br/>
-  <br/>
+  <br>
+  <br>
   港澳辦表示，支持各部門持續研究推出惠港政策，也支持上海香港深度合作。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777680-20241105.htm" rel="nofollow">
@@ -586,37 +670,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777680-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 18:30:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     亞洲物流航運及空運會議本月中會展舉行　料二千名與會者參與
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777678-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="貿發局表示，會議主題為「塑造未來供應鏈：強韌和永續」。（貿發局提供）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777678_1_20241105181744.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  由特區政府與貿發局合辦的第14屆「亞洲物流航運及空運會議」，將於本月18至19日在灣仔會展舉行，主辦單位預計將吸引超過30個國家、2000位與會人士參與。
  <br>
-  <br/>
+  <br>
   貿發局表示，會議主題為「塑造未來供應鏈：強韌和永續」，同時呼應三中全會《決定》及配合《施政報告》政策，鞏固提升香港國際航運中心地位。會議將聚焦三大發展趨勢，包括供應鏈轉化及市場機遇、可持續發展及綠色能源，以及創新科技，大會特別新增兩大專題環節，探討供應鏈多元化及對淨零排放目標的承諾。
-  <br/>
-  <br/>
+  <br>
+  <br>
   貿發局助理總裁梁國浩表示，作為亞洲供應鏈業界年度旗艦活動，今屆會議嘉賓陣容鼎盛，多間物流、航運及空運業界的國際巨頭將會出席，當中不乏由中東、中亞等新興地區親身來港的業界領袖。大會希望藉此向內地及環球商界推廣香港專業服務及優勢，東盟的參與及支持亦有助鞏固提升香港國際航運、空運中心的地位及超級連繫人的角色。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777678-20241105.htm" rel="nofollow">
@@ -631,37 +715,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777678-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 18:09:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     外交部：意大利總統馬塔雷拉將訪華　凸顯中意關係高水平發展
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777675-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="毛寧表示，馬塔雷拉訪華期間，國家主席習近平將與他會談，擘畫中意關係未來發展藍圖。（外交部網頁圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777675_1_20241105175236.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  意大利總統馬塔雷拉將於周四至下周二對中國進行國事訪問。
  <br>
-  <br/>
+  <br>
   在北京，外交部發言人毛寧表示，馬塔雷拉訪華期間，國家主席習近平將與他會談，擘畫中意關係未來發展藍圖，總理李強及人大委員長趙樂際將分別與他會面。
-  <br/>
-  <br/>
+  <br>
+  <br>
   毛寧說，今年是中意建立全面戰略夥伴關係20周年，意大利總理梅洛尼及總統馬塔雷拉先後訪華，凸顯中意關係高水平發展。中方願同意方一同以兩國領導人共識為指引，進一步深化政治互信，拓展務實合作與人文交流，促進文明互鑒，為變亂交織的世界注入更多穩定性。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777675-20241105.htm" rel="nofollow">
@@ -676,37 +760,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777675-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 17:55:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     普拉博沃將國事訪問中國　中方稱彰顯中印尼關係的高水平
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777673-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="普拉博沃將於本月8日至10日對中國進行國事訪問。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777673_1_20241105173929.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  印尼總統普拉博沃將於本月8日至10日對中國進行國事訪問。
  <br>
-  <br/>
+  <br>
   在北京，外交部發言人毛寧表示，普拉博沃總統今年3月當選後，第一時間首訪中國，就任後再次將中國作為首訪國家，體現了對發展兩國關係的高度重視，也彰顯了中印尼關係的高水平。
-  <br/>
-  <br/>
+  <br>
+  <br>
   毛寧又說，國家主席習近平將為普拉博沃舉行歡迎儀式，兩國元首將舉行會談。總理李強、人大委員長趙樂際將分別會見普拉博沃。中方願同印尼一起，以此次訪問為契機，推動兩國命運共同體建設不斷邁上新台階，為兩國各自現代化進程注入強勁動力，助力地區和全球繁榮發展。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777673-20241105.htm" rel="nofollow">
@@ -721,37 +805,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777673-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 17:39:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李家超強調不斷鞏固香港優勢　龔正稱繼續深化滬港經貿合作
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777667-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777667_1_20241105172629.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  行政長官李家超說，現時在港上市的內地企業超過1400家，其中上海企業有接近200家，市值超過兩萬億港元，充分顯示香港可以成為服務上海和內地企業發展的投融資平台，歡迎更多上海和內地的企業，利用香港，走向世界，共謀發展。
  <br>
-  <br/>
+  <br>
   李家超在投資香港推介大會上海專場致辭說，人才是第一資源，特區政府的高才通計劃吸納的人才，將貢獻香港的本地生產總值百分之1.2，有信心滬港兩地可以繼續加強在全球人才引進、人才服務、人才就業等領域的合作，推進兩地人才高地建設，不同國際報告均反映香港在不同環節的競爭力，都走在世界前列，又強調昨天的成績，不代表將來的成功，香港正不斷鞏固自身優勢，同時進一步深化改革。
-  <br/>
-  <br/>
+  <br>
+  <br>
   上海市市長龔正說，將繼續深化兩地經貿合作，鼓勵和擴大兩地的商貿流通，進一步承接放大進博會的溢出效益；也將進一步鼓勵上海企業赴港投資，強化人工智能和生物醫藥等新興產業的對接，支持更多的具備條件的企業在香港的交易所上市；也將攜手開拓海外市場，充分依託香港超級聯繫人的優勢，為企業深耕海外佈局全球增值賦能，更好地代表國家參與國際合作和競爭。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777667-20241105.htm" rel="nofollow">
@@ -766,37 +850,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777667-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 17:10:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     陳茂波稱香港可於長三角地區國際化及法律體系作出貢獻
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777660-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="陳茂波說，香港的國際化可吸引人才，文化多元、自由開放和交通便捷，區位優勢非常好。（杜雅莉攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777660_1_20241105172432.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  財政司司長陳茂波說，上海是長三角地區的龍頭城市，是該區最重要的經濟動力中心，而且五個中心的建設，人才和科研能力都很強，而香港可以在國際化和法律體系可以作出貢獻。
  <br>
-  <br/>
+  <br>
   陳茂波在上海出席由特區政府舉辦的2024投資香港推介大會—上海專場致辭說，其中在金融國際化方面，內地企業打出國際平台，建議利用香港籌集資金，在金融創新方面可取得多樣化資金，而且是國際的資金和多幣種，配對業務需要就方便。他又說香港是很好的財資中心，資金自由進出，內地企業在香港設立總部，除了方便調撥資金，特區政府又會給予稅務優惠，形容是多樣化的融資市場。
-  <br/>
-  <br/>
+  <br>
+  <br>
   陳茂波表示，香港的國際化亦體現在吸引人才方面，而且文化多元、自由開放和交通便捷，因此區位優勢非常好。他又說香港有50間國際學校，相信對吸引人才非常好，人才的子女可以入讀不同課程。除了工作，陳茂波說香港餐飲同樣好，有多間米芝蓮餐廳，而且葡萄酒免稅，假期時亦可到郊區走一走，歡迎內地企業到港發展事業，實現夢想。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777660-20241105.htm" rel="nofollow">
@@ -811,37 +895,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777660-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 16:51:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李家超稱向李強匯報香港最新發展　為國家高質量發展所作施政方向
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777650-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超表示，今年香港展區以「聯通開放」為題，繼續有超過300家香港企業參與進博會。（李家超社交網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777650_1_20241105172008.jpg&q=75" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  行政長官李家超率團訪問上海，出席第七屆中國國際進口博覽會暨虹橋國際經濟論壇開幕式。李家超在社交網站說，國務院總理李強視察香港展區時，他向對方匯報了香港回歸以來的成績及最新發展，特別是多個國際競爭力排名上名列前茅，彰顯香港在一國兩制下的制度優勢。
  <br>
-  <br/>
+  <br>
   李家超說，講述了上月發表的施政報告有關推動香港為國家高質量發展，作出貢獻的施政方向。他表示，今年香港展區以「聯通開放」為題，繼續有超過300家香港企業參與進博會，展示香港產品以及服務業的優勢。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李家超指出，下午在展區與香港企業代表交流，宣傳施政報告協助企業開拓內地市場等支援措施，鼓勵他們善用香港的優勢，把握機遇，積極融入國家發展大局。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777650-20241105.htm" rel="nofollow">
@@ -856,37 +940,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777650-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 15:58:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     政府稱三跑全面啟用提升客貨運功能　帶來龐大長遠經濟效益
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777641-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="運輸及物流局表示，會與機管局合作，大力擴展香港的航空網絡。（運輸及物流局）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777641_1_20241105151933.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  運輸及物流局表示，為配合未來航空交通量增長及進一步鞏固香港的國際航空樞紐地位，政府一直積極支援機管局推展機場三跑道系統項目。第三跑道在2022年啟用，並隨着中跑道今年9月順利完成試飛，三跑道系統目標於本月28日啟用，屆時三條機場跑道將全面投入運作。
  <br>
-  <br/>
+  <br>
   局方在社交網頁表示，三跑道系統的全面啟用將標誌機場發展的新里程碑。機場擴建後，由2035年起將能夠處理每年1億2千萬人次旅客和1千萬公噸貨物，大大提升機場的客貨運功能，創造更多就業職位，為香港注入多元商機和帶來龐大的長遠經濟效益。
-  <br/>
-  <br/>
+  <br>
+  <br>
   為充分把握三跑道系統帶來的機遇，政府會與機管局合作，大力擴展香港的航空網絡，包括支持機場加強主要航線的服務、提早佈局與「一帶一路」國家的民航合作和鼓勵空公司開拓新航點和增加航班，同時結合珠海機場的優勢，加強「經珠港飛」直通客運服務，擴大兩地機場的協同效應。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777641-20241105.htm" rel="nofollow">
@@ -901,37 +985,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777641-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 15:05:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李家超參觀上海進博會香港展示區　稍後於推介會致辭推廣香港優勢
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777640-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李家超參觀上海進博會香港展示區。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777640_3_20241105181140.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  行政長官李家超率團訪問上海，出席第七屆中國國際進口博覽會暨虹橋國際經濟論壇開幕式，他下午到香港展示區的香港企業展位，參觀和支持港企。
  <br>
-  <br/>
+  <br>
   李家超在財政司司長陳茂波、商務及經濟發展局局長丘應樺、貿發局主席林建岳等人陪同下，聽取港企展位的職員介紹產品及傾談，李家超之後又與同場的中聯辦副主任尹宗華等人拍攝大合照。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李家超稍後會出席由特區政府舉辦的「2024投資香港推介大會——上海專場」，他將在推介大會致辭，向內地和海外企業推廣香港的優勢，以及香港作為國家雙循環連接平台的通道角色。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777640-20241105.htm" rel="nofollow">
@@ -946,37 +1030,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777640-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 14:49:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     消息指夏寶龍本周五於深圳主持有關香港發展座談會
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777638-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="消息指，夏寶龍星期五將在深圳主持召開有關香港發展的座談會。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777638_2_20241105152043.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  消息指，中央港澳辦、國務院港澳辦主任夏寶龍，星期五將在深圳主持召開有關香港發展的座談會。
  <br>
-  <br/>
+  <br>
   消息指，本港商會領導、部分國際企業等獲邀出席，座談會預留一天時間舉行，預料行政長官李家超、中聯辦主任鄭雁雄亦會出席。據了解，原定當日在立法會舉行的議員與行政長官、行政會議成員及政府官員午宴將延期。
-  <br/>
-  <br/>
+  <br>
+  <br>
   夏寶龍上月在北京分別會見匯豐集團、怡和集團管理層。他希望匯豐繼續發揮優勢，積極參與中國高質量發展和高水平對外開放，為香港繁榮發展多作貢獻，又期望怡和增進國際社會對香港的了解、堅定對香港的信心，繼續發揮優勢、積極作為，為香港保持繁榮穩定更好發揮作用。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777638-20241105.htm" rel="nofollow">
@@ -991,40 +1075,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777638-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 14:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     林定國稱調解院提供靈活高效服務　將打造香港成國際調解之都
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777634-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="林定國說，中央要將香港建設為亞太區主要國際法律及爭議解決服務中心。（直播截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777634_1_20241105143505.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  律政司司長林定國在香港法律周一個論壇表示，為配合國家「十四五」規劃，律政司已推出相關政策，加強香港作為主要法律及爭議解決中心的角色。
  <br>
-  <br/>
+  <br>
   他表示，中央要將香港建設為亞太區主要國際法律及爭議解決服務中心，有關建立國際調解院的公約早前完成談判，並決定明年在本港舉辦簽署儀式，國際調解院總部亦會設於本港。調解院成立後，可提供靈活及高效的調解服務，將香港打造成國際調解之都。
-  <br/>
-  <br/>
+  <br>
+  <br>
   林定國提到，香港國際法律人才培訓學院將於法律周最後一天，即周五舉行啟動儀式，學院將定期舉辦訓練課程、研討會及國際交流活動等，促進人才和區域交流，同時為國家培養熟悉國際法及普通法等人才。
-  <br/>
-  <br/>
+  <br>
+  <br>
   林定國說，展望未來，他想起孔子的「君子和而不同」，鼓勵即使存在分歧，仍追求共同和諧的理念。他認為，加強互聯互通、促進發展、構建人類命運共同體至關重要，做到跨國相互尊重。他表示，香港在接軌和促進國際法律標準方面作出努力，加上國際爭議解決經驗，或會為世界帶來積極影響。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777634-20241105.htm" rel="nofollow">
@@ -1039,34 +1123,34 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777634-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 14:11:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     習近平致電祝賀拉拉巴拉武當選斐濟總統
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777631-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="習近平說，願意同拉拉巴拉武一道努力，推動兩國全面戰略伙伴關係持續健康穩定發展。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777631_1_20241105132559.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  國家主席習近平致電拉拉巴拉武，祝賀他當選斐濟總統。
  <br>
-  <br/>
+  <br>
   習近平指出，斐濟是最早同新中國建交的太平洋島國。建交49年來，中斐關係取得長足發展，增進了兩國人民的福祉，促進了地區乃至世界的和平、穩定、發展。他高度重視中斐關係發展，願意同拉拉巴拉武一道努力，推動兩國全面戰略伙伴關係持續健康穩定發展，更好造福兩國人民。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777631-20241105.htm" rel="nofollow">
@@ -1081,37 +1165,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777631-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 13:25:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     香港金融服務、貿易物流、文化體育旅遊於大灣區行業發展指數居首
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777628-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="團結香港基金及大新銀行聯合發布「大灣區行業發展指數」。（廖漢榮攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777628_1_20241105143311.jpg&q=60" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  團結香港基金及大新銀行聯合發布「大灣區行業發展指數」，顯示香港在金融服務、貿易及物流、文化體育及旅遊3個行業均位居榜首。
  <br>
-  <br/>
+  <br>
   「大灣區行業發展指數」以100作為滿分，調研11個城市在6個行業的發展情況。基金會表示，在金融服務方面，香港憑藉高度國際化的宏觀環境、成熟的人才培育體系以及與內地金融市場互聯互通的政策支持，以82.6 的綜合得分領先；在貿易及物流方面，香港作為自由貿易港以及中國唯一奉行普通法的地區等優勢，以 83分位列第一 。
-  <br/>
-  <br/>
+  <br>
+  <br>
   基金會又提到，大灣區多個行業展現獨特優勢，強強聯手協同發展，例如在貿易及物流業方面，香港、廣州和深圳分別作為大灣區的國際航空樞紐、內貿海運中心及國際海運中心，定位互補，共同推動區域貿易及物流業的快速發展。在製造業與創新科技方面，港深穗三地可發展全產業鏈互補的緊密合作關係，其中香港擁有科研人才資源，深圳具備完整的科研專利，中山、佛山、廣州等市設有「燈塔工廠」，而香港的高質量質檢技術服務為製造業下游發展提供支持。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777628-20241105.htm" rel="nofollow">
@@ -1126,40 +1210,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777628-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 13:00:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     保安局與紀律部隊展出隨國家實踐十九號衛星升空文化創意物品
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777625-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="保安局挑選的文化創意物品及宣傳品包括國安漫畫，漫畫主角之一的「保安熊仔」亦特製裝備遠赴太空。（政府新聞處）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777625_1_20241105140437.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  保安局及轄下紀律部隊明日起一連六日在太空館舉行展覽，展出隨國家實踐十九號衛星升空的文化創意物品。
  <br>
-  <br/>
+  <br>
   保安局局長鄧炳強早前在政府總部主持開箱儀式，將載荷和航天搭載證明交予各部隊首長。鄧炳強表示，很榮幸獲邀參與國家航天任務，今次升空是國家首顆可重複使用的返回式技術試驗衛星，圓滿完成返回任務，見證國家在航天領域突破多項關鍵技術，體現國家航天科技的飛躍進步。
-  <br/>
-  <br/>
+  <br>
+  <br>
   保安局挑選的文化創意物品及宣傳品包括國安漫畫，而作為漫畫主角之一的「保安熊仔」亦特製裝備遠赴太空，以進一步推廣國家安全教育。局方亦挑選具有沙頭角文化特色的宣傳品上太空，各紀律部隊和輔助部隊均揀選別具意義的搭載物品，包括多支部隊的吉祥物。
-  <br/>
-  <br/>
+  <br>
+  <br>
   實踐十九號衛星於9月27日發射升空，上月11日成功返航。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777625-20241105.htm" rel="nofollow">
@@ -1174,34 +1258,34 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777625-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 12:54:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李強：中國願進一步開放超大規模市場　各方也要堅持合作共贏態度
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777621-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李強表示，各方要堅持合作共贏的態度，在全球新一輪科技革命中破除制約。（央視截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777621_1_20241105140328.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  上海進博會早上開幕，國務院總理李強表示，世界百年變局正加速演進，中國願意進一步開放超大規模市場，各方也要堅持合作共贏的態度，在全球新一輪科技革命中破除制約。
  <br>
-  <br/>
+  <br>
   李強又說，自從中央推出一攬子增量政策，市場信心增強，顯示中國經濟良好基本面沒有改變，也顯示中國政府有能力推動經濟持續向好。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777621-20241105.htm" rel="nofollow">
@@ -1216,37 +1300,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777621-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 12:24:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     崔建春稱培養國際法人才可提升法律專業水平及振興法律服務業
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777610-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777610_1_20241105114200.jpg&q=65" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  外交部駐港特派員崔建春表示，法治對於中國的現代化相當重要，中國正在推動國內外相關法律框架，以完善法規，銜接粵港澳大灣區建設，培養國際法的法律人才，認為將有助提升香港的法律專業水平，並振興香港的法律服務業。
  <br>
-  <br/>
+  <br>
   崔建春於法律周第二日活動「融通與發展法治論壇」致辭表示，在一國兩制框架下，香港在參與國際規則談判和世貿組織等多邊機制方面享有獨特地位。未來香港將發揮更重要的作用，他相信在未來5年、10年以至15年，香港可以做出更多貢獻。
-  <br/>
-  <br/>
+  <br>
+  <br>
   崔建春又提到，香港需要增強法律領域的競爭力，建立成為全球爭議解決的首選目的地。他說，在國家政策支持下，香港正在發展成為亞太法律與爭議解決服務中心。而將於本星期五成立的香港國際法律人才培訓學院，是一個非常重要的機構，將全力支持香港加強調解服務，協助香港成為調解之都。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777610-20241105.htm" rel="nofollow">
@@ -1261,35 +1345,35 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777610-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 11:30:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     印尼總統普拉博沃及意大利總統馬塔雷拉本周分別訪華
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777607-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="普拉博沃將於周五至周日對中國進行國事訪問。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777607_1_20241105105912.jpg&q=90" style="width:100%;height:auto"/>
-<img alt="馬塔雷拉將於周四至下周二對中國進行國事訪問。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777607_2_20241105105912.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="馬塔雷拉將於周四至下周二對中國進行國事訪問。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777607_2_20241105105912.jpg&amp;q=90">
+<br>
 <div class="itemFullText">
  外交部宣布，應國家主席習近平邀請，印尼總統普拉博沃將於周五至周日對中國進行國事訪問。
  <br>
-  <br/>
+  <br>
   另外，應習近平邀請，意大利總統馬塔雷拉將於周四至下周二對中國進行國事訪問。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777607-20241105.htm" rel="nofollow">
@@ -1304,40 +1388,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777607-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 10:59:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李強：中國經濟良好基本面沒有改變　對經濟發展充滿信心
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777599-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777599_1_20241105105850.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  國務院總理李強說，中共中央政治局在9月26日召開會議，部署經濟工作，中央政府推出一攬子增量政策，社會反響熱烈，近日中國主要經濟指標全面回升，市場信心明顯增強，社會預期顯著改善，經濟運行出現很多積極變化，呈現良好態勢。他認為，至少說明兩點，中國經濟良好基本面沒有改變，中國政府亦有能力推動經濟持續向好。
  <br>
-  <br/>
+  <br>
   李強出席第七屆中國國際進口博覽會開幕式致辭表示，中國經濟前三個季度在去年高基數的基礎上，仍實現4.8%的增幅，在世界主要經濟體中位居前列，特別是新動能在加快成長壯大，高新技術產業投資保持雙位數的高增長，人工智能、先進製造、綠色經濟等新興產業蓬勃發展。
-  <br/>
-  <br/>
+  <br>
+  <br>
   他表示，中國面對經濟下行壓力，有條件加大逆周期調節力度，財政和貨幣政策都有較大空間，政策工具也更豐富，宏觀調控的精準度和有效性不斷增強，同時中國不斷激發經濟的內生動力，因此無論對今年目標的實現，或對今後一個時期中國經濟的發展，中國都是充滿信心。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李強強調，對外開放是中國的基本國策，無論世界形勢如何變化，中國擴大高水平開放、深度融入世界的選擇不會變，腳步不會停歇，中國願與各方攜手建設開放性世界經濟。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777599-20241105.htm" rel="nofollow">
@@ -1352,40 +1436,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777599-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 10:26:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     財新中國10月服務業PMI升至52　創3個月高位
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777597-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="財新中國10月通用服務經營活動指數經季節調整後升至52，創3個月高位。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777597_1_20241105101432.jpg&q=60" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  財新中國10月通用服務經營活動指數經季節調整後報52，高過9月的50.3，創3個月高位。
  <br>
-  <br/>
+  <br>
   新接業務量增速在4個月以來首次回升，受惠於出口業務繼續穩健增長，新出口訂單連續14個月高過50以上的盛衰分界線。積壓業務量持續上升，服務企業連續第2個月增加用工。
-  <br/>
-  <br/>
+  <br>
+  <br>
   期內，平均投入成本持續上升，物料和能源成本增加，但月內增幅低於長期均值，跌至3個月低位。售價連跌兩個月後趨於平穩，部分企業因競爭加劇而減價，市場信心顯著改善。
-  <br/>
-  <br/>
+  <br>
+  <br>
   另外，10月綜合PMI升至51.9，創4個月最高。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777597-20241105.htm" rel="nofollow">
@@ -1400,46 +1484,46 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777597-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 10:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李強於進博會開幕式發表主旨演講　稱是中國擴大開放合作重要舉措
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777598-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777598_1_20241105105818.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  第七屆中國國際進口博覽會在上海開幕，國務院總理李強表示，舉辦進博會是中國擴大開放合作的重要舉措，是中國面向世界作出的鄭重承諾，從2018年至今，每年都舉辦進博會，如果說首屆進博會是中國向世界發出的單向邀約，之後的每屆進博會就是中國與世界的雙向奔赴共同約定。
  <br>
-  <br/>
+  <br>
   李強在開幕式的主旨演講表示，前6屆進博會累積的意向成交額超過4200億美元，今次進博會共有152個國家地區和國際組織，約3500家境外企業參加，其中世界500強和行業龍頭企業達到297家，創歷史新高。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李強說，當今世界百年變局加速演進，單邊和保護主義明顯上升，不穩定因素增多，但中國越要堅持開放，擴大和提升開放，才能真正推動持久的和平穩定。
-  <br/>
-  <br/>
+  <br>
+  <br>
   他認為，首先要在堅持重信守諾中更好凝聚共識，而中國一直都是說到做到，包括推動中國關稅水平降至7.3%，並全面落實前6屆進博會上宣布的所有開放措施等。在第二方面，要在堅持互利共贏中，更好拓展開放空間，強調零和博奕，贏者通吃的思維只會阻礙發展前進的步伐，應以合作共贏的態度，推進開放。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李強指出，中國願意進一步開放市場，包括將實施更多單邊開放措施，並將繼續推動電訊、互聯網、教育、文化、醫療等領域的有序擴大開放，繼續實施單方面免簽政策，持續辦好進博會等大型會展。
-  <br/>
-  <br/>
+  <br>
+  <br>
   他表示，亦要更好擔負開放的使命，強調面對當前全球發展困局，沒有誰可以獨善其身，只有堅定不移開放合作，同舟共濟，才能共促全球發展繁榮。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777598-20241105.htm" rel="nofollow">
@@ -1454,40 +1538,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777598-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 10:18:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     殲-35A戰機圖片發布　將在第十五屆中國航展亮相
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777596-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="殲-35A的圖片發布，將在航展中亮相。（央視新聞圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777596_1_20241105100013.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  央視軍事報道，中型隱身多用途戰鬥機殲-35A將在第十五屆中國航展亮相。
  <br>
-  <br/>
+  <br>
   報道說，空軍在北京組織新聞發布會介紹慶祝空軍成立75周年，以及參加第十五屆中國航展有關信息。空軍裝備部牛文博上校表示，在航展期間，殲-35A有機會與大家見面。
-  <br/>
-  <br/>
+  <br>
+  <br>
   報道引述軍事專家李莉表示，這次公開殲-35A，意味著中國空軍將同時擁有兩款隱形戰鬥機—殲-20和殲-35A。這是繼美國空軍裝備F-22和F-35之後，全球第二個同時裝備兩款隱形戰機的國家。綜合各方消息來源看，殲-35應該是一個系列，未來還可能作為航母艦載機，大幅提升中國海空作戰整體實力。
-  <br/>
-  <br/>
+  <br>
+  <br>
   空軍發言人謝鵬大校表示，本月11日，空軍「八一」「紅鷹」飛行表演隊結合航展飛行表演適應性訓練，將在珠海金灣機場，以獨特方式慶祝空軍成立75周年。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777596-20241105.htm" rel="nofollow">
@@ -1502,38 +1586,38 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777596-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 10:00:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     進博會助拓商機　港企業參展冀強化電商合作與爭取產品曝光
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777590-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="有本港參展商認為，進博會是一個大平台為中小企打開門户尋找商機。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777590_1_20241105093335.jpg&q=55" style="width:100%;height:auto"/>
-<img alt="貿發局設立「香港產品展館」和「香港服務業展館」。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777590_2_20241105093335.jpg&q=30" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="貿發局設立「香港產品展館」和「香港服務業展館」。（陳曉筠攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777590_2_20241105093335.jpg&amp;q=30">
+<br>
 <div class="itemFullText">
  香港貿發局今年在第七屆中國國際進口博覽會，設立「香港產品展館」和「香港服務業展館」，其中產品展有34家香港企業參展，包括休閒食品、糧油調味、保健品和酒類等。
  <br>
-  <br/>
+  <br>
   其中香港中小企經貿促進會會長黃達勝的保健品公司，今年連續第七屆參與，他的公司今年初開始將產品放在實體店售賣，希望今年可以與跨境電商平台加強合作，接觸內地進口商和批發商。他認為，內地很多企業和商會想與香港合作，進博會是一個大平台為中小企打開門户尋找商機。
-  <br/>
-  <br/>
+  <br>
+  <br>
   在香港有超過70年歷史的老牌食品代理公司「遠大貿易」，今年就首度參展，公司項目經理劉斯婷說，今年推出的露營食品廣受歡迎，成為新消費群，5月已引入內地市場，希望在面向世界的進博會再下一城，接觸更多針對露營市場的企業，為產品爭取曝光。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777590-20241105.htm" rel="nofollow">
@@ -1548,41 +1632,41 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777590-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 09:33:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     安理會討論朝核問題　中方敦促美方立即停止危險錯誤行徑
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777579-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="傅聰說，中方提出的「雙軌併進」思路和「分階段、同步走」原則，目前看仍是現實可行的。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777579_1_20241105084145.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  中國常駐聯合國代表傅聰指出，朝鮮半島問題的核心是美朝矛盾，解決問題的鑰匙在美國手裡。
  <br>
-  <br/>
+  <br>
   安理會討論北韓上周四試射新型洲際彈道導彈問題。傅聰發言說，要從根本上解決朝鮮半島問題，中方提出的「雙軌併進」思路和「分階段、同步走」原則，仍是現實可行。他呼籲美方摒棄威脅施壓等錯誤做法，推動半島局勢緩和，為通過對話和平解決危機創造條件。
-  <br/>
-  <br/>
+  <br>
+  <br>
   傅聰指出，美國在朝鮮半島不斷加大部署戰略力量，強化「延伸威懾」安排，甚至在美英澳三邊核潛艇合作框架下向無核武器國家轉讓數以噸計的武器級高濃縮鈾。美國還在菲律賓部署中程導彈系統並謀求將部署進一步擴大至東北亞地區，這等於把威脅推進到中國等地區國家的家門口，嚴重破壞地區安全局勢，打破戰略安全平衡。中方敦促美方立即停止這種危險錯誤行徑，撤銷並放棄有關部署。
-  <br/>
-  <br/>
+  <br>
+  <br>
   傅聰表示，當務之急是所有各方秉持理性務實態度，推動建立互信，為局勢降溫創造有利氛圍。 中方始終認為，安理會應在半島問題上採取切實舉措推動緩和局勢、增進互信，而不是簡單的制裁施壓。有關國家應該拿出具體行動和可行方案，為推進半島政治解決進程作出切實努力，而不是利用安理會加劇對抗。
-  <br/>
- </br>
+  <br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777579-20241105.htm" rel="nofollow">
@@ -1597,40 +1681,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777579-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 08:41:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     鄧洪波談電動車反補貼案　冀歐方採取建設性態度避免貿易摩擦升級
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777569-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="鄧洪波指出，中德作為世界第二、第三大經濟體，加強合作對雙方有利，對世界有利。（中國駐德國大使館微信圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777569_1_20241105064136.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  中國駐德國大使鄧洪波在德國《法蘭克福匯報》發表署名文章，談及歐盟對華電動汽車反補貼調查案。他表示，中方一貫認為貿易戰沒有贏家，保護主義是開歷史倒車，始終秉持最大誠意，堅持通過談判磋商解決分歧。
  <br>
-  <br/>
+  <br>
   鄧洪波指出，歐盟委員會對華電動汽車反補貼調查終裁結果，明顯違背自由貿易原則，也未能解決中歐業界核心關切。保護主義做法只會損害歐盟消費者利益，擾亂包括歐盟在內的全球汽車產業鏈供應鏈穩定，破壞歐盟自身綠色轉型和全球應對氣候變化合作。
-  <br/>
-  <br/>
+  <br>
+  <br>
   鄧洪波又說，目前中歐雙方技術團隊正在進行新一階段磋商。希望歐方採取建設性態度，按照務實、平衡的原則，相互照顧核心關切，盡快達成雙方均可接受的解決方案，避免貿易摩擦升級。
-  <br/>
-  <br/>
+  <br>
+  <br>
   另外，鄧洪波還指出，中德作為製造業和貿易大國，理應共同致力於構建開放型世界經濟，攜手推動普惠包容的經濟全球化，以實際行動反對保護主義和「脫鈎斷鏈」。中德作為世界第二、第三大經濟體，加強合作對雙方有利，對世界有利。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777569-20241105.htm" rel="nofollow">
@@ -1645,48 +1729,48 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777569-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 06:34:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     中國進博會今於上海舉辦　李強冀中外企業家繼續支持經濟全球化
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777558-20241105.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="第七屆中國國際進口博覽會今天起在上海舉辦，為期六天。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777558_1_20241105014236.jpg&q=80" style="width:100%;height:auto"/>
-<img alt="本屆進博會整體展覽展示面積將超過42萬平方米。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777558_2_20241105014236.jpg&q=55" style="width:100%;height:auto"/>
-<img alt="李強在進博會舉辦前夕，在上海同參展商、採購商代表座談。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777558_3_20241105014236.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="本屆進博會整體展覽展示面積將超過42萬平方米。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777558_2_20241105014236.jpg&amp;q=55">
+<img alt="李強在進博會舉辦前夕，在上海同參展商、採購商代表座談。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777558_3_20241105014236.jpg&amp;q=90">
+<br>
 <div class="itemFullText">
  第七屆中國國際進口博覽會今天起在上海舉辦，為期六天。國務院總理李強在進博會舉辦前夕，在上海同參展商、採購商代表座談。
  <br>
-  <br/>
+  <br>
   李強表示，無論國際風雲如何變幻，中國開放的大門只會越開越大。當前中國經濟運行總體平穩、穩中有進，有能力推動經濟持續回升向好，中國市場仍是各國企業的最佳選擇之一。中國將進一步放寬市場准入，推動電信、教育、文化、醫療等領域有序擴大開放。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李強又希望中外企業家，繼續堅定支持經濟全球化，共促全球產業鏈供應鏈穩定暢通，並順應新一輪科技革命和產業變革大趨勢，加強聯合研發、共同推動技術進步和產業升級，培育壯大世界經濟增長的新動能。
-  <br/>
-  <br/>
+  <br>
+  <br>
   本屆進博會整體展覽展示面積將超過42萬平方米，297家世界500強和行業龍頭企業、來自多國近800個採購團體參展與會，數量創歷屆新高。
-  <br/>
-  <br/>
+  <br>
+  <br>
   本屆進博會，食品及農產品、汽車、技術裝備、消費品、醫療器械及醫藥保健、服務貿易六大展區提質升級，400多項代表性新產品新技術新服務將集中展示，39個政府交易團和4個行業交易團，共計780個分團到會採購，數量是歷屆之最。
-  <br/>
-  <br/>
+  <br>
+  <br>
   另外，本屆進博會的中國館展區內，量子科學實驗衛星「墨子號」模型、嫦娥六號模型、人形機器人「天工」、低空經濟電子互動沙盤等展品亮相，展現中國加快培育和發展新質生產力的嶄新氣象。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777558-20241105.htm" rel="nofollow">
@@ -1701,37 +1785,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777558-20241105.htm
-   </guid>
-   <pubDate>
+   
+   
     Tue, 05 Nov 2024 01:36:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李強稱有能力推動經濟持續回升向好　冀外資企業續紮根中國市場
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777553-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李強在上海，與出席中國國際進博會的參展商及採購商代表舉行座談。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777553_1_20241104224213.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  國務院總理李強在上海，與出席中國國際進博會的參展商及採購商代表舉行座談，強調中國開放的大門只會越開越大。
  <br>
-  <br/>
+  <br>
   李強表示，在世界經濟復蘇乏力、增長動能不足的背景下，中國經濟運行總體平穩、穩中有進，有能力推動經濟持續回升向好、市場不斷擴容提質，為各國企業帶來更廣闊的貿易拓展、投資興業、創新應用的發展新空間，中國市場仍然是各國企業的最佳選擇之一。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李強說，中國將進一步放寬市場準入，推動電信、教育、文化、醫療等領域有序擴大開放，同時持續優化營商環境，及時回應企業關切，幫助企業解決實際問題，希望外資企業繼續紮根中國市場，把更多高品質商品和服務帶到中國，同時深化和中國採購商等企業合作。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777553-20241104.htm" rel="nofollow">
@@ -1746,40 +1830,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777553-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 22:42:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李強晤烏茲別克總理　稱雙方要維護好廣大發展中國家正當權益
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777545-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="李強與烏茲別克總理阿里波夫會面。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777545_2_20241104224315.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  國務院總理李強在上海與出席第七屆中國國際進口博覽會的多國領導人會面。
  <br>
-  <br/>
+  <br>
   李強與哈薩克總理別克捷諾夫會談時表示，中方願同哈方不斷深化政治互信，加強發展戰略對接，踐行真正的多邊主義，維護經濟全球化和自由貿易，推動全球治理朝著更加公正合理的方向發展。
-  <br/>
-  <br/>
+  <br>
+  <br>
   李強與烏茲別克總理阿里波夫會面時又說，雙方要進一步對接發展戰略，推動經貿合作擴面提質，亦要維護好兩國和廣大發展中國家的正當權益，攜手推動構建人類命運共同體。
-  <br/>
-  <br/>
+  <br>
+  <br>
   別克捷諾夫表示，哈方高度重視對華關係，願同中方進一步密切高層往來。阿里波夫亦說，烏方堅定恪守一個中國原則，願同中方推動烏中關係取得更大發展。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777545-20241104.htm" rel="nofollow">
@@ -1794,37 +1878,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777545-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 21:48:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     中方將歐盟對華電動車反補貼終裁措施起訴至世貿爭端解決機制
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777533-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="中方認為，歐方終裁措施缺乏事實與法律基礎，違反世貿規則。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777533_1_20241104185949.jpg&q=30" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  中方將歐盟對中國電動車反補貼終裁措施，起訴至世貿組織爭端解決機制。
  <br>
-  <br/>
+  <br>
   商務部表示，中方早前已將歐盟初裁措施訴至世貿，雖然歐盟成員國政府、業界和民眾等有關各方提出大量反對意見，歐方仍發布相關終裁措施，對中國電動車徵收高額反補貼稅，中方堅決反對，為維護電動車產業發展利益和全球綠色轉型合作，中國決定就終裁措施提起訴訟。
-  <br/>
-  <br/>
+  <br>
+  <br>
   中方認為，歐方終裁措施缺乏事實與法律基礎，違反世貿規則，是濫用貿易救濟措施，是藉反補貼之名行貿易保護主義之實，敦促歐方正視錯誤，立即糾正違規做法，共同維護全球電動車產業鏈供應鏈穩定，以及中歐經貿合作大局。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777533-20241104.htm" rel="nofollow">
@@ -1839,40 +1923,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777533-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 18:59:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     人大常委會審議增加地方政府債務限額置換存量隱性債務議案
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777531-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="新華社報道，人大常委會會議審議國務院關於提請審議增加地方政府債務限額置換存量隱性債務的議案。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777531_1_20241104183200.jpg&q=45" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  十四屆全國人大常委會第十二次會議在北京舉行。
  <br>
-  <br/>
+  <br>
   新華社報道，會議審議國務院關於提請審議增加地方政府債務限額置換存量隱性債務的議案。
-  <br/>
-  <br/>
+  <br>
+  <br>
   受國務院委託，財政部部長藍佛安作出說明。全國人大財政經濟委員會副主任委員許宏才，作出關於該議案的審查結果報告。
-  <br/>
-  <br/>
+  <br>
+  <br>
   今次會議由本周一至周五舉行，市場期待當局公布財政增量刺激政策細節，外電指中央或公布10萬億元人民幣救市措施。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777531-20241104.htm" rel="nofollow">
@@ -1887,40 +1971,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777531-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 18:58:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     王毅晤秋葉剛男　冀日方切實維護中日關係政治基礎
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777532-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="王毅與秋葉剛男舉行中日高級別政治對話機制磋商。（外交部網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777532_1_20241104184748.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  中共中央政治局委員、中央外辦主任王毅，在北京與日本內閣特別顧問、國家安保局長秋葉剛男，舉行中日高級別政治對話機制磋商。
  <br>
-  <br/>
+  <br>
   王毅表示，中日關係處於改善發展關鍵階段，日方應建立客觀理性對華認知，恪守在台灣問題上的政治承諾，切實維護中日關係政治基礎，以實際行動落實「互為合作夥伴、互不構成威脅」的重要共識，推動雙邊關係行穩致遠。
-  <br/>
-  <br/>
+  <br>
+  <br>
   王毅強調，中國堅定不移走和平發展道路，奉行防禦性國防政策，將繼續堅持公道公正，防止地區生戰生亂，希望各方共同抵制域外勢力在本地區煽動對立對抗，以實際行動維護地區和平穩定。
-  <br/>
-  <br/>
+  <br>
+  <br>
   外交部表示，雙方認為中日兩個重要鄰國發展緊密關聯、經濟高度互補，不應也不會脫鉤，將共同促進經貿合作健康發展和產供鏈穩定暢通。至於福島核污水排海問題，雙方同意加速推動雙邊政治共識的後續落實工作。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777532-20241104.htm" rel="nofollow">
@@ -1935,37 +2019,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777532-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 18:51:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     李家超抵達上海　明出席進博會開幕式並見證滬港合作項目簽約
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777515-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777515_2_20241104183550.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  行政長官李家超抵達上海，準備出席第七屆中國國際進口博覽會。
  <br>
-  <br/>
+  <br>
   李家超在社交專頁表示，他明天將出席進博會開幕式及參觀香港展區，以及在「投資香港推介大會—上海專場」鼓勵更多上海企業到港投資，利用香港作為跳板開拓國際市場，並見證多項滬港兩地重點合作項目的簽約儀式，進一步推動滬港合作。
-  <br/>
-  <br/>
+  <br>
+  <br>
   訪問期間，李家超會與已經落戶和有意落戶香港的上海企業代表見面交流。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777515-20241104.htm" rel="nofollow">
@@ -1980,33 +2064,33 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777515-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 16:51:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     外交部：王毅與秋葉剛男舉行新一輪中日高級別政治對話
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777505-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<br/>
+   
+   
+    
 <div class="itemFullText">
  在北京，外交部發言人毛寧證實，中共中央政治局委員、中央外辦主任王毅，與訪京的日本國家安保局長秋葉剛男舉行新一輪中日高級別政治對話，有關的情況會及時發佈消息。
  <br>
-  <br/>
+  <br>
   日本傳媒之前報道，秋葉剛男訪華，將同王毅商討日中舉行首腦峰會，又會討論北韓向俄羅斯派兵等問題。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777505-20241104.htm" rel="nofollow">
@@ -2021,37 +2105,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777505-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 15:45:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     總理李強將主持大湄公河次區域經濟合作第八次領導人會議
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777498-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="總理李強將主持大湄公河次區域經濟合作第八次領導人會議。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777498_1_20241104152932.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  在北京，外交部發言人毛寧表示，大湄公河次區域經濟合作第八次領導人會議，將本月6至7日在雲南昆明舉行，國務院總理李強將主持會議，柬埔寨、老撾、緬甸、泰國、越南等湄公河五國領導人及亞洲開發銀行行長將應邀參加。
  <br>
-  <br/>
+  <br>
   而緬甸官方傳媒報道，軍政府領袖敏昂萊將訪問中國，並出席會議。這是自2021年政變以來，敏昂萊首次訪華。
-  <br/>
-  <br/>
+  <br>
+  <br>
   報道指出，他將與中國當局進行會議與討論，並在強化雙邊關係，以及數個產業的經濟與發展上進行合作。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777498-20241104.htm" rel="nofollow">
@@ -2066,37 +2150,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777498-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 15:23:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     馬英九邀請大陸七所大學共40名師生訪問台灣
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777492-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="馬英九曾於2023年和2024年兩次率台灣青年學生參訪大陸。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777492_1_20241104151316.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  央視報道，馬英九基金會執行長蕭旭岑宣佈，馬英九已邀請包括大陸北京大學、清華大學、復旦大學、中山大學和浙江大學等七所大學共40名師生，11月27日訪問台灣九日，與台灣六所大學交流，並參訪當地著名景點。
  <br>
-  <br/>
+  <br>
   今次大陸高校師生團成員包括就讀於北京體育大學的乒乓球奧運冠軍馬龍、就讀清華大學的射擊奧運冠軍楊倩。
-  <br/>
-  <br/>
+  <br>
+  <br>
   蕭旭岑表示，在兩岸關係空前緊張，格外需要民間交流的時刻，大陸這幾所著名大學的同學來訪，實地與臺灣的大學同學互動，有助於紓緩兩岸氣氛，傳達更多和平訊息。讓兩岸的年輕人多往來、多接觸，對兩岸關係發展非常重要。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777492-20241104.htm" rel="nofollow">
@@ -2111,35 +2195,35 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777492-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 14:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     澳門格蘭披治大賽車月中舉行　業界冀發揮聯動經濟效應
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777481-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="黃輝表示，業界最近因應市場變化，推出與澳門大賽車相關的不同旅遊產品，反應不俗。（鄭月明攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777481_1_20241104150230.jpg&q=85" style="width:100%;height:auto"/>
-<img alt="導遊楊先生表示，即使不是觀看賽車的團客，亦會在賽車期間了解這項年度盛事。（鄭月明攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777481_2_20241104150230.jpg&q=65" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="導遊楊先生表示，即使不是觀看賽車的團客，亦會在賽車期間了解這項年度盛事。（鄭月明攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777481_2_20241104150230.jpg&amp;q=65">
+<br>
 <div class="itemFullText">
  澳門格蘭披治大賽車本月14至17日舉行，澳門旅遊業界與賽車會都整裝待發，希望將這項有71年歷史的賽車盛事，發揮好聯動經濟效應。
  <br>
-  <br/>
+  <br>
   一直有參與組織賽事的負責人說，澳門這個國際賽車舞台，既匯聚人才，同樣可展現出國家汽車工業的發展。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777481-20241104.htm" rel="nofollow">
@@ -2154,37 +2238,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777481-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 12:32:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     上海進博會今年有超過300家香港企業參加
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777480-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="第七屆中國國際進口博覽會明天起一連6日在上海舉行。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777480_1_20241104124043.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  第七屆中國國際進口博覽會明日起一連6日在上海舉行，今年有超過300家香港企業參與。
  <br>
-  <br/>
+  <br>
   有從事藥械和生物科技的香港企業首度參展，希望接觸到有意透過香港開拓海外和內地市場的藥企，協助加快完成藥物註冊。
-  <br/>
-  <br/>
+  <br>
+  <br>
   有企業創辦人說，公司需要建立銷售網絡推廣科研產品，期望今次成功聯繫更多內地大型藥企和投資方，加快科研成果轉化。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777480-20241104.htm" rel="nofollow">
@@ -2199,34 +2283,34 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777480-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 12:30:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     神十八帶回約34.6公斤太空樣品　涉及28項科學實驗項目
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777473-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="中國空間站第七批空間科學實驗樣品隨神舟十八號飛船順利返回。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777473_1_20241104115642.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  神舟十八號載人飛船返回艙凌晨在內蒙古東風著陸場成功著陸，中國空間站第七批空間科學實驗樣品隨神舟十八號飛船順利返回。今次下行科學實驗樣品共55種，涉及空間生命科學、空間材料科學、微重力燃燒科學等領域28項科學實驗項目，總重量約34.6公斤。
  <br>
-  <br/>
+  <br>
   其中，生命類科學實驗樣品今早已經轉運至北京的中國科學院空間應用工程與技術中心。作為載人航天工程空間應用系統總體單位，中國科學院空間應用工程與技術中心對返回的生命實驗樣品基本狀態進行檢查確認後，交付科學家開展後續研究。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777473-20241104.htm" rel="nofollow">
@@ -2241,37 +2325,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777473-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 11:53:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     崔建春：中央對一國兩制堅定不移是香港發展最堅實基礎
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777472-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777472_1_20241104123652.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  香港法律周一連5日舉行，主題為「香港普通法制度：中外機遇之世界級跳板」。外交部駐港特派員崔建春致辭表示，行政長官李家超發表新一份施政報告，銳意改革，惠及市民。他說香港有一國兩制優勢，可聯繫內地及國際，促進內地與國際間的經貿，強調中央對一國兩制堅定不移，是香港發展最堅實的基礎， 而香港是營商及生活的好地方，要說好香港故事。
  <br>
-  <br/>
+  <br>
   崔建春表示，作為中國唯一實行普通法的司法管轄區，以及中國高水準對外開放的窗口，外界視普通法有利營商環境，認為香港可團結不同的市場參與者，並擴大國際聯繫。本港地理位置具備優勢，東西南北交匯，可建立多元文化互動的橋樑，促進法律援助、合作和法律經驗交流。
-  <br/>
-  <br/>
+  <br>
+  <br>
   崔建春表示，中國經濟今年以來呈現出穩中向好的良好態勢，正朝向國民生產總值5%增長方向進發，有信心可達致該指標。他說沒有經濟增長就沒有新增職位，就沒有穩定社會。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777472-20241104.htm" rel="nofollow">
@@ -2286,33 +2370,33 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777472-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 11:32:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     報道指日本國安局長秋葉剛男訪華與王毅會談
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777470-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<br/>
+   
+   
+    
 <div class="itemFullText">
  日本傳媒報道，日本國家安全保障局長秋葉剛男昨日抵達北京，今日將同中共中央政治局委員兼外長王毅會談，預計為日中舉行首腦峰會舖路，又會討論北韓向俄羅斯派兵。
  <br>
-  <br/>
+  <br>
   報道說，中國國家主席習近平預計將在本月訪問秘魯和巴西，分別出席亞太經濟合作組織和20國集團的首腦會議，日中雙方正協調習近平屆時與首相石破茂舉行峰會。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777470-20241104.htm" rel="nofollow">
@@ -2327,40 +2411,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777470-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 11:20:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     習近平回信「老楊樹宣講匯」強調人民城市人民建　人民城市為人民
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777458-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="習近平回信給上海市楊浦區「老楊樹宣講匯」全體人員。（網絡截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777458_1_20241104101844.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  中共總書記、國家主席、中央軍委主席習近平回信給上海市楊浦區「老楊樹宣講匯」全體人員。
  <br>
-  <br/>
+  <br>
   習近平指出，他們結合親身經歷，向市民講歷史，講黨的創新理論，講新時代上海城市發生的可喜變化，是很有意義的事情。
-  <br/>
-  <br/>
+  <br>
+  <br>
   習近平強調，人民城市人民建，人民城市為人民，希望他們繼續講好身邊的故事，帶動更多市民深入踐行人民城市理念，積極參與城市建設和治理，共建和諧美麗城市，共創幸福美好生活。
-  <br/>
-  <br/>
+  <br>
+  <br>
   習近平2019年在上海市考察時，首次提出「人民城市人民建，人民城市為人民」的理念，之後多次對上海人民城市建設作出重要指示。「老楊樹宣講匯」由長期工作生活在該區的老幹部、老戰士和老教師等組成，向基層群眾開展黨的創新理論、人民城市理念等宣講活動。近日，該團隊寫信給習近平。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777458-20241104.htm" rel="nofollow">
@@ -2375,45 +2459,45 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777458-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 10:16:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     澳門格蘭披治大賽車月中舉行　旅遊界指旅遊套餐反應熱烈
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777451-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="旅遊局局長文綺華稱，年度大賽車活動已成為澳門推廣旅遊產業的國際金名片。（鄭月明攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777451_1_20241104095025.jpg&q=70" style="width:100%;height:auto"/>
-<img alt="體育局局長張子軒稱，因應澳門格蘭披治賽事，培訓近千名人員。（鄭月明攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777451_2_20241104095025.jpg&q=60" style="width:100%;height:auto"/>
-<img alt="鍾國榮說，澳門大賽車區域賽同樣是一項世界盃，具有吸引力。（鄭月明攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777451_3_20241104095025.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="體育局局長張子軒稱，因應澳門格蘭披治賽事，培訓近千名人員。（鄭月明攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777451_2_20241104095025.jpg&amp;q=60">
+<img alt="鍾國榮說，澳門大賽車區域賽同樣是一項世界盃，具有吸引力。（鄭月明攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777451_3_20241104095025.jpg&amp;q=85">
+<br>
 <div class="itemFullText">
  澳門第71屆格蘭披治大賽車本月14至17日舉行，澳門旅遊業界與賽車會整裝待發，希望這個屬澳門金名片的傳統盛事，發揮好聯動經濟效應。
  <br>
-  <br/>
+  <br>
   澳門每年的格蘭披治大賽車，除了車手雲集，當局近年在賽事期間亦舉辦美食節等活動，吸引旅客。旅遊局局長文綺華說，為配合好這項體育盛事，更好發揮旅遊經濟作用，政府和業界不斷合作，延伸旅客進入社區的不同體驗，讓熟悉與不熟悉賽車的旅客都對澳門賽車文化產生興趣。
-  <br/>
-  <br/>
+  <br>
+  <br>
   今年9月上任的體育局局長張子軒亦認為，澳門的大賽車文化值得承傳，未來會多與業界溝通，如何將原有的成功賽車品牌和組織文化，與澳門經濟適度多元發展結合，拉動澳門各行各業，感受大賽車的好處。
-  <br/>
-  <br/>
+  <br>
+  <br>
   澳門旅遊業議會理事長黃輝表示，業界因應疫後市場變化，以及配合政府發展體育之城的方向，設計了針對來觀看賽事的旅客，透過橫琴團進團出新政策設計的旅遊套餐，反應熱烈。他們正準備向大會爭取更多門票，以吸引更多團客到澳門。
-  <br/>
-  <br/>
+  <br>
+  <br>
   澳門格蘭披治大賽車組委會專責賽事小組組長鍾國榮說，今屆大賽車首次引入區域方程式賽事，是一項年輕車手爭奪的世界盃，與以往的三級方程式賽事同樣具有吸引力。他認為澳門為這4天賽事搭建起國際舞台，既匯聚人才，也成為展示國家汽車工業發展的平台。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777451-20241104.htm" rel="nofollow">
@@ -2428,43 +2512,43 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777451-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 09:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     城大創辦生物科技公司首度參展進博會　冀聯繫大型藥企和投資方
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777450-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="香港貿發局設立兩個展區，由50多家香港企業推廣產品和服務。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777450_1_20241104102627.jpg&q=45" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  第七屆中國國際進口博覽會明天起一連6日在上海舉行，今年有超過300家香港企業參與，佔參展商總數十分之一；香港貿發局設立兩個展區，由50多家香港企業推廣產品和服務，涵蓋食品、創科、專業服務和物流等領域。
  <br>
-  <br/>
+  <br>
   其中總部設於香港的滬港中科國際生物科技有限公司，2019年成立，與科學園共同設立實驗室，為藥物企業和研發機構提供藥效和安全評價服務，今年首度參展。
-  <br/>
-  <br/>
+  <br>
+  <br>
   行政總裁李明說，公司技術規模今年已經成熟，目前已經與個別北美、澳洲和內地等藥物研發企業建立合作意向關係，希望今次接觸到其他有意透過香港開拓海外和內地市場的醫藥企業，協助應對藥物研發過程的技術問題，加快完成註冊。
-  <br/>
-  <br/>
+  <br>
+  <br>
   今屆大會繼續設有創新孵化專區，為境外初創企業搭建落戶上海渠道，其中由城市大學科研團隊創辦、政府創新及科技基金支持的「華港龍生物科技」，研發治療糖尿病和抗衰老等藥物，今屆首度參展。
-  <br/>
-  <br/>
+  <br>
+  <br>
   創辦人伍子龍說，公司研發不同產品，但需要熟悉分銷和建立銷售網絡的專業服務，又指長三角地區的藥械技術方面，發展較大灣區藥企成熟，配套器械齊備，希望今次可以成功聯繫更多內地和海外大型藥企和投資方，接觸分銷商等合作伙伴，加快科研成果產業化和拓展市場的步伐。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777450-20241104.htm" rel="nofollow">
@@ -2479,37 +2563,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777450-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 09:37:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     神舟十八號航天員乘組飛抵北京　將進入隔離恢復期
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777448-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777448_1_20241104100641.jpg&q=70" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  中國載人航天工程辦公室表示，圓滿完成神舟十八號載人飛行任務的航天員乘組，乘坐飛機平安抵達北京。空間站應用與發展階段飛行任務總指揮部領導到機場迎接。
  <br>
-  <br/>
+  <br>
   3名航天員葉光富、李聰和李廣蘇，抵京後將進入隔離恢復期，進行全面的醫學檢查和健康評估，並安排休養。
-  <br/>
-  <br/>
+  <br>
+  <br>
   神舟十八號載人飛船返回艙凌晨在內蒙古東風著陸場成功著陸，3名航天員經檢查確認身體狀態良好，飛行任務取得圓滿成功。他們在出艙後都感謝祖國和人民，並希望再接再厲，為建設航天強國再貢獻力量。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777448-20241104.htm" rel="nofollow">
@@ -2524,40 +2608,40 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777448-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 09:36:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     歐盟對華電動汽車加額外關稅　王文濤︰中歐團隊進行第二階段磋商
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777443-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="王文濤會見法國外交部外貿部長級代表普里馬。（商務部網頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777443_1_20241104090746.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  歐盟對從中國進口的電動汽車加徵額外關稅，商務部部長王文濤表示，中歐技術團隊正在進行第二階段磋商。雖然貿易政策問題屬於歐委會許可權，但法國作為歐盟重要成員國，應發揮積極作用，推動歐委會切實展現誠意，與中方相向而行，盡快達成雙方業界均可接受的解決方案。
  <br>
-  <br/>
+  <br>
   王文濤在上海開展第七屆進博會籌備工作期間，會見應邀參加進博會的法國外交部外貿部長級代表普里馬，表示歐盟對華電動汽車反補貼調查嚴重阻礙中歐汽車產業合作，是中歐業界當前重大關切。
-  <br/>
-  <br/>
+  <br>
+  <br>
   王文濤強調，與歐盟在沒有產業申請的情況下就貿然發起反補貼調查完全不同的是，中方開展的白蘭地、豬肉和乳製品等三起貿易救濟調查都是應國內產業申請依法發起，完全符合WTO規則和中國法律法規。中方將繼續嚴格依法依規開展調查，保障包括法國在內的歐盟成員國企業合法權利，並基於事實和證據作出裁定。中方願與歐委會共同尋求妥善解決方案。
-  <br/>
-  <br/>
+  <br>
+  <br>
   普里馬表示，農食產品是法國對華貿易重要領域，法方在中方對歐白蘭地等產品發起的調查有重要關切，不希望歐中當前的貿易緊張關係繼續升級，期待雙方通過磋商解決貿易分歧。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777443-20241104.htm" rel="nofollow">
@@ -2572,37 +2656,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777443-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 09:02:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     王文濤會見澳洲貿易部長　冀澳方公平公正對待中國企業
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777442-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="王文濤會見應邀參加進博會的澳洲貿易部長法瑞爾。（商務部網頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777442_1_20241104090834.jpg&q=80" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  商務部部長王文濤在上海開展第七屆進博會籌備工作期間，會見應邀參加進博會的澳洲貿易部長法瑞爾，就深化中澳經貿關係，支援澳企業參加進博會等議題進行務實、建設性的討論。
  <br>
-  <br/>
+  <br>
   王文濤指出，雙方應落實好兩國領導人重要共識，在平等互利基礎上推動解決彼此經貿關切，將兩國經濟的互補性轉化為更多務實合作成果。他說，今年參加進博會的澳洲企業數量創新高，顯示澳洲工商界對華經貿合作的熱情和信心。中國經濟繼續保持向好勢頭，將為澳洲企業創造更多商機。中方希望澳方不斷完善營商環境，公平公正對待中國企業。
-  <br/>
-  <br/>
+  <br>
+  <br>
   法瑞爾表示，澳洲對發展對華經貿關係高度重視，今次澳方派出超過250家企業的大規模代表團參加進博會，顯示澳洲企業認可中國市場的巨大機遇。澳方看好中國經濟前景，願致力於對華長期合作。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777442-20241104.htm" rel="nofollow">
@@ -2617,37 +2701,37 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777442-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 08:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     神十八任務取得圓滿成功　葉光富成為中國在軌飛行時間最長航天員
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777433-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="神舟十八號航天員葉光富、李聰、李廣蘇（從左至右）安全順利出艙。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777433_1_20241104072133.jpg&q=85" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<br>
 <div class="itemFullText">
  神舟十八號載人飛船返回艙凌晨在內蒙古東風著陸場成功著陸，三名航天員葉光富、李聰和李廣蘇，經檢查確認身體狀態良好，飛行任務取得圓滿成功。
  <br>
-  <br/>
+  <br>
   三名航天員在出艙後都感謝祖國和人民，並希望再接再厲，為建設航天強國再貢獻力量。
-  <br/>
-  <br/>
+  <br>
+  <br>
   神舟十八號載人飛船是今年4月25日，從酒泉衛星發射中心發射升空，隨後與天和核心艙對接形成組合體。3名航天員在軌駐留192天，期間進行了兩次出艙活動，刷新了中國航天員單次出艙活動時間紀錄。而葉光富參與兩次太空任務，累計在軌飛行超過一年，成為中國在軌飛行時間最長的航天員。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777433-20241104.htm" rel="nofollow">
@@ -2662,42 +2746,42 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777433-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 07:21:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
+   
+  
+  
+   
     葉光富、李聰和李廣蘇冀為建設航天強國再貢獻力量
-   </title>
-   <link>
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777427-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="葉光富說，再次感受到中國航天事業日新月異的發展變化。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777427_2_20241104031156.jpg&q=90" style="width:100%;height:auto"/>
-<img alt="李聰說，探索太空永無止境。他們一定盡快恢復，爭取早日投入訓練。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777427_3_20241104031156.jpg&q=90" style="width:100%;height:auto"/>
-<img alt="李廣蘇說，既有回家的興奮和開心，又有對太空的留戀和不捨。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777427_4_20241104031156.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
+   
+   
+    
+<img alt="李聰說，探索太空永無止境。他們一定盡快恢復，爭取早日投入訓練。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777427_3_20241104031156.jpg&amp;q=90">
+<img alt="李廣蘇說，既有回家的興奮和開心，又有對太空的留戀和不捨。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777427_4_20241104031156.jpg&amp;q=90">
+<br>
 <div class="itemFullText">
  神舟十八號飛船返回艙，凌晨一時許在東風著陸場成功著陸。三名航天員葉光富、李聰和李廣蘇，經檢查確認身體狀態良好後陸續出艙。
  <br>
-  <br/>
+  <br>
   首先出艙的是兩次進駐中國空間站的指令長葉光富說，再次重返空間站，再次感受到中國航天事業日新月異的發展變化。他們會再接再厲，為建設航天強國再立新功，並相信在不久的將來，中國人在軌駐留時間的紀錄將會很快被刷新。
-  <br/>
-  <br/>
+  <br>
+  <br>
   第二位出艙的李聰說，雖然完成這次任務，但探索太空永無止境。他們一定盡快恢復，爭取早日投入訓練，希望在建設航天強國的新征程上貢獻自己的力量。
-  <br/>
-  <br/>
+  <br>
+  <br>
   最後出艙的李廣蘇說，既有回家的興奮和開心，又有對太空的留戀和不捨，此刻最大的感受是為偉大祖國感到驕傲。建設航天強國要靠一代一代航天員繼續奮鬥，他們一定會強化使命擔當。
- </br>
+ 
 </div>
-<br/>
-<hr/>
+<br>
+<hr>
 <p>
  原始網址 Original URL：
  <a href="https://news.rthk.hk/rthk/ch/component/k2/1777427-20241104.htm" rel="nofollow">
@@ -2712,98 +2796,14 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
+</p>]]&gt;
+   
+   
     https://news.rthk.hk/rthk/ch/component/k2/1777427-20241104.htm
-   </guid>
-   <pubDate>
+   
+   
     Mon, 04 Nov 2024 02:50:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    神十八飛船返回艙成功著陸　確認三名航天員身體狀態良好
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1777426-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="返回艙著陸後，工作人員在進行檢測和艙內氣體採樣，而現場醫監醫保人員就對航天員進行身體檢查。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777426_1_20241104025534.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 神舟十八號飛船的返回艙，載著三名航天員葉光富、李聰和李廣蘇，成功在東風著陸場著陸。空中地面多路搜救回收力量隨即陸續前往返回艙的著陸地點。目前，返回艙艙門已經打開，工作人員在進行檢測和艙內氣體採樣，而現場醫監醫保人員已對航天員進行檢查，確認三人身體狀態良好，三人亦報告感覺良好，他們將會陸續出艙。
- <br>
-  <br/>
-  神舟十八號載人飛船在昨日下午4時許，與中國空間站組合體順利分離，並環繞地球飛行約5圈共7個半小時後，在凌晨12時許進行軌道艙和返回艙分離，之後進入制動離軌、自由滑行、再入大氣層、開傘著陸等四個階段，約50分鐘後在凌晨1時24分在東風著陸場成功著陸。
- </br>
+   
+  
+ 
 </div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1777426-20241104.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1777426-20241104.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
-    https://news.rthk.hk/rthk/ch/component/k2/1777426-20241104.htm
-   </guid>
-   <pubDate>
-    Mon, 04 Nov 2024 01:55:00 +0800
-   </pubDate>
-  </item>
-  <item>
-   <title>
-    神舟十八號飛船返回艙在東風著陸場成功著陸
-   </title>
-   <link>
-    https://news.rthk.hk/rthk/ch/component/k2/1777425-20241104.htm
-   </link>
-   <description>
-    <![CDATA[<img alt="神舟十八號飛船返回艙凌晨1時25分左右在東風著陸場成功著陸。（央視新聞圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777425_1_20241104012934.jpg&q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
- 神舟十八號飛船的返回艙，載著三名航天員葉光富、李聰和李廣蘇，成功在東風著陸場著陸。空中地面多路搜救回收力量之前已前往預定著陸點待命。
- <br>
-  <br/>
-  神舟十八號載人飛船在昨日下午4時許，與中國空間站組合體順利分離，並環繞地球飛行約5圈共7個半小時後，在凌晨12時許進行軌道艙和返回艙分離，之後進入制動離軌、自由滑行、再入大氣層、開傘著陸等四個階段，約50分鐘後在凌晨1時25分左右返回東風著陸場。
- </br>
-</div>
-<br/>
-<hr/>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1777425-20241104.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1777425-20241104.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]>
-   </description>
-   <guid isPermaLink="true">
-    https://news.rthk.hk/rthk/ch/component/k2/1777425-20241104.htm
-   </guid>
-   <pubDate>
-    Mon, 04 Nov 2024 01:26:00 +0800
-   </pubDate>
-  </item>
- </channel>
-</rss>
