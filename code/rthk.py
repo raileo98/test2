@@ -305,7 +305,7 @@ async def process_article(fg, category, article):
             return  # 跳過該文章，繼續處理下一篇文章
         
         article_content = article_response.text.strip()
-        article_soup = BeautifulSoup(article_content, 'lxml')
+        article_soup = BeautifulSoup(article_content, 'lxml', ensure_head_body=False)
 
         feedDescription = article_soup.select_one('.itemFullText').prettify().strip()
 
@@ -384,7 +384,7 @@ async def process_article(fg, category, article):
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         
-        feedDescription = BeautifulSoup(feedDescription, 'lxml').prettify().strip()
+        feedDescription = BeautifulSoup(feedDescription, 'lxml', ensure_head_body=False).prettify().strip()
         
         fe.title(articleTitle)
         fe.link(href=articleLink)
