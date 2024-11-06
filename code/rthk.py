@@ -219,11 +219,11 @@ cleaner = Cleaner(
     scripts=True,  # 刪除所有 <script> 標籤
     javascript=True,  # 刪除所有 JavaScript
     comments=True,  # 刪除所有註解
-    style=True,  # 刪除所有 <style> 標籤
+    # style=True,  # 刪除所有 <style> 標籤
     safe_attrs_only=True,  # 僅保留安全屬性
     remove_unknown_tags=True,
     page_structure=True,
-    inline_style=True,
+    # inline_style=True,
     add_nofollow=True,
 )
 
