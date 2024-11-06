@@ -1,39 +1,51 @@
-<div>
- 
-  
+<?xml version="1.0" encoding="utf-8"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+ <channel>
+  <title>
    rthk - Finance
-  
-  
+  </title>
+  <link>
    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&amp;cat=12&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  
-  
+  </link>
+  <description>
    rthk - Finance
-  
-  
+  </description>
+  <copyright>
    © 香港電台 RTHK
-  
-  
+  </copyright>
+  <docs>
    http://www.rssboard.org/rss-specification
-  
-  
+  </docs>
+  <generator>
    python-feedgen
-  
-  <img>
-  
+  </generator>
+  <image>
+   <url>
+    <![CDATA[https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png]]>
+   </url>
+   <title>
+    rthk - Finance
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&amp;cat=12&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
+   </link>
+  </image>
+  <language>
    zh-HK
-  
-  
+  </language>
+  <webMaster>
    webmaster@rthk.hk
-  
-  
-   
+  </webMaster>
+  <item>
+   <title>
     Local stocks drop at open
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777763-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index fell 1.02 percent to open at 20,791. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777763_1_20241106105412.jpg&amp;q=25">
 <br>
 <div class="itemFullText">
  Most Asian markets rose with the dollar and bitcoin on Wednesday as traders await the outcome of the knife-edge US presidential election, with bets increasing on a Donald Trump victory as early results rolled in.
@@ -61,24 +73,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777763-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 10:54:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks push higher in Election Day session
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777725-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="All 11 sectors of the S&amp;P 500 pushed higher, led by consumer discretionary and industrial stocks. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777725_1_20241106060051.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Wall Street stocks rose on Tuesday, bouncing back from the prior session's declines in a benign session held as voters went to the polls in the US presidential election.
@@ -121,24 +136,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777725-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:00:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HSI closes at three-week high
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777679-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Hong Kong stocks close above 21,000. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777679_1_20241105181756.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Local stocks on Tuesday overcame early losses to finish more than 2 percent higher, thanks partly to fresh confidence towards the Chinese economy.
@@ -172,24 +190,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777679-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 18:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK market opens lower; all eyes on US election, Fed
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777586-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index lost 0.77 percent in the opening minutes. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777586_1_20241105092240.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Hong Kong market opened lower on Tuesday, with investors' attention focused on the US presidential election, and a central bank meeting this week.
@@ -217,24 +238,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777586-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 09:48:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks fall amid US presidential election jitters
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777565-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Wall Street closed lower, with investors sidelined ahead of the presidential election. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777565_1_20241105053112.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  US stocks closed slightly lower after a choppy session on Monday, as investors prepared for a crucial week in which Americans will elect a new president and the Federal Reserve will release a policy statement.
@@ -271,24 +295,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777565-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 05:31:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HSI, mainland stocks finish higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777524-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Hong Kong stocks put on 61 points on Monday. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777524_1_20241104180522.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Local stocks edged higher on Monday as investors looked towards a US presidential election that remains too close to call.
@@ -316,24 +343,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777524-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 18:05:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Exchange Fund sees record income for first nine months
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777488-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777488_1_20241104133929.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Hong Kong's Exchange Fund recorded a record-breaking investment income of HK$224.7 billion for the first nine months of the year, the Monetary Authority (HKMA) revealed on Monday.
@@ -379,24 +409,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777488-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 13:39:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK market higher ahead of US election, Fed meeting
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777434-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index was 0.1 percent higher in early trade. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777434_1_20241104063640.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong stocks rose in early trade on Monday in a week that's expected to be dominated by the US presidential election and a Federal Reserve meeting.
@@ -424,24 +457,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777434-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:05:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Nvidia to join key US stock index
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777296-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Shares of Nvidia have climbed over 180 percent this year. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777296_1_20241102102833.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Chip giant Nvidia will join the Dow Jones Industrial Average, the Wall Street index announced on Friday, underscoring the importance of artificial intelligence in the US economy.
@@ -484,24 +520,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777296-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 10:28:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US markets bounce back, lifted by Amazon
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777288-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="US markets closed higher on growing hopes of an interest rate cut next month. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777288_1_20241102084932.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Wall Street stocks rebounded on Friday from mixed tech earnings and investor jitters less than a week before a neck-and-neck US presidential election.
@@ -553,24 +592,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777288-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 08:49:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Retail sales drop 6.9 percent in September
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777220-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The government says a change in consumer patterns will continue to affect the retail sector in the near future. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777220_1_20241101165645.jpg&amp;q=10">
 <br>
 <div class="itemFullText">
  Retail sales were down 6.9 percent in September compared to the same month last year, marking the seventh consecutive month of year-on-year declines.
@@ -616,24 +658,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777220-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 17:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks end higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777218-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index closed up 0.9 percent at 20,506. Image: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777218_1_20241101164358.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended higher on Friday, with the benchmark Hang Seng Index up 0.9 percent at 20,506.
@@ -658,24 +703,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777218-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 16:43:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong to relaunch Islamic finance drive: Paul Chan
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777149-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777149_1_20241101102221.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Financial Secretary Paul Chan says Hong Kong is ready to relaunch its drive to develop Islamic finance, after a three-day trip to the Saudi capital Riyadh opened his eyes to the untapped potential of developing more financial products that comply with Islamic law.
@@ -750,24 +798,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777149-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 10:42:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK market opens higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777143-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index opened 0.54 percent higher. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777143_1_20241101095549.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong stocks opened higher on Friday, gaining more than 0.5 percent in the opening minutes.
@@ -792,24 +843,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777143-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 09:55:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Boeing sweetens offer for striking workers
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777126-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The union representing more than 33,000 striking workers in the Seattle area, has endorsed a new offer from Boeing. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777126_1_20241101082924.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  US aviation giant Boeing has improved the conditions in its contract offer to thousands of striking workers, with a 38 percent wage increase over four years and a ratification bonus, their union said on Thursday.
@@ -855,24 +909,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777126-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 08:29:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Wall Street slumps on sell-off of tech giants
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777107-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Wall Street ended the day lower, dragged down by big tech stocks. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777107_1_20241101054857.jpg&amp;q=70">
 <br>
 <div class="itemFullText">
  Major US stock indexes closed lower on Thursday after Microsoft and Meta Platforms highlighted growing artificial intelligence costs that could hit their earnings, curbing enthusiasm for megacaps that have fueled the market rally this year.
@@ -921,24 +978,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777107-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 05:48:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks finish in the red
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777071-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index is down 0.3 percent on Thursday. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777071_1_20241031192528.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Local stocks finished lower on Thursday following overnight losses on Wall Street.
@@ -966,24 +1026,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777071-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 19:25:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK economy grows 1.8 percent in Q3
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777041-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The government says the local economy will continue to grow. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777041_1_20241031170822.jpg&amp;q=65">
 <br>
 <div class="itemFullText">
  Hong Kong's economy grew by 1.8 percent in the third quarter on a year-on-year basis, according to official figures released on Thursday.
@@ -1029,24 +1092,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777041-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 17:30:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     COMAC opens new office in Hong Kong
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777021-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="COMAC has signed logistics agreements with Hong Kong-based HAECO in response to growing maintenance demands for the C919 and ARJ21. Photo: Xinhua" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777021_1_20241031152623.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  A Chinese aircraft manufacturer said on Thursday that it has opened its second office outside the mainland in Hong Kong.
@@ -1089,24 +1155,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777021-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 15:31:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Bank of Japan warns of 'high uncertainties'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777014-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="For a long time, the BoJ was an outlier among major central banks, sticking to its ultra-loose policy to spur inflation. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777014_1_20241031144239.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  The Bank of Japan warned on Thursday of "high uncertainties" following the ruling party's worst election result in 15 years, as it kept interest rates unchanged.
@@ -1158,24 +1227,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777014-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 14:42:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     China factory output expands first time in 6 months
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776995-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The manufacturing sector returned to the expansion zone for the first time since April. Photo: Xinhua" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776995_1_20241031123034.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  China's manufacturing output returned to the expansion zone in October after five consecutive months of contraction, official data showed on Thursday, signalling positive news for the world's second largest economy.
@@ -1212,24 +1284,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776995-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 12:30:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong and mainland stocks open higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776972-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index edged up at the start of trading on Thursday. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776972_1_20241031101828.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong's Hang Seng Index gained 33.56 points, or 0.16 percent, to open at 20,414 points on Thursday.
@@ -1257,24 +1332,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776972-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 10:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks slip as markets assess company earnings
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776935-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="All three major indices on Wall Street dipped on Wednesday. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776935_1_20241031051545.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Wall Street stocks closed lower on Wednesday despite positive US economic data, as investors assessed company earnings including reports after the bell by major tech names Facebook-parent Meta and Microsoft.
@@ -1329,24 +1407,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776935-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 05:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     BYD beats Tesla in quarterly revenue for 1st time
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776912-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="A BYD YangWang U8 is displayed at the 2024 Paris Auto Show. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776912_1_20241030211618.jpg&amp;q=65">
 <br>
 <div class="itemFullText">
  Electric vehicle giant BYD reported surging sales on Wednesday, surpassing global rival Tesla in quarterly revenue for the first time as its push into overseas markets advances.
@@ -1386,24 +1467,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776912-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 21:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'Debut of Saudi ETFs tracking HK shares a milestone'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776873-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776873_1_20241030165522.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Financial Secretary Paul Chan on Wednesday said the debut of Saudi Arabia's first exchange-traded funds (ETFs) that track Hong Kong-listed equities will strengthen cooperation between the two places.
@@ -1440,24 +1524,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776873-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 17:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HKEX to open Riyadh office in 2025
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776854-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="HKEX has offices in Beijing, Shanghai, London, New York and Singapore. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776854_1_20241030151703.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Hong Kong’s stock market operator on Wednesday said it will open an office in Riyadh next year, boosting its global coverage.
@@ -1491,24 +1578,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776854-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 16:13:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Growing interest in trading in own currency, says FS
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776807-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776807_1_20241030105538.jpg&amp;q=50">
 <br>
 <div class="itemFullText">
  There's growing interest for jurisdictions to conduct trade in their own currency, Financial Secretary Paul Chan said on Wednesday, adding that a multi-central bank digital currency platform is "worth pushing forward".
@@ -1551,24 +1641,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776807-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 11:24:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong and mainland stocks open lower
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776798-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index opened 0.6 percent down on Wednesday. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776798_1_20241030095730.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  China and Hong Kong stocks opened lower on Wednesday, as investors are still assessing the news of a potential 10 trillion yuan (US$1.40 trillion) fiscal boost from Beijing, while remaining cautious ahead of US elections next week.
@@ -1596,24 +1689,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776798-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 10:04:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     EU raises tariffs on Chinese EVs by up to 45.3 percent
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776781-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="China-made Teslas will be taxed an addition 7.8 percent, Chinese car giant Geely faces an extra duty of 18.8 percent, while SAIC will be hit with the highest at 35.3 percent. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776781_1_20241030075912.jpg&amp;q=30">
 <br>
 <div class="itemFullText">
  The European Union has decided to increase tariffs on Chinese-built electric vehicles to as much as 45.3 percent, at the end of its highest profile investigation that has divided Europe.
@@ -1694,24 +1790,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776781-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 07:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Nasdaq ends at record as tech giants start reporting
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776770-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Conference Board's consumer confidence index jumped sharply to 108.7 in October, up from a revised 99.2 last month, another positive for stocks. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776770_1_20241030051503.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  The Nasdaq pushed to a record high on Tuesday despite a pullback in the Dow, as markets greeted a series of earnings from technology heavyweights.
@@ -1757,24 +1856,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776770-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 05:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks close higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776706-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index finished up 0.5 percent at 20,701. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776706_1_20241029164931.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 0.5 percent at 20,701.
@@ -1799,24 +1901,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776706-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 16:49:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HSBC books 10pc profit rise for Q3
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776674-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="HSBC posted pretax profit of US$8.5 billion for the July-to-September period versus US$7.7 billion a year earlier. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776674_1_20241029125810.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  HSBC Holdings posted a 10 percent rise in third-quarter profit on Tuesday, beating analyst estimates, as its wealth and wholesale banking benefited from slower-than-expected rate cuts while it embarks on one of the largest overhauls in its history.
@@ -1853,24 +1958,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776674-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 12:58:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK, mainland markets open higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776633-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index rose 0.6 percent in early trade. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776633_1_20241029084112.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong stocks opened higher on Tuesday, gaining more than half a percent in the opening minutes.
@@ -1904,24 +2012,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776633-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 10:03:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US markets rise ahead of big earnings reports
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776614-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="US investors are focused on earnings reports from major tech companies, including Apple, Amazon and Facebook-parent Meta. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776614_1_20241029044944.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Wall Street stocks climbed on Monday at the start of a heavy week of earnings and economic data, while markets also monitor the finale of the US presidential campaign.
@@ -1970,24 +2081,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776614-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 08:03:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks close higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776567-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index ended up 0.04 percent at 20,599. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776567_1_20241028165416.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0.04 percent at 20,599.
@@ -2012,24 +2126,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776567-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 16:54:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Fast payments to mainland banks possible in 2025: HKMA
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776560-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776560_1_20241028162254.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Monetary Authority on Monday said that locals will soon be able to transfer small amounts of money to mainland accounts through a scheme similar to the Faster Payment System (FPS).
@@ -2075,24 +2192,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776560-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 16:54:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK stocks becalmed in opening trade
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776476-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index was virtually unchanged at the open. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776476_1_20241028094219.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Hong Kong market was barely changed in early trade on Monday.
@@ -2117,24 +2237,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776476-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 09:42:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     BHP, Vale agree to nearly US$30b payout
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776399-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Brazil's President Luiz Inacio Lula da Silva attends a signing ceremony for an agreement between Vale and BHP and Brazilian authorities. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776399_1_20241027084829.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Mining giants BHP and Vale have signed a deal with Brazil's government to pay nearly US$30 billion in damages for a 2015 dam collapse that triggered the country's worst environmental disaster.
@@ -2192,24 +2315,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776399-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 09:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks close mixed ahead of big earnings reports
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776265-20241026.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Wall Street had mixed fortunes ahead of major corporate earnings. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776265_1_20241026053124.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Nasdaq ended higher on Friday, driven by megacap shares, as investors awaited quarterly results from some of Wall Street's biggest companies next week.
@@ -2264,24 +2390,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776265-20241026.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 26 Oct 2024 05:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Russia hikes interest rates to 21%, highest since 2003
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776235-20241026.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The bank directly blamed high government spending for inflation and said it could hike rates yet again if the pace of price rises does not cool. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776235_1_20241025202739.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Russia's central bank hiked interest rates to 21 percent on Friday, taking borrowing costs to their highest level in more than 20 years amid surging inflation.
@@ -2363,24 +2492,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776235-20241026.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 26 Oct 2024 03:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks close higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776193-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index ended up 0.5 percent at 20,590. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776193_1_20241025170408.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended higher on Friday, with the benchmark Hang Seng Index up 0.5 percent at 20,590.
@@ -2405,24 +2537,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776193-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 17:04:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Apple to take bigger bite of China market
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776189-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Commerce Minister Wang Wentao, right, holds talks with visiting Apple CEO Tim Cook in Beijing. Photo courtesy of Commerce Ministry website" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776189_1_20241025165032.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Commerce Minister Wang Wentao said Apple is welcome to deepen its presence in China in talks with the tech giant's CEO Tim Cook in Beijing.
@@ -2462,24 +2597,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776189-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 16:50:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Financial secretary concludes visit to New York
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776143-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776143_1_20241025112814.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  Financial Secretary Paul Chan has concluded his three-day visit to New York and is expected to be back in Hong Kong on Friday night.
@@ -2513,24 +2651,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776143-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 11:31:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK stocks open higher, tracking Wall Street
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776121-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index edged 0.2 percent lower in the opening minutes. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776121_1_20241025093638.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong stocks opened higher on Friday, following overnight gains in US markets.
@@ -2561,24 +2702,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776121-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 09:36:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Nasdaq, S&amp;P powered by surge in Tesla
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776097-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Wall Street's key indices have eased from record levels in recent sessions. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776097_1_20241025052728.jpg&amp;q=65">
 <img alt="Wall Street's key indices have eased from record levels in recent sessions. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776097_2_20241025053532.jpg&amp;q=70">
 <br>
 <div class="itemFullText">
@@ -2634,24 +2778,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776097-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 05:35:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks close lower
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776032-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index finished down 1.3 percent at 20,489. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776032_1_20241024171043.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended lower on Thursday, with the benchmark Hang Seng Index down 1.3 percent at 20,489.
@@ -2676,24 +2823,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776032-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 17:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks open lower
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775965-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Investors are nervous about the possible impact of the upcoming US presidential election. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775965_1_20241024100211.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Mainland and Hong Kong stocks opened lower on Thursday, dragged down by tech shares, as investors worried about the potential impact on the sector from the upcoming US presidential election.
@@ -2721,24 +2871,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775965-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 10:02:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks slide on interest rate concerns
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775933-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Nervousness among investors dragged all three major indices down. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775933_1_20241024053755.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Wall Street stocks closed decidedly lower on Wednesday as investors adjusted their expectations for bold central bank interest rate cuts, while major tech names came under pressure.
@@ -2787,24 +2940,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775933-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 05:37:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks close higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775863-20241023.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index closed up 1.3 percent at 20,760. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775863_1_20241023170423.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index up 1.3 percent at 20,760.
@@ -2829,24 +2985,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775863-20241023.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 23 Oct 2024 17:04:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Nation's industry chief meets Apple boss in Beijing
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775803-20241023.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="People queue for the iPhone 16 at an Apple store in Hangzhou. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775803_1_20241023122703.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The nation's industry chief told Apple CEO Tim Cook in Beijing on Wednesday that he hoped the US tech giant would continue to deepen its presence in the country, an official statement on their meeting showed.
@@ -2892,24 +3051,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775803-20241023.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 23 Oct 2024 12:27:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Tokyo Metro shares rocket higher on debut
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775777-20241023.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Proceeds from the Tokyo Metro IPO will redeem reconstruction bonds issued after the 2011 earthquake, tsunami and nuclear disaster in northeast Japan. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775777_1_20241023103553.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Tokyo Metro shares soared more than 40 percent on their debut on Wednesday after its government owners raised US$2.3 billion in Japan's biggest initial public offering since 2018.
@@ -2961,24 +3123,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775777-20241023.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 23 Oct 2024 10:35:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks shrug off higher bond yields, ending flat
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775741-20241023.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The flattish day came as US Treasury yields climbed, a dynamic that has sometimes pressured stocks. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775741_1_20241023053836.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Wall Street stocks finished with little change on Tuesday, digesting a trove of mostly solid earnings while shrugging off higher treasury bond yields.
@@ -3027,24 +3192,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775741-20241023.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 23 Oct 2024 05:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HSBC restructures operations in overhaul
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775688-20241022.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The group is carving up its operations into four business lines. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775688_1_20241022175726.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  HSBC Holdings said on Tuesday it would combine its commercial and investment banking operations in a major overhaul under new CEO Georges Elhedery that has also seen key senior staff depart.
@@ -3090,24 +3258,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775688-20241022.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 22 Oct 2024 17:57:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     CX offers bonus 'to keep the industry's best people'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775665-20241022.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Cathay Pacific has rolled out more than HK$100 billion in investments over the next seven years. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775665_1_20241022160724.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Cathay Pacific has announced that its employees will receive a bonus equivalent to one month's salary, after the flag carrier said it saw good results this year.
@@ -3150,24 +3321,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775665-20241022.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 22 Oct 2024 17:39:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks close higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775682-20241022.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index closed up 0.1 percent at 20,498. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775682_1_20241022172549.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 0.1 percent at 20,498.
@@ -3192,24 +3366,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775682-20241022.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 22 Oct 2024 17:25:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK stocks open lower, after Wall Street falls
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775592-20241022.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index slipped marginally in the opening minutes. File photo: RRHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775592_1_20241022095251.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong stocks opened slightly lower on Tuesday.
@@ -3237,24 +3414,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775592-20241022.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 22 Oct 2024 09:52:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US markets retreat as investors eye earnings reports
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775561-20241022.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="After weeks of rises, investors are edgy ahead of major earnings reports this week on Wall Street. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775561_1_20241022054547.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  The Dow Jones Industrial Average and the S&amp;P 500 retreated from records on Monday as treasury bond yields rose in the first session of a heavy week of earnings reports.
@@ -3303,24 +3483,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775561-20241022.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 22 Oct 2024 05:45:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Hong Kong stocks close lower
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775506-20241021.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index finished down 1.6 percent, at 20,478. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775506_1_20241021170941.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 1.6 percent at 20,478.
@@ -3345,24 +3528,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775506-20241021.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 21 Oct 2024 17:09:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Central bank cuts two key rates
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775422-20241021.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="China's central bank has cut the one-year loan prime rate (LPR) to 3.10 percent from 3.35 percent, and the five-year LPR has been cut to 3.6 percent from 3.85 percent. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775422_1_20241021095449.jpg&amp;q=30">
 <br>
 <div class="itemFullText">
  China cut benchmark lending rates as anticipated at the monthly fixing on Monday, following reductions to other policy rates last month as part of a package of stimulus measures.
@@ -3411,24 +3597,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1775422-20241021.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 21 Oct 2024 10:08:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK market opens slightly lower
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1775417-20241021.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index eased 0.4 percent in the opening minutes. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775417_1_20241021094608.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong stocks opened marginally lower on Monday.
@@ -3453,14 +3642,16 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
-    https://news.rthk.hk/rthk/en/component/k2/1775417-20241021.htm
-   
-   
-    Mon, 21 Oct 2024 09:46:00 +0800
-   
-  
- 
+</p>
 </div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/en/component/k2/1775417-20241021.htm
+   </guid>
+   <pubDate>
+    Mon, 21 Oct 2024 09:46:00 +0800
+   </pubDate>
+  </item>
+ </channel>
+</rss>

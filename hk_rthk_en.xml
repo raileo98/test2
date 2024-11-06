@@ -1,39 +1,51 @@
-<div>
- 
-  
+<?xml version="1.0" encoding="utf-8"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+ <channel>
+  <title>
    rthk - English
-  
-  
+  </title>
+  <link>
    https://news.rthk.hk/rthk/en/latest-news.htm
-  
-  
+  </link>
+  <description>
    rthk - English
-  
-  
+  </description>
+  <copyright>
    © 香港電台 RTHK
-  
-  
+  </copyright>
+  <docs>
    http://www.rssboard.org/rss-specification
-  
-  
+  </docs>
+  <generator>
    python-feedgen
-  
-  <img>
-  
+  </generator>
+  <image>
+   <url>
+    <![CDATA[https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png]]>
+   </url>
+   <title>
+    rthk - English
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/en/latest-news.htm
+   </link>
+  </image>
+  <language>
    zh-HK
-  
-  
+  </language>
+  <webMaster>
    webmaster@rthk.hk
-  
-  
-   
+  </webMaster>
+  <item>
+   <title>
     'Rainbow wall' at Choi Hung Estate must go: govt
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777769-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Rosanna Law said officials will study whether the rainbow wall can be restored at the redeveloped Choi Hung Estate. Image: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777769_1_20241106112709.jpg&amp;q=70">
 <br>
 <div class="itemFullText">
  Housing director Rosanna Law said an iconic rainbow wall of Choi Hung Estate will have to be demolished, but officials will seriously look at restoring the spot after redevelopment.
@@ -97,24 +109,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777769-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 11:54:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Local stocks drop at open
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777763-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index fell 1.02 percent to open at 20,791. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777763_1_20241106105412.jpg&amp;q=25">
 <br>
 <div class="itemFullText">
  Most Asian markets rose with the dollar and bitcoin on Wednesday as traders await the outcome of the knife-edge US presidential election, with bets increasing on a Donald Trump victory as early results rolled in.
@@ -142,24 +157,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777763-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 10:54:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Gauff beats Swiatek, Sabalenka earns world number one
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777756-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Gauff during her match against Iga Swiatek of Poland. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777756_1_20241106093625.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Coco Gauff posted a rare victory over Iga Swiatek to punch her ticket to the semi-finals of the WTA Finals in Riyadh on Tuesday, ensuring Aryna Sabalenka will finish the year as the world number one.
@@ -214,24 +232,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777756-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:36:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     AC Milan topple Champions League holders Real Madrid
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777753-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="AC Milan midfielder Tijjani Reijnders after the victory. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777753_1_20241106092850.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Champions League holders Real Madrid fell to a 3-1 home defeat by AC Milan on Tuesday in the group stage with striker Kylian Mbappé unable to find the net again.
@@ -295,24 +316,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777753-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:28:00 +0800
-   
-  
-  
-   
-    US elections 2024 live: Trump takes early lead
-   
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    US elections 2024 live: Trump takes first swing state
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777657-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Kamala Harris and Donald Trump wave to supporters during the campaign. Photo combo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_1_20241105174544.jpg&amp;q=90">
 <img alt="A resident of Dixville Notch casts her ballot in the US election. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_2_20241105174544.jpg&amp;q=85">
 <img alt="Electoral workers count votes in Milwaukee, Wisconsin. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_3_20241106094338.jpg&amp;q=80">
 <img alt="Voters queue at a polling station at a school in Arizona. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_4_20241106101107.jpg&amp;q=80">
@@ -332,6 +356,13 @@
    Instagram page
   </a>
   under rthk_enews.
+  <br>
+  <br>
+  <b>
+   1.13pm
+  </b>
+  <br>
+  Republicans have won control of the US Senate, picking up seats West Virginia and Ohio. And top House races are focused in New York and California, where Democrats are trying to claw back some of the 10 or so seats where Republicans have made surprising gains in recent years.
   <br>
   <br>
   <b>
@@ -617,24 +648,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777657-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Injured Djokovic withdraws from ATP Finals
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777736-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Djokovic after winning third place in the Six Kings Slam exhibition tournament. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777736_1_20241106080832.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Novak Djokovic said on Tuesday he will not defend his ATP Finals title due to an "ongoing injury" which has ended the 24-time Grand Slam champion's season.
@@ -686,24 +720,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777736-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:08:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Amorim's Sporting stun Man City in Champions League
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777733-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Amorim is celebrated by his players at the end of his final home game with Sporting. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777733_1_20241106075002.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Viktor Gyokeres's hat-trick fired Sporting Lisbon to a stunning 4-1 rout of Manchester City in the Uefa Champions League as Ruben Amorim showed why Manchester United were so keen to lure him to Old Trafford.
@@ -776,24 +813,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777733-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 07:50:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks push higher in Election Day session
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777725-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="All 11 sectors of the S&amp;P 500 pushed higher, led by consumer discretionary and industrial stocks. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777725_1_20241106060051.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Wall Street stocks rose on Tuesday, bouncing back from the prior session's declines in a benign session held as voters went to the polls in the US presidential election.
@@ -836,24 +876,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777725-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:00:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Queen Camilla pulls out of engagements due to illness
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777699-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The 77-year-old wife of Britain's King Charles is resting at home while she recovers. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777699_1_20241105213511.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Queen Camilla, wife of the Britain's King Charles, has been forced to pull out of her planned engagements this week after suffering a chest infection, Buckingham Palace said on Tuesday.
@@ -884,24 +927,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777699-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 02:23:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     WHO: Over 100 patients in Gaza to be evacuated
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777697-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The medical evacuees will be transported to the Kerem Shalom crossing on Wednesday. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777697_1_20241105210917.jpg&amp;q=30">
 <br>
 <div class="itemFullText">
  The World Health Organization (WHO) said on Tuesday a large-scale medical evacuation was planned from Gaza this week, with more than 100 seriously ill and injured patients due to leave the war-ravaged territory.
@@ -965,24 +1011,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777697-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 01:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Govt probes fatal scaffolding incident in Kowloon City
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777705-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Officers investigate the case at a building in Kowloon City. Photo courtesy of the Hong Kong Construction Industry Employees General Union" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777705_1_20241105221128.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Labour Department (LD) said it was investigating a fatal industrial incident in Kowloon City in which a worker fell to his death while dismantling scaffolding at a building.
@@ -1025,24 +1074,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777705-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 22:21:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'Oct saw most non-mainland visitors to HK this year'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777688-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The government says arrivals of non-mainland visitors exceed 950,000 in October. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777688_1_20241105192632.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Tourism minister Kevin Yeung said on Tuesday that Hong Kong recorded nearly a million arrivals of non-mainland visitors last month, the most so far this year for a single month.
@@ -1094,24 +1146,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777688-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 21:28:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Voting under way in US elections
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777693-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Voters cast their ballots in Atlanta. Georgia is seen as a key battleground state for the presidency. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777693_1_20241105203832.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Election Day voting began in the United States on Tuesday after an extraordinary, and for many unnerving, presidential race that will either make Kamala Harris the first woman president in the country's history or hand Donald Trump a comeback that sends shockwaves around the world.
@@ -1169,24 +1224,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777693-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 20:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'Preserve collective memory of Choi Hung Estate'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777676-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Wong Tai Sin district councillor Godfrey Ngai says a colourful exterior wall and a basketball court at Choi Hung Estate should be preserved. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777676_1_20241105175551.jpg&amp;q=20">
 <br>
 <div class="itemFullText">
  District councillors have urged officials to think of ways to keep alive the heritage and collective memory of Choi Hung Estate, which is set to be redeveloped in three phases over about two decades.
@@ -1229,24 +1287,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777676-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 19:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HSI closes at three-week high
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777679-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Hong Kong stocks close above 21,000. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777679_1_20241105181756.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Local stocks on Tuesday overcame early losses to finish more than 2 percent higher, thanks partly to fresh confidence towards the Chinese economy.
@@ -1280,24 +1341,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777679-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 18:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'HK's economic growth internationally recognised'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777663-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Zhou Ji, executive deputy director of the Hong Kong and Macau Affairs Office, says recent data on the city's economy and competitiveness show the SAR is full of opportunities. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777663_1_20241105165923.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  A senior Beijing official overseeing Hong Kong affairs on Tuesday said the territory’s economic development has been recognised internationally and that the SAR has unlimited opportunities.
@@ -1352,24 +1416,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777663-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 17:22:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Xia Baolong to hold seminar on HK development: sources
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777659-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Xia Baolong meets Jardine Matheson's executive chairman Ben Keswick. Photo courtesy of HKMAO" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777659_1_20241105164519.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  RTHK has learnt that Hong Kong and Macau Affairs Office director Xia Baolong will hold a seminar on Hong Kong’s development in Shenzhen on Friday.
@@ -1400,24 +1467,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777659-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 16:58:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Tickets for Kai Tak's Rugby Sevens go on sale
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777647-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Rugby Sevens in March will be held at the Kai Tak Stadium for the first time. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777647_1_20241105162129.jpg&amp;q=25">
 <br>
 <div class="itemFullText">
  Tickets for the upcoming Hong Kong Rugby Sevens – the first to be held at the Kai Tak Stadium – went on sale on Tuesday.
@@ -1457,24 +1527,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777647-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 16:21:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Harris, Trump make final pitch to US voters
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777642-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt='Donald Trump has promised to lead the United States to "new heights of glory". Photo: AFP' src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777642_2_20241105150616.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Kamala Harris and Donald Trump made their final case on Monday in the hours before Election Day, when voters will either choose America's first woman president or hand the Republican an unprecedented comeback.
@@ -1526,24 +1599,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777642-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 15:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Labour group hopes for 5.5 percent pay rise next year
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777629-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="A recent survey of more than 1,100 workers showed that more than six out of ten interviewees got an average pay rise of 4.5 percent this year. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777629_2_20241105144507.jpg&amp;q=35">
 <br>
 <div class="itemFullText">
  The Federation of Hong Kong and Kowloon Labour Unions on Tuesday urged bosses to give their workers a raise of 5.5 percent next year.
@@ -1586,24 +1662,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777629-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 14:45:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Rank outsider Knight's Choice wins the Melbourne Cup
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777635-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Irish jockey Robbie Dolan (left), high fives a fan after riding horse Knight's Choice to victory. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777635_1_20241105144009.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Rank outsider Knight's Choice upset favourite Buckaroo on Tuesday to win the A$8 million (US$5.25 million) Melbourne Cup, earning Irish jockey Robbie Dolan a debut victory in Australia's "race that stops a nation".
@@ -1676,24 +1755,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777635-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 14:40:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     S Korea fines Meta for illegal collection of user data
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777627-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Meta ran afoul of South Korean laws prohibiting the use of information on political opinions, religious beliefs and people's sex life. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777627_1_20241105130007.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  South Korea has fined Facebook-parent Meta more than US$15 million for illegally collecting sensitive user information from nearly a million people without consent and sharing it with advertisers, the country's data watchdog said on Tuesday.
@@ -1736,24 +1818,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777627-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 13:00:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Fulham strike twice in stoppage time to beat Brentford
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777622-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Fulham midfielder Harry Wilson celebrating with teammates on the pitch. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777622_1_20241105122507.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Harry Wilson struck twice in stoppage time to give Fulham a dramatic 2-1 victory over west London rivals Brentford on Monday.
@@ -1811,24 +1896,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777622-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 12:25:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'Three-runway system strengthens HK as aviation hub'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777615-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Deputy Financial Secretary Michael Wong says he expects airlines to make use of the new runway to introduce new routes. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777615_1_20241105114054.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  Deputy Financial Secretary Michael Wong on Tuesday said the airport’s three-runway system, which opens on November 28, will strengthen Hong Kong’s status as an aviation hub.
@@ -1871,24 +1959,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777615-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 12:01:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Cavs edge Bucks to stay unbeaten, Pistons upset Lakers
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777618-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Clevand's Darius Garland celebrates in the second half against the Milwaukee Bucks. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777618_1_20241105115319.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Darius Garland poured in 39 points as the Cleveland Cavaliers fended off a late Milwaukee surge to beat the Bucks 116-114 on Monday and push their perfect NBA record to 8-0.
@@ -1949,24 +2040,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777618-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 11:53:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Indonesian President Prabowo to visit China this week
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777613-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="On his first planned foreign visits since taking power, Prabowo Subianto will also travel to Peru and Brazil for the Apec and G20 summits. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777613_1_20241105113900.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Indonesian President Prabowo Subianto will visit China this week, the Foreign Ministry said on Tuesday, on his first foreign tour as he seeks a more prominent position for Jakarta on the world stage.
@@ -2003,24 +2097,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777613-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 11:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     North Korea stages more missile launches
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777611-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777611_1_20241105113259.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  North Korea fired a barrage of short-range ballistic missiles into the sea on Tuesday, its neighbours said, as it continued its weapons demonstrations hours before the US presidential election.
@@ -2075,24 +2172,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777611-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 11:32:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     China must open up further: Li Qiang
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777609-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Premier Li Qiang says he has confidence the nation will be able to meet its growth target. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777609_1_20241105112657.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  China must combat rising unilateralism by opening up further to trade and investment, Premier Li Qiang said on Tuesday.
@@ -2132,24 +2232,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777609-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 11:26:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Top-ranked Nelly Korda wins LPGA Player of Year
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777606-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Korda at the women’s golf individual stroke play of the Paris 2024 Olympics. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777606_1_20241105105813.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  World number one Nelly Korda has clinched her first LPGA Player of the Year honours, the LPGA confirmed on Monday after it became mathematically impossible for anyone to catch her for the points-based award.
@@ -2189,24 +2292,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777606-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 10:58:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Kowloon City court ramps up security
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777601-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777601_1_20241105110435.jpg&amp;q=30">
 <br>
 <div class="itemFullText">
  Security at Kowloon City court on Tuesday was ramped up a day after a man was arrested for allegedly attempting to attack a magistrate who had earlier convicted him.
@@ -2266,24 +2372,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777601-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 10:43:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Olympic champion Lyles misses out track athlete award
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777595-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Lyles on the podium after the men's 200-metre athletics event at Paris 2024. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777595_1_20241105095925.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Olympic 100-metre champion Noah Lyles is not one of the two finalists for male track athlete of the year, World Athletics revealed on Monday.
@@ -2344,24 +2453,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777595-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 09:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK market opens lower; all eyes on US election, Fed
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777586-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index lost 0.77 percent in the opening minutes. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777586_1_20241105092240.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Hong Kong market opened lower on Tuesday, with investors' attention focused on the US presidential election, and a central bank meeting this week.
@@ -2389,24 +2501,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777586-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 09:48:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Sabalenka through to WTA Finals semis, Zheng cruises
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777575-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Sabalenka during her group-stage match against Paolini. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777575_1_20241105081016.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Aryna Sabalenka has secured qualification for the semi-finals stage of the WTA Finals with a 6-3, 7-5 victory over Jasmine Paolini, as Zheng Qinwen ended Elena Rybakina's chances of moving on in Riyadh on Monday.
@@ -2473,24 +2588,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777575-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 08:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     New prostate cancer therapy could save lives
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777550-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Doctor Kenneth Wong (right) said around one in two patients who receive the new treatment will see their tumour shrink or eliminated altogether. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777550_1_20241104222357.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  There may be fresh hope for prostate cancer patients who develop resistance to traditional forms of therapies, as oncologists say a new third-line treatment is showing promising results so far.
@@ -2545,24 +2663,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777550-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 05:36:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     US stocks fall amid US presidential election jitters
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777565-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Wall Street closed lower, with investors sidelined ahead of the presidential election. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777565_1_20241105053112.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  US stocks closed slightly lower after a choppy session on Monday, as investors prepared for a crucial week in which Americans will elect a new president and the Federal Reserve will release a policy statement.
@@ -2599,24 +2720,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777565-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 05:31:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Putin meets North Korean foreign minister
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777559-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777559_1_20241105021718.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  President Putin met North Korea's foreign minister in the Kremlin on Monday amid mounting concern in the West that North Korean soldiers are about to enter the Ukraine war on Moscow's side.
@@ -2662,24 +2786,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777559-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 05:28:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     EU and South Korea discuss security issues
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777539-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777539_1_20241104194635.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The dispatch of North Korean troops to Russia as Moscow wages war in Ukraine highlights the need for security cooperation between the European Union and South Korea, EU foreign policy chief Josep Borrell said on Monday.
@@ -2728,24 +2855,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777539-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 02:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Australia to offer incentives to defence staff
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777538-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The government of Anthony Albanese is seeking to overcome workforce shortages. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777538_1_20241104194245.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Australia will spend A$600 million (US$395 million) on defence reserve recruitment and extending a cash bonus to retain troops as the centre-left Albanese government seeks to overcome workforce shortages, officials are expected to announce on Tuesday.
@@ -2791,24 +2921,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777538-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 01:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Man jailed over fake academic certificate
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777551-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The police arrested the man in August on suspicion of attempting to obtain services by deception. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777551_1_20241104224003.jpg&amp;q=25">
 <br>
 <div class="itemFullText">
  The Fanling Magistrates' Court on Monday sentenced a 23-year-old mainland student to three months in jail for using fake academic credentials to apply for a master's degree programme at a Hong Kong university.
@@ -2845,24 +2978,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777551-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 22:54:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HSI, mainland stocks finish higher
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777524-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Hong Kong stocks put on 61 points on Monday. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777524_1_20241104180522.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Local stocks edged higher on Monday as investors looked towards a US presidential election that remains too close to call.
@@ -2890,24 +3026,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777524-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 18:05:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Student assessment scores 'generally stable'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777513-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Education Bureau says it will use different ways to enhance learning. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777513_1_20241104163633.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Education officials on Monday said the results of this year’s Territory-wide System Assessment (TSA), which tests students on the subjects of Chinese, English and maths, remained “generally steady”.
@@ -2941,24 +3080,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777513-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 17:46:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'Stricter laws needed to stop illegal anaesthetic use'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777506-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt='Often inhaled through vapes, "space oil" usually contains etomidate, a regulated sedative that can only be prescribed by a doctor. File photo: AFP' src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777506_1_20241104155333.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  A pharmacist on Monday said regulations on short-acting anaesthetics were not strong enough to deter their recreational use.
@@ -3010,24 +3152,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777506-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 16:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Man held for attempted attack on magistrate
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777499-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Detectives investigate the case at Kowloon City Magistrates’ Courts. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777499_1_20241104152536.jpg&amp;q=40">
 <br>
 <div class="itemFullText">
  Police on Monday arrested a man who allegedly attempted to attack a magistrate with a knife inside Kowloon City Magistrates’ Courts.
@@ -3103,24 +3248,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777499-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 16:30:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Legendary music producer Quincy Jones dies aged 91
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777508-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Jones rose from running with gangs on the South Side of Chicago to the very heights of show business. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777508_2_20241104162429.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Quincy Jones, the multi-talented music titan whose vast legacy ranged from producing Michael Jackson's historic "Thriller" album to writing prize-winning film and television scores and collaborating with Frank Sinatra, Ray Charles and hundreds of other recording artists, has died at 91.
@@ -3169,24 +3317,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777508-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 16:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Govt probing Tung Chung water outage
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777502-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Roger Wong says 120,000 people were affected by the water outage. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777502_1_20241104153511.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  The Director of Water Supplies on Monday said officials are investigating what caused a pipe burst that resulted in a water outage in Tung Chung, and apologised to those affected.
@@ -3229,24 +3380,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777502-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 15:35:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Exchange Fund sees record income for first nine months
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777488-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777488_1_20241104133929.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Hong Kong's Exchange Fund recorded a record-breaking investment income of HK$224.7 billion for the first nine months of the year, the Monetary Authority (HKMA) revealed on Monday.
@@ -3292,24 +3446,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777488-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 13:39:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Morales vows to continue his defiance of Bolivian govt
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777476-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777476_1_20241104120341.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Bolivia's former President Evo Morales insisted on Sunday that he would press on with a hunger strike until the government of his protégé-turned-rival agreed to a political dialogue.
@@ -3358,24 +3515,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777476-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 12:03:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     SAR a hub for legal collaboration: justice chief
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777474-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777474_1_20241104113530.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Hong Kong’s justice secretary on Monday said the SAR is well positioned to be a hub for legal and economic collaboration, with Beijing saying it will give its unwavering support to back the SAR in its role as a super-connector.
@@ -3424,24 +3584,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777474-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 12:01:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Six dead after volcano erupts in eastern Indonesia
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777468-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Mount Lewotobi Laki-Laki had several major eruptions in January, prompting authorities at the time to evacuate at least 2,000 residents. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777468_1_20241104110955.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  At least six people died after a volcano in eastern Indonesia erupted several times overnight, officials said on Monday, raising the alert level to the highest of a four-tiered system.
@@ -3487,24 +3650,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777468-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 11:09:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Rams beat Seahawks in overtime thriller, Lions cruise
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777465-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Rams players celebrate after a fourth down stop against the Seahawks. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777465_1_20241104104744.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  A tense battle in Seattle saw the Los Angeles Rams come away with a 26-20 overtime NFL win on Demarcus Robinson's one-handed catch of a 39-yard touchdown pass from quarterback Matthew Stafford.
@@ -3553,24 +3719,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777465-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:47:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Tung Chung fresh water supply restored
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777463-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Water Supplies Department says it ordered water trucks to the area to provide a temporary supply of fresh water to residents and businesses. Photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777463_1_20241104104544.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Authorities on Monday said that water supply to Tung Chung was restored shortly after 10am, after the area was cut off from fresh water for about 12 hours due to urgent overnight repairs.
@@ -3630,24 +3799,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777463-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:45:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     New Zealand beat India by 25 runs to sweep Test series
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777461-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="New Zealand's Ajaz Patel (L) celebrates with captain Tom Latham after the win. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777461_1_20241104102906.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  New Zealand captain Tom Latham on Sunday said his team's 3-0 Test sweep in India was one of the "greatest series wins" for the country.
@@ -3693,24 +3865,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777461-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:29:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Verstappen wins Brazilian Grand Prix, Norris sixth
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777459-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Red Bull's Verstappen on the podium after winning the Brazilian Grand Prix. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777459_1_20241104102049.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Three-time world champion Max Verstappen produced a virtuoso drive in often atrocious conditions to regain control of this year's world championship on Sunday when he charged from 17th on the grid to win the Brazilian Grand Prix.
@@ -3756,24 +3931,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777459-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:20:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Zverev outclasses Humbert to win Paris Masters
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777457-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Zverev with the trophy after winning the Paris Masters men's singles final. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777457_1_20241104101524.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Germany's Alexander Zverev won the Paris Masters on Sunday by defeating home hope Ugo Humbert 6-2, 6-2 in a dominant display by the new world number two.
@@ -3828,24 +4006,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777457-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Pro-EU Sandu claims victory in Moldova election
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777456-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777456_1_20241104101249.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Moldova’s Western-friendly President Maia Sandu won a second term in a presidential runoff against her opponent who was seen as preferring closer ties with Russia.
@@ -3891,24 +4072,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777456-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     HK market higher ahead of US election, Fed meeting
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777434-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Hang Seng Index was 0.1 percent higher in early trade. File photo: RTHK" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777434_1_20241104063640.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Hong Kong stocks rose in early trade on Monday in a week that's expected to be dominated by the US presidential election and a Federal Reserve meeting.
@@ -3936,24 +4120,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777434-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:05:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Angry crowds throw mud at Spain's king in Valencia
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777423-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777423_1_20241103235642.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Furious locals hurled mud and insults at Spain's king, queen and prime minister on Sunday in a startling show of anger in the worst hit town in the flood disaster that has killed more than 210 people.
@@ -4005,24 +4192,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777423-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 05:55:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Shenzhou-18 crew returns to Earth
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777428-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777428_1_20241104035649.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  The three astronauts of the Shenzhou-18 manned mission returned to Earth early on Monday after more than six months aboard the Tiangong space station.
@@ -4082,24 +4272,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777428-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 05:44:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Top Slovak mountaineer dies in Nepal
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777408-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Ondrej Huserka died on a descent of the 7,234-metre Langtang Lirung peak. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777408_1_20241103191455.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  A top Slovak mountaineer died on a descent of the 7,234-metre Langtang Lirung peak in Nepal after an historic ascent up its east face, Slovakia's climbers association said on Sunday.
@@ -4151,24 +4344,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777408-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 03:56:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Orban says Trump win would force Ukraine rethink
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777402-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Hungarian Prime Minister Viktor Orban (right) with former US President Donald Trump in Florida. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777402_1_20241103183154.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Europe will need to rethink its support of Ukraine if Donald Trump is elected president of the United States, Hungarian Prime Minister Viktor Orban said on Sunday, as the continent "will not be able to bear the burdens of the war alone".
@@ -4217,14 +4413,16 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
-    https://news.rthk.hk/rthk/en/component/k2/1777402-20241104.htm
-   
-   
-    Mon, 04 Nov 2024 01:07:00 +0800
-   
-  
- 
+</p>
 </div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/en/component/k2/1777402-20241104.htm
+   </guid>
+   <pubDate>
+    Mon, 04 Nov 2024 01:07:00 +0800
+   </pubDate>
+  </item>
+ </channel>
+</rss>

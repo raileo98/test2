@@ -1,39 +1,51 @@
-<div>
- 
-  
+<?xml version="1.0" encoding="utf-8"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+ <channel>
+  <title>
    rthk - World
-  
-  
+  </title>
+  <link>
    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&amp;cat=10&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  
-  
+  </link>
+  <description>
    rthk - World
-  
-  
+  </description>
+  <copyright>
    © 香港電台 RTHK
-  
-  
+  </copyright>
+  <docs>
    http://www.rssboard.org/rss-specification
-  
-  
+  </docs>
+  <generator>
    python-feedgen
-  
-  <img>
-  
+  </generator>
+  <image>
+   <url>
+    <![CDATA[https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png]]>
+   </url>
+   <title>
+    rthk - World
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&amp;cat=10&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
+   </link>
+  </image>
+  <language>
    zh-HK
-  
-  
+  </language>
+  <webMaster>
    webmaster@rthk.hk
-  
-  
-   
-    US elections 2024 live: Trump takes early lead
-   
-   
+  </webMaster>
+  <item>
+   <title>
+    US elections 2024 live: Trump takes first swing state
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777657-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Kamala Harris and Donald Trump wave to supporters during the campaign. Photo combo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_1_20241105174544.jpg&amp;q=90">
 <img alt="A resident of Dixville Notch casts her ballot in the US election. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_2_20241105174544.jpg&amp;q=85">
 <img alt="Electoral workers count votes in Milwaukee, Wisconsin. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_3_20241106094338.jpg&amp;q=80">
 <img alt="Voters queue at a polling station at a school in Arizona. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777657_4_20241106101107.jpg&amp;q=80">
@@ -53,6 +65,13 @@
    Instagram page
   </a>
   under rthk_enews.
+  <br>
+  <br>
+  <b>
+   1.13pm
+  </b>
+  <br>
+  Republicans have won control of the US Senate, picking up seats West Virginia and Ohio. And top House races are focused in New York and California, where Democrats are trying to claw back some of the 10 or so seats where Republicans have made surprising gains in recent years.
   <br>
   <br>
   <b>
@@ -338,24 +357,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777657-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Queen Camilla pulls out of engagements due to illness
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777699-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The 77-year-old wife of Britain's King Charles is resting at home while she recovers. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777699_1_20241105213511.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Queen Camilla, wife of the Britain's King Charles, has been forced to pull out of her planned engagements this week after suffering a chest infection, Buckingham Palace said on Tuesday.
@@ -386,24 +408,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777699-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 02:23:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     WHO: Over 100 patients in Gaza to be evacuated
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777697-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The medical evacuees will be transported to the Kerem Shalom crossing on Wednesday. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777697_1_20241105210917.jpg&amp;q=30">
 <br>
 <div class="itemFullText">
  The World Health Organization (WHO) said on Tuesday a large-scale medical evacuation was planned from Gaza this week, with more than 100 seriously ill and injured patients due to leave the war-ravaged territory.
@@ -467,24 +492,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777697-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 01:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Voting under way in US elections
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777693-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Voters cast their ballots in Atlanta. Georgia is seen as a key battleground state for the presidency. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777693_1_20241105203832.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Election Day voting began in the United States on Tuesday after an extraordinary, and for many unnerving, presidential race that will either make Kamala Harris the first woman president in the country's history or hand Donald Trump a comeback that sends shockwaves around the world.
@@ -542,24 +570,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777693-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 20:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Harris, Trump make final pitch to US voters
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777642-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt='Donald Trump has promised to lead the United States to "new heights of glory". Photo: AFP' src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777642_2_20241105150616.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Kamala Harris and Donald Trump made their final case on Monday in the hours before Election Day, when voters will either choose America's first woman president or hand the Republican an unprecedented comeback.
@@ -611,24 +642,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777642-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 15:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     S Korea fines Meta for illegal collection of user data
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777627-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Meta ran afoul of South Korean laws prohibiting the use of information on political opinions, religious beliefs and people's sex life. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777627_1_20241105130007.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  South Korea has fined Facebook-parent Meta more than US$15 million for illegally collecting sensitive user information from nearly a million people without consent and sharing it with advertisers, the country's data watchdog said on Tuesday.
@@ -671,24 +705,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777627-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 13:00:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Indonesian President Prabowo to visit China this week
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777613-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="On his first planned foreign visits since taking power, Prabowo Subianto will also travel to Peru and Brazil for the Apec and G20 summits. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777613_1_20241105113900.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Indonesian President Prabowo Subianto will visit China this week, the Foreign Ministry said on Tuesday, on his first foreign tour as he seeks a more prominent position for Jakarta on the world stage.
@@ -725,24 +762,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777613-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 11:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     North Korea stages more missile launches
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777611-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777611_1_20241105113259.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  North Korea fired a barrage of short-range ballistic missiles into the sea on Tuesday, its neighbours said, as it continued its weapons demonstrations hours before the US presidential election.
@@ -797,24 +837,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777611-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 11:32:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Putin meets North Korean foreign minister
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777559-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777559_1_20241105021718.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  President Putin met North Korea's foreign minister in the Kremlin on Monday amid mounting concern in the West that North Korean soldiers are about to enter the Ukraine war on Moscow's side.
@@ -860,24 +903,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777559-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 05:28:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     EU and South Korea discuss security issues
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777539-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777539_1_20241104194635.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The dispatch of North Korean troops to Russia as Moscow wages war in Ukraine highlights the need for security cooperation between the European Union and South Korea, EU foreign policy chief Josep Borrell said on Monday.
@@ -926,24 +972,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777539-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 02:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Australia to offer incentives to defence staff
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777538-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The government of Anthony Albanese is seeking to overcome workforce shortages. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777538_1_20241104194245.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Australia will spend A$600 million (US$395 million) on defence reserve recruitment and extending a cash bonus to retain troops as the centre-left Albanese government seeks to overcome workforce shortages, officials are expected to announce on Tuesday.
@@ -989,24 +1038,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777538-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 01:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Legendary music producer Quincy Jones dies aged 91
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777508-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Jones rose from running with gangs on the South Side of Chicago to the very heights of show business. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777508_2_20241104162429.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Quincy Jones, the multi-talented music titan whose vast legacy ranged from producing Michael Jackson's historic "Thriller" album to writing prize-winning film and television scores and collaborating with Frank Sinatra, Ray Charles and hundreds of other recording artists, has died at 91.
@@ -1055,24 +1107,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777508-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 16:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Morales vows to continue his defiance of Bolivian govt
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777476-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777476_1_20241104120341.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Bolivia's former President Evo Morales insisted on Sunday that he would press on with a hunger strike until the government of his protégé-turned-rival agreed to a political dialogue.
@@ -1121,24 +1176,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777476-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 12:03:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Six dead after volcano erupts in eastern Indonesia
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777468-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Mount Lewotobi Laki-Laki had several major eruptions in January, prompting authorities at the time to evacuate at least 2,000 residents. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777468_1_20241104110955.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  At least six people died after a volcano in eastern Indonesia erupted several times overnight, officials said on Monday, raising the alert level to the highest of a four-tiered system.
@@ -1184,24 +1242,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777468-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 11:09:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Pro-EU Sandu claims victory in Moldova election
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777456-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777456_1_20241104101249.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Moldova’s Western-friendly President Maia Sandu won a second term in a presidential runoff against her opponent who was seen as preferring closer ties with Russia.
@@ -1247,24 +1308,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777456-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Angry crowds throw mud at Spain's king in Valencia
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777423-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777423_1_20241103235642.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Furious locals hurled mud and insults at Spain's king, queen and prime minister on Sunday in a startling show of anger in the worst hit town in the flood disaster that has killed more than 210 people.
@@ -1316,24 +1380,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777423-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 05:55:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Top Slovak mountaineer dies in Nepal
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777408-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Ondrej Huserka died on a descent of the 7,234-metre Langtang Lirung peak. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777408_1_20241103191455.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  A top Slovak mountaineer died on a descent of the 7,234-metre Langtang Lirung peak in Nepal after an historic ascent up its east face, Slovakia's climbers association said on Sunday.
@@ -1385,24 +1452,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777408-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 03:56:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Orban says Trump win would force Ukraine rethink
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777402-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Hungarian Prime Minister Viktor Orban (right) with former US President Donald Trump in Florida. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777402_1_20241103183154.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Europe will need to rethink its support of Ukraine if Donald Trump is elected president of the United States, Hungarian Prime Minister Viktor Orban said on Sunday, as the continent "will not be able to bear the burdens of the war alone".
@@ -1451,24 +1521,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777402-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 01:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Russia says it is closing in on Pokrovsk
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777401-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Local residents collect clean drinking water from a water station in the city of Pokrovsk. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777401_1_20241103182339.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Russia on Sunday claimed to have captured another Ukrainian village, just a dozen kilometres from the key eastern logistics hub Pokrovsk, as its troops advance rapidly.
@@ -1514,24 +1587,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777401-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 00:32:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Israel calls for evacuation of Baalbek region
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777400-20241103.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="A column of smoke rises following an Israeli raid in the district of Baalbek, Bekaa Valley. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777400_1_20241103180754.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Israeli military called for the evacuation of the Baalbek area in eastern Lebanon, warning that it was poised to strike Hezbollah targets there and in nearby Douris.
@@ -1556,24 +1632,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777400-20241103.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 03 Nov 2024 18:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Teenaged boy shot in French gangland shootout dies
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777343-20241103.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Officials say drug-related crime in Poitiers has soared. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777343_1_20241102215300.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  A 15-year-old boy shot in the head during a bloody shootout between drug gangs in the west of France on Saturday died of his wounds, the regional prosecutor announced, as the interior minister warned the country was at risk of "Mexicanisation" due to rising drug crime.
@@ -1625,24 +1704,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777343-20241103.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 03 Nov 2024 07:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'Pollution level in Lahore 40 times above WHO limit'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777342-20241103.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Lahore has been blanketed by dangerous levels of smog for several days. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777342_1_20241102201946.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Air pollution in Pakistan's second biggest city Lahore soared on Saturday, around 40 times over the level deemed acceptable by the World Health Organisation (WHO), data from IQAir showed.
@@ -1691,24 +1773,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777342-20241103.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 03 Nov 2024 05:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     World's largest crocodile in captivity has died
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777336-20241103.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Cassius was thought to be at least 110 years old. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777336_1_20241102194046.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  A 5.48-metre Australian crocodile that held the world record as the largest crocodile in captivity has died, a wildlife sanctuary said on Saturday. He was thought to be more than 110 years old.
@@ -1748,24 +1833,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777336-20241103.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 03 Nov 2024 04:30:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Badenoch elected new leader of UK Conservative Party
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777338-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Kemi Badenoch has called for a return to conservative values. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777338_1_20241102194657.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  "Anti-woke" candidate Kemi Badenoch on Saturday won the vote to become the UK Conservatives' new leader, replacing Rishi Sunak who quit after the party's disastrous showing in July's general election.
@@ -1826,24 +1914,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777338-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 23:19:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Spain sends thousands more troops to flood-hit region
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777335-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Debris is piled up along a street in the town of Paiporta, in the Valencia region. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777335_1_20241102192050.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Spain will deploy 10,000 more troops and police officers to the eastern Valencia region devastated by historic floods that have killed 211 people, Prime Minister Pedro Sanchez said on Saturday.
@@ -1928,24 +2019,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777335-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 20:20:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Khamenei vows response to attacks on Iran and allies
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777329-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Smoke rises from the site of an Israeli strike that targeted the southern Lebanese village of Khiam, amid the ongoing war between Israel and Hezbollah. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777329_1_20241102173426.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Iran's supreme leader Ayatollah Ali Khamenei vowed on Saturday to respond to attacks by Israel and its ally the United States against Tehran and groups it supports in the region.
@@ -1985,24 +2079,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777329-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 17:34:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Japan urges 200,000 to evacuate due to heavy rain
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777319-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="A car runs on a flooded road due to torrential rain in Hiroshima City, Hiroshima Prefecture, western Japan. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777319_1_20241102153845.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Nearly 200,000 people in western Japan were urged to evacuate on Saturday as authorities warned of landslides and floods while the remnants of a tropical storm trickle over the country.
@@ -2045,24 +2142,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777319-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 15:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     'Brat' named word of the year by Collins dictionary
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777242-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Thanks to singer Charli XCX the word 'brat' now means a lot more than simply a badly-behaved child. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777242_1_20241101192506.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Brat, the word redefined by singer Charli XCX and adopted by supporters of US presidential candidate Kamala Harris, was on Friday named the Collins Word of the Year 2024.
@@ -2105,24 +2205,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777242-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 01:22:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Spain flood deaths top 200, more troops join rescue
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777259-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Dozens of cars block a street in Sedavi in Valencia after floodwaters turned it into a river. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777259_1_20241101221727.jpg&amp;q=35">
 <br>
 <div class="itemFullText">
  Rescuers on Friday raised the death toll in Spain's worst floods for a generation to at least 205 as the government deployed more troops in an increasingly desperate search for survivors.
@@ -2210,24 +2313,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777259-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 22:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Spain flooding death toll rises to 158
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777155-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777155_1_20241101104611.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  Spain mourned at least 158 deaths on Friday as authorities told people in flood-stricken regions to stay at home.
@@ -2282,24 +2388,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777155-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 10:46:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Brussels launches investigation into Temu
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777069-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The probe is being launched under a mammoth law known as the Digital Services Act. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777069_1_20241031192419.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The EU launched a formal investigation on Thursday into Chinese-founded e-commerce platform Temu on suspicion the site is doing too little to stop the sale of illegal products, in a probe that could lead to large fines.
@@ -2366,24 +2475,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777069-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 04:41:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     EU greenhouse emissions fell in 2023 says EEA
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777066-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Projections signal a 43 percent reduction in net emissions in EU countries by 2030 compared to 1990 levels. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777066_1_20241031191953.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Greenhouse gas emissions in the European Union fell by eight percent in 2023 but the cuts being made are falling short of EU targets, the European Environment Agency (EEA) reported on Thursday.
@@ -2426,24 +2538,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777066-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 02:09:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Bank of Japan warns of 'high uncertainties'
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1777014-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="For a long time, the BoJ was an outlier among major central banks, sticking to its ultra-loose policy to spur inflation. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777014_1_20241031144239.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  The Bank of Japan warned on Thursday of "high uncertainties" following the ruling party's worst election result in 15 years, as it kept interest rates unchanged.
@@ -2495,24 +2610,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1777014-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 14:42:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     N Korea fires 'long-range' ballistic missile: Seoul
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776947-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The launch came just hours after US and South Korean defence chiefs called on Pyongyang to withdraw its troops from Russia. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776947_1_20241031075514.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  North Korea on Thursday fired a "long-range ballistic missile", South Korea's military said, Pyongyang's first weapons test since Seoul accused it of sending tens of thousands of soldiers to Russia.
@@ -2576,24 +2694,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776947-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 07:55:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     UK to raise taxes by 40 billion pounds annually
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776929-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Rachel Reeves announces a string of tax increases, as she seeks to uphold her new rule get day-to-day spending back into balance by the end of the decade. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776929_1_20241031012156.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Britain's new finance minister Rachel Reeves announced the biggest tax increases in three decades in her first budget on Wednesday, accusing the former Conservative government of breaking the country's public services.
@@ -2666,24 +2787,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776929-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 07:24:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Scientists recreate face of woman buried as a vampire
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776913-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Entombed in an unmarked cemetery in Poland, the woman was one of dozens feared by her neighbours: Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776913_1_20241030211806.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Buried with a padlock on her foot and an iron sickle across her neck, "Zosia" was never supposed to be able to come back from the dead.
@@ -2744,24 +2868,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776913-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 00:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     At least 95 dead as Spain hit by torrential floods
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776911-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="A military unit specialised in rescue operations is deployed to help local emergency workers. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776911_1_20241030211551.jpg&amp;q=40">
 <br>
 <div class="itemFullText">
  Spain braced for a heavier human toll after at least 95 people died in flash floods that launched muddy waters through towns, tossed cars and wreaked transport havoc.
@@ -2830,24 +2957,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776911-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 00:13:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Beijing opposes planned US tech investment curbs
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776851-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt='The Ministry of Commerce says new rules set out by Washington will "damage the interests" of firms in both China and the United States. File photo: Xinhua' src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776851_1_20241030151549.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  Mainland authorities on Wednesday said they firmly opposed new rules announced by the US Treasury that will prohibit US-headquartered firms, citizens, and permanent residents from engaging in transactions involving cutting-edge technology with China.
@@ -2890,24 +3020,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776851-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 15:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Harris warns of 'obsessed' Trump power grab at rally
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776785-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt='Kamala Harris told a mass rally in Washington that Donald Trump is "unstable, obsessed with revenge, consumed with grievance and out for unchecked power." Photo: Reuters' src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776785_1_20241030082532.jpg&amp;q=75">
 <img alt="Trump countered that Harris's message is one of " src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776785_2_20241030091231.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
@@ -2981,24 +3114,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776785-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 08:25:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Israel faces backlash over UN agency ban
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776747-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="UNRWA, the UN agency for Palestinian refugees, has been operating in the Palestinian territories for more than seven decades. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776747_1_20241029213623.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Israel faced an international backlash on Tuesday after its parliament approved a bill banning the main United Nations aid agency for the devastated Gaza Strip.
@@ -3065,24 +3201,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776747-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 07:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Harris to speak at site of Trump's January 6 rally
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776751-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Kamala Harris' campaign says the former prosecutor would " src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776751_1_20241029215457.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  Democratic presidential candidate and US Vice President Kamala Harris will urge Americans to turn the page on Donald Trump as she delivers her closing election argument on Tuesday on the spot where her Republican rival rallied supporters before the January 6, 2021 US Capitol attack.
@@ -3131,24 +3270,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776751-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 07:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Warning over N Korea forces as Russia claims gains
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776760-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Moscow says it has seized the war-battered mining town of Selydove in Donetsk region, and that it had also wrested control of nearby villages there. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776760_1_20241030001806.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Nato and South Korea have expressed alarm that North Korean troops could soon be joining Moscow's side in the Ukraine-Russia war.
@@ -3206,24 +3348,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776760-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 07:03:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Germany and EU criticise execution of German-Iranian
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776746-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Jamshid Sharmahd was a German citizen of Iranian descent and a US resident. File Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776746_1_20241029211738.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Germany and the European Union on Tuesday strongly condemned Iran's execution of a 69-year-old German-Iranian dissident after years behind bars and warned they were considering retaliatory measures.
@@ -3287,24 +3432,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776746-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 00:20:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     EU and UK agree over antitrust investigations
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776732-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="National competition authorities from EU countries will be able to cooperate directly with the UK's competition authority. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776732_1_20241029185728.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The European Commission on Tuesday said it had finalised discussions with Britain on an agreement that would allow both sides to cooperate directly in antitrust investigations.
@@ -3335,24 +3483,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776732-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 00:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Former Trump advisor Bannon released from jail
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776744-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Steve Bannon had been serving time at a federal prison in Connecticut for a contempt of Congress conviction. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776744_1_20241029205251.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Steve Bannon, a prominent right-wing figure and former senior advisor to Donald Trump, was released from prison early on Tuesday after spending nearly four months behind bars and just a week ahead of the US election.
@@ -3401,24 +3552,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776744-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 00:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Pope's commission against abuse to publish 1st report
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776697-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Pope Francis has taken numerous measures to tackle abuse, from opening up internal Church documents to punishing high-ranking clergy. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776697_1_20241029155134.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Vatican on Tuesday will publish its first annual report on protecting minors in the Catholic Church, a move requested by Pope Francis amid pressure for more action to tackle clerical child sex abuse.
@@ -3470,24 +3624,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776697-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 15:51:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Philadelphia prosecutor sues Musk group over giveaways
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776613-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Election law experts say Elon Musk's giveaway may violate US federal law. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776613_1_20241029032140.jpg&amp;q=65">
 <br>
 <div class="itemFullText">
  The district attorney of Philadelphia said on Monday that he has filed a lawsuit to halt Elon Musk's US$1 million giveaways as part of his political organisation's effort boosting Donald Trump's presidential campaign.
@@ -3533,24 +3690,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776613-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 08:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Thousands protest in Georgia after disputed vote
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776610-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776610_1_20241029015541.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  Tens of thousands of Georgians massed outside parliament on Monday night, demanding the annulment of the weekend parliamentary election that the president denounced as rigged with the help of Russia.
@@ -3611,24 +3771,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776610-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 08:05:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Starmer takes on critics as tax rises loom
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776600-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Britain’s Prime Minister Keir Starmer speaks during an event in Birmingham. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776600_1_20241028220117.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  British Prime Minister Keir Starmer said taxes needed to rise to rebuild public services and fix the foundations of the economy, and challenged critics to spell out how they would tackle the country's "unprecedented" problems.
@@ -3695,24 +3858,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776600-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 03:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     X suspends Hebrew account of Iranian supreme leader
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776598-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The Elon Musk-owned social media platform did not specify which rule had been violated. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776598_1_20241028214024.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The social media network X on Monday suspended an account that published Hebrew-language messages on behalf of Iran's Supreme Leader Ayatollah Ali Khamenei, just days after it was opened.
@@ -3749,24 +3915,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776598-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 02:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Gerard Depardieu absent as his sex assault case opens
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776597-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="The actor is the highest-profile figure to face accusations in French cinema's version of the #MeToo movement. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776597_1_20241028213234.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The trial of French actor Gerard Depardieu on sexual assault charges opened on Monday in the absence of the celebrity, who had declared himself to be ill.
@@ -3881,24 +4050,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776597-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 01:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Agitator Tommy Robinson jailed for contempt of court
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776596-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Robinson, who brands himself as a free speech advocate, has previously served time for contempt of court. Photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776596_1_20241028212924.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  A UK judge on Monday jailed far-right agitator Tommy Robinson for 18 months after he admitted committing contempt of court over a long-running libel case involving a Syrian refugee.
@@ -3977,24 +4149,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776596-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 00:11:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Harris and Trump trade barbs in campaign attacks
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776536-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="US Vice President Kamala Harris makes her case to the people of Pennsylvania, one of the key states she has to win. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776536_1_20241028133227.jpg&amp;q=80">
 <img alt="Donald Trump and his supporters went on the attack against Harris in their New York campaign event. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776536_2_20241028133227.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
@@ -4059,24 +4234,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776536-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 13:32:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     LDP heavyweight resigns after Japan election drubbing
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776533-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776533_1_20241028131521.jpg&amp;q=40">
 <br>
 <div class="itemFullText">
  The election committee chief of Japan's ruling Liberal Democratic Party (LDP) resigned on Monday after the party suffered its worst result since 2009, a party official said.
@@ -4137,24 +4315,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776533-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 13:15:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     New storm bears down on Philippines after deadly Trami
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776512-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="A vehicle is submerged on a street covered with mud due to heavy floods in the aftermath of Tropical Storm Trami. File photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776512_1_20241028111614.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  The Philippines raised a fresh weather alert on Monday, days after more than 100 people were killed by the country’s worst storm of the year.
@@ -4194,24 +4375,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776512-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 11:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Japan's ruling coalition projected to lose majority
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776480-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="With almost all seats accounted for, Japanese media say Prime Minister Shigeru Ishiba's ruling coalition secured 214 seats, down from the 279 it previously held. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776480_1_20241028064531.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Japan's ruling coalition has lost its majority after snap elections, Japanese media projected early on Monday, in what would be a major blow to new Prime Minister Shigeru Ishiba.
@@ -4284,24 +4468,28 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776480-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 06:45:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Georgia opposition calls protests over election loss
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776472-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt='Georgian president Salome Zurabishvili has accused Moscow of orchestrating a special operation that resulted in the "total falsification of the election".
+Photo: AFP' src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776472_1_20241028030850.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  The Georgian opposition on Sunday called for protests and the European Union demanded an investigation into "irregularities" after a disputed legislative vote that showed a win for the ruling party.
@@ -4362,24 +4550,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776472-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 03:08:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Iran mulls response as Israel says it hit Iran hard
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776444-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Ayatollah Ali Khamenei says Israel's attack on Iran should neither be downplayed nor exaggerated. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776444_1_20241027180156.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  Israel's airstrikes "hit hard" Iran's defences and missile production, Prime Minister Benjamin Netanyahu said on Sunday, as Iranian Supreme Leader Ayatollah Ali Khamenei said the country was considering its response.
@@ -4458,24 +4649,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776444-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 02:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Bolivia's ex-president says vehicle hit by gunfire
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776469-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Evo Morales is vying for the nomination of the ruling party in August 2025 presidential elections. File photo: AFP" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776469_1_20241028013441.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  Former Bolivian president Evo Morales said gunmen fired a hail of bullets at his car Sunday as he travelled to a radio interview in the central city of Cochabamba, wounding his driver.
@@ -4536,24 +4730,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/en/component/k2/1776469-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 01:34:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     Exit polls show LDP coalition may fall short
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/en/component/k2/1776455-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="Former Environment Minister Shinjiro Koizumi speaks at a ballot counting centre. Photo: Reuters" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776455_1_20241027193939.jpg&amp;q=60">
 <br>
 <div class="itemFullText">
  Japan's ruling coalition may fall short of a parliamentary majority, exit polls for Sunday's general election showed, raising uncertainty over the make-up of the government of the world's fourth-largest economy.
@@ -4602,14 +4799,16 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
-    https://news.rthk.hk/rthk/en/component/k2/1776455-20241027.htm
-   
-   
-    Sun, 27 Oct 2024 19:39:00 +0800
-   
-  
- 
+</p>
 </div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/en/component/k2/1776455-20241027.htm
+   </guid>
+   <pubDate>
+    Sun, 27 Oct 2024 19:39:00 +0800
+   </pubDate>
+  </item>
+ </channel>
+</rss>

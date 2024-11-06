@@ -1,39 +1,101 @@
-<div>
- 
-  
+<?xml version="1.0" encoding="utf-8"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+ <channel>
+  <title>
    rthk - 體育
-  
-  
+  </title>
+  <link>
    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=6&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
-  
-  
+  </link>
+  <description>
    rthk - 體育
-  
-  
+  </description>
+  <copyright>
    © 香港電台 RTHK
-  
-  
+  </copyright>
+  <docs>
    http://www.rssboard.org/rss-specification
-  
-  
+  </docs>
+  <generator>
    python-feedgen
-  
-  <img>
-  
+  </generator>
+  <image>
+   <url>
+    <![CDATA[https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png]]>
+   </url>
+   <title>
+    rthk - 體育
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&amp;cat=6&amp;newsCount=60&amp;dayShiftMode=1&amp;archive_date=
+   </link>
+  </image>
+  <language>
    zh-HK
-  
-  
+  </language>
+  <webMaster>
    webmaster@rthk.hk
-  
-  
-   
+  </webMaster>
+  <item>
+   <title>
+    消息：啟德體藝館下月7日進行籃球賽　同月多項表演節目測試
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm
+   </link>
+   <description>
+    <![CDATA[<div>
+<br>
+<div class="itemFullText">
+ 啟德體育園將陸續進行測試。消息指，下月7日將會於室內場館啟德體藝館進行籃球賽，之後會有表演項目以進行測試。據了解，預期初步不會以人數上限的10000人作測試，而是以3000至5000人，之後逐步提升。至於主場館的測試，預計到明年1月展開，並會在英國樂隊Coldplay 明年4月來港表演前，進行本地表演項目。
+ <br>
+  <br>
+  據了解，啟德體藝館將於下月7日先進行一場籃球賽事，同月會再進行表演節目測試。由於啟德體藝館，包括座位數目及編排可以調整，以應付不同需要，消息指，當局正於場內測試不同座位擺位，模擬不同效果，而有關演出預料以售票形式進行，相信比免費派門票，更能確認到場人數。
+  <br>
+  <br>
+  至於可以容納50000人的主場館，預計要到明年初才會進行測試。據了解，英國樂隊Coldplay 明年4月來港表演前，會有其他本地表演項目，但要考慮以綜合表演模式或演唱會，仍有待確定。
+  <br>
+  <br>
+  九龍中立法會議員楊永杰認為，啟德體育園既首次測試只得1500人，運作暢順屬意料之內，當中最重要是啟動跨部門合作。他期望未來應進行多次載滿人的測試，例如達至數萬人的規模，並模擬不同情況，例如藝人延遲交場，相關交通能否配合等，才可真正測試到附近交通配套的承載力。他又認為政府應該多考慮如何將啟德體育園的人潮，留在九龍城區消費，令到管理人流之餘，可以提振地區經濟。
+ 
+</div>
+<br>
+<hr>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm
+   </guid>
+   <pubDate>
+    Wed, 06 Nov 2024 13:07:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐洲聯賽冠軍盃士砵亭4:1挫曼城　皇馬1:3負AC米蘭
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="曼城的夏蘭特比賽中有12碼中楣不入。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777731_1_20241106071838.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  歐洲聯賽冠軍盃，士砵亭主場4:1擊敗曼城。
@@ -61,24 +123,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 07:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     亞冠盃精英聯賽　艾納斯5:1擊敗艾阿恩
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="基斯坦奴朗拿度今仗再取得入球。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777730_1_20241106070929.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  亞冠盃精英聯賽柏克塔哥主場0:1負於艾雷恩。
@@ -106,24 +171,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 07:04:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     鄧炳強稱類似蘭桂坊閉路電視系統將於啟德體育園安裝
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777666-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="鄧炳強期望透過閉路電視系統，不但監察人流，也擴展監察車流情況。" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777666_1_20241105172524.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  保安局局長鄧炳強表示，剛過去的萬聖節，警方在蘭桂坊附近安裝共50組閉路電視，透過多角度實時影像，配合軟件實時評估人流、速度及密度，利用數據作分析評估，對公共安全有很大幫助。
@@ -154,24 +222,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777666-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 17:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     香港國際七人欖球賽明年三月啟德主場館舉行　門票即日起公開發售
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777661-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="香港國際七人欖球賽南看台將會在2025年呈現於啟德主場館。（欖總提供）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777661_1_20241105172754.jpg&amp;q=25">
 <br>
 <div class="itemFullText">
  由中國香港欖球總會舉辦的香港國際七人欖球賽，將於明年3月28日至30日，在有5萬個座位的啟德主場館舉行，門票即日起公開發售。
@@ -199,24 +270,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777661-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 16:53:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     補時連入兩球　英超富咸2:1反勝賓福特
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777571-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="哈利威爾遜補時階段連轟兩球，協助富咸反敗為勝。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777571_1_20241105071101.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英格蘭超級足球聯賽，富咸主場2:1反勝賓福特。
@@ -247,24 +321,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777571-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 07:11:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     WTA年終賽莎芭蘭卡率先晉級4強　鄭欽文取得首勝
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777570-20241105.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="鄭欽文在今次賽事中取得首仗勝利。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777570_1_20241105070751.jpg&amp;q=90">
 <img alt="莎芭蘭卡兩連勝，率先晉級4強。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777570_2_20241105070751.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
@@ -305,24 +382,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777570-20241105.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 05 Nov 2024 07:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     沙田單車節11人受傷　黃金寶估計部分參加者缺路面經驗
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777460-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="黃金寶估計是一些參加者欠缺路面經驗，或部分人希望爭取有利位置，但未有足夠技術下，容易發生意外。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777460_1_20241104104839.jpg&amp;q=40">
 <br>
 <div class="itemFullText">
  昨日舉行的沙田單車節中發生數宗意外，導致11名男女受傷，大部分屬輕傷，有2人送院。主辦活動的香港菁新交流協會會務顧問、中國香港體育普及發展聯會執行委員吳啟泰說，發生意外的組別主要屬於首兩個出發的專業組別。
@@ -356,24 +436,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777460-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 10:23:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超聯賽　曼聯1:1車路士　熱刺4:1阿士東維拉
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777436-20241104.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="曼聯主場被車路士迫和1:1。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777436_1_20241104072847.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  英格蘭超級足球聯賽，曼聯主場被車路士迫和1:1。
@@ -413,24 +496,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777436-20241104.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 04 Nov 2024 07:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     曼城爆冷1:2負般尼茅夫　利物浦挫白禮頓升上榜首
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777357-20241103.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="般尼茅夫爆冷擊敗曼城。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777357_1_20241103070248.jpg&amp;q=75">
 <img alt="沙拿一記漂亮入球助利物浦勝出。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777357_2_20241103070248.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
@@ -480,24 +566,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777357-20241103.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 03 Nov 2024 06:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     WTA年終賽　鄭欽文小組賽首仗不敵莎芭蘭卡
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777353-20241103.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="WTA年終賽，鄭欽文小組賽首仗落敗。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777353_1_20241103032505.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  2024年國際女子網球協會 WTA年終賽開賽，鄭欽文首仗不敵白俄羅斯的莎芭蘭卡，以總盤數0:2落敗，未能拿下小組賽首勝。
@@ -522,24 +611,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777353-20241103.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 03 Nov 2024 03:25:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     何詩蓓奪短池世界盃新加坡站百米自由泳銀牌　三站共5金2銀2銅
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777340-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="在第五線出賽的何詩蓓，游出51秒56的時間。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777340_1_20241102202040.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  港隊「女飛魚」何詩蓓奪得短池游泳世界盃新加坡站100米自由泳銀牌。
@@ -567,24 +659,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777340-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 20:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     曼聯官宣阿摩廉為主教練本月11日上任
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777283-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="曼聯宣布阿摩廉將成為主教練。（網站截圖）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777283_1_20241102070516.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英超曼聯宣布阿摩廉將成為主教練，本月11日上任。
@@ -621,24 +716,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777283-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 07:05:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     何詩蓓短池游泳世盃新加坡站200自奪金　連續3站封后
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777282-20241102.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="何詩蓓200米自連續3站封后，獲大會頒發皇冠。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777282_1_20241102065952.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  短池游泳世界盃新加坡站次日賽事，香港的何詩蓓在200米自由泳決賽以1分51.80秒奪金。這名香港女飛魚在今屆3站賽事都稱霸200米自由泳，獲賽會頒發皇冠。
@@ -672,24 +770,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777282-20241102.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 02 Nov 2024 06:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     本港成功申辦ANOC大會　鄭泳舜稱有助強化亞洲盛事之都地位
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777219-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="鄭泳舜認為，協會選擇香港作為全體代表大會的舉辦地點，反映本港具備舉行國際大型會議的能力。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777219_1_20241101171020.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  中國香港成功申辦國家和地區奧委會協會（ANOC）2026年全體代表大會。立法會議員、民建聯民政及文化體育事務發言人鄭泳舜說，相信有助強化香港作為亞洲盛事之都及世界會議之都的地位。
@@ -717,24 +818,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777219-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 16:50:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     中國香港成功申辦2026年國家和地區奧委會協會全體代表大會
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777181-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="國家和地區奧委會協會全體代表大會昨日宣布，中國香港成功申辦協會的2026年全體代表大會。（港協暨奧委會提供）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777181_1_20241101132941.jpg&amp;q=15">
 <img alt="楊潤雄（左二）說，香港成功申辦2026年協會全體代表大會，充分體現國際間對香港籌辦國際體壇盛事的信心。（港協暨奧委會提供）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777181_2_20241101132941.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
@@ -766,24 +870,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777181-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 13:05:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     曼聯據報落實由葡超士砵教練阿摩廉執教
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777116-20241101.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="阿摩廉據報落實執教曼聯，估計本月中真正接手。(法新社資料圖片)" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777116_1_20241101070930.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英超曼聯據報將落實由葡超士砵教練阿摩廉執教，接替被解僱的坦夏，估計在本月中真正接手。
@@ -826,24 +933,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777116-20241101.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 01 Nov 2024 07:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     短池游泳世界盃新加坡站　何詩蓓以熊貓打扮亮相　奪50米自銅牌
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777091-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="何詩蓓在決賽以熊貓打扮亮相。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777091_1_20241031225003.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  世界泳聯短池游泳世界盃新加坡站，本港泳手何詩蓓在50米自由泳奪得銅牌。
@@ -871,24 +981,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777091-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 22:50:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     姚明辭任中國籃協主席　稱遺憾國家隊成績未達預期
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777062-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="姚明說，遺憾是國家隊的成績和表現沒有達到預期。（新華社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777062_1_20241031204040.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  姚明辭去中國籃球協會主席職務。新華社報道，第十屆中國籃協會員代表大會執行委員會在北京舉行會議，審議通過姚明的辭職申請，選舉郭振明為新一任主席。
@@ -916,24 +1029,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777062-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 18:52:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     著名桌球手奧蘇利雲透過優才入境計劃成為香港居民
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777000-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="奪得7屆世界桌球錦標賽冠軍奧蘇利雲，經優秀人才入境計劃成為香港居民。（奧蘇利雲社交網站）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777000_1_20241031171706.jpg&amp;q=85">
 <img alt="奧蘇利雲成為香港居民，接受入境處處長郭俊峯訪問。（入境處社交網站截圖）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777000_2_20241031172401.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
@@ -965,24 +1081,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777000-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 12:53:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英格蘭聯賽盃利物浦晉級　曼聯5:2擊敗李斯特城
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776944-20241031.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="利物浦作客3:2挫白禮頓，路易斯迪亞斯（中間紅球衣）替利物浦攻入一球。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776944_1_20241031070853.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  英格蘭聯賽盃，利物浦作客以3:2擊敗白禮頓，利物浦晉級8強。
@@ -1010,24 +1129,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776944-20241031.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 31 Oct 2024 07:02:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     楊潤雄訪問葡萄牙　就申辦2026年奧委會協會全體代表大會簡報
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776881-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="楊潤雄（右二）在葡萄牙出席卡斯卡伊斯市安排的歡迎酒會，並與國際奧委會主席Thomas Bach （中）交流。（政府新聞處）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776881_1_20241030173329.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  文化體育及旅遊局局長楊潤雄在葡萄牙卡斯卡伊斯進行訪問，出席相關奧委會協會執行委員會會議，就香港申辦2026年協會全體代表大會計劃作出簡報。他指出，香港是舉辦國際盛事的理想地方，成功落實「一國兩制」，擁有公平及完善的法律制度，令社會一直保持穩定；並擁有廣闊的聯繫網絡，與國際接軌。
@@ -1055,24 +1177,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776881-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 17:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     葡超士砵亭證實曼聯有意任命阿摩廉為新領隊
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776779-20241030.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="阿摩廉同士砵亭的合約有效期至2026年6月。（路透社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776779_1_20241030071553.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  葡超士砵亭發表官方聲明，證實曼聯有意任命球隊主帥阿摩廉，接替日前被解僱的坦夏，成為新任領隊，並同意支付1000萬歐元解約費。曼聯拒絕評論有關講法。
@@ -1100,24 +1225,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776779-20241030.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 30 Oct 2024 07:14:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     丘應樺稱港台全力宣傳轉播全國運動會　製作更多推廣一帶一路節目
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776701-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="張國財指，港台網站每日實時串流的數目達380萬，而每日重溫港台節目的就有62萬，每日到訪港台網站就有50萬，瀏覽港台新聞版面的次數有150萬。" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776701_2_20241029161708.jpg&amp;q=85">
 <img alt="陸頌雄（左）要求當局交代有何措施和策略提高收視率。張國財（右）指香港電台已開始在一些戶外線上媒體做宣傳推廣，效果亦好。" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776701_3_20241029161708.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
@@ -1155,24 +1283,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776701-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 16:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     國乒回應近期比賽成績　總教練李隼：會嚴肅對待　現階段以賽帶練
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776687-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="李隼（上排左二）相信，國家隊年輕運動員需要接受更多比賽歷練，成長需時。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776687_1_20241029155012.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  中國乒乓球隊總教練李隼表示，近期主力隊員訓練不夠系統，身體和心理未充分恢復，競技狀態未達到最佳水平，在早前舉行的亞錦賽，男女隊員均出現一定問題，隊伍回到北京後，正進行全面總結。
@@ -1200,24 +1331,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776687-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 14:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     亞洲冬季運動會明年2月哈爾濱舉行　參與運動員數目創歷屆之最
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776656-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="第九屆亞洲冬季運動會將於明年2月7日到14日在黑龍江哈爾濱舉行，目前已有34個國家和地區共1500多名運動員報名參與，數量規模創歷屆之最。（央視截圖）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776656_1_20241029112516.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  第九屆亞洲冬季運動會將於明年2月7日到14日在黑龍江哈爾濱舉行，目前已有34個國家和地區共1500多名運動員報名參與，數量規模創歷屆之最，今年9月至明年1月舉行14項測試演練活動。
@@ -1245,24 +1379,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776656-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 11:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     李家超：積極推進啟德體育園演練　11月中再進行測試賽及演練
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776645-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776645_1_20241029095945.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  行政長官李家超表示，就啟德體育園的運作，政府會以積極漸進的方式，推進測試和演練，強度會逐步加大，不斷推進直至進行不只一次的5萬人以內的演練。他要求所有部門、啟德體育園有限公司及各環節的操作者，都要以底線思維，高度警惕，提高安全系數，並制定各種預案，包括突發事件和不穩定天氣的應變預案，政務司司長會繼續積極密切籌備各項測試和演練，亦會做好公眾宣傳。
@@ -1290,24 +1427,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776645-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 09:56:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     曼城中場洛迪卡斯簡迪首次獲頒金球獎
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776625-20241029.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="洛迪卡斯簡迪奪得今年金球獎。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776625_1_20241029071020.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  曼城的西班牙中場洛迪卡斯簡迪奪得今年金球獎，是他首次獲得這項殊榮，亦是曼城首位獲得金球獎的球員。
@@ -1341,24 +1481,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776625-20241029.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 29 Oct 2024 07:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超曼聯解僱領隊坦夏　由雲尼斯達萊暫代領隊
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776589-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="坦夏2022年4月出任紅魔領隊，為球隊贏得兩項錦標。（路透社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776589_1_20241028202138.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英超曼聯宣布解僱領隊坦夏，由助教雲尼斯達萊暫代主帥一職，球會同時亦會招募新的領隊。
@@ -1386,24 +1529,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776589-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 20:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     沙田單車節周日舉行繞城門河作賽　源禾路一帶清晨起實施改道封路
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776565-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776565_2_20241028181704.jpg&amp;q=65">
 <br>
 <div class="itemFullText">
  首屆「沙田單車節」將於周日圍繞沙田城門河畔舉行，活動將分為上午的單車賽事及下午的嘉年華活動。因應賽事，當日源禾路一帶由清晨4時至上午11時45分將實施特別改道和封路措施，禁止除緊急車輛外所有車輛進出，部分巴士路線亦會停駛。
@@ -1431,24 +1577,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776565-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 16:46:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超阿仙奴與利物浦賽和2:2
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776481-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="雲迪克（黑球衣）助利物浦追平1:1。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776481_1_20241028070210.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  英格蘭超級足球聯賽，阿仙奴與利物浦賽和2:2，間接令曼城保持英超榜首位置。
@@ -1476,24 +1625,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776481-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 07:03:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超曼聯作客1:2不敵韋斯咸
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776478-20241028.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="薩默維爾（紅藍球衣）攻入協助韋斯咸領先。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776478_1_20241028062850.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英格蘭超級足球聯賽，曼聯作客1:2不敵韋斯咸。
@@ -1521,24 +1673,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776478-20241028.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 28 Oct 2024 06:24:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     U17亞洲盃外圍賽國少隊小組第二　順利晉級正賽
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776465-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="16歲以下國家隊2:2賽和16歲以下南韓隊。（中國足協微博）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776465_1_20241027232322.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  2025年U17亞洲盃外圍賽C組最後一輪比賽，16歲以下國家隊2:2賽和16歲以下南韓隊，以預賽階段10個小組中5個成績最好的第二名身份，順利晉級明年U17亞洲盃正賽階段。
@@ -1569,24 +1724,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776465-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 23:20:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     林世雄視察啟德體育園測試賽　局方稱交通安排暢順
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776459-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="運輸及物流局表示，局長林世雄陪同政務司司長陳國基等到場視察啟德體育園測試賽。（運輸及物流局社交網頁）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776459_1_20241027221335.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  啟德體育園完成首場測試賽。運輸及物流局表示，局方及轄下的運輸署全力配合今日的賽事，局長林世雄亦陪同政務司司長陳國基等到場視察。
@@ -1614,24 +1772,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776459-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 21:42:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     陳國基：將為啟德體育園進行約20場測試　包括主場館5萬人演練
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776450-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776450_1_20241027195026.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  啟德體育園青年運動場下午完成首場測試活動，有超過1500名觀眾入場。政務司司長陳國基表示，觀眾進場、離場、人群管理安排、場館安檢、驗票設施和場地硬件運作非常暢順、令人滿意，相信參加者有非常良好的體驗。
@@ -1668,24 +1829,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776450-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 18:49:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     啟德體育園舉行首場測試賽
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776446-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776446_1_20241027183219.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  明年第一季啟用的啟德體育園，舉行第一場測試賽。當局派出門票予大約一千人，到可以容納五千人的青年運動場欣賞乙組足球賽，測試場地營運能力。
@@ -1710,24 +1874,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776446-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 18:29:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     泛太平洋網球公開賽　鄭欽文奪冠
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776420-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="鄭欽文決賽後向觀眾致意。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776420_1_20241027142641.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  泛太平洋網球公開賽，頭號種子、中國的鄭欽文奪得冠軍。
@@ -1752,24 +1919,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776420-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 15:11:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     西甲巴塞作客4:0擊敗皇馬
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776393-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="皇馬球員雲尼斯奧斯（白球衣）與巴塞球員在比賽中。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776393_1_20241027061416.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  西班牙甲組足球聯賽，巴塞羅那作客4:0擊敗皇家馬德里。
@@ -1797,24 +1967,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776393-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 06:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超愛華頓1:1逼和富咸
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776386-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="比圖為愛華頓追成平手後慶祝。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776386_1_20241027023810.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英格蘭超級足球聯賽周六尾場，愛華頓主場與富咸賽和1:1。
@@ -1839,24 +2012,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776386-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 02:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超曼城1:0挫修咸頓　暫時升上榜首
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776381-20241027.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="曼城的夏蘭特與隊友慶祝入球。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776381_1_20241027011854.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  英格蘭超級足球聯賽，曼城主場1:0擊敗修咸頓，暫時升上榜首。
@@ -1884,24 +2060,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776381-20241027.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 27 Oct 2024 01:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     施政報告2024｜文體旅局稱繼續投入資源協助運動員
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776334-20241026.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="文體旅局表示，會繼續投入資源協助運動員。（港協暨奧委會提供）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776334_1_20241026153738.jpg&amp;q=30">
 <br>
 <div class="itemFullText">
  文化體育及旅遊局常任秘書長沈鳳君說，剛發表的施政報告提及，政府會繼續優化運動員培訓系統，以加強精英運動員的發展，當局會與體育界保持緊密溝通，繼續投入資源為運動員的教育、轉型及就業等方面提供協助，以滿足運動員不同階段的需要。
@@ -1929,24 +2108,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776334-20241026.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 26 Oct 2024 15:26:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐洲球會冬季轉會窗臨近　有估算巴塞也馬身價較1月漲9千萬歐元
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776274-20241026.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="巴塞新星也馬身價增幅估算增加約9000萬歐元。（路透社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776274_1_20241026072736.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  歐洲足球季球員冬季轉會窗臨近，有傳媒估算球星身價。
@@ -1974,24 +2156,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776274-20241026.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 26 Oct 2024 07:27:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超諾定咸森林3:1擊敗李斯特城
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776273-20241026.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="諾定咸森林作客擊敗李斯特城後，球員（紅球衣）慶祝。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776273_1_20241026070714.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英格蘭超級足球聯賽，諾定咸森林作客3:1擊敗林李斯特城迎戰。
@@ -2016,24 +2201,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776273-20241026.htm
-   
-   
+   </guid>
+   <pubDate>
     Sat, 26 Oct 2024 07:01:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     何詩蓓奪金　世界盃仁川站女子200米自由泳決賽封后
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776223-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="何詩蓓在女子200米自由泳決賽獲得金牌。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776223_1_20241025222513.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  游泳世界盃南韓仁川站，本港泳將何詩蓓在女子200米自由泳決賽獲得金牌。
@@ -2058,24 +2246,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776223-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 19:37:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     陳國基聯同楊潤雄鄧炳強視察啟德體育園並要求做好各項準備
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776192-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="陳國基聯同楊潤雄，以及鄧炳強，到啟德體育園視察園方的各項準備工作。（陳國基社交網站）·" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776192_1_20241025171420.jpg&amp;q=40">
 <br>
 <div class="itemFullText">
  政務司司長陳國基說，啟德體育園將於星期日舉辦第一場測試賽，政府當局和園方嚴陣以待，務求賽事能夠順利進行、人群進場和離場時暢順有序。他聯同文化體育及旅遊局局長楊潤雄，以及保安局局長鄧炳強，到啟德體育園視察園方的各項準備工作，確保各方面能夠落實到位。
@@ -2106,24 +2297,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776192-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 17:01:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐霸盃　熱刺主場小勝阿爾克馬爾　曼聯作客被迫和
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776104-20241025.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="李察利臣射入12碼，協助熱刺主場1:0擊敗阿爾克馬爾。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776104_1_20241025071053.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  歐霸盃第三輪賽事，熱刺主場1:0擊敗荷甲阿爾克馬爾。
@@ -2160,24 +2354,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776104-20241025.htm
-   
-   
+   </guid>
+   <pubDate>
     Fri, 25 Oct 2024 07:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     中國足協舉行講座　張家勝稱要切實落實黨中央關於足球戰略部署
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776077-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="中國足球協會舉行講座，黨委書記張家勝以「對世預賽中日之戰反思」為題作主題演說。（中國足協微博圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776077_2_20241025001946.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  中國足球協會舉行講座，國家體育總局副局長、黨組成員、中國足協黨委書記張家勝以「對世預賽中日之戰反思」為題作主題演說，提出全體足球工作者要以上月的中日之戰為鏡為鑒，堅定信心、奮發圖強，切實落實黨中央、國務院關於足球工作的戰略部署，深入做好足球青訓、職業聯賽改革、國家隊建設、協會自身建設等各項重點工作，努力為足球振興發展提供堅強保證。
@@ -2205,24 +2402,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776077-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 22:37:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     鄧竟成稱啟德體育園周日測試程序包括入場驗票安檢帶位等安排
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776034-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="鄧竟成說，體育園的建築工程仍在進行中，但已差不多到最後階段。（盧紫菁攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776034_2_20241024171446.jpg&amp;q=20">
 <br>
 <div class="itemFullText">
  啟德體育園的青年運動場本周日將進行第一場測試賽，現場所見，足球場範圍已鋪好草皮，看台座位、大型LED顯示屏幕及洗手間等設施亦已完工，不過跑道範圍則未完成鋪裝及劃線工程，仍有工人在現場施工。
@@ -2256,24 +2456,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776034-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 17:14:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     啟德體育園周日測試賽青年運動場乙組足球賽一千名持票觀眾入場
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1776020-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="蔡健斌（右）說，周日首場測試賽完結後，會陸續安排其他試業活動在這場地進行。（施華駿攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776020_2_20241024162913.jpg&amp;q=85">
 <img alt="啟德體育園本周日將進行第一次測試賽，在青年運動場舉行一場本地乙組足球賽事。（盧紫菁攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1776020_1_20241024161642.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
@@ -2305,24 +2508,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1776020-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 16:02:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐聯巴塞羅那4:1大勝拜仁慕尼黑
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775942-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="巴塞的拉芬拿今仗獨取三球。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775942_1_20241024071734.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  歐聯第三輪，重頭戲巴塞羅那主場鬥拜仁慕尼黑，巴塞憑拉芬拿大演「帽子戲法」，以4:1取勝。
@@ -2359,24 +2565,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775942-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 07:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐聯利物浦1:0挫萊比錫　曼城5:0破布拉格斯巴達
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775941-20241024.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="紐尼斯（右二）今仗攻入兩球，圖為他與隊友慶祝。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775941_1_20241024071040.jpg&amp;q=85">
 <img alt="曼城的夏蘭特與隊友慶祝入球。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775941_2_20241024071401.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
@@ -2414,24 +2623,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775941-20241024.htm
-   
-   
+   </guid>
+   <pubDate>
     Thu, 24 Oct 2024 07:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     楊潤雄：啟德體育園承諾推行體育活動支援　總額15.83億元
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775844-20241023.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="楊潤雄（右二）早前視察啟德體育園工程的最新進度，並檢視進行試業活動的預備工作。（政府新聞處資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775844_1_20241023161230.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  文化體育及旅遊局局長楊潤雄說，啟德體育園有限公司承諾推行一項「體育活動支援計劃」，支持體育盛事，計劃總承擔額15億8300萬元，大約分20年執行，計劃款項可用作豁免在啟德體育園舉行體育活動的場地租金，或直接贊助體育活動。計劃預計明年推行，啟德體育園有限公司正細化計劃詳情，稍後公布申請安排。
@@ -2462,24 +2674,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775844-20241023.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 23 Oct 2024 15:46:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐聯皇馬5:2反勝多蒙特　阿士東維拉取勝升榜首
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775748-20241023.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="雲尼素斯連中三元，助皇馬大逆轉反勝。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775748_1_20241023071617.jpg&amp;q=90">
 <img alt="阿士東維拉3連戰升上榜首。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775748_2_20241023071617.jpg&amp;q=90">
 <img alt="阿仙奴勝出有幸運成份。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775748_3_20241023071617.jpg&amp;q=85">
 <br>
@@ -2521,24 +2736,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775748-20241023.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 23 Oct 2024 07:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超諾定咸森林主場1:0擊敗水晶宮
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775569-20241022.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="諾定咸森林主場1:0擊敗水晶宮。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775569_1_20241022070939.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英超方面，諾定咸森林主場1:0擊敗水晶宮。
@@ -2569,24 +2787,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775569-20241022.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 22 Oct 2024 07:09:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     巴西球星尼馬養傷一年復出
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775568-20241022.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="尼馬復出，在沙特希拉爾作客阿聯酋球隊艾恩的亞冠精英聯賽中後備上陣。(法新社)" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775568_1_20241022070756.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  因傷陣超過一年的巴西球星尼馬復出，在沙特希拉爾作客阿聯酋球隊艾恩的亞冠精英聯賽中後備上陣，差點取得入球。希拉爾最終5:4勝出。
@@ -2623,24 +2844,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775568-20241022.htm
-   
-   
+   </guid>
+   <pubDate>
     Tue, 22 Oct 2024 07:07:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     大坂直美因傷退出香港網球公開　仍會如期來港與球迷見面
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775533-20241021.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="大坂直美因背傷困擾退賽，提早結束今年賽季的餘下比賽。（路透社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775533_1_20241021202312.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  香港網球公開賽將於同周六舉行，日本網球名將大坂直美因背傷困擾退賽，她亦提早結束今年賽季的餘下比賽，但仍會如期來香港，在公開賽期間出席活動與香港球迷見面。
@@ -2671,24 +2895,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775533-20241021.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 21 Oct 2024 20:06:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     施政報告2024｜楊潤雄：啟德體育園周日辦首場測試賽
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775514-20241021.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775514_1_20241021180751.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  啟德體育園明年首季啟用，文化體育及旅遊局局長楊潤雄在本台節目指，場館開幕前會有多次測試賽，接下來周日在公眾運動場舉辦本地足球賽，預計規模約一千人。他指其後會陸續測試，包括明年一月測試主場館，估計到開幕前，總演練人數達20萬。
@@ -2716,24 +2943,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775514-20241021.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 21 Oct 2024 17:26:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     「保誠香港網球公開賽」獲頒授「M」品牌認可
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775472-20241021.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="「保誠香港網球公開賽」獲型體育活動事務委員會頒授「M」品牌認可。" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775472_1_20241021151344.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  本月26日至下月3日在維園網球場主場舉行的「保誠香港網球公開賽」，獲型體育活動事務委員會頒授「M」品牌認可。
@@ -2758,24 +2988,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775472-20241021.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 21 Oct 2024 14:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     英超利物浦2:1車路士　曼城同樣比數反勝狼隊
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775399-20241021.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="居迪斯鍾斯的入球，替利物浦再次領先2:1到完場。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775399_1_20241021071303.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  英超利物浦主場2:1擊敗車路士。他們在29分鐘靠12碼先開紀錄，居迪斯鍾斯在禁區被踢跌，被球證判12碼，由沙拿處理，車路士門將山齊士捉錯路，利物浦1:0領先。
@@ -2818,24 +3051,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775399-20241021.htm
-   
-   
+   </guid>
+   <pubDate>
     Mon, 21 Oct 2024 07:09:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     騎師蔡明紹墮馬　左肩受傷送院檢查
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1775380-20241020.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="沙田馬場第十場賽事，騎師蔡明紹策騎馬匹「九因歌」時墮馬（紅圈）。（馬會網頁截圖）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1775380_1_20241020202209.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  沙田馬場第十場賽事，騎師蔡明紹策騎馬匹「九因歌」時墮馬。
@@ -2860,62 +3096,16 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1775380-20241020.htm
-   
-   
+   </guid>
+   <pubDate>
     Sun, 20 Oct 2024 19:36:00 +0800
-   
-  
-  
-   
-    英超阿仙奴不敵般尼茅夫今季不敗遭打破　曼聯反勝賓福特
-   
-   
-    https://news.rthk.hk/rthk/ch/component/k2/1775330-20241020.htm
-   
-   
-    
-<br>
-<div class="itemFullText">
- 英超阿仙奴作客般尼茅夫，在上半場中後段沙列巴領紅牌的情況下，以0:2輸球，今季聯賽被打破不敗之身，並錯失升上榜首機會。
- <br>
-  <br>
-  曼聯主場迎戰賓福特，上半場補時先失一球，下半場憑加拿祖及凱倫的入球反勝2:1。
-  <br>
-  <br>
-  熱刺主場對韋斯咸，18分鐘被客隊的古度斯射入領先，但之後憑古路錫斯基、比蘇馬、孫興慜的入球，加上對方門將的烏龍球，反勝4:1。
-  <br>
-  <br>
-  同日其餘賽果，阿士東維拉作客反勝富咸3:1、紐卡素主場對白禮頓以一球落敗，李斯特城上演絕地大反擊，落後兩球情況下作客反勝修咸頓3:2，愛華頓作客兩球輕取葉士域治。
- 
-</div>
-<br>
-<hr>
-<p>
- 原始網址 Original URL：
- <a href="https://news.rthk.hk/rthk/ch/component/k2/1775330-20241020.htm" rel="nofollow">
-  https://news.rthk.hk/rthk/ch/component/k2/1775330-20241020.htm
- </a>
-</p>
-<p>
- © rthk.hk
-</p>
-<p>
- 電子郵件 Email:
- <a href="mailto:cnews@rthk.hk" rel="nofollow">
-  cnews@rthk.hk
- </a>
-</p>]]&gt;
-   
-   
-    https://news.rthk.hk/rthk/ch/component/k2/1775330-20241020.htm
-   
-   
-    Sun, 20 Oct 2024 07:12:00 +0800
-   
-  
- 
-</div>
+   </pubDate>
+  </item>
+ </channel>
+</rss>

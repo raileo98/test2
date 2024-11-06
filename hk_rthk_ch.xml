@@ -1,39 +1,200 @@
-<div>
- 
-  
+<?xml version="1.0" encoding="utf-8"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+ <channel>
+  <title>
    rthk
-  
-  
+  </title>
+  <link>
    https://news.rthk.hk/rthk/ch/latest-news.htm
-  
-  
+  </link>
+  <description>
    rthk
-  
-  
+  </description>
+  <copyright>
    © 香港電台 RTHK
-  
-  
+  </copyright>
+  <docs>
    http://www.rssboard.org/rss-specification
-  
-  
+  </docs>
+  <generator>
    python-feedgen
-  
-  <img>
-  
+  </generator>
+  <image>
+   <url>
+    <![CDATA[https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png]]>
+   </url>
+   <title>
+    rthk
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/latest-news.htm
+   </link>
+  </image>
+  <language>
    zh-HK
-  
-  
+  </language>
+  <webMaster>
    webmaster@rthk.hk
-  
-  
-   
+  </webMaster>
+  <item>
+   <title>
+    恒指下午初段跌逾500點
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1777785-20241106.htm
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="恒生指數較早時報20424點，跌582點，跌幅2.77%。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777785_1_20241106130734.jpg&amp;q=10">
+<br>
+<div class="itemFullText">
+ 港股下午開市初段跌勢持續，恒生指數較早時報20424點，跌582點，跌幅2.77%。
+ <br>
+  <br>
+  科技指數報4557點，跌136點，跌幅2.91%。
+ 
+</div>
+<br>
+<hr>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1777785-20241106.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1777785-20241106.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/ch/component/k2/1777785-20241106.htm
+   </guid>
+   <pubDate>
+    Wed, 06 Nov 2024 13:11:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    領展上半年香港物業零售收益按年增長近3%　續租租金升近1%
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1777787-20241106.htm
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="領展上半年街市/熟食檔位續租租金按年跌5.8%。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777787_1_20241106130851.jpg&amp;q=75">
+<br>
+<div class="itemFullText">
+ 領展截至9月底止上半財年香港物業零售收益總額38.29億元，按年增長2.6%。截至9月底，租用率97.8，較今年3月底跌0.2個百分點。續租租金升幅按年倒退8個百分點，降至0.7%，當中商舖跌6.6個百分點，街市/熟食檔位續租租金更跌5.8%。
+ <br>
+  <br>
+  截至9月底，香港零售物業組合平均每月呎租64.5元，較3月底輕微升0.1元。香港整體物業組合商戶每平方呎銷售額下跌4.3%。
+  <br>
+  <br>
+  集團表示，正在規劃及待法定審批的項目預留資本開支約6.57億元。正在進行的資產提升項目涉及資本開支共7500萬元，該等項目預期於今年底至明年中完工。
+  <br>
+  <br>
+  另外，集團上半財年內地物業組合總收益按年增加39.2%，主要由於2月收購上海七寶領展廣場額外50%權益後項目全面入帳。撇除以上貢獻，收益按年增長6.5%。截至9月底，內地物業租用率96.4%。
+  <br>
+  <br>
+  國際物業組合包括澳洲、新加坡及英國的12項零售及辦公大樓資產上半年收益增長3%，升至8.87億元。
+ 
+</div>
+<br>
+<hr>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1777787-20241106.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1777787-20241106.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/ch/component/k2/1777787-20241106.htm
+   </guid>
+   <pubDate>
+    Wed, 06 Nov 2024 13:08:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
+    消息：啟德體藝館下月7日進行籃球賽　同月多項表演節目測試
+   </title>
+   <link>
+    https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm
+   </link>
+   <description>
+    <![CDATA[<div>
+<br>
+<div class="itemFullText">
+ 啟德體育園將陸續進行測試。消息指，下月7日將會於室內場館啟德體藝館進行籃球賽，之後會有表演項目以進行測試。據了解，預期初步不會以人數上限的10000人作測試，而是以3000至5000人，之後逐步提升。至於主場館的測試，預計到明年1月展開，並會在英國樂隊Coldplay 明年4月來港表演前，進行本地表演項目。
+ <br>
+  <br>
+  據了解，啟德體藝館將於下月7日先進行一場籃球賽事，同月會再進行表演節目測試。由於啟德體藝館，包括座位數目及編排可以調整，以應付不同需要，消息指，當局正於場內測試不同座位擺位，模擬不同效果，而有關演出預料以售票形式進行，相信比免費派門票，更能確認到場人數。
+  <br>
+  <br>
+  至於可以容納50000人的主場館，預計要到明年初才會進行測試。據了解，英國樂隊Coldplay 明年4月來港表演前，會有其他本地表演項目，但要考慮以綜合表演模式或演唱會，仍有待確定。
+  <br>
+  <br>
+  九龍中立法會議員楊永杰認為，啟德體育園既首次測試只得1500人，運作暢順屬意料之內，當中最重要是啟動跨部門合作。他期望未來應進行多次載滿人的測試，例如達至數萬人的規模，並模擬不同情況，例如藝人延遲交場，相關交通能否配合等，才可真正測試到附近交通配套的承載力。他又認為政府應該多考慮如何將啟德體育園的人潮，留在九龍城區消費，令到管理人流之餘，可以提振地區經濟。
+ 
+</div>
+<br>
+<hr>
+<p>
+ 原始網址 Original URL：
+ <a href="https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm" rel="nofollow">
+  https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm
+ </a>
+</p>
+<p>
+ © rthk.hk
+</p>
+<p>
+ 電子郵件 Email:
+ <a href="mailto:cnews@rthk.hk" rel="nofollow">
+  cnews@rthk.hk
+ </a>
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/ch/component/k2/1777786-20241106.htm
+   </guid>
+   <pubDate>
+    Wed, 06 Nov 2024 13:07:00 +0800
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜金融市場波動　美股期貨及美元指數均升逾1%
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777784-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="美國總統選舉各個州陸續結束投票，點票工作展開，金融市場顯著波動。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777784_1_20241106124926.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國總統選舉各個州陸續結束投票，點票工作展開，美國全國廣播公司推算，前總統特朗普暫時取得230張選舉人票，副總統賀錦麗暫時拿下185張選舉人票。
@@ -70,24 +231,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777784-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     天文台視乎銀杏距離及強度等　評估需否於周五至周六發出一號信號
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777783-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<br>
 <div class="itemFullText">
  天文台表示，根據現時預測，位於呂宋以東海域的熱帶氣旋銀杏會在明晚至星期五早上，進入本港800公里範圍，並採取偏西方向移動，橫過南海北部。
  <br>
@@ -114,24 +278,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777783-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:45:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜調查：特朗普在搖擺州之一北卡羅來納州取勝
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777782-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="票站調查推算特朗普在北卡羅來納州勝出。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777782_1_20241106124628.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  美國總統選舉開始點票。
@@ -165,24 +332,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777782-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:43:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     謝展寰指傢俬「回收再造」不符成本效益　鼓勵市民「交換重用」
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777781-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="謝展寰說，市民可按傢俬質量、數量、居住地區等，選擇合適渠道交易、互換或捐贈。" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777781_1_20241106123713.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  環境及生態局局長謝展寰表示，傢俬「回收再造」不符合成本效益，亦不符合綠色經濟原則，最好是鼓勵市民「交換重用」，而並非提供便利的棄置傢俬途徑。
@@ -210,24 +380,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777781-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:31:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     孫東稱致力推動生命健康科技發展成具優勢及策略意義科技產業
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777780-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="孫東在港加商會與投資推廣署合辦的全球健康與生命科學創新研討會致辭。（政府新聞處）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777780_1_20241106123007.jpg&amp;q=90">
 <img alt="孫東（右六）與加拿大參議員胡元豹（右七）及其他嘉賓合照。（政府新聞處）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777780_2_20241106123007.jpg&amp;q=55">
 <img alt="孫東（左）拜會中國駐加拿大大使王鏑（右），向對方介紹推動建設為國際創科中心的進展。（政府新聞處）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777780_3_20241106123007.jpg&amp;q=70">
 <br>
@@ -263,24 +436,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777780-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:30:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     有上海芯片企業落戶香港　冀增強本港芯片設計競爭力
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777779-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<br>
 <div class="itemFullText">
  繼續有內地企業選擇來港發展業務，有生產半導體芯片產品的上海企業，本月落戶香港，來自香港的公司創辦人希望幫助本港增加芯片設計競爭力。
  <br>
@@ -304,24 +480,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777779-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:25:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     消息指啟德體育園下月7日於室內場館進行籃球賽
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777777-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="消息指，下月7日將會於室內場館啟德體藝館進行籃球賽，之後會有表演項目以進行測試，預計會有數千人參與。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777777_1_20241106122602.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  啟德體育園將陸續進行測試。消息指，下月7日將會於室內場館啟德體藝館進行籃球賽，之後會有表演項目以進行測試，預計會有數千人參與。至於主場館的測試，預計到明年1月展開，並會在英國樂隊Coldplay明年4月來港表演前，進行本地表演項目。
@@ -346,24 +525,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777777-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:21:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     領展中期可分派總額增4.3%　每基金單位派134.89仙
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777776-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="領展中期可分派總額按年增加4.3%至34.76億元；每基金單位中期分派按年增加3.7%至134.89仙。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777776_1_20241106122021.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  領展截至9月底止，中期可分派總額按年增加4.3%至34.76億元；每基金單位中期分派按年增加3.7%至134.89仙。
@@ -394,24 +576,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777776-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:20:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     恒指半日挫547點　主板成交逾1120億元
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777773-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="恒指中午收市報20459點，跌547點，跌幅2.61%，半日主板成交升至逾1120億元。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777773_1_20241106121212.jpg&amp;q=15">
 <br>
 <div class="itemFullText">
  港股連升3日後回吐，恒生指數開市失守21000點，低開逾210點，其後跌幅一度擴大至近640點，中午收市報20459點，跌547點，跌幅2.61%，半日主板成交升至逾1120億元。
@@ -445,24 +630,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777773-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:18:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     羅淑佩：研究如何將「打卡位」在新彩虹邨重現
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777775-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="羅淑佩表示，建築團隊將會研究如何將「打卡位」在新彩虹邨重現。" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777775_1_20241106122838.jpg&amp;q=70">
 <br>
 <div class="itemFullText">
  房屋署署長羅淑佩接受本台訪問表示，對於彩虹邨重建方案速度的快慢，聽到不同意見，但強調在第一期重建居民遷置前4年公布方案，希望他們有心理準備。若有居民不想重置到新美東邨，可以提出，如果有合適單位，署方會盡量配合。
@@ -487,24 +675,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777775-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     羅淑佩：市民舉報助找出較隱蔽的濫用公屋個案
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777774-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="羅淑佩指一些較隱蔽濫用公屋個案，需要透過市民舉報提供線索。（鍾家銘攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777774_1_20241106122810.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  房委會明年1月將推出獎勵計劃，向提供確切情報，令房屋署成功收回濫用公屋單位的實名舉報人士，提供現金及感謝狀作為嘉許。房屋署署長羅淑佩接受本台訪問表示，較容易偵查的濫用公屋個案，過去一段時間已被找出，餘下一些較隱蔽個案，需要透過市民舉報提供線索。署方數據亦顯示，以舉報方式找出的濫用公屋個案，有一定成功率。
@@ -529,24 +720,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777774-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜民調推算特朗普暫領先　搖擺州選情膠著
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777772-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="密歇根州是其中一個關鍵搖擺州份。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777772_1_20241106121129.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  美國總統選舉各個州陸續結束投票，點票工作展開。
@@ -577,24 +771,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777772-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 12:10:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     滬指半日反覆高收約0.2%　創業板指數升0.8%
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777770-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="上證綜合指數早段曾升穿3400點，其後一度倒跌，半日收市報3392點，升5點，升幅0.16%。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777770_1_20241106114048.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  滬深股市半日反覆靠穩，農業、低空經濟、能源金屬相關股份上升；保險、黑色家電、信託概念板塊下跌。
@@ -625,24 +822,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777770-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 11:46:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     林定國稱政府將在所有未來合約加入調解條款
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777768-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="林定國鼓勵私人機構效仿政府做法，培養香港的調解文化。（直播截圖）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777768_1_20241106123357.jpg&amp;q=70">
 <br>
 <div class="itemFullText">
  律政司司長林定國說，將發表一份有關在政府合約中加入調解條款的政策聲明。
@@ -673,24 +873,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777768-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 11:22:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜一些州份選舉部門在投票日接獲投訴
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777765-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="威斯康星州的選民往票站投票。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777765_1_20241106111944.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國大選多個州陸續結束投票，一些州份的選舉部門在投票日接獲投訴，包括在印第安納州的漢密爾頓縣，多個票站當地周二早上投票開始時，由於投票機器發生故障，雖然票站照常在早上6時開放，但實際可以投票的時間延遲約半個小時，令一早到票站投票的選民大排長龍，一度有至少80人在票站外等候，有些人甚至因而離開無投票。
@@ -715,24 +918,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777765-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 11:19:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     《遇見美麗中國》《美麗香港系列》專題片於立法會大堂循環播放
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777767-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777767_1_20241106122113.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  環境及生態局聯同國家生態環境部宣傳教育中心製作的《遇見美麗中國》和《美麗香港系列》專題片，在立法會舉行大會會議前，於大堂舉行播放巡禮，議員一起觀賞專題片精華片段。
@@ -760,24 +966,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777767-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 11:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     恒指跌幅擴大至逾600點　比特幣一度突破7.5萬美元
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777766-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="恒生指數較早時報20405點，跌601點，跌幅2.86%。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777766_1_20241106111113.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  港股跌幅擴大至逾600點，恒生指數較早時報20405點，跌601點，跌幅2.86%。
@@ -805,24 +1014,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777766-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 11:13:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     港股跌逾400點
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777764-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="恒生指數一開市失守21000點，較早時跌逾400點。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777764_1_20241106105537.jpg&amp;q=1">
 <br>
 <div class="itemFullText">
  港股連升3日後回吐，恒生指數一開市失守21000點，其後跌幅逐步擴大至逾400點，較早時報20548點，跌458點，跌2.18%。
@@ -856,24 +1068,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777764-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 11:02:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜票站調查推算特朗普暫得168票賀錦麗81票
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777762-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="多個州份已經結束投票，包括搖擺州份亞利桑那、威斯康星和密歇根州等。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777762_1_20241106105519.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國總統選舉多個州份已經結束投票，包括搖擺州份亞利桑那、威斯康星和密歇根州等。
@@ -907,24 +1122,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777762-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 10:48:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     日股半日升2%
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777761-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="日經平均指數上午收市報39341點，升866點，升幅2.25%。（日本交易所圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777761_1_20241106103315.jpg&amp;q=35">
 <br>
 <div class="itemFullText">
  日本股市半日升2%，日經平均指數上午收市報39341點，升866點，升幅2.25%。
@@ -945,24 +1163,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777761-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 10:34:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜調查指特朗普取154張選舉人票賀錦麗30張
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777760-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="美國總統選舉多個州份已經結束投票，開始點票。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777760_1_20241106101617.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國總統選舉多個州份已經結束投票，包括搖擺州份亞利桑那、威斯康星和密歇根州等，點票工作正在進行。
@@ -996,24 +1217,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777760-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 10:14:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     盧偉國稱航空客流續升要做好準備　物流界指如無三跑難滿足需求
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777759-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="盧偉國（左）認為，雖然本港空運在世界前列，但仍要準備好自己；袁美儀（右）說，現時本港機場空運貨量不只看今年，未來計劃更重要。" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777759_1_20241106105522.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  香港機場三跑系統本月28日全面投入運作。
@@ -1047,24 +1271,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777759-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 10:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     拉夫羅夫稱如美國願意公平談判　俄國願就雙方關係平等對話
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777734-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="拉夫羅夫認為反俄和仇俄是美國政黨共識。（路透社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777734_1_20241106080122.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  俄羅斯外長拉夫羅夫表示，反俄和仇俄是美國政黨共識，烏克蘭已成為針對俄羅斯的關鍵角色。
@@ -1092,24 +1319,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777734-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:51:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     秘魯發生6級地震　首都利馬部分地區有震感
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777739-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="秘魯發生6級地震　首都利馬部分地區有震感" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777739_1_20241106081526.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  秘魯中部沿海利馬省發生黎克特制6級地震，目前未有傷亡或財產損失報告。
@@ -1137,24 +1367,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777739-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:50:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     潘功勝：堅持支持性貨幣政策立場　加大貨幣政策逆周期調節力度
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777758-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="潘功勝指出，要為經濟穩定增長及高質量發展營造良好貨幣金融環境。（央視截圖）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777758_1_20241106094528.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  人民銀行行長潘功勝強調，將堅持支持性貨幣政策立場，加大貨幣政策逆周期調節力度，為經濟穩定增長及高質量發展營造良好貨幣金融環境。
@@ -1182,24 +1415,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777758-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:49:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜調查指特朗普暫取10個州　賀錦麗拿下4個州
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777757-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="票站調查指特朗普取得105張選舉人票，賀錦麗暫時有30張選舉人票。(法新社)" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777757_1_20241106094716.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  美國總統選舉點票工作在多個州展開。
@@ -1233,24 +1469,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777757-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:45:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     滬深股市初段上升
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777755-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="上證指數較早時報3392點，升5點，升幅0.16%。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777755_1_20241106093541.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  內地股市初段上升。
@@ -1281,24 +1520,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777755-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     人行開展173億元人民幣逆回購操作
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777754-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="人民銀行公開市場開展173億元人民幣7日期逆回購操作，單日淨回籠4137億元。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777754_1_20241106093215.jpg&amp;q=55">
 <br>
 <div class="itemFullText">
  人民銀行公開市場開展173億元人民幣7日期逆回購操作，利率維持於1.5厘。
@@ -1323,24 +1565,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777754-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:38:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     恒指競價時段跌215點
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777752-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="恒生指數競價時段報20791點，跌215點，跌幅1.02%。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777752_1_20241106092446.jpg&amp;q=20">
 <br>
 <div class="itemFullText">
  港股在競價時段下跌，恒生指數報20791點，跌215點，跌幅1.02%。
@@ -1365,24 +1610,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777752-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:25:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     人民幣兌美元中間價升穿7.1兌1美元水平
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777751-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="人民幣中間價報7.0993兌1美元，較上日中間價升23點子。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777751_1_20241106091950.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  人民幣兌美元中間價報7.0993兌1美元，較上日中間價升23點子。
@@ -1403,24 +1651,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777751-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:22:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     日央行會議紀錄：若經濟及物價預測實現將會再加息
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777747-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="日本央行委員一致認為，如果經濟和物價預測得以實現，央行將會繼續加息。（日本央行圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777747_1_20241106090835.jpg&amp;q=40">
 <br>
 <div class="itemFullText">
  日本央行9月會議紀錄顯示，央行委員一致認為，如果經濟和物價預測實現，央行將繼續加息，又認為央行近期工作重點應該是仔細審視海外經濟不確定及金融市場不穩對經濟的影響。
@@ -1448,24 +1699,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777747-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     台股初段變動不大
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777749-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="台灣加權指數較早時報23104點，跌1點。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777749_1_20241106091045.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  台灣股市在開市初段變動不大。加權指數較早時報23104點，跌1點。
@@ -1486,24 +1740,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777749-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     《環看天下》：西班牙洪災揭示水土嚴重流失及防洪意識嚴重滯後
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777750-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="洪水沖入小鎮，淹沒房屋及街道。（路透社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777750_1_20241106091131.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  西班牙暴雨引發的水災增至200多人死亡。當地傳媒統計，在受災最嚴重的巴倫西亞自治區，7萬多座房屋遭受不同程度損壞，大批民眾生活受影響。
@@ -1528,24 +1785,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777750-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:11:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜票站調查特朗普90張選舉人票賀錦麗27張
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777748-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="票站陸續關閉，點票工作亦已展開。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777748_1_20241106091234.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國總統選舉票站陸續關閉，正進行點票工作。
@@ -1582,24 +1842,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777748-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 09:09:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     羅淑佩：研究將彩虹邨七色籃球場等「打卡」熱點於新彩虹邨重現
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777746-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777746_1_20241106085732.jpg&amp;q=70">
 <br>
 <div class="itemFullText">
  政府計劃將彩虹邨分三期重建，由第一期到最後一期住戶入伙，預計需時約15年。房屋署署長羅淑佩接受本台訪問表示，重建的速度快慢，居民有不同意見，她強調距離第一期遷置尚有約4年時間，當局提早公布方案，希望居民有心理準備，讓他們可在過程中參與，亦掌握搬遷情況，及早安排。她說有很多住戶期待遷置至新美東邨，但若有居民希望遷往鄰近地區其他單位，如署方有合適單位，會盡量配合。
@@ -1630,24 +1893,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777746-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:57:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     羅淑佩：絕不會在無把握做好安置情況下大規模對劏房執法
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777745-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777745_1_20241106085500.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  施政報告宣布將透過立法方式解決劏房問題，符合標準的單位將名為「簡樸房」。對於近日有報道指有劏房業主以提早改建為名，迫遷租戶。本身是「解決劏房問題」工作組成員之一的房屋署署長羅淑佩說，若情況屬實，她鼓勵相關租戶向差估署舉報，因租戶受劏房租管條例保障，若以改建為名，在租約未滿前收回單位，趕走租戶是違法，租戶有權舉報。她勸喻業主在當局未就「簡樸房」訂立標準，仍未立法前不必急於改建，否則最終可能只會浪費金錢。
@@ -1675,24 +1941,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777745-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:55:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     羅淑佩：富戶不一定等同濫用公屋　焦點應在多繳幾多市值租金
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777743-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777743_1_20241106085047.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  房委會明年1月將推出「善用公屋資源獎勵計劃」，為提供確切情報，令房屋署成功收回單位的實名舉報人士，提供現金3千元獎賞及感謝狀作為嘉許。房屋署署長羅淑佩接受本台訪問表示，坊間指計劃會鼓勵舉報文化，但她引述數據表示，將去年首階段88000戶申報個案，於土地註冊處作配對後，在報稱沒有在本港擁有住宅物業的住戶中，發現部分戶主或者家庭成員擁有物業，百分比大約是0.5%，但同一時間收到的舉報個案中，找出有住戶擁有住宅物業的成功率約有1.5%，兩者相差3倍，顯示舉報方法的確能提供更好線索，協助署方提升打擊濫用公屋的效率。
@@ -1720,24 +1989,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777743-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:50:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜票站調查：選舉人票特朗普23:3賀錦麗
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777742-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="票站陸續關閉，包括其中一個搖擺州北卡羅來納州。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777742_1_20241106085102.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  美國總統選舉，票站陸續關閉，包括其中一個搖擺州北卡羅來納州，點票工作隨即展開。
@@ -1768,24 +2040,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777742-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:49:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     證券商協會：優化上市批核流程　有助吸引企業來港掛牌
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777741-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="楊玳詩相信，優化上市審批可以與其他市場接軌，提高香港競爭力，甚至可以考慮取消最低市值要求，加大上市吸引力。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777741_1_20241106083050.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  施政報告提出多項優化證券市場的措施，包括優化上市批核流程。證監會與港交所亦隨即發表聯合聲明，明確新股申請的審批時間表，提出如果公司提交的上市申請完全符合相關上市規定，兩家監管機構分別發出最多兩輪監管意見後進行評估，並在不多於40個營業日內確認申請是否存在重大監管關注事項，若確認沒有重大監管關注事項，上市申請便可轉交至上市委員會聆訊。對於已經在A股上市、市值逾百億元的內地股市，證監會及聯交所分別更只會發出一輪監管意見，各自評估將在不多於30個營業日內完成。
@@ -1816,24 +2091,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777741-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:30:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜票站調查指特朗普在印第安納和肯塔基州勝出
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777740-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="美國廣播公司的票站調查說，特朗普在印第安納和肯塔基州勝出，取得19張選舉人票，而賀錦麗在佛蒙特州勝出，暫時有3票。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777740_1_20241106082715.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國總統選舉，陸續有票站關閉，包括佐治亞州、南卡羅來納州、佛蒙特州、印第安納和肯塔基州，另外，佛羅里達州的大部分投票亦已經結束。
@@ -1864,24 +2142,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777740-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:22:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     日股初段上升
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777737-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="日經平均指數較早時報38755點，升280點，升幅0.73%。（日本交易所圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777737_1_20241106080915.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  日本股市在開市初段上升，日經平均指數較早時報38755點，升280點，升幅0.73%。
@@ -1902,24 +2183,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777737-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:13:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     韓股初段靠穩
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777738-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="首爾綜合指數較早時報2581點，升4點，升幅0.17%。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777738_1_20241106081158.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  南韓股市在開市初段靠穩，首爾綜合指數較早時報2581點，升4點，升幅0.17%。
@@ -1940,24 +2224,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777738-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 08:13:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     上海企業稱香港匯聚人才擬落戶發展　無懼中美關係緊張影響
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="有上海企業落戶香港發展，相信有助走進國際市場，業務是透過人工智能病房機器人，代替醫護人員進入隔離病房，助減省醫護人手。（陳曉筠攝）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777735_1_20241106075958.jpg&amp;q=75">
 <img alt="病房機器人可幫助例如接受放射治療的癌症患者檢查體溫、血壓、體內輻射量、送藥和遙距問診等工作。（陳曉筠攝 )" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777735_2_20241106082416.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
@@ -1995,24 +2282,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 07:59:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜有投票站開始關閉　點票工作隨即開始
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777732-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="有投票站開始關閉，點票工作將展開。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777732_1_20241106075004.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國總統選舉投票日，印第安納州和肯塔基州在香港時間早上七時，陸續關閉投票站，成為最早結束投票的兩個州，計票工作隨即展開。
@@ -2046,24 +2336,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777732-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 07:46:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐洲聯賽冠軍盃士砵亭4:1挫曼城　皇馬1:3負AC米蘭
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="曼城的夏蘭特比賽中有12碼中楣不入。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777731_1_20241106071838.jpg&amp;q=75">
 <br>
 <div class="itemFullText">
  歐洲聯賽冠軍盃，士砵亭主場4:1擊敗曼城。
@@ -2091,24 +2384,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 07:12:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     亞冠盃精英聯賽　艾納斯5:1擊敗艾阿恩
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="基斯坦奴朗拿度今仗再取得入球。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777730_1_20241106070929.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  亞冠盃精英聯賽柏克塔哥主場0:1負於艾雷恩。
@@ -2136,24 +2432,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 07:04:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     加蘭特指以色列安全一直是其使命　又警告道德黑暗已席捲整個國家
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777729-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="加蘭特結束記者會時，向陣亡士兵、人質和他們的家屬致敬。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777729_1_20241106071435.jpg&amp;q=90">
 <img alt="加蘭特再被解除職務後，特拉維夫有大批民眾上街抗議。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777729_2_20241106071435.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
@@ -2185,24 +2484,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777729-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:53:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     巴基斯坦卡拉奇兩名中國公民遭保安員槍擊受傷
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="卡拉奇紡織廠外發生開槍事後，大批警員到場，封鎖現場調查。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777728_1_20241106071707.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
  巴基斯坦再有中國公民遇襲，兩人受傷，醫院消息指，其中一人傷勢嚴重。
@@ -2233,24 +2535,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:32:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     港股美國預託證券與本港收市比較個別發展
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777727-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="滙控ADR較本港收市升逾1%。（港台圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777727_1_20241106062159.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  港股美國預託證券(ADR)與本港收市比較個別發展。
@@ -2278,24 +2583,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777727-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:32:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     國際油價高收近1%　颶風來襲或導致減產
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777722-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="倫敦布蘭特期油收市升近0.6%，紐約期油升0.7%。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777722_1_20241106052815.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  國際期油價格升近1%，因美元下跌，加上颶風來襲或削減美國墨西哥灣的石油產量。
@@ -2323,24 +2631,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777722-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     紐約期金高收0.1%
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777723-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="紐約期金收市報每盎司2749.7美元，升幅0.1%。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777723_1_20241106053346.jpg&amp;q=80">
 <br>
 <div class="itemFullText">
  金價靠穩，市場關注美國大選結果。
@@ -2368,24 +2679,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777723-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美元曾觸及近3周低位
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777726-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="美元指數低見103.37，創近3星期低位，在紐約尾市報103.42，跌幅近0.5%。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777726_1_20241106061401.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  交易商在美國大選結果出爐前平倉，美元兌一籃子貨幣下跌。
@@ -2416,24 +2730,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777726-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:17:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     道指高收427點　市場關注美國大選結果
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777724-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="道瓊斯指數收市報42221點，升427點，升幅1%。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777724_1_20241106060011.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  在美國大選投票日，美股3大指數升逾1%，受到美國10月ISM非製造業指數創逾兩年新高帶動。
@@ -2467,24 +2784,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777724-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 06:16:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜FBI稱多個票站收虛假威脅並相信來自俄羅斯
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777721-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="佐治亞州至少兩個投票站因虛假炸彈威脅一度短暫疏散。（法新社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777721_1_20241106051838.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國聯邦調查局表示，在大選投票日，美國多個州的投票站收到虛假的炸彈威脅，並指根據電子郵件的域名，很多威脅似乎是來自俄羅斯。到目前為止，並沒有任何威脅被確定為可信，並強調維護選舉公正性是局方的首要任務之一。
@@ -2515,24 +2835,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777721-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 05:19:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     歐股收市個別發展
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777720-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="歐洲主要股市收市個別發展。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777720_1_20241106051131.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  歐洲主要股市收市個別發展。
@@ -2563,24 +2886,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777720-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 05:13:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜賀錦麗接受電台訪問　冀動員選民踴躍投票
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777719-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="賀錦麗在投票日接受幾個電台訪問，繼續呼籲選民踴躍投票。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777719_1_20241106043725.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國民主黨總統候選人、副總統賀錦麗，在大選投票日接受幾個電台訪問，她繼續呼籲選民，特別是搖擺州份的選民踴躍投票，她說這天的重點，是要確保每名選民都透過投票，了解自己發聲的力量。賀錦麗又說，她一直專注於眼前的工作，並反思確保能夠滿足民眾對政策的需求。
@@ -2605,24 +2931,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777719-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 04:34:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     內塔尼亞胡以缺乏互信為由突然解除防長加蘭特的職務
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777718-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="加蘭特在去年3月曾因司法改革問題被內塔尼亞胡解除職務，但引發大規模示威後獲復職。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777718_1_20241106023557.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  以色列總理內塔尼亞胡以缺乏互信為由，突然宣布解除國防部長加蘭特的職務。
@@ -2653,24 +2982,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777718-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 02:31:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     李強與安華會晤　冀紮實推進東海岸鐵路等項目並推進簽證便利化
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="李強在上海會見出席進博會的馬來西亞總理安華。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777717_2_20241106071807.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  國務院總理李強在上海，會見出席進博會的馬來西亞總理安華，並共同出席兩國共建「一帶一路」合作規劃等合作文本交換儀式。
@@ -2701,24 +3033,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 02:13:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜特朗普投票後稱有信心勝選並指選舉非勢均力敵
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777716-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="特朗普和夫人梅拉妮婭在投票後一起見記者。（路透社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777716_1_20241106013937.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國共和黨總統候選人、前總統特朗普和夫人梅拉妮婭，到佛羅里達州棕櫚灘縣一個投票站投票，並在投票後一起見記者。
@@ -2752,24 +3087,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777716-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 01:37:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     美國大選2024｜賀錦麗和特朗普在投票日再呼籲選民投票
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777715-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="賀錦麗和特朗普在投票日分別在社交平台向選民提出最後的投票呼籲。（法新社資料圖片）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777715_1_20241106005530.jpg&amp;q=90">
 <br>
 <div class="itemFullText">
  美國大選正進行投票。民主、共和兩黨總統候選人賀錦麗和特朗普在投票日向選民提出最後的投票呼籲。
@@ -2797,24 +3135,27 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
+</p>
+</div>
+]]>
+   </description>
+   <guid isPermaLink="true">
     https://news.rthk.hk/rthk/ch/component/k2/1777715-20241106.htm
-   
-   
+   </guid>
+   <pubDate>
     Wed, 06 Nov 2024 00:55:00 +0800
-   
-  
-  
-   
+   </pubDate>
+  </item>
+  <item>
+   <title>
     李強在上海會見出席進博會的塞爾維亞總理及蒙古總理
-   
-   
+   </title>
+   <link>
     https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm
-   
-   
-    
+   </link>
+   <description>
+    <![CDATA[<div>
+<img alt="李強在上海會見塞爾維亞總理武切維奇。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777714_1_20241106002325.jpg&amp;q=85">
 <img alt="李強在上海會見蒙古總理奧雲額爾登。（新華社）" src="https://images.weserv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777714_2_20241106002325.jpg&amp;q=85">
 <br>
 <div class="itemFullText">
@@ -2843,14 +3184,16 @@
  <a href="mailto:cnews@rthk.hk" rel="nofollow">
   cnews@rthk.hk
  </a>
-</p>]]&gt;
-   
-   
-    https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm
-   
-   
-    Wed, 06 Nov 2024 00:23:00 +0800
-   
-  
- 
+</p>
 </div>
+]]>
+   </description>
+   <guid isPermaLink="true">
+    https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm
+   </guid>
+   <pubDate>
+    Wed, 06 Nov 2024 00:23:00 +0800
+   </pubDate>
+  </item>
+ </channel>
+</rss>
