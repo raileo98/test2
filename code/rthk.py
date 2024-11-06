@@ -231,7 +231,7 @@ async def process_category(category, url):
         sys.exit(1)  # 結束程序
 
     # soup = BeautifulSoup(web_content, 'lxml')
-    soup = BeautifulSoup(web_content, 'lxml', ensure_head_body=False)
+    soup = BeautifulSoup(web_content, 'html.parser')
 
     fg = FeedGenerator()
     fg.title(categories_data[category]['title'])
@@ -305,7 +305,7 @@ async def process_article(fg, category, article):
             return  # 跳過該文章，繼續處理下一篇文章
         
         article_content = article_response.text.strip()
-        article_soup = BeautifulSoup(article_content, 'lxml', ensure_head_body=False)
+        article_soup = BeautifulSoup(article_content, 'html.parser')
 
         feedDescription = article_soup.select_one('.itemFullText').prettify().strip()
 
@@ -384,7 +384,7 @@ async def process_article(fg, category, article):
 
         feedDescription = f'{imgHtml} <br> {feedDescription} <br><hr> <p>原始網址 Original URL：<a href="{articleLink}" rel="nofollow">{articleLink}</a></p> <p>© rthk.hk</p> <p>電子郵件 Email: <a href="mailto:cnews@rthk.hk" rel="nofollow">cnews@rthk.hk</a></p>'
         
-        feedDescription = BeautifulSoup(feedDescription, 'lxml', ensure_head_body=False).prettify().strip()
+        feedDescription = BeautifulSoup(feedDescription, 'html.parser').prettify().strip()
         
         fe.title(articleTitle)
         fe.link(href=articleLink)
