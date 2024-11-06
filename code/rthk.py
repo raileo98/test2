@@ -276,7 +276,16 @@ async def process_category(category, url):
 
     for item in soup_rss.find_all('item'):
         if item.description is not None:
-            item.description.string = CData(html.unescape(item.description.string.strip()))
+            # 解析 HTML
+            # document = lxmlhtml.fromstring(soup_rss)
+            document = lxmlhtml.fromstring(html.unescape(item.description.string.strip())) # .encode('utf-8')
+        
+            # 使用 Cleaner 清理文檔
+            clean_html = cleaner.clean_html(document)
+        
+            # 將清理後的 HTML 轉換為字符串
+            clean_html_str = lxmlhtml.tostring(clean_html, pretty_print=True, encoding='unicode')
+            item.description.string = CData(clean_html_str)
 
     if soup_rss.find('url') is not None:
         soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string.strip()))
@@ -297,19 +306,9 @@ async def process_category(category, url):
         tag.decompose()
     
     soup_rss = soup_rss.prettify().strip()
-    # 解析 HTML
-    # document = lxmlhtml.fromstring(soup_rss)
-    document = lxmlhtml.fromstring(soup_rss.encode('utf-8'))
-
-    # 使用 Cleaner 清理文檔
-    clean_html = cleaner.clean_html(document)
-
-    # 將清理後的 HTML 轉換為字符串
-    clean_html_str = lxmlhtml.tostring(clean_html, pretty_print=True, encoding='unicode')
-    print( f'len(clean_html_str): { len(clean_html_str) }' )
     
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
-        await file.write(clean_html_str)
+        await file.write(soup_rss)
 
     print(f'{category} 處理完成!')
 
