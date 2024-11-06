@@ -286,7 +286,7 @@ async def process_category(category, url):
         
             # 將清理後的 HTML 轉換為字符串
             clean_html_str = lxmlhtml.tostring(clean_html, pretty_print=True, encoding='unicode')
-            item.description.string = CData(clean_html_str)
+            item.description.string = CData(html.unescape(clean_html_str))
 
     if soup_rss.find('url') is not None:
         soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string.strip()))
