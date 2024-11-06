@@ -305,6 +305,7 @@ async def process_category(category, url):
 
     # 將清理後的 HTML 轉換為字符串
     clean_html_str = html.tostring(clean_html, pretty_print=True, encoding='unicode')
+    print( f'len(clean_html_str): { len(clean_html_str) }' )
     
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
         await file.write(clean_html_str)
