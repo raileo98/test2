@@ -230,7 +230,8 @@ async def process_category(category, url):
         logging.error(f'{category} 出現未知錯誤')
         sys.exit(1)  # 結束程序
 
-    soup = BeautifulSoup(web_content, 'lxml')
+    # soup = BeautifulSoup(web_content, 'lxml')
+    soup = BeautifulSoup(web_content, 'lxml', ensure_head_body=False)
 
     fg = FeedGenerator()
     fg.title(categories_data[category]['title'])
