@@ -29,7 +29,7 @@ import threading
 import sys
 # from urllib3_future.util import Retry
 from niquests.adapters import HTTPAdapter, Retry
-from lxml import html
+from lxml import html as lxmlhtml
 from lxml.html.clean import Cleaner
 
 verCount11 = 0
@@ -298,13 +298,13 @@ async def process_category(category, url):
     
     soup_rss = soup_rss.prettify().strip()
     # 解析 HTML
-    document = html.fromstring(soup_rss)
+    document = lxmlhtml.fromstring(soup_rss)
 
     # 使用 Cleaner 清理文檔
     clean_html = cleaner.clean_html(document)
 
     # 將清理後的 HTML 轉換為字符串
-    clean_html_str = html.tostring(clean_html, pretty_print=True, encoding='unicode')
+    clean_html_str = lxmlhtml.tostring(clean_html, pretty_print=True, encoding='unicode')
     print( f'len(clean_html_str): { len(clean_html_str) }' )
     
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
