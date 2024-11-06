@@ -532,6 +532,7 @@ def modify_image_url(imageUrl, new_quality):
     new_url = urllib.parse.urlunparse(parsed_url._replace(query=new_query))
     # new_url = new_url.replace('h=1080', 'we&h=1080') # temp solution, ha!
     new_url = new_url.replace('n=-1&h=1080', 'n=-1&we&h=1080') # temp solution, ha!
+    new_url = new_url.replace('&amp;', '&') # temp solution, ha!
     
     return new_url
 
