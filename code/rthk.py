@@ -214,18 +214,8 @@ categories_data = {
 total_requests = 0
 cache_hits = 0
 
-# 創建 Cleaner 實例，設置 safe_attrs_only 為 True
-cleaner = Cleaner(
-    scripts=True,  # 刪除所有 <script> 標籤
-    javascript=True,  # 刪除所有 JavaScript
-    comments=True,  # 刪除所有註解
-    style=False,  # 刪除所有 <style> 標籤
-    safe_attrs_only=True,  # 僅保留安全屬性
-    remove_unknown_tags=True,
-    page_structure=True,
-    inline_style=False,
-    add_nofollow=True,
-)
+# 創建 Cleaner 實例
+cleaner = Cleaner()
 
 async def process_category(category, url):
     try:
