@@ -4,7 +4,7 @@ bs4==0.0.2
 aiofiles==24.1.0
 requests-cache==1.2.1
 qh3==1.2.1
-urllib3-future==2.11.909
+urllib3-future==2.11.910
 niquests==3.10.2
 niquests[speedups]==3.10.2
 niquests[socks]==3.10.2
