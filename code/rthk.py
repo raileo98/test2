@@ -76,7 +76,7 @@ userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:130.0) Gecko/20100101 Firefox/130.0',
     'Mozilla/5.0 (Android 10; Mobile; rv:130.0) Gecko/130.0 Firefox/130.0',
     'Mozilla/5.0 (Android 10; Mobile; rv:131.0) Gecko/131.0 Firefox/131.0',
-    'Mozilla/5.0 (Android 10; Mobile; rv:132.0) Gecko/131.0 Firefox/132.0',
+    'Mozilla/5.0 (Android 10; Mobile; rv:132.0) Gecko/132.0 Firefox/132.0',
 ]
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
