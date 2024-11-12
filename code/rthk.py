@@ -297,6 +297,7 @@ async def process_category(category, url):
         tag.decompose()
     
     soup_rss = soup_rss.prettify().strip()
+    soup_rss = soup_rss.replace( 'http://', 'https://' )
     
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
         await file.write(soup_rss)
