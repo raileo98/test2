@@ -8,7 +8,8 @@ python_path = sys.executable
 
 # 使用Python解釋器運行命令
 # os.system(f'{python_path} -m niquests.help')
-subprocess.run([python_path, '-m', 'niquests.help'])
+# subprocess.run([python_path, '-m', 'niquests.help'])
+subprocess.run([python_path, '-m', 'niquests.help'], shell=False)
 
 import psutil
 import os
