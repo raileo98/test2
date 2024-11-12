@@ -1,16 +1,17 @@
 print('111')
 
-import os
 import sys
+import subprocess
 
 # 獲取Python解釋器路徑
 python_path = sys.executable
 
 # 使用Python解釋器運行命令
-os.system(f'{python_path} -m niquests.help')
+# os.system(f'{python_path} -m niquests.help')
+subprocess.run([python_path, '-m', 'niquests.help'])
 
 import psutil
-import subprocess
+import os
 import qh3
 import asyncio
 import niquests
