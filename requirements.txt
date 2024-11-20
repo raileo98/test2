@@ -5,9 +5,9 @@ aiofiles==24.1.0
 requests-cache==1.2.1
 qh3==1.2.1
 urllib3-future==2.11.911
-niquests==3.10.3
-niquests[speedups]==3.10.3
-niquests[socks]==3.10.3
+niquests==3.11.0
+niquests[speedups]==3.11.0
+niquests[socks]==3.11.0
 psutil==6.0.0
 redis==5.1.1
 redis[hiredis]==5.1.1
