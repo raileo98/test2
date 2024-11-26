@@ -480,7 +480,7 @@ async def optimize_image_quality(imgUrl):
                     if content_length > upstream_response_length:
                         has_matched_condition = True  # 設置為 True
     
-                elif content_length < 1000 * 150:
+                elif content_length <= 1000 * 150:
                     logging.info(f'[INFO] 圖片大小小於 150 KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
@@ -494,7 +494,7 @@ async def optimize_image_quality(imgUrl):
     # 在迴圈結束後檢查是否滿足過條件，並額外減少 q
     # if has_matched_condition and (upstream_response_length < 1000 * 150 or content_length_q99 < 1000 * 150):
     # if has_matched_condition and (upstream_response_length < 1000 * 100 or content_length_q99 < 1000 * 100):
-    if upstream_response_length < 1000 * 150 or content_length_q99 < 1000 * 150:
+    if upstream_response_length <= 1000 * 150 or content_length_q99 <= 1000 * 150:
         if q == 99:
             q = 90
 
