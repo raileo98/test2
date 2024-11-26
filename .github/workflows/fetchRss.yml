@@ -22,7 +22,7 @@ on:
 
 jobs:
   deploy:
-    timeout-minutes: 10
+    timeout-minutes: 30
     runs-on: ubuntu-latest
 
     steps:
@@ -110,7 +110,7 @@ jobs:
         for i in {1..10}; do sudo systemctl status redis && break; done
 
     - name: 執行 Python 腳本
-      timeout-minutes: 10
+      timeout-minutes: 30
       run: |
         echo 1
         python3 code/rthk.py
