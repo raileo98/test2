@@ -4,7 +4,7 @@ bs4==0.0.2
 aiofiles==24.1.0
 requests-cache==1.2.1
 # niquests
-python-socks==2.5.3
+python-socks==2.5.3 # https://github.com/romis2012/python-socks/issues/38
 qh3==1.2.1
 urllib3-future==2.12.904
 niquests==3.11.4
