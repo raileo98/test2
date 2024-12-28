@@ -4,10 +4,10 @@ bs4==0.0.2
 aiofiles==24.1.0
 requests-cache==1.2.1
 qh3==1.2.1
-urllib3-future==2.12.903
-niquests==3.11.4
-niquests[speedups]==3.11.4
-niquests[socks]==3.11.4
+urllib3-future==2.12.902
+niquests==3.11.2
+niquests[speedups]==3.11.2
+niquests[socks]==3.11.2
 psutil==6.0.0
 redis==5.1.1
 redis[hiredis]==5.1.1
