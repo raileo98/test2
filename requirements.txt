@@ -5,11 +5,11 @@ aiofiles==24.1.0
 requests-cache==1.2.1
 # niquests
 python-socks==2.5.3 # https://github.com/romis2012/python-socks/issues/38
-qh3==1.2.1
-urllib3-future==2.12.904
-niquests==3.11.4
-niquests[speedups]==3.11.4
-niquests[socks]==3.11.4
+qh3==1.3.0
+urllib3-future==2.12.906
+niquests==3.12.1
+niquests[speedups]==3.12.1
+niquests[socks]==3.12.1
 # niquests end
 psutil==6.0.0
 redis==5.1.1
