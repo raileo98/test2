@@ -119,8 +119,8 @@ def check():
     urls = [
         'https://1.1.1.1/cdn-cgi/trace',
         'https://mozilla.cloudflare-dns.com/cdn-cgi/trace',
-        'https://images.weserv.nl/cdn-cgi/trace',
-        'https://images.weserv.nl/quota',
+        'https://wsrv.nl/cdn-cgi/trace',
+        'https://wsrv.nl/quota',
         'https://github.com/raileo98/test2/raw/refs/heads/main/hk_rthk_ch.xml',
         'https://raw.githubusercontent.com/raileo98/test2/refs/heads/main/hk_rthk_ch.xml',
     ]
@@ -246,8 +246,8 @@ async def process_category(category, url):
     fg.link(href=categories_data[category]['url'], rel='alternate')
     fg.language('zh-HK')
 
-    # feedImg = f"https://images.weserv.nl/?n=-1&output=webp&trim=1&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
-    feedImg = 'https://images.weserv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png'
+    # feedImg = f"https://wsrv.nl/?n=-1&output=webp&trim=1&url={urllib.parse.quote_plus('https://favicone.com/' + urllib.parse.urlparse(categories_data[category]['url']).netloc)}"
+    feedImg = 'https://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st_tyneo/favicon_144x144.png'
     fg.logo(feedImg)
 
     fg.copyright('© 香港電台 RTHK')
@@ -333,7 +333,7 @@ async def process_article(fg, category, article):
         imgHtml = ''
         imgList = set()
         for image in images:
-            imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src']), 99)
+            imgUrl = modify_image_url('https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src']), 99)
             print(f"{articleLink} - {articleTitle}: {imgUrl}")
             imgList.add(imgUrl)
             
@@ -367,7 +367,7 @@ async def process_article(fg, category, article):
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
                     if match:
                         video_thumbnail = match.group(1)
-                        imgUrl = modify_image_url('https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail), 99)
+                        imgUrl = modify_image_url('https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail), 99)
                         print(f"{articleLink} - {articleTitle}: {imgUrl}")
                         imgList.add(imgUrl)
                         
