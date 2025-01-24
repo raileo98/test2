@@ -33,8 +33,8 @@ jobs:
 
         # 列出同一分支、同一工作流程嘅所有運行（排除當前自己）
         gh run list \
-          --workflow ${{ github.workflow }} \
-          --branch ${{ github.ref_name }} \
+          --workflow "${{ github.workflow }}" \
+          --branch "${{ github.ref_name }}" \
           --json databaseId,status \
           --jq ".[] | select(.status == \"queued\" or .status == \"in_progress\") | select(.databaseId != $CURRENT_RUN_ID)" \
           | while read -r run_id; do
