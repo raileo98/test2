@@ -8,16 +8,10 @@ on:
     paths:
       - '.github/workflows/*'
       - 'code/*'
-      # - '*.rss'
       - '*'
       - '**'
   schedule:
     - cron: '*/5 * * * *'  # 每隔 5 分鐘運行一次
-    # - cron: '*/10 * * * *'  # 每隔 10 分鐘運行一次
-    # - cron: '*/15 * * * *'  # 每隔 15 分鐘運行一次
-    # - cron: '*/20 * * * *'  # 每隔 20 分鐘運行一次
-    # - cron: '*/25 * * * *'  # 每隔 25 分鐘運行一次
-    # - cron: '*/30 * * * *'  # 每隔 30 分鐘運行一次
     - cron: '0,5,10,15,20,25,30,35,40,45,50,55 * * * *'  # 每 5 分鐘
 
 jobs:
@@ -29,6 +23,27 @@ jobs:
     - name: 檢出代碼
       timeout-minutes: 2
       uses: actions/checkout@v4
+
+    - name: Check and Cancel Newer Runs
+      env:
+        GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+      run: |
+        # 獲取當前運行 ID
+        CURRENT_RUN_ID=${{ github.run_id }}
+
+        # 列出同一分支、同一工作流程嘅所有運行（排除當前自己）
+        gh run list \
+          --workflow ${{ github.workflow }} \
+          --branch ${{ github.ref_name }} \
+          --json databaseId,status \
+          --jq ".[] | select(.status == \"queued\" or .status == \"in_progress\") | select(.databaseId != $CURRENT_RUN_ID)" \
+          | while read -r run_id; do
+            echo "Cancelling run $run_id..."
+            gh run cancel $run_id
+          done
+
+    - name: Continue if no newer runs
+      run: echo "Proceeding with the current run..."
 
     - name: 檢出代碼 2
       timeout-minutes: 2
