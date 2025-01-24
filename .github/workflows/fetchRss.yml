@@ -40,7 +40,7 @@ jobs:
           | while read -r run_id; do
             echo "取消運行 $run_id..."
             gh run cancel $run_id
-          done || true
+          done
 
     - name: 如果沒有較新的運行則繼續
       run: echo "繼續當前運行..."
