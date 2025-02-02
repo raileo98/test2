@@ -80,6 +80,8 @@ jobs:
     - name: Testing WARP
       timeout-minutes: 5
       run: |
+        echo 0
+        warp-cli --accept-tos status
         echo 1
         while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
         echo 2
