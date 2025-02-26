@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 14:45:49 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 14:51:17 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5589,7 +5589,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm<img alt="楊何蓓茵說，很多公務員皆理解今次凍薪和削減編制的決定。（楊何蓓茵社交平台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793379\_1\_20250226224949.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 公務員事務局局長楊何蓓茵就《財政預算案》與公務員事務相關的政策措施，向全體公務員發信。
 <br>
@@ -5619,7 +5620,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm<img alt="發展局表示，會全方位協助各部門用好資源，管控工務工程項目。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793380\_1\_20250226225014.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 新一份財政預算案指出，香港要透過基本工程投資未來，提供土地和基建以支持香港經濟高質量發展，中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來五年平均每年約1200億元。
 <br>
@@ -5646,7 +5648,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800海洋公園與漁護署到珠海接收在走私過程被內地查獲及充公的大頭龜https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800海洋公園與漁護署到珠海接收在走私過程被內地查獲及充公的大頭龜https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm<img alt="大頭龜在《世界自然保護聯盟瀕危物種紅色名錄》中被列為「極危」。（海洋公園提供）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793381\_1\_20250226225129.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 海洋公園昨日聯同漁護署到珠海拱北接收一批去年10月在走私過程被內地海關查獲及充公的大頭龜，其中14 隻交由海洋公園照顧。
 <br>
@@ -5676,4 +5679,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htmWed, 26 Feb 2025 22:42:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htmWed, 26 Feb 2025 22:42:00 +0800美股初段上升https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm<img alt="道瓊斯指數較早時報43635點，升14點，升幅0.03%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793382\_1\_20250226224616.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美股在開市初段上升。
+<br>
+<br/>
+道瓊斯指數較早時報43635點，升14點，升幅0.03%。
+<br/>
+<br/>
+納斯達克指數報19114點，升88點，升幅0.46%。
+<br/>
+<br/>
+標準普爾500指數報5972點，升17點，升幅0.29%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htmWed, 26 Feb 2025 22:48:00 +0800

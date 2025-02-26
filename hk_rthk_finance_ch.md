@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:45:48 +0000webmaster@rthk.hk滬股和創業板指數升逾1%https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htm<img alt="上證綜合指數收市報3380點，升34點，升幅1.02%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793290\_1\_20250226151050.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-滬深股市3大指數高收近1%或以上，鋼鐵、人形機械人、券商板塊上升；農業、機場航運、貴金屬相關股份下跌。
-<br>
-<br/>
-上證綜合指數收市報3380點，升34點，升幅1.02%。
-<br/>
-<br/>
-深證成份指數報10955點，升101點，升幅0.93%。
-<br/>
-<br/>
-創業板指數報2268點，升27點，升幅1.23%。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htmWed, 26 Feb 2025 15:16:00 +0800恒指升幅擴大至逾800點https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htm<img alt="恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793292\_1\_20250226151558.jpg&amp;q=15" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:51:15 +0000webmaster@rthk.hk恒指升幅擴大至逾800點https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htm<img alt="恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793292\_1\_20250226151558.jpg&amp;q=15" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 港股升幅擴大至逾800點，恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。
@@ -1744,7 +1713,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm<img alt="楊何蓓茵說，很多公務員皆理解今次凍薪和削減編制的決定。（楊何蓓茵社交平台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793379\_1\_20250226224949.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 公務員事務局局長楊何蓓茵就《財政預算案》與公務員事務相關的政策措施，向全體公務員發信。
 <br>
@@ -1774,7 +1744,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm<img alt="發展局表示，會全方位協助各部門用好資源，管控工務工程項目。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793380\_1\_20250226225014.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 新一份財政預算案指出，香港要透過基本工程投資未來，提供土地和基建以支持香港經濟高質量發展，中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來五年平均每年約1200億元。
 <br>
@@ -1801,4 +1772,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800美股初段上升https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm<img alt="道瓊斯指數較早時報43635點，升14點，升幅0.03%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793382\_1\_20250226224616.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美股在開市初段上升。
+<br>
+<br/>
+道瓊斯指數較早時報43635點，升14點，升幅0.03%。
+<br/>
+<br/>
+納斯達克指數報19114點，升88點，升幅0.46%。
+<br/>
+<br/>
+標準普爾500指數報5972點，升17點，升幅0.29%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htmWed, 26 Feb 2025 22:48:00 +0800

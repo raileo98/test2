@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:45:48 +0000webmaster@rthk.hk財政預算案2025｜預留資源以配對形式籌建新醫學院https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htm<img alt="陳茂波表示公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793224\_1\_20250226122445.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:51:17 +0000webmaster@rthk.hk財政預算案2025｜預留資源以配對形式籌建新醫學院https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htm<img alt="陳茂波表示公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793224\_1\_20250226122445.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波表示，醫學生培訓學額將於2025/26年增至650個。公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。
@@ -3121,7 +3121,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm<img alt="楊何蓓茵說，很多公務員皆理解今次凍薪和削減編制的決定。（楊何蓓茵社交平台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793379\_1\_20250226224949.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 公務員事務局局長楊何蓓茵就《財政預算案》與公務員事務相關的政策措施，向全體公務員發信。
 <br>
@@ -3151,7 +3152,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm<img alt="發展局表示，會全方位協助各部門用好資源，管控工務工程項目。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793380\_1\_20250226225014.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 新一份財政預算案指出，香港要透過基本工程投資未來，提供土地和基建以支持香港經濟高質量發展，中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來五年平均每年約1200億元。
 <br>
@@ -3178,7 +3180,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800海洋公園與漁護署到珠海接收在走私過程被內地查獲及充公的大頭龜https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800海洋公園與漁護署到珠海接收在走私過程被內地查獲及充公的大頭龜https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm<img alt="大頭龜在《世界自然保護聯盟瀕危物種紅色名錄》中被列為「極危」。（海洋公園提供）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793381\_1\_20250226225129.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 海洋公園昨日聯同漁護署到珠海拱北接收一批去年10月在走私過程被內地海關查獲及充公的大頭龜，其中14 隻交由海洋公園照顧。
 <br>
