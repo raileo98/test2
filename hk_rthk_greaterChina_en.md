@@ -1,0 +1,2715 @@
+xml version='1.0' encoding='UTF-8'?
+rthk - Greater Chinahttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive\_date=rthk - Greater China© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Greater Chinahttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 09:59:54 +0000webmaster@rthk.hk'Chinese products still competitive after tariff hike'https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htm<img alt="The Hong Kong General Chamber of Small and Medium Business said products from the mainland and Hong Kong might still be competitive after the tariff hike. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790572\_1\_20250206185139.jpg&amp;q=45" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The deputy head of a local chamber for small to medium-sized firms on Thursday said companies from mainland China and Hong Kong focused on e-commerce may still have profit margins, despite higher US tariffs.
+<br>
+<br/>
+US authorities began charging an extra 10 percent levy on top of existing tariffs, and cancelled a tax exemption for parcels with a retail value of US$800 or less.
+<br/>
+<br/>
+A vice president of the Hong Kong General Chamber of Small and Medium Business, Stanley Lee, said while the tariff rise might have come abruptly, some products can still be competitive in the US market.
+<br/>
+<br/>
+"For example, in traditional retail, it costs US$20 to buy an item. It's US$15 for them to buy on [American] online platforms, but it's US$10 on [Chinese] e-platforms before the rise," he explained to RTHK.
+<br/>
+<br/>
+"So even with [25 to 35 percent extra tariffs], it's still cheaper to buy [Chinese products] than the traditional way."
+<br/>
+<br/>
+Lee, who also heads the chamber's e-commerce policy committee, said his own firm was relatively unaffected by the new US policies, as his products are stored in warehouses on American soil and they clear customs regularly.
+<br/>
+<br/>
+He said he expects some mainland e-commerce firms to do the same if they no longer find the parcel-mailing strategy profitable.
+<br/>
+<br/>
+Lee added that companies mostly expected the trade spat to intensify, and have therefore turned to different markets in search for potential customers.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htmThu, 06 Feb 2025 20:27:00 +0800Panama formally withdraws from Belt & Road initiativehttps://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htm<img alt="Panama says it has informed Beijing of its decision. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790600\_1\_20250206224906.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Panama has formally pulled out of China's Belt and Road initiative, President Jose Raul Mulino announced on Thursday.
+<br>
+<br/>
+Mulino told reporters that the Panamanian Embassy in Beijing had given China the required 90-day notice of its decision not to renew its involvement in the plan. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htmThu, 06 Feb 2025 22:49:00 +0800Winter Games carries Asia's common aspirations: Xihttps://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm<img alt="President Xi Jinping says the 9th Asian Winter Games embodies Asia's shared aspirations for peace. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790685\_1\_20250207153402.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+President Xi Jinping on Friday said the 9th Asian Winter Games embodies Asia’s shared aspirations for peace, prosperity and friendship.
+<br>
+<br/>
+Speaking at a welcome banquet ahead of the Games’ opening in Harbin, he urged Asia to hold fast to the common dream of peace, respond to security challenges and contribute to building an equal and orderly multipolar world, Xinhua news agency reported.
+<br/>
+<br/>
+Xi urged the region to seek common progress and inject impetus into economic globalisation.
+<br/>
+<br/>
+He also pledged that the Winter Asian Games held in the northeastern city will put on a spectacular sports gala which will be distinctly Chinese and uniquely Asian.
+<br/>
+<br/>
+International dignitaries at the banquet in the capital of Heilongjiang province included Thomas Bach, president of the International Olympic Committee.
+<br/>
+<br/>
+Xi noted that the Winter Games attracted a record number of countries and regions, as well as athletes.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htmFri, 07 Feb 2025 15:33:00 +0800China 'regrets' Panama's withdrawal from BRIhttps://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790689\_1\_20250207160832.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China on Friday said it "regrets" Panama's decision to withdraw from the Belt and Road Initiative, after the Latin American nation ended its participation in the project in a concession to Washington.
+<br>
+<br/>
+"Beijing regrets Panama's decision," Foreign Ministry spokesman Lin Jian said, urging Panama to "consider the broader bilateral relationship and the long-term interests of both nations" and "resist external interference".
+<br/>
+<br/>
+Lin added that China firmly opposes the United States' actions to smear and sabotage Belt and Road cooperation through pressure and coercion. (Xinhua/AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htmFri, 07 Feb 2025 16:08:00 +0800President Xi declares 2025 Asian Winter Games openhttps://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm<img alt="President Xi was on hand at the opening of the Harbin Asian Winter Games 2025." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790740\_1\_20250207211803.jpg&amp;q=90" style="width:100%;height:auto"/>
+<img alt="Team Hong Kong, China were led by flag-bearers Lam Ching-yan and Adrian Yung. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790740\_2\_20250207211803.jpg&amp;q=20" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+President Xi Jinping on Friday declared the 2025 Asian Winter Games officially open in Harbin, marking the second time the northeastern Chinese city has hosted the event.
+<br>
+<br/>
+He was joined by First Lady Peng Liyuan, and the President of the International Olympic Committee, Thomas Bach, at the extravaganza in Heilongjiang province.
+<br/>
+<br/>
+The crowd at the Harbin International Conference, Exhibition and Sports Centre cheered loudly as Team Hong Kong, China were among 34 competing countries and regions introduced.
+<br/>
+<br/>
+The SAR's short track speed skater, Lam Ching-yan, and alpine skier, Adrian Yung, were the flag bearers.
+<br/>
+<br/>
+The city has sent 74 athletes to the Games, the most ever.
+<br/>
+<br/>
+Timothy Fok, vice president of the Olympic Council of Asia, said China had played a big part in the growth of winter sports in the continent.
+<br/>
+<br/>
+"A record number of over 1,200 athletes from a record number of 34 National Olympic Committees will be competing in Harbin, and this shows the remarkable development of winter sports in Asia," he said at the ceremony.
+<br/>
+<br/>
+"China has played a big part in this, not only by staging two previous Asian Winter Games in 1996 and 2007, but also the 2022 Winter Olympics in Beijing."
+<br/>
+<br/>
+But the loudest of cheers was reserved for the hosts, the last of the teams introduced, with China having the biggest team of 170 athletes at the Games.
+<br/>
+<br/>
+The national team's flag bearers were speed skater Ning Zhongyan and freeskier Liu Mengting.
+<br/>
+<br/>
+The guests and athletes were then treated to traditional Chinese performances at the ceremony.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htmFri, 07 Feb 2025 21:32:00 +0800Trump pauses de minimis repeal on Chinese importshttps://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm<img alt="President Trump's ban had created disruptions for customs inspectors, postal and delivery services and online retailers. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790798\_1\_20250208113211.jpg&amp;q=50" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+US President Donald Trump paused his administration's repeal of duty-free treatment of low-cost packages from China on Friday, giving the Commerce Department time to make the order workable, after the rapid change created disruptions for customs inspectors, postal and delivery services and online retailers.
+<br>
+<br/>
+The eventual cancellation of de minimis means the more than 1 billion small-value e-commerce packages arriving annually in the United States with goods coming directly from China must switch to an entry process that requires additional information and duties, adding time and cost.
+<br/>
+<br/>
+The stop and restart of the United States Postal Service acceptance of those packages this week set off a swarm of disruptions that backed up Customs clearance for packages, even those that had paid duties, at New York City's John F Kennedy International Airport.
+<br/>
+<br/>
+"Well that was a fun Tuesday through Friday, if you work in global e-commerce," said Derek Lossing, CEO of e-commerce and global supply chain firm Cirrus Global Advisors.
+<br/>
+<br/>
+The initial change, implemented with just over 48 hours' notice, caused the USPS to temporarily stop accepting packages from China earlier this week.
+<br/>
+<br/>
+Popular online retailers including Shein, Temu and Amazon.com's new Haul service send packages directly from Chinese factories to US shoppers and use de minimis to keep prices low.
+<br/>
+<br/>
+The Trump administration's revision to the order was signed on Wednesday and published on Friday, a White House spokesperson said.
+<br/>
+<br/>
+De minimis, a legal term referring to matters of little importance, refers to the US waiver of standard customs procedures and tariffs on items worth less than US$800 that are shipped to individuals from foreign countries.
+<br/>
+<br/>
+Temu and Shein combined ship around 9,000 metric tons of cargo worldwide every day, or approximately 88 full Boeing 777 freighters, said Niall van de Wouw, chief air freight officer at freight pricing platform Xeneta.
+<br/>
+<br/>
+"You cannot suddenly put up the shutters to this volume of air freight, so it is no surprise there has been a delay to the executive order on de minimis." (Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htmSat, 08 Feb 2025 11:32:00 +0800Li Fanghui wins China's first gold at Winter Gameshttps://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm<img alt="China's Li Fanghui competes in the women's freeski halfpipe event at the 2025 Harbin Asian Winter Games at the Yabuli Ski Resort, Harbin. Photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790804\_1\_20250208131346.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China's freestyle skiers have dominated at the 9th Asian Winter Games in Harbin, claiming the country's first gold medal.
+<br>
+<br/>
+Freestyle skier Li Fanghui clinched the gold in the women's freestyle skiing halfpipe, while compatriot Zhang Kexin won silver.
+<br/>
+<br/>
+The 21-year-old Li led the competition with an impressive score of 95.25 points, while Zhang finished with 89.25.
+<br/>
+<br/>
+"Actually, before my final run today, I had no idea this could be the first gold medal for China at the Harbin Asian Winter Games," Li said.
+<br/>
+<br/>
+"I felt very calm during the competition, but now I'm incredibly excited."
+<br/>
+<br/>
+South Korea's Jang Yu-jin took home the bronze with a score of 85.00. (Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htmSat, 08 Feb 2025 13:13:00 +0800SAR athletes fall short on the ice at the Gameshttps://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm<img alt="Sidney Chu came fifth in the men's 1,500m final B of short track speed skating. Photo courtesy of the SF&amp;OC" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790819\_1\_20250208171514.jpg&amp;q=90" style="width:100%;height:auto"/>
+<img alt="Nicole Law finished 17th in the women's 100m speed skating final. Photo courtesy of the SF&amp;OC" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790819\_2\_20250208171514.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Hong Kong, China team's speed skater Sidney Chu finished fifth in the men's 1,500m final B short track speed skating event at the Asian Winter Games in Harbin.
+<br>
+<br/>
+The 25-year-old completed the race in two minutes, 32.78 seconds.
+<br/>
+<br/>
+Kazakhstan took gold, and Japan got both the silver and bronze.
+<br/>
+<br/>
+Chu also participated in the men's 100m speed skating final and came 18th.
+<br/>
+<br/>
+The national team topped the podium in that event, with Kazakhstan finishing second and South Korea bagging bronze.
+<br/>
+<br/>
+The SAR's Nicole Law finished 17th in the women's 100m speed skating final.
+<br/>
+<br/>
+Meanwhile, the chief executive was in attendance in Harbin, cheering on the SAR and national teams.
+<br/>
+<br/>
+Writing on social media, John Lee expressed that he got to watch speed skating and short tracking speed skating at the Games.
+<br/>
+<br/>
+He said he was proud to witness the nation's Gao Tingyu clinch gold at the men’s 100m speed skating event and set a new Asian record, finishing the race in 9.35 seconds.
+<br/>
+<br/>
+The city's leader also met with some of the SAR's athletes and praised their effort. Lee said he encouraged them to continue to work hard.
+<br/>
+<br/>
+A record number of more than 70 SAR athletes are participating at the Asian Winter Games this year.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htmSat, 08 Feb 2025 17:51:00 +0800More than 30 missing after Sichuan landslidehttps://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm<img alt="President Xi instructed officials to minimise casualties after the landslide in Junlian County. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790829\_1\_20250208190423.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+President Xi Jinping on Saturday ordered all-out search and rescue efforts to minimise casualties, after a landslide buried 10 houses and left more than 30 people unaccounted for in Sichuan Province.
+<br>
+<br/>
+The authorities in Sichuan Province upgraded the geological disaster emergency response from Level III to Level I – the highest level.
+<br/>
+<br/>
+The landslide took place shortly before midday in Jinping Village in Junlian County.
+<br/>
+<br/>
+Two people were rescued in the afternoon, and rescue efforts are ongoing. (Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htmSat, 08 Feb 2025 19:04:00 +0800China's CPI at five-month highhttps://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm<img alt="People walk in an alley near a popular shopping street in Beijing during the Spring Festival holiday. Officials say an increase in the consumer price index in January is due largely to the influence of the new year break. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790882\_1\_20250209120154.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China's consumer price index (CPI), a main gauge of inflation, accelerated to its fastest in five months, government data showed on Sunday.
+<br>
+<br/>
+According to the National Bureau of Statistics (NBS), the CPI was up 0.5 percent year on year last month, up from the 0.1 percent increase in December.
+<br/>
+<br/>
+NBS statistician Dong Lijuan said the increase in January was due largely to the influence of the Spring Festival holiday.
+<br/>
+<br/>
+The core CPI, which excludes food and energy prices, rose 0.6 percent from a year ago in January, up from the 0.4 percent increase in December.
+<br/>
+<br/>
+On a monthly basis, the CPI expanded 0.7 percent in January.
+<br/>
+<br/>
+Analysts said consumer spending over the holiday was mixed. While people flocked to movie theatres and spent more on shopping, catering and domestic travel, per capita spending during the holiday grew by only 1.2 percent from a year earlier, versus a 9.4 percent rise in 2024, analysts at ANZ estimated.
+<br/>
+<br/>
+The NBS data also showed the country's producer price index (PPI), which measures costs for goods at the factory gate, went down 2.3 percent year on year in January, matching the drop the month before.
+<br/>
+<br/>
+On a month-on-month basis, the PPI dropped 0.2 percent. (Xinhua/Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htmSun, 09 Feb 2025 12:01:00 +0800At least 1 dead in Sichuan landslidehttps://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790883\_1\_20250209121215.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+One person has been found dead and 28 others remained missing, a day after a landslide hit Sichuan Province.
+<br>
+<br/>
+It occurred at 11.50am on Saturday in Jinping Village, which is located in Junlian County in the city of Yibin.
+<br/>
+<br/>
+As of midnight, the landslide had buried 10 residential houses and a production building.
+<br/>
+<br/>
+Two people, one seriously and one slightly wounded, have been rescued and were receiving treatment at a hospital in Junlian.
+<br/>
+<br/>
+Due to continuous rainfall and geological conditions, the high-position landslide has transformed into debris flows, which, according to a preliminary assessment, have resulted in an accumulation of debris stretching approximately 1.2 kilometres and having a total volume of over 100,000 cubic metres.
+<br/>
+<br/>
+More than 200 people have been evacuated to safety, and 155 have been resettled at a temporary shelter in a school in Junlian.
+<br/>
+<br/>
+Sichuan has mobilised 949 personnel from the military, armed police, firefighting, emergency response, transportation, medical, telecommunication, and other forces to carry out or assist the rescue efforts. (Xinhua)
+<br/>
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+<br/>
+<font my="my" style="font-size:90%">
+<i>
+Last updated: 2025-02-09 HKT 15:33
+</i>
+</font>
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htmSun, 09 Feb 2025 12:12:00 +0800China puts on a show in Harbinhttps://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm<img alt="Bayani Jialin dominates in women’s 5km free cross-country skiing. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790921\_1\_20250209175540.jpg&amp;q=90" style="width:100%;height:auto"/>
+<img alt="Li Xinpeng soars to victory in the men’s freestyle skiing aerials. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790921\_2\_20250209175540.jpg&amp;q=30" style="width:100%;height:auto"/>
+<img alt="Wu Yu secures gold in the men’s 5,000m speed skating event. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790921\_3\_20250209175540.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China unleashed an impressive display at the 9th Asian Winter Games in Harbin on Sunday, reinforcing its dominance in the overall medal standings.
+<br>
+<br/>
+Chinese athletes swept the podium positions in the ski mountaineering competition.
+<br/>
+<br/>
+In an exhilarating women's sprint final, Cidanyuzhen clinched gold with an outstanding time of 2 minutes and 55.88 seconds, while Yu Jingxuan and Suolangquzhen claimed silver and bronze.
+<br/>
+<br/>
+The 18-year-old gold medalist was thrilled with her result, saying, "This is our first Asian Winter Games, and I'm very excited. The course was great, and I was able to race at my own pace."
+<br/>
+<br/>
+Buluer won the men’s race with a blistering 2 minutes and 22.29 seconds, ahead of his compatriots Zhang Chenghao and Bi Yuxin.
+<br/>
+<br/>
+"I'm happy with my performance and proud to win this gold. It shows my strength," the 19-year-old champion from Xinjiang said after the race.
+<br/>
+<br/>
+The national team also dominated the men’s freestyle skiing aerials, with Li Xinpeng soaring to victory with a score of 123.45 points and Yang Longxiao and Qi Guangpu completing the podium.
+<br/>
+<br/>
+Chinese cross-country skiers swept the women's 5km free event, with Bayani Jialin claiming gold, followed by Dinigeer Yilamujiang and Chi Chunxue.
+<br/>
+<br/>
+In speed skating, Wu Yu secured gold in the men’s 5,000m in 6 minutes and 27.82 seconds. China also finished second and third.
+<br/>
+<br/>
+In the women's 500m, South Korea came first and second while China's Tian Ruining took bronze.
+<br/>
+<br/>
+Nicole Law of Hong Kong, China, finished 19th.
+<br/>
+<br/>
+The SAR, meanwhile, is through to the quarterfinals in men's ice hockey after defeating Turkmenistan 5-1 for their third straight win in the preliminary round. (Additional reporting by Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htmSun, 09 Feb 2025 18:34:00 +0800China 'world-class' host: World Athletics presidenthttps://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htm<img alt="World Athletics President Sebastian Coe said China is a growing market for running and athletics. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790947\_1\_20250210025432.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+World Athletics President Sebastian Coe has praised China's exceptional capabilities in hosting major sporting events, citing the country's increasing athletic prowess, during his visit to attend the 9th Asian Winter Games underway in Harbin.
+<br>
+<br/>
+In an interview with China Global Television Network (CGTN), Coe reaffirmed that China is "world-class" at staging global events, as he elaborated on the country's impressive track record in hosting successful international competitions.
+<br/>
+<br/>
+"China is world-class at staging world class events. We have three world championships in the next 2 years in China. We have the world indoor championships in Nanjing in just a few weeks’ time," he said.
+<br/>
+<br/>
+"We then have the world relays in Guangzhou. And then the jewel in the crown in 2027 in Beijing is our world championships and it was in 2016 at the world championships in Beijing that I got elected as President of World Athletics. So, I consider China to be my lucky country."
+<br/>
+<br/>
+Regarding his impression of Chinese athletes, Coe noted that he has seen significant progress as a result of close collaboration between World Athletics and major sports institutions in the nation.
+<br/>
+<br/>
+Coe also highlighted that China represents a vast and expanding market for running and athletics, which is playing a crucial role in promoting the participation of young people in sports globally.
+<br/>
+<br/>
+"The importance of China to world athletics is huge. You have more people that are regularly running than any other country in the world, in 5K's and 10K's and half marathons and marathons. And that is a very large and growing market for world athletics," said the sports body president.
+<br/>
+<br/>
+It's also critical because the Chinese government understands that running and athletics is probably one of the best sports for helping develop the health and vibrancy, both mentally and physically, of young people." (CCTV)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htmMon, 10 Feb 2025 02:54:00 +0800Chinese businesses shrug off Trump tariffshttps://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm<img alt="Yiwu city is the world's largest wholesale hub for small manufactured items. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790966\_1\_20250210090937.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Traders in China's export manufacturing hub of Yiwu shrugged off US President Donald Trump's tariffs and moves against China on Sunday, with some saying they made preparations to soften the blow.
+<br>
+<br/>
+Yiwu city in eastern Zhejiang province is the world's largest wholesale hub for small manufactured items, exporting products ranging from Christmas trees to costume jewellery globally, including to the United States.
+<br/>
+<br/>
+"We predicted that he would assume power," Cheng Haodong, chairman of Beisi Group, a business which sells clothes to water bottles, told Reuters from their office in the city.
+<br/>
+<br/>
+"After he assumed power, ok, how do we want to adjust? Actually it was prepared for in advance," he said.
+<br/>
+<br/>
+They monitored information on overseas social media sites, he added, which led to them establishing a new factory for producing liquid laundry detergent in the US state of Tennessee in April.
+<br/>
+<br/>
+Trump's campaign promised 60 percent tariffs on Chinese imports before he was elected. However, he revised that to 10 percent after taking office, which took effect on Tuesday. He also plans to cancel duty-free treatment of low-cost packages from China.
+<br/>
+<br/>
+“This time actually the shock won't be too big for us,” said Cheng, who declined to provide detailed figures on sales.
+<br/>
+<br/>
+Beisi exports to other businesses abroad, but also sells some of its products directly to US consumers through online platforms such as Temu and Shein, low-priced shopping sites that analysts expect will be hard hit by Trump's repeal of the 'de minimis' rule - a trade loophole that allowed low-value imports to enter the country duty-free.
+<br/>
+<br/>
+Similar sentiments were shared by traders and buyers in the sprawling market in the city, where many were just returning to work after the end of the eight-day Lunar New Year break.
+<br/>
+<br/>
+"(Even if) you increase (the tariff) to 50 percent it won't have any effect on us," said Zeng Hao, owner of Jinqi Wanju which sells toys such as brightly-coloured dinosaur figurines.
+<br/>
+<br/>
+That was because the products are highly profitable and his firm could absorb some of the tariff burden, he said. Companies down the supply chain also have reason to increase their own prices, he added.
+<br/>
+<br/>
+Abby Jin, who buys products in Yiwu on behalf of other customers in markets such as the US, Australia and the Middle East, said vendors in the city were not short of orders.
+<br/>
+<br/>
+"We can respond by slighting reducing our profit margins or adjusting costs. In the end, the additional costs will be passed on to the end consumers in their country, meaning they will ultimately bear the consequences of their own economic policies,” she said.
+<br/>
+<br/>
+“For the US, whether they can find a suitable country to replace us (as a trade partner) is a question they need to consider themselves." (Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htmMon, 10 Feb 2025 09:21:00 +0800Asean tour groups can visit Xishuangbanna visa-freehttps://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm<img alt="Tour groups from the 10 Asean members will be allowed to visit Xishuangbanna without a visa for up to six days. File photo: CCTV" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790994\_1\_20250210122533.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China is further relaxing its visa-free programmes by allowing tour groups from Asean members to visit Xishuangbanna in Yunnan province for up to six days.
+<br>
+<br/>
+The National Immigration Administration said the measure came into effect on Monday.
+<br/>
+<br/>
+Tour groups from Malaysia, Indonesia, Thailand, the Philippines, Singapore, Brunei, Vietnam, Laos, Myanmar and Cambodia will be allowed to enter and exit the region visa-free via Xishuangbanna Gasa airport, the Mohan Railway or the Mohan Highway.
+<br/>
+<br/>
+Tourists must remain in the Xishuangbanna administrative region during their visit.
+<br/>
+<br/>
+The administration said the move is an important step in expanding the opening up of the country in a structured manner, while bolstering Yunnan's role as a regional hub for South Asia and Southeast Asia.
+<br/>
+<br/>
+It added that the initiative will help promote tourism development, facilitate exchanges between people from China and other countries, and strengthen China-Asean strategic cooperation.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htmMon, 10 Feb 2025 12:36:00 +0800China grab six more golds at Asian Winter Gameshttps://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm<img alt="Speed skater Gao Tingyu from China added to his trophycase with a gold in the 500 metre sprint. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791038\_1\_20250210165726.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Team China on Monday scooped up six gold medals on day three of the Harbin Asian Winter Games, with three of the top prizes coming in speed skating.
+<br>
+<br/>
+Gao Tingyu finished first in the men's 500 metres sprint, with the Asian record holder completing the course in 34.95 seconds.
+<br/>
+<br/>
+Sidney Chu of Team Hong Kong, China finished with a time of 39.42 seconds, good for 18th in the event.
+<br/>
+<br/>
+Elsewhere, Team China's athletes filled all the spots on the podium in the women's 3,000 metres, with Yang Binyu winning gold, Han Mei silver and Tai Zhien taking home bronze.
+<br/>
+<br/>
+The national men's sprint team also struck gold by beating South Korea and Japan.
+<br/>
+<br/>
+In freestyle skiing, the gold medal also belonged to Team China as the mixed aerials team outperformed their Kazakh and Japanese opponents.
+<br/>
+<br/>
+And Xiong Shirui and Yang Wenlong topped the snowboard podium in the women's and men's big air events respectively.
+<br/>
+<br/>
+China have a haul of 54 medals, including 21 golds so far. Second-placed South Korea have 11 gold medals and Japan four.
+<br/>
+<br/>
+In curling, the SAR's men's team defeated Japan 7-3 in group play.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htmMon, 10 Feb 2025 17:05:00 +0800Wang Yi to attend UN event, G20 meetinghttps://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm<img alt="The foreign minister is set to attend the Munich Security Conference, a high-level UN Security Council event and a G20 meeting this month. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791061\_1\_20250210192024.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Foreign Minister Wang Yi will visit Europe and the United Nations before attending a Group of 20 meeting in South Africa later this month.
+<br>
+<br/>
+The Foreign Ministry announced on Monday that Wang will visit the UK and Ireland, and attend the Munich Security Conference, from February 12 to 17.
+<br/>
+<br/>
+He will co-chair the 10th China-UK Strategic Dialogue during his stay in Britain, and speak about Beijing's position on major international issues at the conference in Munich.
+<br/>
+<br/>
+Wang will then be in New York to chair a high-level United Nations Security Council event held by China on February 18 under the theme of "Practicing Multilateralism, Reforming and Improving Global Governance".
+<br/>
+<br/>
+China is the rotating Security Council president for the month.
+<br/>
+<br/>
+Wang will next travel to South Africa and attend a G20 foreign ministers' meeting in Johannesburg on February 20 and 21.
+<br/>
+<br/>
+US Secretary of State Marco Rubio has said he would skip the G20 talks over an "anti-American" agenda.
+<br/>
+<br/>
+"The G20 should promote the spirit of partnership, work together to promote world economic growth, guide global governance in a more just and reasonable direction," Foreign Ministry spokesman Guo Jiakun said in a regular briefing. (Xinhua/AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htmMon, 10 Feb 2025 19:20:00 +0800Trump says he spoke to Xi after taking officehttps://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm<img alt="President Xi Jinping and then-US President Donald Trump meet in a G20 leaders' summit in Japan in 2019. Trump says they have spoken since his inauguration last month. File photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791136\_1\_20250211110930.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+US President Donald Trump said he had spoken to his Chinese counterpart Xi Jinping since taking office on January 20, but did not offer details on the topics of their conversation.
+<br>
+<br/>
+Trump made the comments in an interview aired on Fox News on Monday.
+<br/>
+<br/>
+"Yeah... I have talked to him and I have talked to his people, too," Trump said when asked if he has spoken to President Xi since his inauguration last month.
+<br/>
+<br/>
+"We have a very good personal relationship," Trump added.
+<br/>
+<br/>
+He did not provide details on when exactly the call happened or what was discussed.
+<br/>
+<br/>
+Last week, Trump said he was in no hurry to speak to Xi to try to defuse a new trade war between the world's two largest economies.
+<br/>
+<br/>
+A conversation between Xi and Trump is seen as crucial to a potential easing or delay of trade tariffs.
+<br/>
+<br/>
+China imposed targeted tariffs on US imports last week and put several companies, including Alphabet's Google, on notice for possible sanctions, in a measured response to Trump's across-the-board 10 percent duties, which had come on top of prior tariffs. (Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htmTue, 11 Feb 2025 11:09:00 +0800China adds six golds at Harbin Asian Winter Gameshttps://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm<img alt="Han Mei took home three golds and two silvers at the Harbin Games, three of which were from individual events. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791179\_1\_20250211160239.jpg&amp;q=90" style="width:100%;height:auto"/>
+<img alt="Sidney Chu finished 18th in the men's 1,000m speed skating. Photo courtesy of SF&amp;OC" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791179\_2\_20250211160239.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Team China continued their dominance at the Harbin Asian Winter Games by snatching six golds on Tuesday.
+<br>
+<br/>
+They also grabbed five silvers and five bronzes on day four of the action.
+<br/>
+<br/>
+At the conclusion of all the speed skating races, China took 11 out of 14 possible golds, as the day's top prizes in the sport all went to the national team.
+<br/>
+<br/>
+Ning Zhongyan took the 1,000-metre men's gold, while Han Mei topped the podium for the corresponding women's event, her second individual gold in Harbin.
+<br/>
+<br/>
+Ning set a new Asian and Games record of 1 minute and 8.81 seconds.
+<br/>
+<br/>
+Sidney Chu from Team Hong Kong, China finished 18th, 10.5 seconds behind the men's winner.
+<br/>
+<br/>
+In the women's race, Nicole Law finished 19th.
+<br/>
+<br/>
+The team pursuit golds for men and women both went to China as well.
+<br/>
+<br/>
+Elsewhere, the pair of Feng Junxi and Wang Xue topped the podium in the women's synchronised aerials after a spectacular display.
+<br/>
+<br/>
+In women's freeski slopestyle, Chinese skiers took all the medals as Liu Mengting came out on top, followed by Yang Ruyi and Han Linshan.
+<br/>
+<br/>
+Meanwhile, the SAR's men's curlers improved to 3-1 after beating Qatar 10-2 in group play.
+<br/>
+<br/>
+The women's curlers, however, suffered a 9-3 defeat at the hands of the national team and dropped to 1-3 in their group.
+<br/>
+<br/>
+Overall, China has 70 medals - 27 golds, 23 silvers and 20 bronzes so far. Second-placed South Korea has 12 golds, while Japan has five.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htmTue, 11 Feb 2025 16:10:00 +0800'US steel tariffs may have limited impact on China'https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm<img alt="The volume of China's steel and aluminium exports are much lower when compared to 2018. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791212\_1\_20250211193225.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+An analyst on Tuesday said while United States president Donald Trump's steel and aluminium tariffs are expected to have a limited direct impact on China, countries such as the US' neighbours of Canada and Mexico will feel the pinch.
+<br>
+<br/>
+The comment came after Trump on Monday announced a 25-percent import tax on all steel and aluminium entering the US "with no exception". The measures take effect on March 4.
+<br/>
+<br/>
+Vivian Yang, senior analyst at Chinese steel data provider, MySteel, told RTHK that the move will have limited impact on China's steel sector, as Beijing has already shifted away from the US market.
+<br/>
+<br/>
+She said the volume of China's steel and aluminium exports are much lower when compared to 2018 when Trump announced an earlier round of steel tariffs. Only some 891,000 tonnes of steel were exported to the US from China last year, accounting for 0.8 percent of the nation's total steel exports in 2024, according to MySteel.
+<br/>
+<br/>
+Yang said nations including Canada, Mexico and Brazil will be hit the hardest as they are currently the US’ top suppliers of the two metals.
+<br/>
+<br/>
+"Canada may face greater economic recursion as the tariffs could lead to increased production costs and potential job losses in the Canadian steel and aluminium sectors," she said.
+<br/>
+<br/>
+However, the Shanghai-based analyst warned that the new tariffs will still have an impact on China's "indirect" steel exports, such as automobiles, ships, and machinery.
+<br/>
+<br/>
+"The White House had already imposed a 10 percent additional on all Chinese goods imports. And if Trump's targeted tariffs of up to 60 percent on all Chinese imports he claimed earlier is to be realised, the impact on Chinese manufactured goods would be huge, because almost all Chinese exported products would lose their price advantage and have no export profit," she said.
+<br/>
+<br/>
+"Although China is exporting very little steel to the US directly nowadays, some Chinese steel products do make their way into the US by other channels, for example, some are purchased by foreign countries and re-shipped to the US, [so] these transshipment practices will be impacted," she added.
+<br/>
+<br/>
+Mainland steel-related shares declined following the latest tariff announcements, with iron and steel manufacturing conglomerates Hesteel Group and Angang Steel's stocks falling over two percent.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htmTue, 11 Feb 2025 21:03:00 +0800CATL starts Hong Kong listing processhttps://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm<img alt="CATL, the world's largest EV battery maker, filed a 527-page document to the Hong Kong Stock Exchange with offer-related information redacted. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791220\_1\_20250211205530.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Chinese battery giant CATL started the application process on Tuesday to be listed in Hong Kong and named seven banks as overall coordinators, according to stock exchange filings.
+<br>
+<br/>
+CATL, which produces more than a third of the EV batteries sold worldwide, filed a 527-page document to the Hong Kong Stock Exchange with offer-related information redacted.
+<br/>
+<br/>
+It is the first step in what analysts say could be a jumbo initial public offering that could boost Hong Kong's fortunes as a listing hub.
+<br/>
+<br/>
+"This Application Proof is in draft form," the firm said in the document, which includes financial information and corporate details with redactions.
+<br/>
+<br/>
+CATL said in another exchange filing dated Tuesday it has "appointed... overall coordinators" and listed seven financial institutions.
+<br/>
+<br/>
+The company is publicly traded in Shenzhen and its plans to seek a secondary listing in Hong Kong were announced in an exchange filing in December.
+<br/>
+<br/>
+Founded in 2011 in the eastern coastal Chinese city of Ningde, CATL has grown into the world's largest EV battery maker and supplies firms including Mercedes-Benz, BMW, Volkswagen, Toyota, Honda and Hyundai. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htmWed, 12 Feb 2025 06:34:00 +0800Xpeng, Geely shares fall after BYD offers new featureshttps://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm<img alt="BYD on Monday put on sale 21 models equipped with its &quot;God's Eye&quot; advanced driver-assistance system at no additional cost. File photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791219\_1\_20250211204647.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Shares in Chinese automakers Xpeng and Geely Auto tumbled on Tuesday on concern they will struggle to compete against BYD's move to offer free smart driving features on almost all of its models.
+<br>
+<br/>
+Xpeng's shares fell as much as 9.2 percent and Geely's dropped as much as 11.4 percent, each enduring their biggest one-day percentage decline since October 8, 2024. BYD's Hong Kong-listed shares rose 4.5 percent to reach a record high before closing 0.7 percent lower.
+<br/>
+<br/>
+BYD on Monday put on sale 21 models equipped with its "God's Eye" advanced driver-assistance system (ADAS) similar to that offered by rival Tesla, at no additional cost. The cheapest model the Chinese electric vehicle giant is offering is the Seagull, priced at US$9,555.
+<br/>
+<br/>
+BYD's move far undercuts rivals, and analysts said it could start a new price war in an already hyper-competitive market, comparing it to how Chinese artificial intelligence startup DeepSeek recently roiled the global AI sector with its low-price offering.
+<br/>
+<br/>
+The "era of smart driving popularisation has come," Nomura analysts wrote in a note.
+<br/>
+<br/>
+BYD is deploying three different versions of the "God's Eye" ADAS across most of its line-up. All three offer automated parking and lane-keeping features, in the scope of conventional level 2 technologies.
+<br/>
+<br/>
+The basic version, from the Seagull to models costing up to 219,800 yuan (US$30,078), will enable autonomous driving on highways though the driver must keep their hands on the wheel and take control when necessary.
+<br/>
+<br/>
+The two higher-end versions, which will be installed on more expensive BYD-branded cars and its premium Denza and Yangwang brands, will enable the car to drive autonomously – though also under human supervision – in more complex urban traffic.
+<br/>
+<br/>
+BYD had previously only offered such features in models priced from US$30,000.
+<br/>
+<br/>
+Tesla has these features available in China in its EVs priced from US$32,000. It charges US$8,000 for its Full Self-Driving (FSD) driver assistant software in the United States, or US$99 a month on a subscription basis. FSD is not yet available in China.
+<br/>
+<br/>
+Xpeng declined to comment, instead referring to comments its founder He Xiaopeng made online on Monday, ahead of BYD's event.
+<br/>
+<br/>
+"We welcome the official upcoming announcement by a leading automaker I respect extremely for its smart driving strategy that will bring about the popularisation of smart driving not only in China but also globally," He said. (Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htmWed, 12 Feb 2025 06:37:00 +0800China signs communique calling for open, inclusive AIhttps://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm<img alt="Vice Premier Zhang Guoqing, second left, meets French President Emmanuel Macron, second right, on the sidelines of the Artificial Intelligence Action Summit. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791290\_1\_20250212113559.jpg&amp;q=30" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China and around 60 other countries on Tuesday signed the final statement of a French-hosted artificial intelligence summit that said AI should be inclusive, open, ethical and safe.
+<br>
+<br/>
+The United States and Britain did not sign the agreement.
+<br/>
+<br/>
+The signatories agreed that the two-day summit laid out an open, multi-stakeholder and inclusive approach that will enable AI to be human rights-based, human-centric, ethical, safe, secure and trustworthy.
+<br/>
+<br/>
+Vice Premier Zhang Guoqing told the summit that China was willing to work with other countries to safeguard security and share achievements in the field of artificial intelligence to build "a community with a shared future for mankind".
+<br/>
+<br/>
+Zhang said AI has become an important driving force for the new round of scientific and technological revolution and industrial transformation, and Beijing has always participated in global cooperation and governance on AI with a highly responsible attitude.
+<br/>
+<br/>
+US Vice President JD Vance said "massive regulations" by the European Union on AI could strangle the technology.
+<br/>
+<br/>
+"We believe that excessive regulation of the AI sector could kill a transformative industry," Vance told the summit of CEOs and heads of state in Paris.
+<br/>
+<br/>
+A source close to organisers said they were not surprised that the US had not signed, considering their stance on regulation.
+<br/>
+<br/>
+A UK government spokesperson said the final statement did not sufficiently address "harder questions around national security".
+<br/>
+<br/>
+"We felt the declaration didn't provide enough practical clarity on global governance, nor sufficiently address harder questions around national security and the challenge AI poses to it," the spokesperson said. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htmWed, 12 Feb 2025 11:35:00 +0800Hong Kong, China qualified in men's curling playoffshttps://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm<img alt="Hong Kong, China beat Saudi Arabia 15-1 to secure a spot in the play-offs. Photo courtesy of SF&amp;OC" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791336\_1\_20250212154603.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Team Hong Kong, China secured a spot in the play-offs for the men's curling competition at the Harbin Asian Winter Games on Wednesday, achieving four wins out of five round-robin matches.
+<br>
+<br/>
+In their final round-robin game, the SAR men's team dominated Saudi Arabia with a score of 15-1, ensuring their advancement to the play-offs.
+<br/>
+<br/>
+Although they faced a setback in their opening match against the national team, they bounced back to defeat Thailand, Japan, Qatar and finally Saudi Arabia.
+<br/>
+<br/>
+The SAR team will face Kazakhstan on Thursday for a spot in the semi-finals.
+<br/>
+<br/>
+On the women's side, Hong Kong, China are gearing up for their final two round-robin matches against Qatar and Kazakhstan, having recorded two wins and four losses in their previous games.
+<br/>
+<br/>
+Meanwhile, China swept the podium in both the mixed relay final of ski mountaineering and the women's freeski big air event.
+<br/>
+<br/>
+In ski mountaineering, the pair of Cidan Yuzhen and Bu Luer clinched victory with a time of 27 minutes and 48.67 seconds.
+<br/>
+<br/>
+They were closely followed by compatriots Yu Jingxuan and Bi Yuxin, who finished 32.29 seconds behind, while Suolang Quzhen and Liu Jianbin secured third place, finishing a minute and 39 seconds later.
+<br/>
+<br/>
+In the freeski big air event, Liu Menting delivered an impressive performance, winning with a score of 175.50 points, followed by fellow Chinese athletes Han Linshan and Yang Ruyi.
+<br/>
+<br/>
+The national team also came out on top in cross-country skiing, securing victories in both the women's 4 x 5 kilometres relay and the men's 4 x 7.5 kilometres relay.
+<br/>
+<br/>
+In the women's event, the team of Li Lei, Chi Chunxue, Chen Lingshuang and Dinigeer Yilamujiang finished in 53 minutes and 59.3 seconds. Kazakhstan took second place, while Japan completed the podium in third.
+<br/>
+<br/>
+On the men's side, Li Minglin, Ciren Zhandui, Bao Lin and Wang Qiang edged out Japan by 3.2 seconds, finishing in one hour, 12 minutes and 9.6 seconds. Kazakhstan secured the final spot on the podium.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htmWed, 12 Feb 2025 16:07:00 +08004 dead after explosion rocks Taiwan department storehttps://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791453\_2\_20250213142518.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+A suspected gas explosion has hit a department store in the city of Taichung in Taiwan, killing at least four people, authorities there said on Thursday.
+<br>
+<br/>
+The morning blast – which injured at least 23 others – is said to have occurred at the food court on the 12th floor of the Shin Kong Mitsukoshi department store.
+<br/>
+<br/>
+The floor was believed to be closed for construction work at the time of the explosion.
+<br/>
+<br/>
+Among the dead were two people visiting from Macau, while a third was severely injured, Macau authorities said.
+<br/>
+<br/>
+The Macau victims were reportedly part of a family of seven visiting the island.
+<br/>
+<br/>
+Parts of the building's exterior were damaged, and scattered fragments were strewn on the streets.
+<br/>
+<br/>
+The cause of the incident is still under investigation.
+<br/>
+<br/>
+Hong Kong's immigration authorities said they have not received any requests for help from SAR residents in the affected area.
+<br/>
+<br/>
+The Immigration Department said it would maintain close contact with tourism representatives here and monitor the situation.
+<br/>
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+<br/>
+<font my="my" style="font-size:90%">
+<i>
+Last updated: 2024-02-13 HKT 22:30
+</i>
+</font>
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htmThu, 13 Feb 2025 13:18:00 +0800China steel warns of 'adverse impact' of US tariffshttps://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm<img alt="China's Iron and Steel Association said the tariff rise on steel and aluminum imports to the US would adversely impact the supply chain of the global steel industry. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791504\_1\_20250213181713.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+A group representing China's steel industry has warned that a new 25 percent tariff on imports of the product into the United States would have an "adverse impact" on the sector, state media reported on Thursday.
+<br>
+<br/>
+"The US move is essentially an act of trade protectionism," the China Iron and Steel Association (CISA) said in a statement published by state broadcaster CCTV.
+<br/>
+<br/>
+"In the short term, the impact on (China's) steel exports is limited," the CISA said in the report.
+<br/>
+<br/>
+"But in the long term, the US move could lead other countries to follow suit, thereby reducing (China's) steel export competitiveness," it added.
+<br/>
+<br/>
+Despite being the world's top producer of steel, China last year accounted for only a small proportion of US steel imports.
+<br/>
+<br/>
+But with demand slumping in the domestic construction sector, Chinese steel exports have surged, spurring concerns in Washington about overcapacity in foreign markets with harmful effects on US producers.
+<br/>
+<br/>
+US President Donald Trump signed executive orders on Monday slapping new 25 percent tariffs on steel and aluminium, due to come into effect on March 12.
+<br/>
+<br/>
+"From a medium- and long-term perspective, the (US) increase in tariffs will have an adverse impact on industrial and supply chains in the global steel industry, including the Chinese steel industry," CISA deputy secretary-general Zhang Longqiang said, according to CCTV. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htmThu, 13 Feb 2025 18:17:00 +0800Shenzhen Bay Port to close for cross-border marathonhttps://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791516\_1\_20250213190820.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Shenzhen Bay Port will be closed from 2am to 11am on February 23rd for a cross-border marathon event.
+<br>
+<br/>
+At most 100 runners, six from Hong Kong, will take part in the Shenzhen-Hong Kong Marathon, which doubles as a test event for the 15th National Games.
+<br/>
+<br/>
+The event later this month features a men's race and a women's race.
+<br/>
+<br/>
+The women’s race begins at 7am while the men’s race starts half an hour later.
+<br/>
+<br/>
+The athletes will run for two kilometres in Shenzhen before entering Hong Kong through the Shenzhen Bay Port.
+<br/>
+<br/>
+They will run along the Hong Kong-Shenzhen Western Corridor towards the south until they get to the turning point.
+<br/>
+<br/>
+The Hong Kong section is about 21 kilometres in total.
+<br/>
+<br/>
+Ken Wong, the Transport Department's principal transport officer, urged passengers to use the MTR East Rail Line to travel to Shenzhen via Lo Wu and Lok Ma Chau on the day.
+<br/>
+<br/>
+He also urged motorists to steer clear of border points while the race is on.
+<br/>
+<br/>
+“According to operating records on a typical Sunday, there will be about 26,000 passengers, two-bound, using Shenzhen Bay Port... and according to our records, there will be about 2,000 cross-boundary private cars using Shenzhen Bay Port on a typical Sunday,” he said.
+<br/>
+<br/>
+There will be no spectators for this event.
+<br/>
+<br/>
+“Because the Hong Kong session for this race will be mostly either on the highway or in the restricted area near the cross boundary control points, so for this time there will not be any public viewing area for the general spectators,” Yeung Tak-keung, the head of the National Games Coordination Office said.
+<br/>
+<br/>
+The race will be broadcast live on RTHK’s website.
+<br/>
+<br/>
+Yeung added that customs clearance arrangements for the athletes will be similar to the cross-border cycling test event in November last year.
+<br/>
+<br/>
+“The athletes have to submit their information to the organising party. Once verified, there will be a facial recognition and the ID and passports will have to be vetted beforehand,” he said
+<br/>
+<br/>
+He added that runners have to go through another round of inspection on the race day.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htmThu, 13 Feb 2025 19:08:00 +0800Foreign Minister Wang Yi in UK for talkshttps://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm<img alt="British Foreign Secretary David Lammy welcomes Foreign Minister Wang Yi in London. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791573\_1\_20250214084438.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China and Britain need to strengthen strategic communication, enhance mutual trust and demonstrate responsibility as major countries, Foreign Minister Wang Yi said in a meeting with the UK prime minister on Thursday.
+<br>
+<br/>
+Wang is visiting London for a strategic dialogue with the British Foreign Secretary David Lammy, at which both sides agreed to speed up preparations for institutional dialogues on the economy and trade, health and industrial cooperation, the Foreign Ministry said.
+<br/>
+<br/>
+Lammy hosted talks with Wang as the pair revived the China-UK Strategic Dialogue, a bilateral forum that was last held in 2018 before it stalled as relations soured.
+<br/>
+<br/>
+Starmer "dropped in" to a meeting between Wang and UK National Security Adviser Jonathan Powell, a Downing Street spokesperson said.
+<br/>
+<br/>
+Starmer "underlined his intention to build a consistent and respectful relationship between the UK and China" and "reiterated that the UK will always engage frankly on the areas where our views differ," the spokesperson added.
+<br/>
+<br/>
+The two sides exchanged in-depth views on the Ukraine crisis, with Wang stressing "no expansion of the battlefields, no escalation of hostilities, and no fanning flames."
+<br/>
+<br/>
+Wang said China welcomed efforts committed to peace talks and supported the building of a balanced, effective and sustainable European security architecture.
+<br/>
+<br/>
+The Labour government, elected in July, has sought to improve the UK's relationship with Beijing after the two countries fell out during the latter years of Conservative rule.
+<br/>
+<br/>
+In a major thawing of tensions, Starmer and President Xi Jinping met at the G20 summit last November - the first bilateral meeting between leaders of the two countries since 2018.
+<br/>
+<br/>
+Finance minister Rachel Reeves then visited China last month seeking investment to kickstart growth in Britain's economy, while Lammy visited Beijing in October. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htmFri, 14 Feb 2025 08:50:00 +0800Baidu to make latest Ernie AI model open-sourcehttps://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm<img alt="Baidu was among the first big Chinese companies to invest heavily in AI following the 2022 debut of OpenAI's ChatGPT. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791606\_1\_20250214121337.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Search engine giant Baidu said on Friday it would make its next-generation artificial intelligence model Ernie open-source from June 30, a major shift in strategy as competition heats up.
+<br>
+<br/>
+Baidu CEO Robin Li had long advocated for closed-source models as the only viable path for AI development, but the advent of DeepSeek has upended the sector. The startup offers open-source AI services that it claims are comparable in performance to US pioneer OpenAI's advanced systems but come with a lower operational cost.
+<br/>
+<br/>
+Keen to increase market share, Baidu also announced on Thursday that it would make its AI chatbot Ernie Bot free starting April 1, about a year and a half after introducing premium versions.
+<br/>
+<br/>
+Baidu was among the first big Chinese companies to invest heavily in AI following the 2022 debut of OpenAI's ChatGPT. However, its Ernie large language model has struggled to gain widespread adoption. Baidu has said its current version, Ernie 4.0, matches OpenAI's GPT-4 capabilities.
+<br/>
+<br/>
+ByteDance's Doubao chatbot has the most active monthly users on the mainland with 78.6 million, DeepSeek has 33.7 million while Ernie Bot has 13 million, according to January data from AI product tracker Aicpb.com.
+<br/>
+<br/>
+"We will gradually launch the Ernie 4.5 series in the coming months and officially open-source it from June 30," Baidu said in a WeChat post.
+<br/>
+<br/>
+Li appeared to have changed tack on open-source development, telling attendees at an event in Dubai this week that it could accelerate AI adoption.
+<br/>
+<br/>
+"If you open things up, a lot of people will be curious enough to try it. This will help spread the technology much faster," he said.
+<br/>
+<br/>
+Baidu also plans to launch a new next-generation model, Ernie 5, in the second half of 2025, a person familiar with the matter has said. (Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htmFri, 14 Feb 2025 12:13:00 +0800Bodies of Macau victims of Taiwan blast to head homehttps://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm<img alt="A suspected gas explosion at a department store in Taichung claims four lives. File photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791635\_1\_20250214154731.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Arrangements were being made by the Macau authorities – via the Red Cross – to return to the SAR the bodies of two residents killed in an explosion in Taiwan.
+<br>
+<br/>
+The pair were among seven members of a family from Macau caught up in the blast that rocked the Shin Kong Mitsukoshi department store in Taichung.
+<br/>
+<br/>
+The suspected gas explosion hit the food court on the 12th floor of the building, killing four and injuring about 30 others.
+<br/>
+<br/>
+A team of officials from Macau went to Taichung and visited those injured in hospital.
+<br/>
+<br/>
+China on Friday expressed condolences to the families of the victims.
+<br/>
+<br/>
+Zhu Fenglian, a spokeswoman of the Taiwan Affairs Office, also extended sympathy to those injured in the blast. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htmFri, 14 Feb 2025 15:47:00 +0800Vice education minister visits Polytechnic Universityhttps://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm<img alt="Vice Minister of Education Wu Yan, second left, visits the Polytechnic University campus in Hung Hom. Photo courtesy of Polytechnic University" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791657\_1\_20250214171349.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Vice Minister of Education Wu Yan has praised the Hong Kong Polytechnic University for its innovative research and its effort in fostering industry-academia integration.
+<br>
+<br/>
+Wu led a delegation on a visit to the Polytechnic University campus on Thursday.
+<br/>
+<br/>
+He also said he welcomed closer collaboration between the university and mainland cities, as well as national research institutes, to further translate technology into practical applications, contributing to technological development in both regions and benefiting the community.
+<br/>
+<br/>
+The delegation was accompanied by Polytechnic University Council chairman Lam Tai-fai, President Professor Jin-Guang Teng and other management team members.
+<br/>
+<br/>
+Lam said the visit by the Ministry of Education delegation provided significant encouragement to the university.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htmFri, 14 Feb 2025 17:13:00 +0800Team China top medals table at Asian Winter Gameshttps://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm<img alt="Team China win silver in the women's curling. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791656\_1\_20250214171324.jpg&amp;q=75" style="width:100%;height:auto"/>
+<img alt="Kazakhstan won the gold medal in men's ice hockey. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791656\_2\_20250214171324.jpg&amp;q=70" style="width:100%;height:auto"/>
+<img alt="Japan came out on top in the women's ice hockey final. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791656\_3\_20250214171324.jpg&amp;q=75" style="width:100%;height:auto"/>
+<img alt="South Korea tops the podium in the women's curling gold medal game. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791656\_4\_20250214171324.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Team China dominated the medals table at the Harbin Asian Winter Games which close on Friday evening.
+<br>
+<br/>
+The national team ended the Games with 85 medals – 32 gold, 27 silver and 26 bronze – while South Korea and Japan followed in second and third place respectively.
+<br/>
+<br/>
+On the last day of the Games, Kazakhstan won the gold medal in men's ice hockey after beating second-placed Japan 5-0. South Korea overcame China in the bronze medal game 5-2 to secure the final spot on the podium.
+<br/>
+<br/>
+On the women's side, Japan took gold, while Kazakhstan and China completed the podium.
+<br/>
+<br/>
+In curling, the Philippines claimed their first gold medal of the Games in the men's event. They beat South Korea 5-3 to bring them to the top of the podium. China won bronze, after defeating Hong Kong, China 10-3.
+<br/>
+<br/>
+In the women's curling gold medal game, South Korea edged out China 7-2 for the win, while Japan won their bronze medal game to end up in the top three spots.
+<br/>
+<br/>
+Husain Al Musallam, the director general of the Olympic Council of Asia, said the Harbin Asian Winter Games has set a benchmark for major multi-sport events in Asia.
+<br/>
+<br/>
+"Our athletes enjoy competing here and wish to come back to Harbin. The rest of the world came here and witnessed how Harbin managed to organise such a big event in 18 months with not only successful facilities but also the details for everybody," he said.
+<br/>
+<br/>
+The closing ceremony will take place on Friday night at the Harbin International Conference, Exhibition and Sports Centre, with Premier Li Qiang in attendance to host a welcoming banquet and bilateral events for foreign leaders. (Additional reporting from Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htmFri, 14 Feb 2025 17:23:00 +0800Harbin Asian Winter Games makes a grand exithttps://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm<img alt="The closing ceremony of the Harbin Asian Winter Games took place at the Harbin International Conference, Exhibition and Sports Centre. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791693\_1\_20250214212028.jpg&amp;q=10" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The 2025 Asian Winter Games concluded on Friday in Harbin, marking an historic achievement for the Hong Kong, China delegation, as they delivered their best-ever performance in the competition.
+<br>
+<br/>
+Timothy Fok, first vice president of the Olympic Council of Asia, declared the 9th Asian Winter Games closed at the Harbin International Conference, Exhibition and Sports Centre, where he also highlighted the record-breaking participation at the Games, with over 1,200 athletes from 34 countries and regions — the highest turnout in the event's history.
+<br/>
+<br/>
+"This is truly a unique and charming part of China and the world - not only for the beauty of the city and the landscape but also for the warmth and friendliness of the local people," he said.
+<br/>
+<br/>
+The closing ceremony was a vibrant celebration filled with song and dance, followed by participating delegations and athletes entering the venue.
+<br/>
+<br/>
+Curler Martin Yan carried the flag for Hong Kong, China, while Chinese skier Xu Mengtao served as the flag bearer for the national team.
+<br/>
+<br/>
+Kenneth Fok, vice president of the Sports Federation and Olympic Committee of Hong Kong, China and chef de mission for the SAR delegation, said the team achieved significant breakthroughs despite winter sports being relatively uncommon in Hong Kong.
+<br/>
+<br/>
+"Hong Kong has been gaining prominence on the world stage in winter sports. With the valuable experience gained by competing with top players in the Games, our athletes will make significant progress in their levels," he said.
+<br/>
+<br/>
+"I am hopeful that more young winter sports enthusiasts will join the team, contributing to a sustainable and promising development in the city’s ice and snow sports. Our winter athletes will continue to excel on global stage."
+<br/>
+<br/>
+Hong Kong, China made its debut in curling and alpine skiing at these Games, with the men's curling team placing fourth and an alpine skier achieving a record 10th place.
+<br/>
+<br/>
+The men's ice hockey team also reached the quarterfinals for the first time, while athletes in short track speed skating and figure skating ranked in the top 15.
+<br/>
+<br/>
+Trojena, Saudi Arabia, is set to host the 10th Asian Winter Games in 2029, marking the first time the event will be held in West Asia. (Additional reporting from Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htmFri, 14 Feb 2025 21:38:00 +0800China will 'play along to the end': FMhttps://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791712\_1\_20250215033058.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Foreign Minister Wang Yi said China's policy toward the United States is consistent and stable, but if the US persists in suppressing China, China will have no choice but to "play along to the end."
+<br>
+<br/>
+Speaking at the Munich Security Conference, Wang said China would respond resolutely to unilateral "bullying" practices but hopes the US can work together with it in the same direction.
+<br/>
+<br/>
+"Protectionism offers no way out, and arbitrary tariffs produce no winners." Wang emphasised.
+<br/>
+<br/>
+Addressing the Russia-Ukraine conflict, the foreign minister said China advocated peaceful talks to resolve regional issues and believes all parties and stakeholders should participate.
+<br/>
+<br/>
+He added that Europe should play an important role in the process of addressing the crisis.
+<br/>
+<br/>
+Wang highlights the cooperative relationship between China and Europe and that Beijing sees Europe as an "important pole" in a multi-polar world.
+<br/>
+<br/>
+"China and Europe are partners, not rivals."
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htmSat, 15 Feb 2025 11:13:00 +0800Thai police arrest 10 in case involving Chinese actorhttps://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm<img alt="Senior inspector general of the Thai police, Thatchai Pitaneelaboot, told the press that the 10 suspects will be repatriated to China. Photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791747\_1\_20250215122059.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Authorities in Thailand said they arrested 10 Chinese nationals in connection with the case involving Chinese actor Wang Xing and have handed them over to the immigration department for repatriation to China.
+<br>
+<br/>
+According to a statement released by the Thai police, investigations found that the 10 arrested belonged to a criminal gang that had long been conducting telecommunications fraud targeting Chinese citizens in Myawaddy, Myanmar.
+<br/>
+<br/>
+They were accused of pretending to be employees of an entertainment company in Thailand to defraud Wang Xing. After Wang's rescue, they attempted to flee to Cambodia via Thailand, but were arrested in various locations near the border.
+<br/>
+<br/>
+Thatchai Pitaneelaboot, senior inspector general of the Thai police, said he's instructed for the 10 suspects to be handed over to the Thai Immigration Bureau for repatriation to China.
+<br/>
+<br/>
+Wang Xing, a Chinese actor, entered Thailand on January 3 but lost contact near the Thailand-Myanmar border. Thai police tracked his movements and successfully carried out a rescue operation, identifying Wang as a victim of human trafficking.
+<br/>
+<br/>
+The Chinese embassy in Thailand said Wang has since returned to China following joint efforts from both countries. (Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htmSat, 15 Feb 2025 12:20:00 +0800FM tells Nato to be 'rational and pragmatic'https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm<img alt="Foreign Minister Wang Yi speaks during the 61st Munich Security Conference in Munich, Germany. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791785\_1\_20250215180709.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China urged Nato to adopt a "rational and pragmatic" attitude and establish an "objective and correct understanding" of China, the foreign ministry said on Saturday.
+<br>
+<br/>
+Foreign Minister Wang Yi made the comment to Nato Secretary General Mark Rutte on Friday, on the sidelines of the Munich Security Conference, the ministry said.
+<br/>
+<br/>
+Wang said Beijing will continue to work with other parties to play a constructive role in promoting a political solution to the war in Ukraine.
+<br/>
+<br/>
+Earlier at the conference, the top diplomat said China will work with like-minded countries to promote a stable and orderly multi-polar world as well as an inclusive and tolerant economic globalisation.
+<br/>
+<br/>
+Wang noted that China maintains a consistent and stable policy toward the United States, which will continue to be guided by the principles of mutual respect, peaceful coexistence, and win-win cooperation. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htmSat, 15 Feb 2025 18:07:00 +0800Asian American women in the spotlight at US awardshttps://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm<img alt="Honourees of the Outstanding Asian American Women Who Dared gala say the event comes at a crucial time, as US President Donald Trump aggressively moves to stamp out diversity, equity and inclusiveness. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791931\_1\_20250217101545.jpg&amp;q=40" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+A special event in the United States has been shining a spotlight on the achievements of Asian American women, in areas ranging from academics to sports.
+<br>
+<br/>
+The awards gala for the Outstanding Asian American Women Who Dared – held in the heart of California’s Silicon Valley on February 13 – recognised 12 people, who said the event comes at a crucial time, especially with US President Donald Trump aggressively moving to stamp out traces of diversity, equity and inclusiveness.
+<br/>
+<br/>
+“We’re entering a very special era in history, and it just makes us have to really step in and step up and work harder,” honouree Liu Xin – the founder of the Enlight Foundation, which focuses on education equality and helping youth engage in developing climate solutions – said.
+<br/>
+<br/>
+A presenter at the show, Fiona Ma, is the first Asian American Woman to be elected treasurer of California.
+<br/>
+<br/>
+“It’s been very difficult for me being an Asian woman moving up the ranks and politics. And, you know, tonight is about recognising other trailblazers and people who are really making a mark.”
+<br/>
+<br/>
+And one of those making a mark is Sue Xu, the managing partner of venture capital firm Amino Capital.
+<br/>
+<br/>
+She has contributed to the success of at least 45 companies with a total value of more than US$100 million.
+<br/>
+<br/>
+She has also addressed the United Nations about the role of artificial intelligence in combatting human trafficking and promoting the welfare of women.
+<br/>
+<br/>
+“I feel like, woman's voice hasn’t been heard. Especially nowadays, when you're talking about DeepSeek, talking about AI. And then I feel like a lot of times woman is victims of AI. And then, you know, South Korea, they just passed that out, criminalising possession for, you know, deep-fake pornography. I feel like as a woman, if we lead with responsibility, we have a chance,” Xu said.
+<br/>
+<br/>
+While many of the honourees stem from the world of business and technology, artists were celebrated too.
+<br/>
+<br/>
+Honouree Chen Jiebing is one of the foremost erhu virtuosos in the world.
+<br/>
+<br/>
+The Shanghai native has been nominated for a Grammy and recently had the honour of Nasa using her music to celebrate its 60th anniversary.
+<br/>
+<br/>
+“I want the world to see and hear the unique vocal expressions of this instrument and it’s versatility to incorporate with other Western styles of music such as jazz, and even American Blue Grass country style music.
+<br/>
+<br/>
+Like all the honourees, Chen has daring goals. Hers is to someday elevate the erhu to be as widely recognised worldwide as the violin.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htmMon, 17 Feb 2025 10:15:00 +0800President Xi attends gathering on private enterpriseshttps://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791960\_1\_20250217130159.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+President Xi Jinping on Monday called for efforts to promote the healthy and high-quality development of China's private sector.
+<br>
+<br/>
+He made the remarks when attending a symposium on private enterprises.
+<br/>
+<br/>
+President Xi said the private sector enjoys broad prospects and great potential on the new journey in the new era, and it is a prime time for private enterprises and entrepreneurs to give full play to their capabilities.
+<br/>
+<br/>
+He also called for efforts to reach consensus and firming up confidence, to promote the healthy and high-quality development of the private sector.
+<br/>
+<br/>
+"We hope that all private enterprises and private entrepreneurs will have the ambition to serve the country, strive for development, operate in accordance with the law and promote common prosperity, so as to make new and greater contributions to promoting Chinese-style modernisation," Xi said.
+<br/>
+<br/>
+He added that policies regarding the private sector would not change.
+<br/>
+<br/>
+The president delivered the speech after listening to representatives of private companies at the Great Hall of the People in Beijing.
+<br/>
+<br/>
+Premier Li Qiang and Vice Premier Ding Xuexiang were among those attending the symposium, which was presided over by Chinese People's Political Consultative Conference chairman Wang Huning.
+<br/>
+<br/>
+Reuters reported on Friday, citing sources, that Xi planned to chair a symposium to boost private sector sentiment, a meeting which would be attended by the country's business leaders, including Alibaba co-founder Jack Ma.
+<br/>
+<br/>
+The symposium would be aimed at boosting private-sector sentiment, and Xi was expected to encourage company chiefs to expand their businesses domestically and internationally.
+<br/>
+<br/>
+Xi first chaired a high-profile symposium for the private sector in 2018. At the time, he pledged tax cuts and a level playing field while reaffirming that private firms would have access to financial backing.
+<br/>
+<br/>
+The symposium also comes as DeepSeek's AI platform has triggered investor speculation about its potential to buoy China's broader tech sector, leading to calls for an upward repricing of Chinese assets. (Xinhua &amp; agencies)
+<br/>
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+<br/>
+<font my="my" style="font-size:90%">
+<i>
+Last updated: 2025-02-17 HKT 20:28
+</i>
+</font>
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htmMon, 17 Feb 2025 14:35:00 +0800China urges US to correct mistakes in Taiwan wordinghttps://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm<img alt="Guo Jiakun says there is only one China and the government of the People's Republic of China is the only legal government representing the whole of China. File photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792015\_1\_20250217215233.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The so-called "update" to the Taiwan fact sheet displayed on the US State Department website is another example of Washington using the Taiwan question to contain China, and China urges the US to immediately correct its mistakes, Foreign Ministry spokesman Guo Jiakun said on Monday.
+<br>
+<br/>
+The US State Department removed a line on its website stating that it does not support "Taiwan independence".
+<br/>
+<br/>
+Guo reiterated that there is only one China and Taiwan is part of China, and the government of the People's Republic of China is the only legal government representing the whole of China.
+<br/>
+<br/>
+He added that it is a prevailing international consensus and basic norm governing international relations, and also a solemn commitment the US has made in the three China-US joint communiqués.
+<br/>
+<br/>
+Guo stressed that the revision made by the US State Department gravely backpedalled on its position on Taiwan-related issues, and has sent a severely wrong signal to "Taiwan independence" separatist forces.
+<br/>
+<br/>
+"We urge the US to immediately correct its wrongdoings, abide by the one-China principle and three China-US joint communiqués," Guo said.
+<br/>
+<br/>
+Meanwhile, Zhu Fenglian, a spokeswoman of the Taiwan Affairs Office, urged the US to handle the Taiwan question with the "greatest prudence" and stop sending any wrong signals that condone or abet "Taiwan independence" separatist forces.
+<br/>
+<br/>
+The revision was a "severe regression" regarding the US stance on the Taiwan question, she added. (Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htmMon, 17 Feb 2025 21:52:00 +0800Ukraine peace talks should include all parties: Chinahttps://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm<img alt='Guo Jiakun says China is "happy to see all efforts towards peace". Photo from the Foreign Ministry website' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792134\_1\_20250218171116.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+China hopes that all parties and stakeholders can participate in the peace talks to solve the Ukraine crisis, the Foreign Ministry said on Tuesday.
+<br>
+<br/>
+Foreign Ministry spokesman Guo Jiakun said Beijing welcomes all peace efforts over Ukraine, including the talks between the United States and Russia, ahead of a meeting between diplomats from the two countries in Saudi Arabia.
+<br/>
+<br/>
+US President Donald Trump is pushing for a swift resolution to the three-year conflict in Ukraine. Ukrainian President Volodymyr Zelensky said Kyiv was not invited to the discussions in Riyadh, while European leaders were gathering in Paris for emergency talks on how to respond to the radical pivot by the new US administration.
+<br/>
+<br/>
+Guo said: "We hope that all parties can work together to resolve the root causes of the Ukraine crisis, find a balanced, effective and sustainable security structure and achieve long-term peace and stability in Europe." (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htmTue, 18 Feb 2025 17:11:00 +0800China condemns US 'tariff shocks' at WTOhttps://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm<img alt="Li Chenggang, China's Ambassador to the WTO, warns against what he says is US unilateralism disrupting the rules-based multilateral trading system. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792198\_1\_20250219060325.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The sweeping tariffs threatened or imposed by US President Donald Trump risk triggering inflation, market distortions, and even a global recession, China said on Tuesday at the World Trade Organization.
+<br>
+<br/>
+After returning to office on January 20, Trump slapped China, the world's second-biggest economy, with an additional 10 percent levy on products entering the United States.
+<br/>
+<br/>
+And Trump signed executive orders last week imposing new 25 percent tariffs on steel and aluminium, due to come into effect on March 12.
+<br/>
+<br/>
+"The world faces a series of tariff shocks," said Li Chenggang, China's ambassador to the WTO, at the first meeting of the year of the global trade body's decision-making General Council.
+<br/>
+<br/>
+"The US has imposed or threatened tariffs on its trading partners, including China, unilaterally and arbitrarily, blatantly violating WTO rules. China firmly opposes such measures.
+<br/>
+<br/>
+"These tariff shocks heighten economic uncertainty, disrupt global trade, and risk domestic inflation, market distortion, or even global recession."
+<br/>
+<br/>
+Li went on to say that US unilateralism threatened to upend the rules-based multilateral trading system.
+<br/>
+<br/>
+"The stakes are high for all members, big or small," said Li.
+<br/>
+<br/>
+Imposing punitive tariffs on countries with high trade surpluses with the United States has been at the heart of Trump's economic policy.
+<br/>
+<br/>
+He paused 25 percent levies against Canada and Mexico for a month after both countries vowed to step up measures to counter flows of the drug fentanyl and the crossing of undocumented migrants into the United States.
+<br/>
+<br/>
+But Trump went ahead with tariffs on China, which imposed retaliatory tariffs targeting US coal and liquified natural gas.
+<br/>
+<br/>
+A Geneva-based trade official said Washington in return voiced concerns that China was operating a non-market economic system and habitually breached WTO rules.
+<br/>
+<br/>
+"The US highlighted the issues stemming from China's lack of transparency and its disregard for WTO oversight," the official said.
+<br/>
+<br/>
+"The US also pointed out that the WTO's current inability to address China's market-distorting policies, such as unfair subsidies, significantly diminishes the organisation's effectiveness." (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htmWed, 19 Feb 2025 06:35:00 +0800'Ne Zha 2' to hit HK cinemas on Saturdayhttps://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792229\_1\_20250219103021.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Record-breaking blockbuster "Ne Zha 2" is set for general release in Hong Kong on Saturday, as it dethroned Disney's "Inside Out 2" and became the highest grossing animated film of all time -- based on domestic ticketing data.
+<br>
+<br/>
+It premiered in the city on Tuesday night, after it garnered significant attention in the SAR over the past month, which saw the animated movie break records for the number of distributors and daily screenings for a mainland film in Hong Kong.
+<br/>
+<br/>
+"We are honoured to bring this world-class phenomenon-level animation to Hong Kong and Macau, allowing viewers to experience the charm of Ne Zha in the theatres," said a representative of Emperor Motion Pictures, which is a co-distributor of the film.
+<br/>
+<br/>
+Meanwhile, some local fans went to Shenzhen to see the animation, ahead of its SAR release.
+<br/>
+<br/>
+"I've seen online comments about the animated film, saying it is a good and touching movie with an excellent storyline that's enlightening for viewers," said a Hongkonger who viewed the movie across the border.
+<br/>
+<br/>
+"I specifically watched the first movie in Hong Kong and came today to watch its sequel here in Shenzhen, as it hasn't been screened in Hong Kong. I want to see what makes this animation so successful in attracting many adults and to learn about the latest development of Chinese animation."
+<br/>
+<br/>
+A sequel to the 2019 hit "Ne Zha 1", "Ne Zha 2" has already packed out cinemas in China, where it claimed the title of the nation's biggest box-office hit since its release last month.
+<br/>
+<br/>
+State media, citing ticketing platform, Maoyan, said on Tuesday the fantasy epic had raked in over 12.32 billion yuan (US$1.72 billion), which surpassed "Inside Out 2" that took US$1.7 billion following its release last year.
+<br/>
+<br/>
+"Ne Zha 2" tells the tale of a rebellious young deity who uses his powers to battle formidable foes after his village is destroyed.
+<br/>
+<br/>
+The film was released overseas this month, sparking hopes that it would garner similar acclaim abroad.
+<br/>
+<br/>
+The original "Ne Zha" became what was then China's highest-grossing animated film, after it was released in 2019.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htmWed, 19 Feb 2025 10:59:00 +0800More support to come under CEPA, says Beijinghttps://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm<img alt="Beijing and local officials held a forum on the latest amendment to the Mainland and Hong Kong Closer Economic Partnership Arrangement (CEPA). Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792333\_1\_20250219190456.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+A Beijing commerce official on Wednesday pledged further support for Hong Kong under the Mainland and Hong Kong Closer Economic Partnership Arrangement (CEPA), the city's free-trade deal with the mainland.
+<br>
+<br/>
+Fan Shijie, the director-general of the Commerce Ministry's Department of Taiwan, Hong Kong and Macau Affairs, told a forum that the central government is committed to backing the city's economic development.
+<br/>
+<br/>
+"We will, under the CEPA framework, continue to promote opening up and cooperation with Hong Kong, and support Hong Kong to better integrate into national development," Fan said.
+<br/>
+<br/>
+"We will support different departments in implementing preferential measures under CEPA, and will continue to strengthen opening up and cooperation under the agreement to support investors in Hong Kong and around the world to enter the mainland via Hong Kong."
+<br/>
+<br/>
+An agreement signed last year between the two sides to amend the framework on trade in services under CEPA will come into effect next month. Changes include removing or loosening restrictions on equity shareholding and business scope across the border.
+<br/>
+<br/>
+Maggie Wong, Hong Kong's permanent secretary for commerce and economic development, said the changes are beneficial to sectors such as financial services, telecommunications, and tourism.
+<br/>
+<br/>
+"The SAR government will make the trade make good use of a number of preferential measures, and will continue to seek to jointly promote a higher level of opening up and closer economic and trade cooperation with the mainland on the basis of CEPA, so as to maximise the space of development for the trade on the mainland," Wong said.
+<br/>
+<br/>
+The administration must take measures to defend free trade amid challenges posed by unilateralism and protectionism, the official added.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htmWed, 19 Feb 2025 20:37:00 +0800'Constructive' talks after China blasts tariffs at WTOhttps://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm<img alt="The US, Nicaragua, Namibia, Malaysia, Trinidad and Tobago and Russia took part in the WTO discussions. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792389\_2\_20250220104914.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The World Trade Organization (WTO) said on Wednesday that discussions on trade tensions were "constructive", after China accused the US of imposing "tariff shocks" that could upend the global trading system.
+<br>
+<br/>
+China condemned tariffs launched or threatened by US President Donald Trump at a World Trade Organization meeting on Tuesday. Washington dismissed China's comments as hypocritical.
+<br/>
+<br/>
+Trump has announced sweeping 10 percent tariffs on all Chinese imports, prompting Beijing to respond with retaliatory tariffs and to file a WTO dispute against Washington in what could be an early test of Trump's stance towards the institution.
+<br/>
+<br/>
+The majority of the six countries that participated in the talks on trade turbulence, put on the agenda by China, raised concern about mounting tensions, but also called for restraint, said WTO spokesperson Ismaila Dieng in a press conference in Geneva on Wednesday.
+<br/>
+<br/>
+The United States, Nicaragua, Namibia, Malaysia, Trinidad and Tobago and Russia took part in the discussions, which were part of broader talks on trade.
+<br/>
+<br/>
+The large majority "stressed the importance of upholding WTO principles and values and called for action to preserve the stability and effectiveness of the global trading system", Dieng added.
+<br/>
+<br/>
+It is the first time that mounting trade frictions have been formally addressed on the agenda of the watchdog's top decision-making body, the General Council.
+<br/>
+<br/>
+Separately, Commerce Minister Wang Wentao expressed strong dissatisfaction with US tariffs on Chinese goods in a letter addressed to the newly confirmed US Commerce Secretary Howard Lutnick.
+<br/>
+<br/>
+"The move by the US to unilaterally impose tariffs undermined normal economic and trade cooperation between China and the US", Wang said in the letter.
+<br/>
+<br/>
+Wang also said Beijing was willing to work with Washington to "strengthen dialogue, manage differences, promote cooperation" and hoped to create a "fair and predictable policy environment" for the two countries' business communities to cooperate. (Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htmThu, 20 Feb 2025 08:29:00 +0800Myanmar returns first batch of Chinese scam workershttps://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm<img alt="Two double-decker coaches have delivered a first round of returning workers to the border post in the western Thai town of Mae Sot. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792418\_1\_20250220113134.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Myanmar on Thursday handed over the first batch of hundreds of Chinese scam centre workers who are set to be repatriated through Thailand in the coming days.
+<br>
+<br/>
+Thousands of foreigners are expected to be freed and returned from scam compounds in Myanmar in the coming weeks, starting with 600 Chinese over the next three days.
+<br/>
+<br/>
+The compounds run by criminal gangs are staffed by foreigners, many of whom say they were trafficked and forced to work running internet scams swindling people around the world.
+<br/>
+<br/>
+Many of those involved are Chinese and Beijing has stepped up pressure on Myanmar and Thailand to shut the centres down.
+<br/>
+<br/>
+The Karen Border Guard Force, a militia allied with the Myanmar junta, has said it is preparing to deport 10,000 people linked to the compounds in areas it controls on the border with Thailand.
+<br/>
+<br/>
+Two double-decker coaches delivered a first round of returning workers to the border post in the western Thai town of Mae Sot on Thursday morning.
+<br/>
+<br/>
+"First group of 50 Chinese have crossed to Thailand and headed to the airport. There will be three more batches (today), each with 50 Chinese," a local border task force official has said.
+<br/>
+<br/>
+China has put on 16 flights over the next three days to ferry 600 of its nationals home direcly from Mae Sot.
+<br/>
+<br/>
+The release follows several visits by Public Security Assistant Minister Liu Zhongyi to Bangkok and the border in recent weeks to arrange the repatriation.
+<br/>
+<br/>
+Scam centres have proliferated across Southeast Asia in recent years, including in Cambodia and the Philippines, as the value of the industry has boomed to billions of US dollars a year. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htmThu, 20 Feb 2025 11:31:00 +0800Trump says he expects Xi to visit UShttps://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm<img alt="Presidents Xi Jinping and Donald Trump meet on the sidelines of the G20 leaders summit in Osaka in 2019. Trump says he expects President Xi and other world leaders to visit his country. File photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792437\_2\_20250220131602.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+US President Donald Trump said on Wednesday he expects President Xi Jinping to visit the United States, without giving a timeline for his trip.
+<br>
+<br/>
+In remarks made to reporters on Air Force One, Trump also said "it's possible" for the two countries to have a new trade deal.
+<br/>
+<br/>
+In 2020, the US had already agreed to "a great trade deal with China" and a new deal is possible, he said.
+<br/>
+<br/>
+A conversation or interaction between Xi and Trump is seen as crucial to a potential easing or delay of trade tariffs after the US imposed a 10 percent tariff on goods from China.
+<br/>
+<br/>
+Xi last travelled to the US in November 2023, in his fifth visit to the country as president for a summit with then US president Joe Biden, resulting in agreements to resume military-to-military communications and curb fentanyl production.
+<br/>
+<br/>
+"We'll have, ultimately, President Xi, we will have everybody coming," Trump said while also speaking about others leaders visiting the US.
+<br/>
+<br/>
+Trump also said he was talking to China about TikTok as the US seeks to broker a sale of the popular app owned by Chinese parent firm ByteDance.
+<br/>
+<br/>
+The two leaders had spoken just before Trump took office on January 20 and discussed issues including TikTok, trade and Taiwan. Trump said last week he had spoken to Xi since taking office as well, but did not offer details on the topics of that conversation. (Reuters/AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htmThu, 20 Feb 2025 13:11:00 +0800Wang meets Lavrov to strengthen bilateral tieshttps://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm<img alt="Foreign Minister Wang Yi (Right) says Beijing is willing to work with Russia to implement the consensus reached by the two heads of state and to further advance China-Russia relations. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792537\_1\_20250221034153.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Chinese Foreign Minister Wang Yi met with his Russian counterpart Sergei Lavrov on the sidelines of the Group of 20 (G20) Foreign Ministers' Meeting in Johannesburg, South Africa, to discuss China-Russia relations.
+<br>
+<br/>
+Wang, also a member of the Political Bureau of the Communist Party of China Central Committee, highlighted the strengthening strategic partnership between the two countries, noting significant progress in cooperation and mutual interest, particularly in global multi-polarity.
+<br/>
+<br/>
+China is willing to work with Russia to fully implement the important consensus reached by the two heads of state and to further advance China-Russia relations in the new year, he added.
+<br/>
+<br/>
+Lavrov expressed Russia's desire to deepen cooperation in trade, economy, and culture with China and advance their shared goals with Brics, the Shanghai Cooperation Organisation, the United Nations, the G20, and other frameworks.
+<br/>
+<br/>
+Regarding the Ukrainian crisis, Wang reiterated China's consistent stance, emphasising the country's role in promoting peace and political resolution.
+<br/>
+<br/>
+Lavrov, for his part, said Russia's focus on addressing the root causes of the crisis and its commitment to a fair and sustainable peace in line with the United Nations Charter.
+<br/>
+<br/>
+The two sides also exchanged views and coordinated positions on other international and regional issues, including the situation in the Middle East. (Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htmFri, 21 Feb 2025 04:56:00 +0800Premier Li stresses measures to boost consumptionhttps://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm<img alt="Premier Li Qiang presides over a study session held by the State Council. Photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792561\_1\_20250221082101.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Premier Li Qiang has emphasised boosting consumption and improving people's livelihoods through stronger and more targeted measures, in a bid to strengthen the fundamental role of consumption in driving economic development.
+<br>
+<br/>
+In a session held by the State Council, CCTV cited Li saying that, "Boosting consumption is not only an important way to expand domestic demand and stabilise growth, but also a major measure to transform the development model in the mid-to-long term."
+<br/>
+<br/>
+More efforts should be made to facilitate service consumption, improve the supply of education, medical care, culture, sports, tourism, elderly care and household services, and accelerate the application of artificial intelligence to unlock consumption potential of AI terminal products, he said.
+<br/>
+<br/>
+Li also emphasised the need to relax market access in relevant industries, and boost high-quality product supply to meet emerging consumer demands.
+<br/>
+<br/>
+Top policymakers have pledged to try to bolster household incomes and consumption this year. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htmFri, 21 Feb 2025 08:21:00 +0800Window for peace opening for Ukraine war: Wang Yihttps://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm<img alt="Wang Yi says China supports all efforts to achieve peace in Ukraine conflict. File photo: XInhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792581\_1\_20250221104147.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Foreign Minister Wang Yi told his G20 counterparts on Thursday that a "window for peace" is opening for the Ukraine crisis, days after top US and Russian diplomats met in Saudi Arabia.
+<br>
+<br/>
+The top diplomat made the remarks at the G20 ministerial meeting in South Africa.
+<br/>
+<br/>
+"China has noted that calls for peace talks have been rising recently, and a window for peace is opening," Wang said, according to a readout of his speech at the G20 meeting in South Africa published by the Foreign Ministry.
+<br/>
+<br/>
+At talks in Riyadh on Tuesday, Russia and the United States agreed to establish teams to negotiate a path to ending the war that began when Russia sent its military into Ukraine on February 2022.
+<br/>
+<br/>
+China supports all efforts to achieve peace, including this "recent consensus" reached between the United States and Russia, Wang said.
+<br/>
+<br/>
+"We hope that all parties involved can find a sustainable and lasting solution that addresses each other's concerns," he added.
+<br/>
+<br/>
+On the sidelines of the gathering in Johannesburg, Wang held meetings with his counterparts from multiple countries including Turkey and Russia.
+<br/>
+<br/>
+A curtain-raiser to the G20 summit in November, the meeting was attended by top diplomats, including Russian Foreign Minister Sergei Lavrov, his Indian counterpart, as well as European envoys like France's Jean-Noel Barrot and Britain's David Lammy. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htmFri, 21 Feb 2025 10:51:00 +0800Beijing voices concerns in call with US treasury chiefhttps://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm<img alt="Vice Premier He Lifeng spoke to US Treasury Secretary Scott Bessent via video call on Friday. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792684\_1\_20250221215124.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Vice Premier He Lifeng expressed concerns over US tariffs and trade restrictions on China during a video call with US Treasury Secretary Scott Bessent on Friday, state media reported.
+<br>
+<br/>
+The two sides had an in-depth exchange of views on important issues in China-US economic relations, and both parties agreed to keep communicating on matters of mutual concern, according to a readout released by CCTV.
+<br/>
+<br/>
+He, the top trade negotiator on the Chinese side, and Bessent recognised the importance of bilateral economic and trade relations, the readout added.
+<br/>
+<br/>
+Friday's call came as Beijing and Washington seek to manage their relationship as the world's two largest economies stand on the precipice of a renewed trade war.
+<br/>
+<br/>
+US President Donald Trump said earlier this week he expected President Xi Jinping to visit the US, without giving a timeline for his trip.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htmFri, 21 Feb 2025 21:51:00 +0800'Historic' G20 foreign ministers meeting concludeshttps://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792700\_1\_20250222031652.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+South Africa on Friday concluded the G20 Foreign Ministers' Meeting, after a range of global issues having been discussed.
+<br>
+<br/>
+South African Minister of International Relations and Cooperation Ronald Lamola hailed the event as "historic" when briefing the media after the meeting.
+<br/>
+<br/>
+On the final day of the summit, Foreign Minister Wang Yi reiterated China's support of the free trade system with the World Trade Organization (WTO), and called on the G20 countries to work together to build a just world of common development.
+<br/>
+<br/>
+Meanwhile, Wang met his Indian counterpart, Subrahmanyam Jaishankar, on the sidelines of the gathering.
+<br/>
+<br/>
+Wang recalled the successful meeting between President Xi Jinping and Indian Prime Minister Narendra Modi in Kazan, Russia last year, which set the general direction for the improvement and development of bilateral relations.
+<br/>
+<br/>
+During the meeting, the two sides agreed that China and India, as two ancient civilisations and neighbouring countries, should trust and support each other and help each other succeed. (Reuters/Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htmSat, 22 Feb 2025 05:22:00 +0800Ne Zha 2 success 'lightning in a bottle': critichttps://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm<img alt="Box office success Ne Zha 2 could inspire more filmmakers to experiment with new ideas, says a film critic. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792724\_1\_20250222092007.jpg&amp;q=75" style="width:100%;height:auto"/>
+<img alt="Ne Zha 2 success 'lightning in a bottle': critic" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792724\_2\_20250222092007.jpg&amp;q=60" style="width:100%;height:auto"/>
+<img alt="Ne Zha 2 success 'lightning in a bottle': critic" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792724\_3\_20250222092007.jpg&amp;q=40" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The sensation caused by the mainland blockbuster Ne Zha 2 is very much a "lightning in a bottle-style success" which may not be easy to replicate, according to a local film critic.
+<br>
+<br/>
+The animated film, based on the mythological character from Chinese folklore, hits the big screens in Hong Kong on Saturday, after smashing box office records on the mainland and abroad.
+<br/>
+<br/>
+"I think what director Yang Yu has done is taking an ancient property, something that every Chinese is intensely familiar with, to fiddle around with it for modern audiences," said Elizabeth Kerr, a Hong Kong-based film critic.
+<br/>
+<br/>
+Speaking on
+<a href="https://www.rthk.hk/radio/radio3/programme/trendingchina" style="font-size: inherit; color: #1a0dab" target="\_blank">
+<u>
+RTHK's Trending China programme
+</u>
+</a>
+, she felt the film was a breath of fresh air as the same mythological legends are featured again and again.
+<br/>
+<br/>
+"The best part about the Ne Zha film is that they're not 'A Journey to the West', they're not 'Monkey King', which I understand that it is beloved ... [But] there's so much more that you can choose from," she explained.
+<br/>
+<br/>
+"This is a kind of strange territory for overseas viewers, for people who know nothing about any of the culture on this side of the world, it's going to be fresh to them."
+<br/>
+<br/>
+The sequel to the 2019 hit Ne Zha smashed box office records on the mainland just two weeks after its release.
+<br/>
+<br/>
+The film went on to dethrone Disney's "Inside Out 2" as the highest-grossing animated movie of all time.
+<br/>
+<br/>
+Kerr believes the sequel's more sophisticated and refined visual effects attributed to its success.
+<br/>
+<br/>
+But she struck a cautious tone over the film's release in the US market, saying it may not replicate the kind of success seen for Crouching Tiger, Hidden Dragon, the Oscar-winning martial arts epic in 2000.
+<br/>
+<br/>
+"Partially because Crouching Tiger had a wider release. It also had considerable movie stars in it, and a powerhouse distributor pushing it," she said.
+<br/>
+<br/>
+But she insisted Ne Zha 2's value should not be solely judged by its box office revenue.
+<br/>
+<br/>
+"Ne Zha 2 is one of those things that is very much lightning in a bottle. People will try and repeat it. But you can't force it because how it happened was organic - no one will ever be able to tell you why this worked for this year, at this time, in this country, why it succeeded, no one can."
+<br/>
+<br/>
+She also hoped Ne Zha's success will encourage mainland filmmakers to experiment with different varieties of scripts, and be willing to "roll the dice" more.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htmSat, 22 Feb 2025 09:19:00 +0800Myanmar returns 111 Chinese scam centre workershttps://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm<img alt="Thailand's Deputy Prime Minister Phumtham Wechayachai says the scam centre problem is a &quot;complex transnational crime.&quot; Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792763\_2\_20250222205222.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Myanmar handed over more than 100 Chinese scam centre workers to be repatriated through Thailand on Saturday, the third batch in a major crackdown on the illegal operations.
+<br>
+<br/>
+Hundreds of foreigners are expected to be sent home from scam compounds in Myanmar over the coming weeks, with the first two batches already flown out on Thursday and Friday.
+<br/>
+<br/>
+The compounds are run by criminal gangs and staffed by foreigners, many of whom say they were trafficked and forced to swindle people around the world in protracted internet scams.
+<br/>
+<br/>
+Myanmar's junta said in a statement that a third group of 111 Chinese nationals was handed over on Saturday via the Thailand-Myanmar Friendship Bridge 2 at the Thai border town of Mae Sot.
+<br/>
+<br/>
+Live footage on Thai media outlet The Reporters showed people disembarking from two double-decker coaches and boarding a Southern China Airlines plane, a scene similar to that witnessed on Thursday.
+<br/>
+<br/>
+It said that the first 50 Chinese nationals boarded a 10:40 am (0340 GMT) flight, with the rest expected to depart on two additional flights throughout the day.
+<br/>
+<br/>
+On Saturday, Thailand's Deputy Prime Minister Phumtham Wechayachai described the scam centre problem as a "complex transnational crime."
+<br/>
+<br/>
+As well as stopping fuel supplies and cutting electricity to suspected scam hubs on the Myanmar side, he had instructed senior Thai police to bolster border control measures, he said in a post on his official Facebook account.
+<br/>
+<br/>
+Many of those freed from scam centres say they were duped into working in them and held against their will, but the central government and state media have described them all as "suspects."
+<br/>
+<br/>
+On Friday, Foreign Ministry spokesman Guo Jiakun hailed the "thunder-style cooperation" between China, Myanmar and Thailand to tackle the scam centres. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htmSat, 22 Feb 2025 20:52:00 +0800Two-state solution key to peace in Gaza: FMhttps://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm<img alt='Foreign Minister Wang Yi said any future arrangement must adhere to the principle of "Palestinians governing Palestine". Photo: Reuters' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792785\_1\_20250223021444.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+A lasting peace in the Israeli-Palestinian conflict can only be achieved through a two-state solution, Foreign Minister Wang Yi said in a phone call with Egyptian Foreign Minister Badr Abdelatty on Saturday.
+<br>
+<br/>
+Wang, returning from the G20 Foreign Ministers' Meeting in Johannesburg, South Africa, reaffirmed China's support for Arab positions on Palestine and opposition to forced displacement.
+<br/>
+<br/>
+Wang stressed the importance of a ceasefire and future governance that respects Palestinian autonomy, highlighting the urgency of reconstruction efforts in Gaza.
+<br/>
+<br/>
+The foreign minister stated that Gaza is a Palestinian territory, and any future arrangement must respect the will of the Palestinian people, adhering to the principle of "Palestinians governing Palestine" in post-conflict governance.
+<br/>
+<br/>
+He emphasised the urgent need to develop reconstruction and governance plans.
+<br/>
+<br/>
+For his part, Abdelatty provided an update on Egypt's efforts to implement the ceasefire and coordinate a reconstruction plan with other Arab nations.
+<br/>
+<br/>
+He also reiterated Egypt's stance against forced displacement of Palestinians.
+<br/>
+<br/>
+As a permanent member of the UN Security Council, China plays a key role, Abdelatty said, adding that Arab countries hoped for China's support in restoring peace and rebuilding Gaza.
+<br/>
+<br/>
+The ministers also discussed Sudan and Syria. (Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htmSun, 23 Feb 2025 07:48:00 +0800China hits back at Australia for 'hyping' drillshttps://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htm<img alt="Defence ministry spokesperson Wu Qian said naval drills were in full compliance with international law and international practices. File photo: Ministry of National Defence" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792832\_1\_20250223150924.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Beijing has responded to accusations made by Australian authorities, saying it had "deliberately hyped" recent Chinese naval exercises near the Australian coast and confirmed its forces had used live fire, in an incident that riled up Canberra.
+<br>
+<br/>
+Defence ministry spokesman Wu Qian on Sunday said the "relevant remarks of the Australian side are completely inconsistent with facts".
+<br/>
+<br/>
+"During the period, China organised live-fire training of naval guns toward the sea on the basis of repeatedly issuing prior safety notices."
+<br/>
+<br/>
+Wu stressed that China's actions were "in full compliance with international law and international practices, with no impact on aviation flight safety".
+<br/>
+<br/>
+"Australia, while well aware of this, made unreasonable accusations against China and deliberately hyped it up," Wu added. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htmSun, 23 Feb 2025 15:09:00 +0800Alibaba announces investment in AI, cloud computinghttps://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm<img alt="Alibaba says it plans to invest at least 380 billion yuan over the next three years to advance its cloud computing and AI infrastructure. File photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792919\_1\_20250224132805.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Chinese tech giant Alibaba said on Monday it will invest more than 380 billion yuan (US$52.4 billion) on artificial intelligence and cloud computing over the next three years.
+<br>
+<br/>
+Investors have piled into Chinese technology stocks since the start of the year, with Alibaba – which runs some of the country's biggest online shopping platforms – seeing its shares soar to three-year highs.
+<br/>
+<br/>
+The gains have been boosted since the Hangzhou-based firm announced robust sales growth last week.
+<br/>
+<br/>
+Alibaba plans to "invest at least 380 billion yuan over the next three years to advance its cloud computing and AI infrastructure", a company statement said.
+<br/>
+<br/>
+The firm said its strategy was aimed at "reinforcing (Alibaba's) commitment to long-term technological innovation... (and) underscores the company's focus on AI-driven growth".
+<br/>
+<br/>
+The statement did not detail how the company would allocate the funds or what specific projects would be supported.
+<br/>
+<br/>
+It did add that the investment would exceed its total AI and cloud spending over the past decade.
+<br/>
+<br/>
+Alibaba last week reported an 8 percent bump in revenue for the three months through December, beating estimates to reach 280 billion yuan and triggering a 14 percent surge in its Hong Kong shares on Friday.
+<br/>
+<br/>
+CEO Eddie Wu said last week that the quarterly results "demonstrated substantial progress in (Alibaba's) 'user-first, AI-driven' strategies and the re-accelerated growth of our core businesses". (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htmMon, 24 Feb 2025 13:28:00 +0800China jails four for life over telecom fraudhttps://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm<img alt="The Supreme People's Court in Beijing released documents over sentences of seven fraud cases in the country. Photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792932\_1\_20250224151412.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+A mainland court has sentenced four people described as key figures in cross-boundary fraud cases to life in prison.
+<br>
+<br/>
+The Supreme People's Court said the four defendants all left China to form telecom fraud organisations, with one of them, surnamed Yu, organising a number of people to go abroad to commit crimes.
+<br/>
+<br/>
+The announcement comes as the court released sentences over seven telecom-related fraud cases in the country.
+<br/>
+<br/>
+Last month, a mainland actor was rescued from a telecom syndicate in Myanmar.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htmMon, 24 Feb 2025 16:30:00 +0800Xi praises efforts to defuse Ukraine crisishttps://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm<img alt="President Xi Jinping says China and Russia are good neighbours and true friends supporting each other. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792982\_1\_20250224190145.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+President Xi Jinping on Monday held a phone conversation with his Russian counterpart Vladimir Putin on the third anniversary of the war in Ukraine and said China is happy to see efforts by Moscow and others to defuse the crisis.
+<br>
+<br/>
+Xinhua News Agency quoted the president as saying "China is happy to see Russia and relevant parties make positive efforts to defuse the Ukraine crisis".
+<br/>
+<br/>
+Xi also said China and Russia are good neighbours and true friends supporting each other and achieving common development.
+<br/>
+<br/>
+The president said their relationship does not target any third party, nor would it be influenced by any third party.
+<br/>
+<br/>
+The Kremlin said in a statement that Xi expressed his support for dialogue between the US and Russia.
+<br/>
+<br/>
+US and Russian officials met in Saudi Arabia last week and agreed to start work on restoring bilateral ties and preparing for Ukraine peace talks.
+<br/>
+<br/>
+Meanwhile, a dozen leaders from Europe and Canada were in Ukraine's capital on Monday to mark the third anniversary of Russia’s military campaign.
+<br/>
+<br/>
+The visitors, including European Commission President Ursula von der Leyen and Canadian Prime Minister Justin Trudeau, were set to attend anniversary events and discuss supporting Kyiv with President Volodymyr Zelenskyy. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htmMon, 24 Feb 2025 19:01:00 +0800China mulls banning arbitrary fines on private firmshttps://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm<img alt="The draft law was submitted to an ongoing session of the Standing Committee of the National People's Congress for a second reading. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792989\_1\_20250224205037.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Mainland lawmakers on Monday began deliberations on the draft private economy promotion law, which adds new provisions prohibiting arbitrary fees and fines on private enterprises.
+<br>
+<br/>
+The draft law was submitted on Monday to an ongoing session of the Standing Committee of the National People's Congress for a second reading. The first reading took place last December.
+<br/>
+<br/>
+The draft bans the forced collection of funds or material donations from private enterprises and specifies that multiple inspection items of the same inspection target should be consolidated whenever possible or included within the scope of cross-departmental joint inspections.
+<br/>
+<br/>
+It also includes provisions requiring the State Council and local people's governments at or above the county level to regularly report to the standing committees of the people's congresses of their corresponding level on the promotion of the private economy.
+<br/>
+<br/>
+It stipulates that relevant industry associations and chambers of commerce should fulfill their coordinating and self-regulatory roles in accordance with laws, regulations, and their charters. (Xinhua)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htmMon, 24 Feb 2025 20:50:00 +08004 dead, including 2 Chinese, in SKorea bridge collapsehttps://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793100\_1\_20250225161221.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Four people, including two Chinese nationals, were killed and six injured after a bridge collapsed at an expressway construction site in South Korea on Tuesday, authorities said.
+<br>
+<br/>
+Local media aired dramatic footage of what appeared to be a section of the bridge collapsing, sending a massive cloud of smoke into the air.
+<br/>
+<br/>
+Four people were killed, five were seriously injured and one suffered a minor injury, a statement from the National Fire Agency said.
+<br/>
+<br/>
+Of those killed, two were Chinese nationals and two were South Koreans, an interior ministry official told AFP.
+<br/>
+<br/>
+The incident occurred at around 9.50am in Anseong, around 65 kilometres south of the South Korean capital.
+<br/>
+<br/>
+"All individuals who suffered injuries are currently being treated at hospitals," the National Fire Agency's spokesperson said.
+<br/>
+<br/>
+The National Fire Agency initially said it took place in the nearby city of Cheonan but later corrected that claim.
+<br/>
+<br/>
+Hyundai Engineering, the main contractor of the construction site, apologised and said it was assisting authorities.
+<br/>
+<br/>
+"We sincerely bow our heads in apology to those who lost their precious lives and were injured in the accident at our construction site," it said.
+<br/>
+<br/>
+"We are actively cooperating with the relevant authorities to ensure a prompt resolution on-site" and to identify the cause of the accident, the company said.
+<br/>
+<br/>
+Acting President Choi Sang-mok issued urgent directives to mobilise all available resources and personnel for the rescue operation. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htmTue, 25 Feb 2025 16:12:00 +0800

@@ -1,480 +1,4534 @@
-# 羅淑佩：研究將彩虹邨七色籃球場等「打卡」熱點於新彩虹邨重現
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777746-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777746-20241106.htm)
-
-<html>  <body>   <img alt="羅淑佩說，距離第一期遷置尚有約4年時間，提早公布方案，希望居民有心理準備，及早安排。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777746_1_20241106085732.jpg&q=70" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    政府計劃將彩虹邨分三期重建，由第一期到最後一期住戶入伙，預計需時約15年。房屋署署長羅淑佩接受本台訪問表示，重建的速度快慢，居民有不同意見，她強調距離第一期遷置尚有約4年時間，當局提早公布方案，希望居民有心理準備，讓他們可在過程中參與，亦掌握搬遷情況，及早安排。她說有很多住戶期待遷置至新美東邨，但若有居民希望遷往鄰近地區其他單位，如署方有合適單位，會盡量配合。    <br/>    <br/>    對於商戶的安排，羅淑佩表示，過往署方會要求取得賠償的商戶搬遷，或改到其他房委會旗下商場繼續經營，但對於彩虹邨的商戶，將建議房委會容許他們選擇在新彩虹邨，或搬到用作安置的新美東邨繼續經營，希望將現有彩虹邨的情懷保留下來。    <br/>    <br/>    彩虹邨丹鳳樓的彩色外牆及多層停車場上蓋的七色籃球場，近年成為熱門「打卡位」，羅淑佩表示，若在重建過程中不清拆，將無法達至重建後增加單位供應，以及讓運輸署重新規劃彩虹交匯處，以紓緩交通擠塞，但她明白市民對於「打卡位」的熱愛，強調建築師團隊會認真思考，如何在新彩虹邨重現。    <br/>    <br/>    至於第二、三期重建仍處初步構思階段，未有最終定案，羅淑佩解釋由於將來新建的公屋達到40至50層高，必須做好地基勘探及樁柱佈局，在技術上不能夠單看60多年前的文件，而是要居民遷出後才能夠實地了解。另一方面，邨內有一間小學要重置，需時與教育局及學校磋商。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777746-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777746-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 羅淑佩：絕不會在無把握做好安置情況下大規模對劏房執法
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777745-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777745-20241106.htm)
-
-<html>  <body>   <img alt="羅淑佩說，除了過渡房屋，簡約公屋住戶「上樓」後，亦有可能日後用作安置，當局有亦數千個中轉房屋單位可以動用。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777745_1_20241106085500.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    施政報告宣布將透過立法方式解決劏房問題，符合標準的單位將名為「簡樸房」。對於近日有報道指有劏房業主以提早改建為名，迫遷租戶。本身是「解決劏房問題」工作組成員之一的房屋署署長羅淑佩說，若情況屬實，她鼓勵相關租戶向差估署舉報，因租戶受劏房租管條例保障，若以改建為名，在租約未滿前收回單位，趕走租戶是違法，租戶有權舉報。她勸喻業主在當局未就「簡樸房」訂立標準，仍未立法前不必急於改建，否則最終可能只會浪費金錢。    <br/>    <br/>    羅淑佩說，今屆政府邁出重要的一步，不單只提出「告別劣質劏房」的解決方法，並透過立法正視問題。至於將來取締劣質劏房，租戶的安置問題，羅淑佩說，根據當局掌握的情況，現有約11萬劏房戶中，約6成具備申請公屋資格，按未來10年的公屋供應量，相信可以處理。至於餘下4成，即約4萬多戶，她強調當局絕對不會在無把握做好安置的情況下大規模執法。即使有即時安置需要，當局亦「有貨在手」，除了過渡房屋，簡約公屋的住戶「上樓」後，亦有可能日後用作安置，當局有亦數千個中轉房屋單位可以動用。    <br/>    <br/>    對於有政黨提出「青年未來置業儲蓄計劃」，當局是否仍會研究。羅淑佩說仍會繼續跟進，但有不少問題要小心考慮，包括如何令相關計劃具吸引力，同時不會令房委會在財政上有好大承擔，亦要考慮當年輕人儲蓄足夠首期後，向他們提供那一類資助房屋作選擇等。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777745-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777745-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 羅淑佩：富戶不一定等同濫用公屋　焦點應在多繳幾多市值租金
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777743-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777743-20241106.htm)
-
-<html>  <body>   <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777743_1_20241106085047.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    房委會明年1月將推出「善用公屋資源獎勵計劃」，為提供確切情報，令房屋署成功收回單位的實名舉報人士，提供現金3千元獎賞及感謝狀作為嘉許。房屋署署長羅淑佩接受本台訪問表示，坊間指計劃會鼓勵舉報文化，但她引述數據表示，將去年首階段88000戶申報個案，於土地註冊處作配對後，在報稱沒有在本港擁有住宅物業的住戶中，發現部分戶主或者家庭成員擁有物業，百分比大約是0.5%，但同一時間收到的舉報個案中，找出有住戶擁有住宅物業的成功率約有1.5%，兩者相差3倍，顯示舉報方法的確能提供更好線索，協助署方提升打擊濫用公屋的效率。    <br/>    <br/>    另外，房委會下月會就收緊富戶政策進行討論，羅淑佩說，一直將濫用公屋和富戶分得很清楚，又說富戶不一定等同濫用公屋。她指出，外界可能想得相對簡單，認為要求現有4萬多戶富戶遷離公屋單位，讓他們進入私人市場就能夠解決問題，但她反問私人市場是否一下子能配合，是否有足夠供應，加上政府正在處理分間單位問題，房屋局亦會考慮有關情況，從整體市場著眼，不能夠只顧公屋就不考慮其他問題，否則只會造成混亂。    <br/>    <br/>    羅淑佩強調檢視富戶政策，討論焦點應在於「富戶」多繳的租金金額，應該定於甚麼市值租金水平才公平合理，署方會提供不同方案，供房委會考慮和討論。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777743-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777743-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜票站調查：選舉人票特朗普23:3賀錦麗
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777742-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777742-20241106.htm)
-
-<html>  <body>   <img alt="票站陸續關閉，包括其中一個搖擺州北卡羅來納州。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777742_1_20241106085102.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國總統選舉，票站陸續關閉，包括其中一個搖擺州北卡羅來納州，點票工作隨即展開。    <br/>    <br/>    美國全國廣播公司的票站調查說，前總統特朗普在傳統的共和黨根據地-印第安納、肯塔基以及西弗吉尼亞州勝出，取得23張選舉人票，而副總統賀錦麗在民主黨陣地的佛蒙特州勝出，暫時有3票選舉人票。    <br/>    <br/>    由於全美各州橫跨多個時區，根據哥倫比亞廣播公司資料，除了阿拉斯加州一個偏遠鄉材，全部投票會到香港時間下午1時結束。    <br/>    <br/>    美國總統選舉，候選人要在全國538張選舉人票中，拿到270張以上才能勝出。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777742-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777742-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 證券商協會：優化上市批核流程　有助吸引企業來港掛牌
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777741-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777741-20241106.htm)
-
-<html>  <body>   <img alt="楊玳詩相信，優化上市審批可以與其他市場接軌，提高香港競爭力，甚至可以考慮取消最低市值要求，加大上市吸引力。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777741_1_20241106083050.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    施政報告提出多項優化證券市場的措施，包括優化上市批核流程。證監會與港交所亦隨即發表聯合聲明，明確新股申請的審批時間表，提出如果公司提交的上市申請完全符合相關上市規定，兩家監管機構分別發出最多兩輪監管意見後進行評估，並在不多於40個營業日內確認申請是否存在重大監管關注事項，若確認沒有重大監管關注事項，上市申請便可轉交至上市委員會聆訊。對於已經在A股上市、市值逾百億元的內地股市，證監會及聯交所分別更只會發出一輪監管意見，各自評估將在不多於30個營業日內完成。    <br/>    <br/>    據上市委員會周年報告，去年申請人由遞交申請至獲上市委員會批准上市，平均要203個營業日。    <br/>    <br/>    證券商協會永遠名譽會長兼董事、英皇資本主席楊玳詩接受本台訪問時說，不認為目標時間表太進取，相信有助吸引更多企業來港掛牌。她又建議，可考慮取消上市時最低市值要求，加大吸引力。    <br/>    <br/>    施政報告其他著眼點亦包括提升市場效率、降低交易成本。港交所正計劃收窄股票買賣價差，分兩階段推行，將最低上落價格下調50%至60%。楊玳詩相信，明年有機會落實，其後再檢討股票買賣單位，即是檢討現時買賣股份一般最少要一手的安排。她亦認為股票印花稅有下調空間，由現時的向買賣雙方徵稅，變為沽貨才繳稅。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777741-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777741-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜票站調查指特朗普在印第安納和肯塔基州勝出
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777740-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777740-20241106.htm)
-
-<html>  <body>   <img alt="美國廣播公司的票站調查說，特朗普在印第安納和肯塔基州勝出，取得19張選舉人票，而賀錦麗在佛蒙特州勝出，暫時有3票。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777740_1_20241106082715.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國總統選舉，陸續有票站關閉，包括佐治亞州、南卡羅來納州、佛蒙特州、印第安納和肯塔基州，另外，佛羅里達州的大部分投票亦已經結束。    <br/>    <br/>    美國廣播公司的票站調查說，共和黨的前總統特朗普在印第安納和肯塔基州勝出，取得19張選舉人票，而民主黨的副總統賀錦麗在佛蒙特州勝出，暫時有3票。    <br/>    <br/>    由於全美各州橫跨多個時區，根據哥倫比亞廣播公司資料，除了阿拉斯加州一個偏遠鄉材，全部投票會到香港時間下午1時結束。    <br/>    <br/>    美國總統選舉，候選人要在全國538張選舉人票中，拿到270張以上才能勝出。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777740-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777740-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 日股初段上升
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777737-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777737-20241106.htm)
-
-<html>  <body>   <img alt="日經平均指數較早時報38755點，升280點，升幅0.73%。（日本交易所圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777737_1_20241106080915.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    日本股市在開市初段上升，日經平均指數較早時報38755點，升280點，升幅0.73%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777737-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777737-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 韓股初段靠穩
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777738-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777738-20241106.htm)
-
-<html>  <body>   <img alt="首爾綜合指數較早時報2581點，升4點，升幅0.17%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777738_1_20241106081158.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    南韓股市在開市初段靠穩，首爾綜合指數較早時報2581點，升4點，升幅0.17%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777738-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777738-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 上海企業稱香港匯聚人才擬落戶發展　無懼中美關係緊張影響
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm)
-
-<html>  <body>   <img alt="有上海企業落戶香港發展，相信有助走進國際市場，業務是透過人工智能病房機器人，代替醫護人員進入隔離病房，助減省醫護人手。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777735_1_20241106075958.jpg&q=75" style="width:100%;height:auto"/>   <img alt="病房機器人可幫助例如接受放射治療的癌症患者檢查體溫、血壓、體內輻射量、送藥和遙距問診等工作。（陳曉筠攝 )" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777735_2_20241106082416.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    有上海企業在進博會期間舉行的「投資香港推介大會」，簽署滬港兩地合作備忘錄，計劃落戶香港。    <br/>    <br/>    其中一間企業，是包括生產半導體芯片產品，並用於智能手機及電腦的「升新科技」，本月落戶香港，預算未來三年在港投資一億多元。創辦人羅志耀來自香港，4年前到內地創業。他指香港匯聚國際人才，希望幫助香港增加芯片設計的競爭力，政府和科學園等也提供很多便利落地政策，適合發展創科。    <br/>    <br/>    羅志耀提到，現時中美關係較緊張，美國制裁較高端產品，包括通訊領域芯片業務，但自己會透過創新技術走「彎道超車」，希望將6G和衞星通訊芯片帶到香港應用，也希望兩、三年內研發出更先進的技術。    <br/>    <br/>    此外，2016年成立的「上海鈦米機器人」，也有意落戶香港，透過具備人工智能系統的病房機器人，代替醫護人員進入隔離病房，為需要接受放射治療的癌症患者檢查體溫、血壓及體內輻射量、送藥和遙距問診，減省醫護人手，同時避免醫護人員進入病房後受到輻射影響，現時已在內地多間大型醫院應用。    <br/>    <br/>    公司董事長潘晶說，全球均面對醫療服務需求問題，希望引入香港後，透過具國際水平的醫療體制，令機器人融合相關管理標準，加快面向國際市場。至於如何確保系統準確度，減少誤差風險，潘晶說，醫療器械有嚴格的准入門檻，技術已通過多項技術認證，亦已在內地完成大範圍臨床研究，近年在不同學術會議已有醫療機構表達合作意向。    <br/>    <br/>    被問到機器人產品涉及芯片技術，現時國際形勢對業務的影響，潘晶說，雖然中美之間在芯片等高科技領域出現激烈競爭，但醫療服務是普世需求，相信各方會採取開放態度，又指對於技術型企業而言，毋須過份憂慮不可控因素，不論美國大選結果如何，也需要醫療技術滿足民眾對健康的追求。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777735-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜有投票站開始關閉　點票工作隨即開始
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777732-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777732-20241106.htm)
-
-<html>  <body>   <img alt="有投票站開始關閉，點票工作將展開。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777732_1_20241106075004.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國總統選舉投票日，印第安納州和肯塔基州在香港時間早上七時，陸續關閉投票站，成為最早結束投票的兩個州，計票工作隨即展開。    <br/>    <br/>    由於全美各州橫跨多個時區，根據哥倫比亞廣播公司資料，除了阿拉斯加州一個偏遠鄉材，全部投票會到香港時間下午1時結束。    <br/>    <br/>    民主黨的現任副總統賀錦麗說，是要確保每名選民都透過投票，了解自己發聲的力量。共和黨的前總統特朗普在投票後表示，有信心當選，又說如果選舉是公正，一旦落敗不會提出挑戰。    <br/>    <br/>    美國聯邦調查局表示，多個州的投票站收到虛假的炸彈威脅。    <br/>    <br/>    美國總統選舉，候選人要在全國538張選舉人票中，拿到270張以上才能勝出。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777732-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777732-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 歐洲聯賽冠軍盃士砵亭4:1挫曼城　皇馬1:3負AC米蘭
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm)
-
-<html>  <body>   <img alt="曼城的夏蘭特比賽中有12碼中楣不入。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777731_1_20241106071838.jpg&q=75" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    歐洲聯賽冠軍盃，士砵亭主場4:1擊敗曼城。    <br/>    <br/>    曼城全場控球比率超過七成，夏蘭特比賽中有12碼中楣不入。士砵亭今仗仍然由39歲的阿摩廉出任教練，他即將會轉投執教英超曼聯。    <br/>    <br/>    另一場，皇家馬德里主場1:3負於AC米蘭。至於利物浦以4:0擊敗利華古遜，利物浦路易斯迪亞斯今仗個人入3球。加普為利物浦錦上添花。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777731-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 亞冠盃精英聯賽　艾納斯5:1擊敗艾阿恩
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm)
-
-<html>  <body>   <img alt="基斯坦奴朗拿度今仗再取得入球。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777730_1_20241106070929.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    亞冠盃精英聯賽柏克塔哥主場0:1負於艾雷恩。    <br/>    <br/>    全場唯一入球由艾雷恩的阿希達推過半場後，似傳非傳，似射非射的高空波，笠過門將入網。    <br/>    <br/>    至於艾納斯就以5:1擊敗艾阿恩。艾納斯的基斯坦奴朗拿度今仗再取得士哥。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777730-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 加蘭特指以色列安全一直是其使命　又警告道德黑暗已席捲整個國家
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777729-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777729-20241106.htm)
-
-<html>  <body>   <img alt="加蘭特結束記者會時，向陣亡士兵、人質和他們的家屬致敬。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777729_1_20241106071435.jpg&q=90" style="width:100%;height:auto"/>   <img alt="加蘭特再被解除職務後，特拉維夫有大批民眾上街抗議。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777729_2_20241106071435.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    以色列總理內塔尼亞胡以缺乏互信為由，突然宣布解除國防部長加蘭特的職務。內塔尼亞胡說，他和加蘭特在戰爭的管理上存在分歧，雖然已多次嘗試彌合這些差距，但差距越來越大，而敵人正從中獲得很多好處。    <br/>    <br/>    加蘭特在被解除職務後表示，以色列的國家安全一直也將會永遠是他一生的使命，又透露被解職涉及三個原因，包括要求就哈馬斯突襲成立調查委員會，以吸取教訓。他又警告，道德的黑暗已經席捲整個國家。而特拉維夫就有大批民眾上街，抗議內塔尼亞胡的決定。    <br/>    <br/>    內塔尼亞胡已任命外長卡茨接任國防部長。而外長一職就由無任所部長薩爾接任。    <br/>    <br/>    美國白宮表示，在以色列防衛問題上，加蘭特一直是重要的合作夥伴，美方將繼續與以色列下一任防長保持合作。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777729-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777729-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 巴基斯坦卡拉奇兩名中國公民遭保安員槍擊受傷
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm)
-
-<html>  <body>   <img alt="卡拉奇紡織廠外發生開槍事後，大批警員到場，封鎖現場調查。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777728_1_20241106071707.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    巴基斯坦再有中國公民遇襲，兩人受傷，醫院消息指，其中一人傷勢嚴重。    <br/>    <br/>    事發在南部港口城市卡拉奇一個工業區。當地時間星期二，一名保安員在一間紡織廠外開槍，大批警員到場，封鎖現場調查。警方證實兩名中國人中槍受傷，涉案保安已經被捕，正調查他犯案的動機。    <br/>    <br/>    巴基斯坦外交部表示，事發前有人與涉案保安發生爭執，外交部正與中國大使館保持密切聯繫。    <br/>    <br/>    卡拉奇國際機場附近上月亦發生襲擊，造成中方人員兩死一傷。中國駐巴基斯坦大使姜再冬早前已要求巴基斯坦當局，務必採取切實有效措施，全力確保在巴中國公民、機構和項目安全。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777728-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 港股美國預託證券與本港收市比較個別發展
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777727-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777727-20241106.htm)
-
-<html>  <body>   <img alt="滙控ADR較本港收市升逾1%。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777727_1_20241106062159.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    港股美國預託證券(ADR)與本港收市比較個別發展。    <br/>    <br/>    滙控ADR較本港收市升逾1%。    <br/>    <br/>    ATMXJ的ADR都較本港收市下跌，其中京東和阿里巴巴的跌幅近2%或以上。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777727-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777727-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 國際油價高收近1%　颶風來襲或導致減產
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777722-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777722-20241106.htm)
-
-<html>  <body>   <img alt="倫敦布蘭特期油收市升近0.6%，紐約期油升0.7%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777722_1_20241106052815.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    國際期油價格升近1%，因美元下跌，加上颶風來襲或削減美國墨西哥灣的石油產量。    <br/>    <br/>    倫敦布蘭特期油收市報每桶75.53美元，升45美仙，升幅近0.6%。    <br/>    <br/>    紐約期油收報每桶71.99美元，升52美仙，升幅0.7%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777722-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777722-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 紐約期金高收0.1%
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777723-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777723-20241106.htm)
-
-<html>  <body>   <img alt="紐約期金收市報每盎司2749.7美元，升幅0.1%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777723_1_20241106053346.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    金價靠穩，市場關注美國大選結果。    <br/>    <br/>    紐約期金收市報每盎司2749.7美元，升幅0.1%。    <br/>    <br/>    現貨金較早時報每盎司2742.63美元，升幅0.2%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777723-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777723-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美元曾觸及近3周低位
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777726-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777726-20241106.htm)
-
-<html>  <body>   <img alt="美元指數低見103.37，創近3星期低位，在紐約尾市報103.42，跌幅近0.5%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777726_1_20241106061401.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    交易商在美國大選結果出爐前平倉，美元兌一籃子貨幣下跌。    <br/>    <br/>    美元指數低見103.37，創近3星期低位，在紐約尾市報103.42，跌幅近0.5%。    <br/>    <br/>    歐元兌美元一度觸及逾3星期高位，高見1.0936美元，尾市升逾0.4%，較早時報1.0925美元。    <br/>    <br/>    美元兌日圓曾跌至近2星期低位，低見151.34日圓，尾市跌近0.4%，較早時報151.53日圓。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777726-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777726-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 道指高收427點　市場關注美國大選結果
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777724-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777724-20241106.htm)
-
-<html>  <body>   <img alt="道瓊斯指數收市報42221點，升427點，升幅1%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777724_1_20241106060011.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    在美國大選投票日，美股3大指數升逾1%，受到美國10月ISM非製造業指數創逾兩年新高帶動。    <br/>    <br/>    道瓊斯指數收市報42221點，升427點，升幅1%。納斯達克指數報18439點，升259點，升幅1.4%。標準普爾500指數報5782點，升70點，升幅1.2%。    <br/>    <br/>    大型科技股造好，Nvidia和Tesla升近3%或以上，亞馬遜和Meta升近2%或以上，蘋果和微軟升近1%。    <br/>    <br/>    Palantir急升逾23%，並創收市新高，因公司上調全年業績預測。    <br/>    <br/>    特朗普媒體與科技集團股價一度急升近19%，亦曾急跌逾8%，並多次因波動而停牌，最終收市跌逾1%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777724-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777724-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜FBI稱多個票站收虛假威脅並相信來自俄羅斯
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777721-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777721-20241106.htm)
-
-<html>  <body>   <img alt="佐治亞州至少兩個投票站因虛假炸彈威脅一度短暫疏散。（法新社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777721_1_20241106051838.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國聯邦調查局表示，在大選投票日，美國多個州的投票站收到虛假的炸彈威脅，並指根據電子郵件的域名，很多威脅似乎是來自俄羅斯。到目前為止，並沒有任何威脅被確定為可信，並強調維護選舉公正性是局方的首要任務之一。    <br/>    <br/>    佐治亞州當局就表示，受虛假炸彈威脅影響，至少兩個投票站曾經疏散，約半小時後重開，投票短暫受到影響。    <br/>    <br/>    除了虛假威脅外，佛羅里達州政府網站出現技術問題，選民查詢選民登記狀態時收到錯誤信息。賓夕法尼亞州坎布里亞縣的電子投票機出現故障，無法掃描選票，法院同意選舉官員要求，將當地投票時間延長至晚上十時。    <br/>    <br/>    另外，密歇根州和紐約州等地分別有人作出與選舉有關的威脅被警方拘捕。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777721-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777721-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 歐股收市個別發展
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777720-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777720-20241106.htm)
-
-<html>  <body>   <img alt="歐洲主要股市收市個別發展。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777720_1_20241106051131.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    歐洲主要股市收市個別發展。    <br/>    <br/>    德國DAX指數報19256點，升108點，升幅近0.6%。    <br/>    <br/>    法國CAC指數報7407點，升35點，升幅近0.5%。    <br/>    <br/>    英國富時100指數報8172點，跌11點，跌幅0.1%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777720-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777720-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜賀錦麗接受電台訪問　冀動員選民踴躍投票
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777719-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777719-20241106.htm)
-
-<html>  <body>   <img alt="賀錦麗在投票日接受幾個電台訪問，繼續呼籲選民踴躍投票。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777719_1_20241106043725.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國民主黨總統候選人、副總統賀錦麗，在大選投票日接受幾個電台訪問，她繼續呼籲選民，特別是搖擺州份的選民踴躍投票，她說這天的重點，是要確保每名選民都透過投票，了解自己發聲的力量。賀錦麗又說，她一直專注於眼前的工作，並反思確保能夠滿足民眾對政策的需求。    <br/>    <br/>    賀錦麗又說，在投票結束後，將在首都華盛頓的母校、霍華德大學出席派對。賀錦麗將霍華德大學視為她政治生涯的起點，並形容今晚回到母校對她來說是一個完整的循環。她又透露，出席派對前，會與家人共進晚餐。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777719-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777719-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 內塔尼亞胡以缺乏互信為由突然解除防長加蘭特的職務
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777718-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777718-20241106.htm)
-
-<html>  <body>   <img alt="加蘭特在去年3月曾因司法改革問題被內塔尼亞胡解除職務，但引發大規模示威後獲復職。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777718_1_20241106023557.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    以色列總理內塔尼亞胡以缺乏互信為由，突然宣布解除國防部長加蘭特的職務。    <br/>    <br/>    內塔尼亞胡說，儘管在戰爭的最初幾個月內雙方存在信任，並開展了非常富有成效的工作，但在最後幾個月，雙方之間的信任已破裂，他們在戰爭的管理上存在分歧，雖然已多次嘗試彌合這些差距，但差距越來越大，並且以一種不可接受的方式讓公眾知悉情況，更惡劣的是，敵人亦了解和享受這種情況，並從中獲得很多好處。內塔尼亞胡強調，大多數政府成員都同意他的觀點。    <br/>    <br/>    加蘭特在被解除職務後發表簡短聲明，表示以色列的國家安全，在過去和將來都永遠是他一生的使命。    <br/>    <br/>    內塔尼亞胡已任命外長卡茨接任國防部長。而外長一職就由無任所部長薩爾接任。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777718-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777718-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 李強與安華會晤　冀扎實推進東海岸鐵路等項目並推進簽證便利化
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm)
-
-<html>  <body>   <img alt="李強在上海會見出席進博會的馬來西亞總理安華。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777717_2_20241106071807.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    國務院總理李強在上海，會見出席進博會的馬來西亞總理安華，並共同出席兩國共建「一帶一路」合作規劃等合作文本交換儀式。    <br/>    <br/>    李強表示，當前中馬關係進入新的歷史發展階段，中方願同馬方加強發展戰略對接和治國理政經驗交流，完善各領域合作佈局，以高水平戰略合作助推兩國現代化進程。    <br/>    <br/>    李強又說，雙方要扎實推進東海岸鐵路、「兩國雙園」等旗艦項目，深挖新興領域合作潛力，不斷拓展合作新空間。中方願同馬方持續推進文明交流互鑒，繼續加強教育合作，推進簽證便利化。    <br/>    <br/>    安華表示，馬方願同中方繼續在相互尊重、相互信任的基礎上，加強高層交往，深化共建「一帶一路」合作，拓展貿易、投資、通信、數字經濟、教育等領域合作，密切人文交流。馬方支持中國加入《全面與進步跨太平洋伙伴關係協定》。馬方明年將接任東盟輪值主席國，願以此為契機，密切同中方在國際和地區問題上的協作。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777717-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜特朗普投票後稱有信心勝選並指選舉非勢均力敵
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777716-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777716-20241106.htm)
-
-<html>  <body>   <img alt="特朗普和夫人梅拉妮婭在投票後一起見記者。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777716_1_20241106013937.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國共和黨總統候選人、前總統特朗普和夫人梅拉妮婭，到佛羅里達州棕櫚灘縣一個投票站投票，並在投票後一起見記者。    <br/>    <br/>    特朗普表示，他非常有信心贏得這次選舉，聲稱這次選舉甚至不能形容為「勢均力敵」。他又對票站有很長的人龍等候投票感到「很榮幸」，認為共和黨人已出動了力量，並聽說他們在各地都做得很好，形容是他參加三次競選中最好的一次。    <br/>    <br/>    對於投票結果可能需要一段時間才能夠確定，特朗普就顯得感到沮喪。他提到法國大選快速有點票結果，並抱怨美國在點票機器上花錢，但就要很長時間才能夠統計結果。    <br/>    <br/>    不過，特朗普表示，只要選舉結果公正，他不會挑戰選舉結果。他亦無需呼籲支持者克制，因為他們不是使用暴力的人。    <br/>    <br/>    特朗普多次質疑，利用漫長時間來統計郵寄選票對選舉的公正性。在2020年的大選，他曾經批評郵寄選票會導致大規模選舉舞弊和選舉結果被操縱。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777716-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777716-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜賀錦麗和特朗普在投票日再呼籲選民投票
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777715-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777715-20241106.htm)
-
-<html>  <body>   <img alt="賀錦麗和特朗普在投票日分別在社交平台向選民提出最後的投票呼籲。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777715_1_20241106005530.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國大選正進行投票。民主、共和兩黨總統候選人賀錦麗和特朗普在投票日向選民提出最後的投票呼籲。    <br/>    <br/>    賀錦麗在社交平台表示，大家投票是因為熱愛國家，並相信美國的承諾。賀錦麗日前已經通過郵寄方式投票，她在投票日的行程包括接受電台採訪。    <br/>    <br/>    而特朗普就發布長一分鐘的廣告，廣告前大半段氣氛陰沉，並涉及失業、非法移民、搶掠等畫面，但後半段就顯示民眾有所期待，氣氛亦轉為明朗，而且亦重提特朗普遭到企圖暗殺的事件。特朗普亦在自己的社交平台留言表示指，這天將會是美國歷史上最重要的一天。預計特朗普稍後將在佛羅里達州投票。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777715-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777715-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 李強在上海會見出席進博會的塞爾維亞總理及蒙古總理
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm](https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm)
-
-<html>  <body>   <img alt="李強在上海會見塞爾維亞總理武切維奇。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777714_1_20241106002325.jpg&q=85" style="width:100%;height:auto"/>   <img alt="李強在上海會見蒙古總理奧雲額爾登。（新華社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777714_2_20241106002325.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    國務院總理李強在上海會見出席進博會的與會領導人。    <br/>    <br/>    李強在會見塞爾維亞總理武切維奇時表示，中方始終高度重視中塞關係，願同塞方更加緊密團結協作，推動兩國各領域合作邁上新水平。中方願同塞方加強「一帶一路」倡議同「塞爾維亞2027——躍向未來」規劃對接，共同做好中塞自由貿易協定執行工作，建設運營好匈塞鐵路等重點合作項目，加快綠色、數字、人工智能等創新領域合作，取得更多互利共贏成果。    <br/>    <br/>    另外，李強在會見蒙古總理奧雲額爾登時說，中方願同蒙方進一步對接發展戰略，繼續擴大貿易投資合作規模，加強口岸聯通、礦產開發、水電站等基礎設施建設合作，發掘高新技術、綠色發展等新興領域合作潛力。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777714-20241106.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 葵涌邨火警無人傷　疑屋主點煙時不小心引燃倒瀉的消毒酒精
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777713-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777713-20241105.htm)
-
-<html>  <body>   <img alt="葵涌邨火警無人傷　疑屋主點煙時不小心引燃倒瀉的消毒酒精" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777713_1_20241105234849.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    葵涌邨晚上發生火警，約200名住戶一度疏散到安全位置，無人受傷。    <br/>    <br/>    現場是芷葵樓，晚上7時許，上址10樓有單位冒煙，消防到場將火救熄。現場消息指，一度有人爬出窗外，其後返回安全位置。    <br/>    <br/>    據了解，火警因為倒瀉消毒酒精，懷疑屋主點煙時，不小心將火種彈到酒精，引致起火。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777713-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777713-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國10月非製造業指數創逾兩年新高
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777711-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777711-20241105.htm)
-
-<html>  <body>   <img alt="美國10月ISM非製造業指數出乎意料上升，升至56，創逾兩年新高。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777711_1_20241105232845.jpg&q=50" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國供應管理協會(ISM)公布，10月非製造業指數出乎意料上升，升至56，高於9月的54.9，創逾兩年新高。    <br/>    <br/>    數據顯示，服務業就業轉強，但新訂單指數則由59.4跌至57.4。投入物價分項指數亦自59.4的8個月高位，回落至58.1。    <br/>    <br/>    另外，標普全球公布，美國10月綜合採購經理指數(PMI)終值54.1，低於初值的54.3。服務業PMI終值55，亦低於初值的55.3。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777711-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777711-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 楊潤雄稱萬聖節及美酒佳餚巡禮旅客多　未來多辦具吸引力項目
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777712-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777712-20241105.htm)
-
-<html>  <body>   <img alt="楊潤雄表示上月訪港旅客超過400萬人次，其中非內地旅客人數錄得超過95萬人次，創下今年單月新高。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777712_1_20241105233405.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    文化體育及旅遊局局長楊潤雄表示，今年首10個月，訪港旅客達到3660萬人次，按年增加37%，而上月的非內地旅客人次超過95萬，創今年單月新高。    <br/>    <br/>    楊潤雄說，近日的萬聖節及美酒佳餚巡禮吸引了很多旅客，未來會繼續視乎市民及旅客的喜好，舉辦多些有吸引力的項目。他又提到，葡萄牙球星基斯坦奴朗拿度的私人博物館，可能明年在香港開幕，政府正積極推動。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777712-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777712-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 李家超向李強匯報香港發展　港澳辦稱支持各部門續研究推惠港政策
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777710-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777710-20241105.htm)
-
-<html>  <body>   <img alt="李家超在上海出席第七屆中國國際進口博覽會暨虹橋國際經濟論壇開幕式。（政府新聞處）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777710_1_20241105232603.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    出席進博會開幕式的行政長官李家超，向國務院總理李強匯報香港的最新發展，又與參展的港商交流。    <br/>    <br/>    特區政府下午舉辦投資香港推介大會，投資推廣署與多家上海企業進行重點合作項目的簽約儀式。李家超表示，向約400位企業代表介紹香港具國際水平的專業服務和簡單低稅制等，鼓勵企業投資和落戶香港。    <br/>    <br/>    港澳辦表示，支持各部門持續研究推出惠港政策，也支持上海香港深度合作。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777710-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777710-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 葵涌邨發生火警約2百住戶一度疏散　無人受傷
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777709-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777709-20241105.htm)
-
-<html>  <body>   <img alt="葵涌邨發生火警約2百住戶一度疏散　無人受傷" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777709_1_20241105232054.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    葵涌邨晚上發生火警，約200名住戶一度疏散到安全位置，無人受傷。    <br/>    <br/>    現場是芷葵樓，晚上7時許，上址10樓有單位冒煙，消防到場將火救熄。現場消息說，一度有人爬出窗外，其後返回安全位置。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777709-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777709-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜有選民排隊等票站開門　當局派人處理涉選投訴
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777706-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777706-20241105.htm)
-
-<html>  <body>   <img alt="馬薩諸塞州其中一個投票站，未開門已有40至50人排隊等候。（李漢華攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777706_1_20241105230220.jpg&q=90" style="width:100%;height:auto"/>   <img alt="有票站設有選民專用車位，方便選民投票。（李漢華攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777706_2_20241105230220.jpg&q=40" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國大選投票日正式展開，關鍵搖擺州份之一的佐治亞州，票站在當地早上7時開門前，已經有人排隊等候。    <br/>    <br/>    在馬薩諸塞州，有票站在開放前更出現約50人的人龍，秩序大致良好。有選民說擔心放工後才來投票會太多人，因此在上班前投票。現場所見，由於人多，選民入到票站要輪候約十分鐘才取得選票，票站內設有數十個投票間。選民填寫選票後把選票放入點票機，點票機會即時掃描，記錄並儲存在電腦內，工作人員會在投票結束印出投票結果。票站內除左有工作人員，亦有警員維持秩序。    <br/>    <br/>    另外，司法部安排聯邦政府工作人員到27個州，包括亞利桑那、佐治亞及北卡羅來納州等傳統搖擺州份，共86個選區的票站監督投票過程，處理任何涉及選舉的投訴。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777706-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777706-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美股初段反覆靠穩
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777708-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777708-20241105.htm)
-
-<html>  <body>   <img alt="美股初段靠穩，道瓊斯指數較早時報41854點，升59點，升幅0.14%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777708_1_20241105224443.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國大選投票日，美股初段靠穩。    <br/>    <br/>    道瓊斯指數較早時報41854點，升59點，升幅0.14%。    <br/>    <br/>    納斯達克指數報18293點，升113點，升幅0.62%。    <br/>    <br/>    標準普爾500指數報5734點，升22點，升幅0.39%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777708-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777708-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 當局稱將軍澳137區及132區造地與規劃建議獲區議員普遍支持
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777707-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777707-20241105.htm)
-
-<html>  <body>   <img alt="發展局聯同多個部門出席西貢區議會會議。（發展局社交專頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777707_1_20241105224654.jpg&q=70" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    發展局表示，經優化的將軍澳第137區及第132區造地和規劃建議，獲得當區區議員普遍支持。    <br/>    <br/>    當局聯同多個部門出席西貢區議會會議，局方說，議員在會上就交通配套、城市規劃及發展布局等範疇提出意見。議員關注第132區對出的填海工程範圍，以及公共設施未來營運時的潛在環境影響，當局解釋進出該等設施的車輛將經新建的接駁道路，在往返九龍時直接通往將藍隧道，毋須駛經區內現有道路網絡；而且廢物轉運站距離最近的屋苑約1.2公里，是本港5個市區廢物轉運站中最遠離民居。至於岩洞的造地項目，當局指現階段並不可行，不但未能有效減少填海規模，亦不符合成本效益及配合各項設施投入運作的時間表。    <br/>    <br/>    在第137區方面，局方說會因應議員的意見，規劃一個約6.5公里的單車徑網絡，經環保大道及環澳路接駁至區内現有的單車徑網絡；運輸及物流局表示，透過提升信號系統及增加列車數目，將軍澳綫的班次和最高載運量未來可以同時應付往來寶琳站方向的乘客量，以及增加往來康城站至第137區的班次，滿足長遠發展產生的運輸需求。    <br/>    <br/>    發展局又說，環評初步結果顯示，兩區造地項目的潛在環境影響屬可接受的水平，團隊亦已制定適當的緩解措施，會爭取在年內向環保署提交環評報告。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777707-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777707-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國9月貿易逆差按月擴大19%
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777704-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777704-20241105.htm)
-
-<html>  <body>   <img alt="美國9月貿易逆差843.6億美元，略高於市場預期，按月擴大19%，由於進口止跌回升。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777704_1_20241105221047.jpg&q=35" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國9月貿易逆差843.6億美元，略高於市場預期，按月擴大135.7億美元，增幅19%，由於內需強勁，推高進口需求。    <br/>    <br/>    9月出口按月由升轉跌1.2%，進口則止跌回升3%。    <br/>    <br/>    期內，美國對華貿易逆差擴大至318.1億美元，按月擴大14%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777704-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777704-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 勞工處關注馬頭角道工人疑失足致死　發通知書停止外牆搭建等工程
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777703-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777703-20241105.htm)
-
-<html>  <body>   <img alt="勞工處表示，正全速調查確定意外成因，查找有關持責者的法律責任，以及提出改善措施。（林漢山攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777703_1_20241105220003.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    一名工人下午在土瓜灣馬頭角道一幢大廈天台搭棚期間，懷疑失足墮下平台，昏迷送院後證實死亡。勞工處表示高度關注，對於有工友身故，處方十分難過，對家屬致以深切慰問。    <br/>    <br/>    勞工處表示，已向承建商發出暫時停工通知書，停止在該大廈外牆搭建、改動、拆卸及使用有關竹棚架，直至信納承建商已採取措施消除有關危害，才可復工。處方正全速調查確定意外成因，查找有關持責者的法律責任，以及提出改善措施，若發現有違例事項，定會依法處理。    <br/>    <br/>    勞工處會於日內透過流動應用程式、網頁及電子郵件發放「職安警示」，通知持責者、工會和安全從業員專業組織等，簡介意外事故和提醒業界採取安全預防措施，以避免同類意外發生。    <br/>    <br/>    處方亦會敦促有關僱主必須履行《僱員補償條例》的補償責任，亦會協助死者家屬辦理工傷補償事宜，及密切跟進個案。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777703-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777703-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 警方打擊網購騙案及洗黑錢犯罪集團拘8男女　涉逾70宗案件
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777702-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777702-20241105.htm)
-
-<html>  <body>   <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777702_1_20241105225942.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    警方採取行動打擊一個網上購物騙案及洗黑錢的犯罪集團，拘捕5男3女，年齡16至48歲。其中1男1女被暫控販運危險藥物和串謀詐騙，明日在九龍城裁判法院提堂。    <br/>    <br/>    西九龍總區科技及財富罪案組高級督察戴雄表示，騙徒在網上平台物色售賣二手名貴貨品的賣家，當雙方達成買賣協議後，會先存入無法兌現的空頭支票，再約賣家現場交收，其後訛稱存入比買賣協議高的支票金額，要求賣家補回差價，令對方蒙受更大損失，今次涉及超過70宗案件，每名受害人損失幾百至幾萬元不等。    <br/>    <br/>    戴雄表示，被捕人報稱廚師、美甲師、學生和無業等，大部分人有三合會背景，行動檢獲大量電子產品包括電話及手提電腦，當中發現大量騙徒與受害人的對話，起回名貴手袋、手錶和珠寶等失物，更搜出大量毒品，包括冰毒、懷疑大麻花和太空油，以及毒品包裝工具。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777702-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777702-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 陳茂波向內地企業推介香港　指可用港優良國際化營商環境走出全球
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777701-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777701-20241105.htm)
-
-<html>  <body>   <img alt="陳茂波說，內地企業可以利用好香港優良的國際化營商環境走出全球、拓展事業，實現更好的發展。（陳茂波社交專頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777701_1_20241105215236.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    行政長官李家超和財政司司長陳茂波在上海，出席由特區政府和貿發局合辦的「2024投資香港推介大會——上海專場」，並分別在會上致辭。    <br/>    <br/>    陳茂波說，他向在場超過400個位內地企業代表推介香港優勢，指香港匯聚國際資金、人才，中西文化交融、擁有開放和高效的市場，國際化優勢突出、規則制度與國際最佳標準無縫銜接，而且是全球唯一中英雙語並用的普通法體系。內地企業可以利用好香港優良的國際化營商環境走出全球、拓展事業，實現更好的發展。    <br/>    <br/>    陳茂波又說，在三中全會的精神指導、行政長官的帶領下，特區政府全力鞏固提升香港國際金融、航運和貿易中心的地位，繼續充分發揮好香港在「一國兩制」下作為「超級聯繫人」和「超級增值人」的角色和功能，致力為國家和世界的更深度的雙向連接、搭建更寬廣的合作通道作出貢獻。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777701-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777701-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 梁君彥：議員本月23日起分批搬至大樓新辦公室　料下月8日完成
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777698-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777698-20241105.htm)
-
-<html>  <body>   <img alt="梁君彥表示，全體議員將於本月23日開始搬遷到綜合大樓9至14樓議員樓層新辦公室。（梁君彥社交專頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777698_1_20241105215102.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    立法會主席梁君彥在社交專頁表示，全體議員將於本月23日開始搬遷到綜合大樓9至14樓議員樓層新辦公室。    <br/>    <br/>    梁君彥表示，擴建工程承辦商協興正進行餘下工作，包括安裝窗簾和指示牌、調整洗手間及茶水間設備、清洗玻璃幕牆、進行防水測試等。 秘書處人員正盡量找出新辦公室需要執漏和改善的地方，並佈置各樓層公共空間所需的傢具及用品，在議員入伙前，亦會為議員樓層大清潔及清除甲醛等。    <br/>    <br/>    他表示，為確保立法會及綜合大樓可繼續正常運作，並盡量減少對大樓使用者的影響，整個搬遷工作將分批進行，全程需時約2至3星期，預計於下月8日完成。期間除立法會會議日外，其餘日子包括星期六、日均會進行搬遷工作。    <br/>    <br/>    梁君彥又說，議員新辦公室啟用後，協興將全速進行大樓三角形區域共10層的工程，包括11樓的空中花園、9樓和10樓可一分為四的議員會客室、5樓的大型活動廳，以及秘書處辦公室等。秘書處亦會盡快將大樓2至3樓的部分人員搬遷至6至8樓，以騰出空間開展擴建工程第二期，包括增設會議室6和公眾教育設施。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777698-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777698-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 出席投資香港推介大會　李家超：向約400企業代表介紹香港優勢
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777700-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777700-20241105.htm)
-
-<html>  <body>   <img alt="李家超表示，把握機會主動接觸當地企業代表，與他們交流，加強各界對香港的了解和到香港投資的信心。（李家超社交專頁）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777700_1_20241105215006.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    行政長官李家超表示，他在進博會「投資香港推介大會 — 上海專場」分享會和晚宴期間，把握機會主動接觸當地企業代表，與他們交流，加強各界對香港的了解和到香港投資的信心。    <br/>    <br/>    李家超在社交專頁說，向約400位企業代表介紹香港具國際水平的專業服務和簡單低稅制等各領域的優勢和機遇，鼓勵企業投資和落戶香港，開拓商機。    <br/>    <br/>    他又說，很高興在現場見證了多個合作項目的簽約儀式，亦聽到多間內地企業落戶香港的成功經驗，特區政府將繼續努力爭取更多企業落戶香港，推動滬港合作。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777700-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777700-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 香港半島酒店第3季平均房租跌逾兩成　出租率升至41%
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777689-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777689-20241105.htm)
-
-<html>  <body>   <img alt="香港半島酒店第3季平均房租5262元，按年及按季跌逾兩成。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777689_1_20241105201428.jpg&q=35" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    大酒店公布，香港半島酒店第3季平均可出租客房收入2144港元，按年及按季都跌約14%。平均房租5262元，按年及按季跌逾兩成。出租率41%，按年及按季都升3個百分點。至9月底，共有300間客戶。    <br/>    <br/>    其他亞洲地區半島酒店的平均可出租客房收入1930元，按年升近11%，但按季跌逾15%。歐美則是6653元，按年及按季分別升近39%及約20%。    <br/>    <br/>    另外，第3季各出租物業的每呎每月平均租金按季微升，住宅、商場、辦公大樓分別升至46元、135元及66元，出租率介乎85%至92%。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777689-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777689-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 全國人大常委會會議審議國務院關於2023年度國有資產管理情況
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777696-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777696-20241105.htm)
-
-<html>  <body>   <img alt="全國人大常委會會議上午在北京舉行第二次全體會議。（央視片段截圖）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777696_1_20241105220628.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    全國人大常委會會議上午在北京舉行第二次全體會議。央視新聞聯播報道，會議聽取中國人民銀行行長潘功勝受國務院委託關於金融工作情況的報告。    <br/>    <br/>    會議亦審議國務院關於2023年度國有資產管理情況的綜合報告，聽取財政部部長藍佛安關於2023年度行政事業性國有資產管理情況的專項報告，並聽取人大財政經濟委員會副主任、常委會預算工作委員會許宏才的監督調研報告。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777696-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777696-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 林定國冀法治建設成就展令人明白國家對法治建設決心及追求
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777695-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777695-20241105.htm)
-
-<html>  <body>   <img alt="林定國表示，希望透過今次內容精要而有系統的展覽，讓大家更能掌握國家法治建設的重要內容、發展及里程碑。（林定國社交網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777695_1_20241105211552.jpg&q=35" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    法律周舉行第二日，同場亦舉行國家法治建設成就展，律政司司長林定國表示，希望透過今次內容精要而有系統的展覽，讓大家更能掌握國家法治建設的重要內容、發展及里程碑，也令大家明白國家在法治建設上的決心及追求，共同為國家發展營造有利條件。    <br/>    <br/>    林定國在社交專頁說，展覽除了有國家法治建設大事記外，主要分作兩部份，一是有關「著力推進新時代全面依法治國開闢良法善治新境界」，二是有關「香港的普通法制度如何協助國家法治建設」，現場更有中華人民共和國憲法、中華人民共和國民法典、香港基本法等印刷精美的文本供取閱。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777695-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777695-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 一間幼兒中心爆發手足口病新增兩名病人　累計涉8名學童情況穩定
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777694-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777694-20241105.htm)
-
-<html>  <body>   <img alt="上周公布一所幼兒中心爆發手足口病個案，新增兩名病人，累計涉及8名學童，全部人已經求醫。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777694_1_20241105204741.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    衞生防護中心表示，上周公布一所幼兒中心爆發手足口病個案，新增兩名病人，累計涉及8名學童，全部人已經求醫，毋須入院，情況穩定。    <br/>    <br/>    涉事幼兒中心是位於沙田的基督教香港崇真會恩樂園。新增病人分別為一名17個月大女童及一名29個月大男童。8名學童中有3人的臨床樣本證實對腸病毒71型呈陽性反應。中心正繼續為其餘出現相關病徵的幼童檢測。    <br/>    <br/>    發言人指，早前已建議幼兒中心自本月1日起暫停服務14天。由於兩名新增病人均於停課後在家中發病，認為有關措施可有效防止腸病毒71型進一步蔓延，衞生防護中心對所有幼童的醫學監察仍然繼續。    <br/>    <br/>    衞生防護中心又指，本港的手足口病和腸病毒71型感染的高峰期一般為5至7月，10至12月亦可能會出現較小型高峰期，現時本地手足口病活躍程度仍處於高水平，爆發個案主要集中於幼稚園及幼兒中心和小學，會再向學校發信呼籲提高警覺及採取相應措施。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777694-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777694-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 林世雄稱低空經濟須做到與大灣區互聯互通否則規模會小很多
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777692-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777692-20241105.htm)
-
-<html>  <body>   <img alt="林世雄形容，低空經濟是一門大有可為的新經濟模式，但必須建立在跨境基礎上，做到與大灣區互聯互通。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777692_1_20241105204647.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    運輸及物流局局長林世雄表示，香港國際機場在高峰期的單日客運量已回復至疫情前約八成半，今年9月份有約130間航空公司服務近200個航點，數目為疫情前約九成，隨著三跑系統將於本月28日投入營運，當局會把握這個機遇，大力擴展航空網絡，支持機場開拓新航點及航班。    <br/>    <br/>    施政報告提出成立發展低空經濟工作組制定發展策略，林世雄在立法會一個委員會上表示，工作組會在明年上半年展開，並由明年初起陸續推行試點項目，試驗不同低空飛行的應用場景，同時正研究修改法例，包括放寬超時距飛行、無人機重量和載貨限制，以及是否需要就載人無人機制定專屬法例，同時會加強與内地的技術對接。    <br/>    <br/>    林世雄形容，低空經濟是一門大有可為的新經濟模式，但必須建立在跨境基礎上，做到與大灣區互聯互通，否則規模就會小很多，當局會與内地就貨物清關、載人等情況作出商討，包括探索一地兩檢的可行性，不過他說低空飛行或會有多個航點，如果限制飛行點未必是一件好事。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777692-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777692-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 男子涉九龍城裁判法院企圖襲擊裁判官被控企圖傷人罪　明日提堂
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777691-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777691-20241105.htm)
-
-<html>  <body>   <img alt="一名男子涉嫌昨日在九龍城裁判法院，企圖襲擊裁判官，被控企圖傷人罪。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777691_1_20241105203855.jpg&q=65" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    一名32歲男子昨日在九龍城裁判法院法庭內持刀企圖襲擊裁判官，被暫控一項「企圖傷人」罪，案件明日在九龍城裁判法院提堂。    <br/>    <br/>    案發在昨日早上10時許，該男子在法庭的旁聽席聽審，期間突然在袋中取出一把46厘米長的刀，涉嫌企圖衝向裁判官席前施襲，裁判官及時閃避，男子之後被警員制服，警員發現他的隨身物品中有易燃溶液、粉末及打火槍。    <br/>    <br/>    警方表示，涉案男子早前非禮罪被判罪成，正等候上訴。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777691-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777691-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 美國大選2024｜各地票站陸續開放　包括關鍵搖擺州份
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777690-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777690-20241105.htm)
-
-<html>  <body>   <img alt="有選民投票後，獲發一張「我已投票」的貼紙。（李漢華攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777690_2_20241105230459.jpg&q=80" style="width:100%;height:auto"/>   <img alt="北卡羅來納民眾等候投票。（路透社）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777690_1_20241105203400.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    美國大選投票日正式展開，各地票站陸續開放。    <br/>    <br/>    在關鍵搖擺州份之一的賓夕法尼亞州，最大城市費城一個票站外有幾十人排隊，部分人拿著咖啡等候，人龍愈來愈長。    <br/>    <br/>    俄亥俄州、西弗吉尼亞州、佛羅里達州、馬里蘭州、馬薩諸塞州，以及同為搖擺州的北卡羅來納及密歇根，亦已經開始投票。    <br/>    <br/>    在投票日之前的拉票最後衝刺階段，民主黨總統候選人、副總統賀錦麗再次承諾幫助打工仔家庭，減少他們在食物及住屋方面的開支，又重申支持女性墮胎權。代表共和黨、爭取再度入主白宮的特朗普提出大幅減稅，又重申會加強邊境管制打擊非法移民。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777690-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777690-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 天水圍天盛街市一間持牌新鮮糧食店涉嫌把冷藏肉作新鮮肉出售
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777687-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777687-20241105.htm)
-
-<html>  <body>   <img alt="食環署於元朗區向一間懷疑有此類不當行為的持牌新鮮糧食店採取行動。（政府新聞處）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777687_1_20241105203316.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    食環署在天水圍天盛街市一間持牌新鮮糧食店，檢獲約121公斤懷疑冷藏牛肉和約167公斤預先包裝冷藏牛肉，並已即時封存作進一步調查。食環署人員亦已抽取牛肉樣本進行防腐劑檢測，如有足夠證據，署方將提出檢控。    <br/>    <br/>    署方說，該店舖持牌人涉嫌把冷藏肉作新鮮肉陳列及出售，違反持牌條件，食環署正展開程序取消該新鮮糧食店的牌照。署方亦就該新鮮糧食店負責人未能提供送貨單供查核而違反相關持牌條件，向其發出口頭警告。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777687-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777687-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 陳國基：「聯廈聯管」試驗計劃將安排同一物管公司管理鄰近舊樓
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777686-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777686-20241105.htm)
-
-<html>  <body>   <img alt="" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777686_1_20241105200426.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    政務司司長陳國基表示，行政長官在上月發表的施政報告宣布，進一步推出改善大廈管理的措施，包括明年在選定小區推行「聯廈聯管」試驗計劃，民政事務總署已經敲定試驗計劃細節。    <br/>    <br/>    陳國基出席一個活動時說，試驗計劃將安排同一個物業管理公司聯合管理鄰近舊樓，令舊式樓宇能以相宜費用獲得基本管理服務，以提升保養和管理水平，希望業界積極支持，攜手做好舊樓大廈管理工作。    <br/>    <br/>    陳國基強調，優質的物業管理是讓市民安居樂業的重要一環，隨著物業管理業發牌制度的3年過渡期於去年7月底完結，本港物業管理業踏入優質化和專業化的全新世代，物業管理業監管局透過發牌規管、制定專業標準以及鼓勵持續進修，三管齊下進一步提高物業管理業的專業地位和服務水平，推動業界為市民提供更優質的服務。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777686-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777686-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 楊潤雄：上月訪港非內地旅客人數創今年單月新高
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777685-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777685-20241105.htm)
-
-<html>  <body>   <img alt="楊潤雄表示，上月訪港旅客超過400萬人次，其中非內地旅客人數錄得超過95萬人次，創下今年單月新高。" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777685_1_20241105203718.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    文化體育及旅遊局局長楊潤雄表示，上月訪港旅客超過400萬人次，其中非內地旅客人數錄得超過95萬人次，創下今年單月新高，在國慶黃金周期間，有累積超過122萬内地旅客人次訪港；以今年首10個月計，旅客人次達到3660萬，按年增加37%。    <br/>    <br/>    在立法會一個委員會上，商界林健鋒指出，萬聖節期間，蘭桂坊到凌晨2、3時都仍有人，旺丁亦旺財，關注當局如何延續氣氛。楊潤雄表示，近日的萬聖節及美酒佳餚巡禮都吸引了很多旅客，未來仍會繼續視乎市民及旅客的喜好及消費趨勢，舉辦多些有吸引力的項目。    <br/>    <br/>    選委界陳紹雄建議當局應吸取啟德郵輪碼頭的經驗，加大力度善用啟德體育園的設施，即使非賽事期間都能善用周邊的餐飲及購物設施。楊潤雄表示，啟德體育園作為公共設施，平日都會開放予市民或團體使用，體育園目前正全力進行測試，確保體育園在賽事期間的運作暢順，之後會思考如何舉辦多些活動。    <br/>    <br/>    新思維狄志遠質疑政府提出發展賽馬旅遊，假如放寬進入馬場的年齡限制，會變相鼓勵市民賭博，減低年輕一代對賭博的警覺性。楊潤雄說，賽馬是香港的特色，對外國旅客具有吸引力，措施目的只是為訪港旅客提供多一個旅遊項目選擇，與吸引本地人參與是兩碼子的事，但強調有關的活動必須合法、守規。    <br/>    <br/>    至於選委界陸瀚民建議吸引内地旅客來港參與馬拉松、單車節等大型體育活動，楊潤雄贊成大方向，但需要視乎容量，他以馬拉松為例，本港的交通及場地問題限制參加人數，連香港市民都不夠名額參加，需要作出平衡以及減低對市民的影響。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777685-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777685-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 世衞就制訂國際草藥藥典一連三日在香港開會
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777684-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777684-20241105.htm)
-
-<html>  <body>   <img alt="衞生署署長林文健醫生（前排中）、衞生署規管事務總監趙佩燕醫生（前排左五）與其他與會者合照。（政府新聞處）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777684_1_20241105203742.jpg&q=20" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    世衞就制訂國際草藥藥典召開會議，今日起一連三日在香港召開。    <br/>    <br/>    會議討論制訂國際草藥藥典的路線圖及其他各種相關議題，包括國際草藥藥典的大綱草案、範圍和框架等，並就制訂國際草藥藥典討論相關工作機制。    <br/>    <br/>    衞生署署長林文健在開幕式致辭時表示，香港中藥材標準計劃自2002年推行以來，為常用中藥材制訂標準，以確保中藥材的安全及品質。至今計劃已涵蓋了330種中藥材，而更多的中藥材標準亦正在籌劃中。計劃的科研成果多次於海外權威機構及國際期刊的中藥研究文章中被引用。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777684-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777684-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 謝展寰到東龍洲現代化海產養殖示範場　了解政府推動漁業發展情況
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777683-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777683-20241105.htm)
-
-<html>  <body>   <img alt="謝展寰與一批立法會議員參觀漁護署在東龍洲的現代化海產養殖示範場。（政府新聞處）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777683_1_20241105185624.jpg&q=30" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    環境及生態局局長謝展寰與一批立法會議員參觀漁護署在東龍洲的現代化海產養殖示範場，聽取簡介示範場內的半潛式桁架深水網箱運作，了解政府在推動現代化和可持續漁業發展工作的最新情況。政府預期本地海魚養殖產量至2027年會較2022年增加1倍。    <br/>    <br/>    謝展寰表示，漁護署明年起將分階段提供5組新式深海養殖網箱供漁民團體或組織租用，以降低漁民的啓動成本，協助業界發展現代化集約式深海養殖。政府亦會透過「漁業可持續發展基金」為有需要合資格人士提供財政及技術支援。    <br/>    <br/>    漁護署在2021年於東龍洲設立現代化海產養殖示範場，幫助業界轉型至深水海魚養殖。示範場採用半潛式桁架深水網箱設計，能抵禦強風、海浪和洋流。示範場亦配備現代化海產養殖科技，例如實時水質監測和監控系統、自動投餌系統，以及太陽能和風力發電系統。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777683-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777683-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 鄧炳強：冀明年第一季完成立法　將「依托咪酯」列為毒品
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777682-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777682-20241105.htm)
-
-<html>  <body>   <img alt="鄧炳強表示，希望明年第一季完成立法，將「太空油」主要成分「依托咪酯」列為毒品。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777682_1_20241105185549.jpg&q=70" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    針對濫用「太空油」有上升趨勢，保安局局長鄧炳強表示，會「提速」立法，希望明年第一季完成立法，將「太空油」主要成分「依托咪酯」列為毒品。    <br/>    <br/>    另外，有立法會議員反映，家人遇上騙案，因為沒有損失，報案後警方指未必可處理下去，關注如何提供詐騙情報，鄧炳強建議市民致電反詐騙協調中心熱線18222，提供資料。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777682-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777682-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 李家超向李強匯報香港最新發展　港澳辦稱支持各部門續推惠港政策
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777680-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777680-20241105.htm)
-
-<html>  <body>   <img alt="李家超表示，本港將善用「一國兩制」優勢，與上海企業共同發展。 （杜雅莉攝）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777680_1_20241105185455.jpg&q=85" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    出席進博會開幕式的行政長官李家超，向國務院總理李強匯報香港的最新發展，又與參展的港商交流。    <br/>    <br/>    特區政府下午舉辦投資香港推介大會，投資推廣署與多家上海企業進行重點合作項目的簽約儀式。李家超表示，香港將善用「一國兩制」優勢，與上海企業共同發展。    <br/>    <br/>    港澳辦表示，支持各部門持續研究推出惠港政策，也支持上海香港深度合作。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777680-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777680-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 香港應用科技研究院與納米及先進材料研發院將合併
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777681-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777681-20241105.htm)
-
-<html>  <body>   <img alt="創科署發言人說，兩所中心合併後，通過中長期的優化整合，預期整體營運開支將有所減省。（港台圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777681_1_20241105185401.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    創新科技署分別向香港應用科技研究院和納米及先進材料研發院的董事局，介紹合併兩所研究及發展中心的計劃。兩所中心的董事局主席亦分別向員工闡述合併計劃，以及相關的跟進工作與安排。    <br/>    <br/>    創科署發言人說，兩所中心合併後，通過中長期的優化整合，預期整體營運開支將有所減省。至於人手架構方面，會透過職位調配及自然流失作出合適的安排。署方將委聘獨立顧問就合併兩所中心的過渡安排及執行方案提出建議，政府預計於2025至26年度內開始啓動合併的過渡安排。    <br/>    <br/>    創新科技及工業局局長孫東表示，兩所中心透過有機結合，將有助強化應用研發互補性及產生協同效益，從而提升高增值研發工作的能力，增強對產業發展的支持，有力推進新型工業化。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777681-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777681-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 亞洲物流航運及空運會議本月中會展舉行　料二千名與會者參與
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777678-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777678-20241105.htm)
-
-<html>  <body>   <img alt="貿發局表示，會議主題為「塑造未來供應鏈：強韌和永續」。（貿發局提供）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777678_1_20241105181744.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    由特區政府與貿發局合辦的第14屆「亞洲物流航運及空運會議」，將於本月18至19日在灣仔會展舉行，主辦單位預計將吸引超過30個國家、2000位與會人士參與。    <br/>    <br/>    貿發局表示，會議主題為「塑造未來供應鏈：強韌和永續」，同時呼應三中全會《決定》及配合《施政報告》政策，鞏固提升香港國際航運中心地位。會議將聚焦三大發展趨勢，包括供應鏈轉化及市場機遇、可持續發展及綠色能源，以及創新科技，大會特別新增兩大專題環節，探討供應鏈多元化及對淨零排放目標的承諾。    <br/>    <br/>    貿發局助理總裁梁國浩表示，作為亞洲供應鏈業界年度旗艦活動，今屆會議嘉賓陣容鼎盛，多間物流、航運及空運業界的國際巨頭將會出席，當中不乏由中東、中亞等新興地區親身來港的業界領袖。大會希望藉此向內地及環球商界推廣香港專業服務及優勢，東盟的參與及支持亦有助鞏固提升香港國際航運、空運中心的地位及超級連繫人的角色。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777678-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777678-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 勞工處正調查搭棚工人墮斃事件　工會促業界依守則避免意外
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777677-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777677-20241105.htm)
-
-<html>  <body>   <img alt="勞工處表示，接報後已即時派員到現場，正就意外原因展開調查。（香港建造業總工會社交網站圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777677_1_20241105181027.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    一名工人下午2時許在土瓜灣馬頭角道一幢大廈的天台，搭棚期間懷疑失足，墮下平台，受傷昏迷，送往廣華醫院後證實死亡。勞工處表示，接報後已即時派員到現場，正就意外原因展開調查。    <br/>    <br/>    香港建造業總工會對意外深表遺憾，亦派員到達醫院了解情況，向家屬提供情緒輔導及支援協助。工會說，根據《竹棚架工作安全守則》，在設計建築項目時，應考慮到安全問題，透過對建築方法、工序、統籌方法等作出正確的設計和策劃，可減少或避免工作上產生的危險。僱主亦要為僱員提供足夠而合適的安全設備，例如全身性防墮裝置、獨立救生繩。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777677-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777677-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 在岸人民幣兌美元低收121點子　市場觀望美國大選結果
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777672-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777672-20241105.htm)
-
-<html>  <body>   <img alt="瑞銀稱若果特朗普勝出，或推動美元兌人民幣升至7.4。若賀錦麗勝出，美元兌人民幣或跌向6.8。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777672_1_20241105173918.jpg&q=80" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    在岸人民幣收市報7.1095兌1美元，較昨日收市價跌121點子，跌幅0.17%，日內交投持續活躍。    <br/>    <br/>    人民幣中間價則升至7.1016兌1美元，升187點子，創半個月新高，與市場預測偏離3點子。    <br/>    <br/>    有交易員指，美國大選開始投票，民調數據差距不大，特朗普交易平倉基本完結，市場觀望情緒濃厚，後市仍要視乎大選結果。    <br/>    <br/>    瑞銀報告指，若果特朗普勝出，市場憂慮明年再度出現貿易關稅爭議，或推動美元兌人民幣升至7.4，人民銀行或透過引導中間價來制約美元短線升幅。若賀錦麗勝出，預料美元兌人民幣或跌向6.8，由於企業美元換匯買盤，以及資金流向人民幣相關資產。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777672-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777672-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
-# 外交部：意大利總統馬塔雷拉將訪華　凸顯中意關係高水平發展
-
-[https://news.rthk.hk/rthk/ch/component/k2/1777675-20241105.htm](https://news.rthk.hk/rthk/ch/component/k2/1777675-20241105.htm)
-
-<html>  <body>   <img alt="毛寧表示，馬塔雷拉訪華期間，國家主席習近平將與他會談，擘畫中意關係未來發展藍圖。（外交部網頁圖片）" referrerpolicy="no-referrer" src="https://images.weserv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1777675_1_20241105175236.jpg&q=90" style="width:100%;height:auto"/>   <br/>   <div class="itemFullText">    意大利總統馬塔雷拉將於周四至下周二對中國進行國事訪問。    <br/>    <br/>    在北京，外交部發言人毛寧表示，馬塔雷拉訪華期間，國家主席習近平將與他會談，擘畫中意關係未來發展藍圖，總理李強及人大委員長趙樂際將分別與他會面。    <br/>    <br/>    毛寧說，今年是中意建立全面戰略夥伴關係20周年，意大利總理梅洛尼及總統馬塔雷拉先後訪華，凸顯中意關係高水平發展。中方願同意方一同以兩國領導人共識為指引，進一步深化政治互信，拓展務實合作與人文交流，促進文明互鑒，為變亂交織的世界注入更多穩定性。   </div>   <br/>   <hr/>   <p>    原始網址 Original URL：    <a href="https://news.rthk.hk/rthk/ch/component/k2/1777675-20241105.htm" rel="nofollow">     https://news.rthk.hk/rthk/ch/component/k2/1777675-20241105.htm    </a>   </p>   <p>    © rthk.hk   </p>   <p>    電子郵件 Email:    <a href="mailto:cnews@rthk.hk" rel="nofollow">     cnews@rthk.hk    </a>   </p>  </body> </html>
-
----
-
+xml version='1.0' encoding='UTF-8'?
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 09:59:54 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
+<br>
+<br/>
+國家通訊社引述一名議員說，有關「戰時無法舉行選舉」的議案周二經過再次投票，獲得268票支持，超過所需最低的226票。議案前一天因支持票數不足未獲通過。
+<br/>
+<br/>
+國會發表聲明說，烏克蘭將在「全面、公正和持久和平」獲得保障後，依照國會決定宣布舉行選舉。聲明強調，澤連斯基是經由選舉產生的總統，民眾和國會沒有質疑其合法性。在新總統就職前，澤連斯基必須依照憲法規定繼續行使權力。
+<br/>
+<br/>
+美國總統特朗普近日呼籲烏克蘭盡快停火並舉行總統選舉。
+<br/>
+<br/>
+澤連斯基2019年5月就任烏克蘭總統，任期至去年5月。烏克蘭其後因國家進入戰時狀態未如期於去年3月舉行新一屆總統選舉。根據澤連斯基簽署的最新總統令，國家戰時狀態已延長至今年5月9日。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htmWed, 26 Feb 2025 00:17:00 +0800李強：加力推進前沿新興領域科技創新　更好培育新質生產力https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm<img alt="李強指出，要加力推進前沿科技創新，以科技創新引領產業創新，更好培育新質生產力、推動高質量發展。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793153\_1\_20250226005330.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中共中央政治局常委、國務院總理李強到中國電信、中國聯通、中國移動所屬企業調研科技創新工作。他強調，要深入貫徹習近平總書記關於建設科技強國的重要論述，加力推進前沿科技創新，以科技創新引領產業創新，更好培育新質生產力、推動高質量發展。
+<br>
+<br/>
+李強分別了解天翼雲建設、工業互聯網發展、6G 技術研發等情況。他指出，必須推進自主創新，加快重點領域研發布局，加緊原創性、引領性技術攻關，推動新技術與各行業融合創新，為產業轉型升級注入新動能。
+<br/>
+<br/>
+李強說，要著眼促進數字經濟和實體經濟深度融合，加強新型基礎設施建設，發揮龍頭企業示範作用，實施好中小企業數字化賦能專項行動。在加快5G規模化應用的同時，要抓緊推進6G技術研究和標準研製，要積極優化算力資源布局，提高利用效能，推動廣泛接入，解決好算力供需不匹配等問題。
+<br/>
+<br/>
+李強召開座談會，要求三家企業切實增強責任感緊迫感，堅持創新驅動發展，力爭取得更大突破，為中國實現高水平科技自立自強，發展壯大新興產業、未來產業提供更加有力的支撐。
+<br/>
+<br/>
+李強指出，要大力發展新一代信息通信技術，深入推進「人工智能+」，促進製造業數字化轉型，賦能千行百業。要持續攻堅突破，聚焦短板弱項，加大投入力度，加快推進重點任務，盡早取得更多實質性進展。深化改革激發活力，要發揮帶動作用，當好協同創新和產業協作組織者，開放應用場景、強化聯合研發、做好基礎支撐，帶動上下游企業，不斷提高創新效率、降低創新成本、增強創新能力。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htmWed, 26 Feb 2025 00:53:00 +0800施紀賢宣布英國國防開支佔GDP比重將增至2.5%https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htm<img alt="施紀賢在國會下議院發言，宣布提高國防開支佔比。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793154\_1\_20250226013824.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+英國首相施紀賢宣布，英國到2027年，國防開支佔國內生產總值的比重，將提高至2.5%，意味國防開支將增加134億英鎊。
+<br>
+<br/>
+英國目前的國防開支約佔GDP的2.3%。施紀賢本周將前往美國訪問，與總統特朗普會面。特朗普之前要求北約成員國將國防開支佔GDP比重提升到5%。
+<br/>
+<br/>
+施紀賢星期二在國會下議院說，將會有一些「艱難抉擇」，但這將是「冷戰結束以來最大的持續國防支出增加」。他表示，為增加國防支出，政府將在2027年把發展援助支出佔GDP比重從0.5%削減至0.3%，不過，英國將繼續在烏克蘭、巴勒斯坦加沙地帶等地發揮重要人道主義作用。
+<br/>
+<br/>
+施紀賢還說，如果工黨政府在2029年贏得英國大選，英國國防開支佔GDP比重將增加到3%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htmWed, 26 Feb 2025 01:38:00 +0800劇組拍攝汽車飄移發生意外　澳門文化局中止拍攝許可https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm<img alt="澳門文化局發出中止項目的拍攝許可通知，不排除續後會廢止有關拍攝許可通知。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793155\_1\_20250226015101.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+澳門負責審批拍攝許可申請的文化局表示，已向在市區拍攝期間發生交通事故的拍攝單位，發出中止項目的拍攝許可通知，即有關單位不可以在澳門進行這個項目的拍攝活動，同時會要求拍攝單位提交報告解釋，不排除續後會廢止有關拍攝許可通知。
+<br>
+<br/>
+文化局在晚上發出的新聞稿指，在審批發生事故項目的時候，拍攝單位代表與各職能部門舉行的跨部門會議上，有關部門已明確表示，在意外地點進行車輛飄移拍攝是不具備條件，而拍攝單位代表亦知悉審批部門的意見。
+<br/>
+<br/>
+交通事故發生後，文化局邀請了包括警方、交通、市政署及勞工部門進行跨部門會議，並得出綜合意見，認為這項拍攝項目涉嫌對公共秩序、安全或安寧明顯造成滋擾。故文化局隨即發出中止這個項目的拍攝許可通知。至於事故過程造成的公共設施損壞，各職能部門會後續跟進。
+<br/>
+<br/>
+澳門在周一下午，有內地電視劇組在三巴仔橫街拍攝汽車飄移期間，發生交通意外做成12名群眾演員受傷。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htmWed, 26 Feb 2025 01:47:00 +0800伊朗外長：不會在壓力或制裁下進行核問題談判https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm<img alt="阿拉格齊（右）與到訪的拉夫羅夫會談後共同會見記者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793156\_1\_20250226015543.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+伊朗外長阿拉格齊強調，伊朗不會在「壓力、威脅或制裁」下進行談判。
+<br>
+<br/>
+阿拉格齊與到訪的俄羅斯外長拉夫羅夫舉行會談。阿拉格齊在會談後舉行的聯合記者會上說，伊朗正就伊朗核計劃與俄羅斯進行「非常密切的磋商」。伊朗不會在「壓力、威脅或制裁」下談判。只要美國繼續對伊朗實施「極限施壓」政策，伊朗與美國就不可能就核問題進行直接談判。
+<br/>
+<br/>
+阿拉格齊還說，雙方在會談中重申反對將巴勒斯坦人驅離加沙地帶的「統一立場」。美國總統特朗普的相關提議「不可接受」。
+<br/>
+<br/>
+拉夫羅夫表示，雙方進行了「詳細、有益和有建設性」的會談。關於伊朗核問題，俄羅斯始終認為外交是解決危機的最佳選擇。
+<br/>
+<br/>
+特朗普本月4日簽署總統備忘錄，決定重啟對伊朗的「極限施壓」措施，包括尋求將伊朗石油出口規模打壓至「零」的措施，以阻止伊朗獲得核武器。
+<br/>
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htmWed, 26 Feb 2025 01:55:00 +0800克里姆林宮：解決烏克蘭問題後俄美才可能發展經貿合作https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm<img alt="克宮發言人佩斯科夫說，只有在烏克蘭問題解決之後，俄羅斯和美國才可能開展經貿投資合作。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793157\_1\_20250226021357.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+俄羅斯克里姆林宮發言人佩斯科夫表示，俄方注意到美方在烏克蘭問題上持「平衡得多」的立場，但只有在烏克蘭問題解決之後，俄羅斯和美國才可能開展經貿投資合作。
+<br>
+<br/>
+佩斯科夫表示，美方立場有助推動烏克蘭問題的解決，俄方對此表示歡迎。但歐盟方面「尚未釋放出平衡信號」。
+<br/>
+<br/>
+佩斯科夫說，俄美元首已表現出合作和恢復對話的政治意願，下一步議程是解決烏克蘭問題，然後才是考慮有可能的經貿和投資合作項目。他表示，美國需要稀土金屬，俄羅斯有很多這種資源，並且有自己的戰略資源開發計劃，這方面有足夠廣闊的合作前景。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htmWed, 26 Feb 2025 02:13:00 +0800警方旺角搗破懷疑毒窟拘捕8名男子https://news.rthk.hk/rthk/ch/component/k2/1793158-20250226.htm<img alt="警方在行動中拘捕8名男子。（警方提供）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793158\_1\_20250226022026.jpg&amp;q=30" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+警方突擊搜查旺角山東街一個單位，搗破懷疑毒窟，檢獲總市值3400多元毒品，拘捕8名男子。
+<br>
+<br/>
+旺角警區特別職務隊人員昨天採取行動，檢獲的毒品包括懷疑可卡因、懷疑海洛英、懷疑「冰」毒及兩粒懷疑「藍精靈」。一名45歲本地男子涉嫌「經營毒窟」及「販運危險藥物」被捕；另外7名本地男子，年齡介乎50至68歲，涉嫌「服食或注射危險藥物」被捕。
+<br/>
+<br/>
+所有被捕人現正被扣留調查。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793158-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793158-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793158-20250226.htmWed, 26 Feb 2025 02:20:00 +0800馬來西亞交通部長：已重啟MH370客機搜尋工作https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm<img alt="馬來西亞交通部長陸兆福周二表示，已重啟搜尋工作，大馬政府與海洋勘探公司「海洋無限」的合約細節仍在敲定中。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793159\_1\_20250226024734.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+馬航MH370客機失蹤11年後，重新展開搜尋工作。
+<br>
+<br/>
+馬來西亞交通部長陸兆福周二表示，已重啟對這架失蹤客機的搜尋工作。馬來西亞與海洋勘探公司「海洋無限」的合約細節仍在敲定中，但歡迎該公司積極調派船隻展開搜尋行動，關於搜尋將持續多長時間等細節尚未商定。
+<br/>
+<br/>
+這架波音777客機載有239人，2014年3月8日在從吉隆坡飛往北京途中從雷達消失。儘管進行了航空史上最大規模的搜尋行動，但仍未找到。
+<br/>
+<br/>
+陸兆福曾於去年12月表示，「海洋無限」將搜尋印度洋南部一個15000平方公里的新區域，將遵循公司之前「無成果無報酬」原則，即只有在找到飛機的情況下政府才會支付費用。合約為期18個月，如果找到飛機，馬來西亞將支付7000萬美元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htmWed, 26 Feb 2025 02:47:00 +0800歐盟據報已向烏克蘭政府遞交礦產合作協議https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm<img alt="歐盟委員會主席馮德萊恩周一訪問基輔，與烏克蘭外長瑟比加會面。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793160\_1\_20250226032654.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+烏克蘭傳媒報道，歐盟已向烏克蘭政府遞交一份礦產合作協議。
+<br>
+<br/>
+報道說，歐盟委員會分管產業戰略的執行副主席塞茹爾內和歐盟委員會主席馮德萊恩周一訪問烏克蘭首都基輔，並向烏克蘭政府遞交礦產合作「互惠」協議。塞茹爾內對烏克蘭傳媒表示，歐洲需要的30種關鍵礦產中，烏克蘭可提供21種，但歐洲永遠不會要求烏方達成任何不具有互惠性質的礦產協議。
+<br/>
+<br/>
+烏克蘭總理什梅加爾當天在烏克蘭政府與歐盟委員會舉行的聯席會議上說，烏克蘭重建預計需要5000億歐元，這為歐洲企業提供巨大投資空間，烏克蘭將向歐洲提供切實的「戰略優勢」資源，包括鋰、鈦、鈾、天然氣等。
+<br/>
+<br/>
+烏克蘭與美國正進行礦產協議談判。美國總統特朗普周一稱，美烏礦產協議已「非常接近完成」，內容將涉及「稀土和許多其他東西」。烏克蘭總統澤連斯基可能「本周或下周」赴美簽署協議
+<br/>
+<br/>
+世界銀行、聯合國、歐盟委員會和烏克蘭政府的研究發現，要重建烏克蘭經濟，估計成本上升至5240億美元，幾乎是烏克蘭去年預期經濟總值的三倍，相比一年前的估計，上升7%。
+<br/>
+<br/>
+根據這份最新研究，房屋、交通、能源、商業和教育是受影響最嚴重的行業，其中能源基礎設施的損失增加了7成。
+<br/>
+<br/>
+烏克蘭政府在捐助方的支持下，已撥出73.7 億美元應付今年的優先需求，但仍有近100 億美元的資金缺口。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htmWed, 26 Feb 2025 03:26:00 +0800敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+敘利亞全國對話會議閉幕，發表聲明強調維護敘利亞統一和領土主權，呼籲加快組建臨時立法委員會和發布臨時憲法宣言。
+<br>
+<br/>
+舉行社會各界廣泛參與的全國對話會議是敘利亞過渡進程的重要一步。
+<br/>
+<br/>
+聲明說，來自社會各階層的與會者達成18項成果，強調維護統一和領土主權，反對一切形式的分裂，拒絕放棄國家的任何一部分。應建立一支職業化的國家軍隊，官方機構之外的所有武裝組織都應被視為非法團體。
+<br/>
+<br/>
+聲明呼籲加快組建臨時立法委員會，加快發布符合過渡階段要求的臨時憲法宣言，填補憲法真空；組建憲法委員會，起草一份永久憲法草案，實現權力平衡，建立法治國家。聲明還呼籲各族人民和平共處，反對一切形式的暴力、煽動和報復，促進社會穩定和國內和平。
+<br/>
+<br/>
+另外，聲明譴責以色列入侵敘利亞領土，公然侵犯敘利亞國家主權，要求以色列立即無條件撤軍。
+<br/>
+<br/>
+由敘利亞庫爾德武裝主導的「敘利亞民主力量」沒有收到參與會議邀請，他們目前仍控制東部和北部大片地區。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htmWed, 26 Feb 2025 03:45:00 +0800波蘭和拉脫維亞：烏克蘭有權決定與誰合作開發礦產https://news.rthk.hk/rthk/ch/component/k2/1793163-20250226.htm<img alt="波蘭總統杜達（右）與到訪的拉脫維亞總統林克維奇斯在華沙舉行會談。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793163\_1\_20250226041146.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+波蘭總統杜達與到訪的拉脫維亞總統林克維奇斯在華沙舉行會談。雙方在會談後表示，烏克蘭有權決定與誰合作開發礦產資源。
+<br>
+<br/>
+杜達說，烏克蘭需要自行決定，問題在於誰能為烏克蘭提供更好的安全保障。他表示，重要的是實現持久和平，確保烏克蘭主權獨立，希望美國主導的談判能夠解決俄烏衝突，建立持久和平，確保烏克蘭及包括北約東翼國家在內的鄰國的安全。
+<br/>
+<br/>
+林克維奇斯表示，競爭是健康的，烏克蘭將自行決定與誰達成何種協議。拉脫維亞計劃將國防支出提高到佔國內生產總值的4%，並在2028年達到5%的目標。他呼籲北約國家考慮將各自國防支出提高到佔GDP的3.5%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793163-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793163-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793163-20250226.htmWed, 26 Feb 2025 04:11:00 +0800英法領袖：歡迎特朗普努力實現烏克蘭持久和平https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htm<img alt="唐寧街首相府說，英法領袖歡迎特朗普正在為實現烏克蘭的持久和平而努力。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793164\_1\_20250226041908.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+英國首相施紀賢與法國總統馬克龍通電話。唐寧街首相府說，兩人歡迎美國總統特朗普在努力實現烏克蘭持久和平方面發揮的領導作用。
+<br>
+<br/>
+施紀賢將於周四出訪美國，與特朗普會面。他表示，回國後將於周末主持會議，與其他國家領袖討論烏克蘭問題。
+<br/>
+<br/>
+他對記者表示，將接待一些國家，繼續討論作為盟友應該如何攜手前進。
+<br/>
+<br/>
+外電分析，施紀賢此行將在馬克龍周一訪美的基礎上進行，嘗試說服特朗普為烏克蘭提供安全保障，作為與俄羅斯達成停火協議的一部分。馬克龍當時警告，和平不能意味著烏克蘭「投降」。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htmWed, 26 Feb 2025 04:19:00 +0800烏克蘭據報與美國達成礦產協議　最快或周五簽署https://news.rthk.hk/rthk/ch/component/k2/1793165-20250226.htm<img alt="烏克蘭總統澤連斯基日前在基輔與到訪的美國政府俄烏問題特使凱洛格會面。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793165\_1\_20250226051309.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+烏克蘭一名高級官員向法新社表示，烏克蘭已與美國就礦產協議的條款達成共識，總統澤連斯基最早可能在周五赴美簽署。
+<br>
+<br/>
+報道引述這名沒有透露姓名的官員說，美國刪除了協議草案中不利基輔的條款，包括要求基輔提供價值 「5000億美元 」礦產資源的內容。政府官員正在研究協議細節，考慮周五訪問華盛頓，簽署協議。
+<br/>
+<br/>
+這名消息人士說，根據協議，美國將與烏克蘭共同開發烏克蘭的礦產資源，收入將撥入一個新設立、烏美共同擁有的基金。
+<br/>
+<br/>
+烏克蘭已要求美國將安全保障作為任何協議的一部分。消息人士稱，協議提及「安全」問題，但沒有明確規定美國的角色。協議中有一項一般條款，美國將對一個穩定、繁榮的主權烏克蘭進行投資，致力於實現持久和平，並支持為保障安全所做的努力。
+<br/>
+<br/>
+美國總統特朗普要求烏克蘭開放其稀土礦產資源，以補償美國提供的戰時援助。特朗普日前表示，美烏礦產協議已「非常接近完成」，內容將涉及「稀土和好多其他東西」。烏克蘭總統澤連斯基可能「本周或下周」赴美簽署協議。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793165-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793165-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793165-20250226.htmWed, 26 Feb 2025 04:55:00 +0800哈馬斯稱停戰、撤軍及重建是停火談判紅線　不可妥協https://news.rthk.hk/rthk/ch/component/k2/1793168-20250226.htm<img alt="哈馬斯稱，由於以色列未能按照協議釋放第八批被扣押的巴勒斯坦人，停火協議第一階段的執行受到阻礙。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793168\_1\_20250226053920.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+巴勒斯坦武裝組織哈馬斯說，以色列停止對加沙地帶的軍事行動，以色列從加沙地帶完全撤軍，落實對加沙重建和人道援助的具體安排，是哈馬斯停火談判的紅線，不可妥協。
+<br>
+<br/>
+發言人卡努瓦表示，無論是進入協議第二階段、延長第一階段或合併不同階段，所有談判必須符合哈馬斯及巴勒斯坦武裝組織之前提出的這些要求。
+<br/>
+<br/>
+卡努瓦又說，由於以色列未能按照協議釋放第八批被扣押的巴勒斯坦人，停火協議第一階段的執行受到阻礙，而哈馬斯持續與埃及、卡塔爾等調解方聯繫。他強調，任何新的提案都可以討論，但必須確保以色列履行所有已達成的協議條款。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793168-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793168-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793168-20250226.htmWed, 26 Feb 2025 05:39:00 +0800歐洲3大指數個別發展https://news.rthk.hk/rthk/ch/component/k2/1793166-20250226.htm<img alt="英國富時100指數收報8668點，升9點，升幅0.11%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793166\_1\_20250226052504.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+歐洲3大指數個別發展。銀行和醫療保健股上升，但科技股下跌。
+<br>
+<br/>
+英國富時100指數收報8668點，升9點，升幅0.11%。
+<br/>
+<br/>
+法國CAC指數收報8051點，跌39點，跌幅0.49%。
+<br/>
+<br/>
+德國DAX指數收報22410點，跌15點，跌幅0.07%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793166-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793166-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793166-20250226.htmWed, 26 Feb 2025 05:39:00 +0800油價低收逾2%　美國及德國經濟數據弱增加對需求放緩憂慮https://news.rthk.hk/rthk/ch/component/k2/1793167-20250226.htm<img alt="油價跌逾2%，美國和德國的經濟數據疲弱，加劇市場對能源需求放緩的擔憂。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793167\_1\_20250226053211.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+原油期貨價格跌逾2%。因美國和德國的經濟數據疲弱，加劇市場對能源需求放緩的擔憂。另外，部分國家表示石油產量有望增加，都不利油價表現。
+<br>
+<br/>
+倫敦布蘭特期油收報每桶73.02美元，下跌1.76美元，跌幅2.35%。
+<br/>
+<br/>
+紐約期油收報每桶68.93美元，下跌1.77美元，跌幅為2.5%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793167-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793167-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793167-20250226.htmWed, 26 Feb 2025 05:40:00 +0800金價跌逾1%　投資者於金價創新高後先行獲利https://news.rthk.hk/rthk/ch/component/k2/1793169-20250226.htm<img alt="現貨金較早時報每盎司2915.93美元，跌約1.2%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793169\_1\_20250226054506.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+金價跌逾1%。投資者趁金價創新高後先行獲利。不過市場繼續擔心美國總統特朗普的關稅計劃，帶來不穩定因素。
+<br>
+<br/>
+現貨金較早時報每盎司2915.93美元，跌約1.2%。
+<br/>
+<br/>
+紐約期金收報每盎司2918.8美元，下跌1.5%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793169-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793169-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793169-20250226.htmWed, 26 Feb 2025 05:47:00 +0800財政預算案2025 | 《財政預算案》今天上午公布https://news.rthk.hk/rthk/ch/component/k2/1793170-20250226.htm<img alt="陳茂波上午11時在立法會宣讀新一份預算案，今年預算案封面是湖水藍色。（財政司司長網誌）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793170\_1\_20250226054614.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波今日發表2025至26年度《財政預算案》，他將於上午11時在立法會宣讀演辭；下午3時在政府總部舉行記者會；晚上7時半出席由電視台聯合製作的《財政預算案論壇》。
+<br>
+<br/>
+《財政預算案》演辭及其他有關資料會在《財政預算案》網頁www.budget.gov.hk同步發放，市民可在網上瀏覽。市民並可透過網頁收看財政司司長於立法會發言、與《財政預算案》相關的記者會、電視論壇及電台節目的現場直播。
+<br/>
+<br/>
+《財政預算案》演辭文本和摘要單張會在《財政預算案》發布後，在民政事務總署轄下20個民政諮詢中心派發。
+<br/>
+<br/>
+陳茂波星期四上午8時至9時半出席電台聯播節目《財政司司長熱線》。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793170-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793170-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793170-20250226.htmWed, 26 Feb 2025 06:09:00 +0800道指升159點　納指跌1.35%　Tesla急挫逾8%https://news.rthk.hk/rthk/ch/component/k2/1793171-20250226.htm<img alt="納指及標普500指數連跌4個交易日，並觸及1個月新低。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793171\_1\_20250226060417.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美股個別發展，道指上升，納指及標普500指數連跌4個交易日，並觸及1個月新低。世界大型企業研究會數據顯示，美國2月消費者信心創3年半最大跌幅，反映消費情緒惡化，加上擔心特朗普政府的關稅措施影響經濟增長，不利大市氣氛。
+<br>
+<br/>
+納斯達克指數一度跌逾2%，失守19000點，最終收市報19026點，跌260點，跌幅1.35%。標準普爾500指數收報5955點，跌28點，跌幅0.47%。不過道瓊斯指數上升，收報43621點，升159點，升幅0.37%。
+<br/>
+<br/>
+大型科技普遍向下，Tesla一度重挫約10%，收市跌逾8%，市值是去年11月以來首次跌穿1萬億美元。有數據顯示，公司1月在歐洲的銷量急挫45%。Nvidia跌近3%，據報美國或進一步限制其出口到中國的晶片數量及類型。
+<br/>
+<br/>
+比特幣跌約6%，加密貨幣類股份下挫。Zoom業績差過預期，股價低收近9%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793171-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793171-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793171-20250226.htmWed, 26 Feb 2025 06:10:00 +0800蘇丹軍用飛機墜毀　多名軍官及平民喪生https://news.rthk.hk/rthk/ch/component/k2/1793175-20250226.htm<img alt="蘇丹軍方與準軍事組織「快速支援部隊」持續作戰，圖為喀土穆上空升起濃煙。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793175\_1\_20250226063552.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+蘇丹軍方說，一架軍用飛機在首都喀土穆郊區墜毀，多名軍官和平民死亡，親民主活動人士表示，至少10人喪生。
+<br>
+<br/>
+軍方聲明說，這架軍機當地星期二從一個空軍基地起飛時，在西部恩圖曼市墜毀，造成軍方人員和平民死傷。傷者已經送院，消防已控制火勢。
+<br/>
+<br/>
+軍方自2023年起與準軍事組織「快速支援部隊」作戰。一名軍方消息人士早前對法新社表示，墜機原因是技術故障。
+<br/>
+<br/>
+出事的是一架安東諾夫型軍用飛機。新華社報道，當時飛機正在執行軍事任務，機上有4名機組人員及多名高級軍官。
+<br/>
+<br/>
+目擊者告訴新華社記者，這架軍機在低空飛行時突然墜落，然後尾部起火。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793175-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793175-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793175-20250226.htmWed, 26 Feb 2025 06:32:00 +0800美元及美國國債息率回落https://news.rthk.hk/rthk/ch/component/k2/1793172-20250226.htm<img alt="美元下跌，因美國消費者信心指數疲軟，加上美國國債收益率回落。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793172\_1\_20250226061959.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美元下跌，受到美國消費者信心指數疲軟，加上美國國債收益率回落影響。美元指數較早時報106.26，跌近0.5%。
+<br>
+<br/>
+歐元兌美元上升0.37%，至1.0505美元。美元兌日圓下跌0.44%， 至149.05日圓，兌瑞郎下跌0.5%，至0.892瑞郎。英鎊兌美元上升0.3%，至1.2662美元。
+<br/>
+<br/>
+美國10年期國債收益率一度跌至兩個半月最低的4.283，尾市下跌8.9個基點，至4.304厘。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793172-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793172-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793172-20250226.htmWed, 26 Feb 2025 06:36:00 +0800英超聯賽　車路士4:0修咸頓　水晶宮4:1阿士東維拉https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm<img alt="車路士主場4:0大勝修咸頓。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793178\_1\_20250226071547.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+英格蘭超級足球聯賽，車路士主場4:0大勝修咸頓。
+<br>
+<br/>
+法國前鋒尼干古24分鐘打破僵局，並12分鐘後，轉身助攻，巧妙傳給柏度尼圖射入。半場結束前，後衛利維高維爾破網，將比數擴大到3:0。
+<br/>
+<br/>
+牢牢控制戰局的車路士，78分鐘再由古古列拿錦上添花，取得大勝。
+<br/>
+<br/>
+另一場，水晶宮主場4:1擊敗阿士東維拉。
+<br/>
+<br/>
+伊斯美拿沙亞上半場攻入唯一入球。維拉換邊後早段由摩根羅渣士扳平，但其後欠缺射門，防守亦遇到困難。水晶宮先後憑桑馬迪達、伊斯美拿沙亞和尼基迪亞的入球奠定勝局。
+<br/>
+<br/>
+在積分榜，車路士27戰46分排第4，維拉28戰42分排第10，領先踢少一場、暫列12位的水晶宮6分，修咸頓只得9分繼續排包尾。
+<br/>
+<br/>
+另外兩場比賽，白禮頓主場2:1擊敗般尼茅夫，富咸作客2:1擊敗狼隊。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htmWed, 26 Feb 2025 07:13:00 +0800港股ADR與本港昨日收市價相比個別發展　滙控升逾3%https://news.rthk.hk/rthk/ch/component/k2/1793176-20250226.htm<img alt="港股ADR個別發展，滙控較本港昨日收市價升逾3%，折合報89.8港元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793176\_1\_20250226065602.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股美國預託證券(ADR)個別發展。
+<br>
+<br/>
+滙控ADR較本港昨日收市價升逾3%，折合報89.8港元。
+<br/>
+<br/>
+美團、友邦ADR靠穩。工行、阿里巴巴ADR偏軟。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793176-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793176-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793176-20250226.htmWed, 26 Feb 2025 07:17:00 +0800印尼馬魯古海發生6.1級地震https://news.rthk.hk/rthk/ch/component/k2/1793181-20250226.htm<img alt="印尼馬魯古海發生6.1級地震" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793181\_1\_20250226075820.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中國地震台網正式測定，印尼馬魯古海今早6時55分發生6.1級地震，震源深度20公里，暫時未有傷亡或損毀報告。
+<br>
+<br/>
+美國地質勘查局表探測到，震源深度是10公里，震央位於北蘇拉威西省附近海域，並預計不會引發海嘯。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793181-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793181-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793181-20250226.htmWed, 26 Feb 2025 07:50:00 +0800北角電氣道近哥頓道鹹水管須緊急維修　北行方向慢線暫時封閉https://news.rthk.hk/rthk/ch/component/k2/1793182-20250226.htm<img alt="水務署就事故對市民構成不便表示抱歉。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793182\_1\_20250226080024.jpg&amp;q=50" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+水務署表示，今早接獲報告指北角電氣道近哥頓道有水管滲漏，經了解後確認涉事水管是一條直徑200毫米鹹水供水管，已經暫停相關喉管的供水，並進行緊急維修，經供水調度後，鄰近大廈的沖廁水供應未有受影響。
+<br>
+<br/>
+為配合緊急維修工作，電器道近哥頓道北行方向慢線須暫時封閉。署方就事故對市民構成不便表示抱歉。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793182-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793182-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793182-20250226.htmWed, 26 Feb 2025 07:56:00 +0800百威亞太去年盈利跌近15%https://news.rthk.hk/rthk/ch/component/k2/1793179-20250226.htm<img alt="百威亞太去年盈利跌近15%至7.26億美元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793179\_1\_20250226073938.jpg&amp;q=60" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+百威亞太去年盈利跌近15%至7.26億美元。末期息增至每股5.66美仙。
+<br>
+<br/>
+期內，收入62.5億美元，按年跌近9%。因內地高基數及不利渠道組合抵銷部分由亞太區東部收入管理措施和亞洲各國有利的產品組合，所帶動的利好因素。
+<br/>
+<br/>
+去年啤酒總銷量跌近9%，受內地行業表現放緩影響，但被南韓及印度強勁表現抵銷部分不利影響。
+<br/>
+<br/>
+另外，公司宣布委任全球首席供應鏈運營官程衍俊，接替楊克擔任首席執行官及聯席主席，今年4月1日起生效。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793179-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793179-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793179-20250226.htmWed, 26 Feb 2025 08:10:00 +0800ASMPT去年少賺約52%　末期連特別息派0.32元https://news.rthk.hk/rthk/ch/component/k2/1793183-20250226.htm<img alt="ASMPT去年盈利3.45億元，按年跌近52%。（公司網頁截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793183\_1\_20250226080130.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+ASMPT去年盈利3.45億元，按年跌近52%。派末期息每股0.07元，按年跌73%，派特別息0.25元，按年減少52%。
+<br>
+<br/>
+期內，收入逾132億元，按年跌10%。
+<br/>
+<br/>
+公司料首季度收人介乎3.7億美元至4.3億美元，以其中位數計按年持平，按季則跌9%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793183-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793183-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793183-20250226.htmWed, 26 Feb 2025 08:11:00 +0800日股初段跌近0.5%https://news.rthk.hk/rthk/ch/component/k2/1793184-20250226.htm<img alt="日經指數較早時報38098點，跌139點，跌幅0.37%。（日本交易所JPX圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793184\_1\_20250226080400.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+東京股市初段偏軟。
+<br>
+<br/>
+日經指數較早時報38098點，跌139點，跌幅0.37%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793184-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793184-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793184-20250226.htmWed, 26 Feb 2025 08:11:00 +0800韓股初段變動不大https://news.rthk.hk/rthk/ch/component/k2/1793185-20250226.htm<img alt="首爾綜合指數較早時報2630點，升不足1點。（KRX圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793185\_1\_20250226080600.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+南韓股市初段變動不大。
+<br>
+<br/>
+首爾綜合指數較早時報2630點，升不足1點。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793185-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793185-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793185-20250226.htmWed, 26 Feb 2025 08:11:00 +0800洪都拉斯總統直升機因惡劣天氣緊急降落　機上人員無大礙https://news.rthk.hk/rthk/ch/component/k2/1793186-20250226.htm<img alt="直升機在北部一處地方緊急降落。（法新社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793186\_1\_20250226085331.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+洪都拉斯總統卡斯特羅乘坐的直升機，因惡劣天氣緊急降落，機上人員無大礙。
+<br>
+<br/>
+洪都拉斯總統府當地星期二表示，因為遭遇惡劣天氣，能見度降低，卡斯特羅乘坐的直升機在北部地方緊急降落。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793186-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793186-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793186-20250226.htmWed, 26 Feb 2025 08:50:00 +0800台股初段窄幅上落https://news.rthk.hk/rthk/ch/component/k2/1793188-20250226.htm<img alt="台灣加權指數較早時報23242點，跌43點，跌幅0.19%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793188\_1\_20250226090422.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+台灣股市初段窄幅上落。
+<br>
+<br/>
+加權指數較早時報23242點，跌43點，跌幅0.19%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793188-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793188-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793188-20250226.htmWed, 26 Feb 2025 09:06:00 +0800人民幣兌美元中間價微跌https://news.rthk.hk/rthk/ch/component/k2/1793190-20250226.htm<img alt="人民幣中間價報7.1732兌1美元，較上日中間價下調6點子。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793190\_1\_20250226091720.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+人民幣中間價報7.1732兌1美元，是1月20日以來最低，較上日中間價下調6點子。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793190-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793190-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793190-20250226.htmWed, 26 Feb 2025 09:18:00 +0800《環看天下》：德國大選由聯盟黨勝出　柏林未來外交取態惹關注https://news.rthk.hk/rthk/ch/component/k2/1793191-20250226.htm<img alt="由默茨領導的德國聯盟黨贏得今屆聯邦議院選舉。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793191\_1\_20250226092143.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+德國大選塵埃落定，由屬於保守派的聯盟黨勝出。領導聯盟黨的默茨，有望成為下任總理。另一方面，極右翼政黨另類選擇黨歷史性躍升成為德國議會第二大黨。
+<br>
+<br/>
+默茨在勝選後表明，希望推動歐洲逐步擺脫對美國的依賴。外界關注，下屆柏林政府的外交政策取向。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793191-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793191-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793191-20250226.htmWed, 26 Feb 2025 09:21:00 +0800恒指高開逾200點https://news.rthk.hk/rthk/ch/component/k2/1793192-20250226.htm<img alt="恒指競價時段報23238點，升204點，升幅0.89%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793192\_1\_20250226092237.jpg&amp;q=20" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股高開，恒指競價時段報23238點，升204點，升幅0.89%。
+<br>
+<br/>
+科技指數報5763點，升1.14%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793192-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793192-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793192-20250226.htmWed, 26 Feb 2025 09:23:00 +0800美國銀行業監管機構不再披露問題銀行持有多少資產https://news.rthk.hk/rthk/ch/component/k2/1793189-20250226.htm<img alt="美國聯邦存款保險公司稱上季美國銀行業利潤增長2.3%，達668億美元。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793189\_1\_20250226091352.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國聯邦存款保險公司表示，去年第4季美國銀行業利潤增長2.3%，達到668億美元，受惠最近短期利率下調帶動利息開支跌幅大過利息收入跌幅，淨利息收入增加。
+<br>
+<br/>
+聯邦存款保險公司在最新季報內又提到，正在修改「問題銀行」清單，只公布有多少家銀行被監管機構降級，不再披露有關銀行持有多少資產。聲明表示，如果公眾看到名單上總資產大幅增加，並試圖確定哪家大銀行被監管機構視為有問題，將可能觸發銀行擠提。監管機構亦可能不願意降低大型銀行評級，避免問題銀行總資產飆升可能引發市場震盪。
+<br/>
+<br/>
+聯邦存款保險公司上季報告66家問題銀行，較第3季少兩家。銀行業整體數據健康，去年全年利潤增長5.6%，達到2682億美元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793189-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793189-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793189-20250226.htmWed, 26 Feb 2025 09:30:00 +0800黃家榮稱迪士尼利潤用於擴建新景點帶來經濟效益大於派發股息https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm<img alt="黃家榮認為，業績反映除了本地人，亦吸引到旅客入場，並願意作高消費。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793193\_1\_20250226104558.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+香港迪士尼上年度錄得破紀錄淨利潤8.38億元，入場人次770萬創新高。職業訓練局酒店及旅遊學院課程總監黃家榮形容成績亮麗，今次是香港迪士尼完全不受疫情影響的首個業績，可見除了維持到本地人入場，亦吸引到旅客入場，願意作高消費。
+<br>
+<br/>
+黃家榮在本台節目《千禧年代》說，香港迪士尼樂園起了示範作用，即能做好服務並具創意，香港不乏願意付錢的旅客，為旅遊業打下強心針。
+<br/>
+<br/>
+被問到樂園計劃擴建Pixar主題娛樂體驗及Marvel主題區，能否增升競爭力維持良好勢頭，黃家榮說，香港迪士尼今次業績未反映去年12月起實施深圳赴港旅遊一簽多行措施，能保持主題樂園新鮮度會具效益，他認為，香港迪士尼的利潤用於擴建新景點，所帶來的經濟效益，會大於向政府派發股息。
+<br/>
+<br/>
+立法會經濟事務委員會委員林筱魯在同一節目說，香港迪士尼錄得高利潤值得鼓掌，可見旅客結構正在優化中，不再只靠本地人，內地與東亞南客源上升；酒店入住率佔70%，雖然不算差，但未回復至高峰。
+<br/>
+<br/>
+林筱魯又說，主題樂園要維持競爭力最重要是不斷轉換更新，如果能吸引旅客進行擴建是值得考慮，否則會很長時間都未能收回成本，希望一簽多行措施，能帶動更人旅客。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htmWed, 26 Feb 2025 09:31:00 +0800內地股市初段個別發展https://news.rthk.hk/rthk/ch/component/k2/1793196-20250226.htm<img alt="上證指數較早時報3358點，升12點，升幅0.39%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793196\_1\_20250226094105.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+滬深股市初段個別發展。
+<br>
+<br/>
+上證指數較早時報3358點，升12點，升幅0.39%。
+<br/>
+<br/>
+深證成份指數報10848點，跌6點，跌幅0.06%。
+<br/>
+<br/>
+創業板指數報2237點，跌3點，跌幅0.14%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793196-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793196-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793196-20250226.htmWed, 26 Feb 2025 09:41:00 +0800人行進行5487億元人民幣逆回購操作https://news.rthk.hk/rthk/ch/component/k2/1793194-20250226.htm<img alt="人行進行5487億元人民幣7日期逆回購操作，利率維持1.5厘不變。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793194\_1\_20250226093554.jpg&amp;q=30" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+人民銀行公開市場進行5487億元人民幣7日期逆回購操作，利率維持1.5厘不變，計及單日到期量，淨投放989億元。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793194-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793194-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793194-20250226.htmWed, 26 Feb 2025 09:41:00 +0800美國客機芝加哥降落時險與進入跑道商務機相撞https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm<img alt="涉事西南航空客機為波音737-800型客機。圖為同型號的客機。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793197\_1\_20250226095224.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國聯邦航空管理局表示，美國西南航空一架客機在芝加哥中途國際機場降落時，因一架商務客機未經授權進入跑道而被迫暫停降落，兩機差點相撞。
+<br>
+<br/>
+事發在當地星期二上午約8時50分，西南航空這架從內布拉斯加州奧馬哈起飛的波音737-800型客機，在飛抵芝加哥後被迫暫停降落，客機飛過跑道上一架私人商務飛機，進行復飛後安全降落。
+<br/>
+<br/>
+西南航空表示，機組人員遵照安全程序，飛機安全著陸。根據公司網站介紹，涉事客機可搭載175名乘客。美國聯邦航空管理局和國家運輸安全委員會正調查事件。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htmWed, 26 Feb 2025 10:03:00 +0800恒指升幅擴大至500點以上https://news.rthk.hk/rthk/ch/component/k2/1793198-20250226.htm<img alt="恒指較早時報23573點，升539點，升幅2.34%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793198\_1\_20250226100329.jpg&amp;q=1" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股開市後升幅擴大至500點，恒指較早時報23573點，升539點，升幅2.34%。
+<br>
+<br/>
+科技指數升逾3%，報5880點。國企指數、金融分類指數升2%以上。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793198-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793198-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793198-20250226.htmWed, 26 Feb 2025 10:04:00 +0800泰國一架巴士行駛途中翻側　17死逾40傷https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm<img alt="泰國一架巴士行駛途中翻側　17死逾40傷" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793199\_2\_20250226100556.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+泰國巴真府發生嚴重車禍，一輛巴士在行駛途中翻側，造成17人死亡，40多人受傷。
+<br>
+<br/>
+事發在凌晨，傷者已被送往醫院接受治療。事故原因正在調查。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htmWed, 26 Feb 2025 10:05:00 +0800盧寵茂稱年輕吸煙者七成吸加味煙　如不控制將來吸煙率或會反彈https://news.rthk.hk/rthk/ch/component/k2/1793200-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793200\_1\_20250226105136.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+醫務衞生局局長盧寵茂在本台電視節目《盤點政策》表示，香港在控煙方面相當成功，但不可以停止。他說，一些數據令人很擔心，包括煙草商製造的新產品，例如加味煙、電子煙等另類吸煙產品 ，吸引很多年輕人使用，數據顯示20至29歲的吸煙人士當中，七成吸加味煙，如果不去控制，將來的吸煙率會反彈。他說，這絕對是煙草商用一種糖衣毒藥的概念，煙味很難聞和刺喉，卻加了薄荷味、水果味或各種味道，企圖遮蓋了有害成分。
+<br>
+<br/>
+他表示，有統計顯示香港每年由吸煙引致的經濟損失，包括醫療成本和勞動力方面，損失超過82億元。每年有4600人死於吸煙引起的疾病，可以想像代價有多大，全世界都有類似的數據，因此要繼續推進控煙策略。
+<br/>
+<br/>
+至於 「1+」藥械審批機制，盧寵茂說本屆政府推出很大的改革，就是藥物和醫療器械的審批，扭轉過往很被動的方法，由第二層審批推進至第一層審批，即不需要經美國或英國審批，而是香港自己有足夠能力，根據臨床研究數據，藥廠要做臨床研究來測試藥物，證明其質量、安全和效力，有專家去評審，然後審批，這樣可加快藥物來港的程序。
+<br/>
+<br/>
+他又說，這個過程要穩妥地循序漸進，由2023年11月開始，最初用於緊急和危重病藥物，現在已經有9種藥物通過「1+」機制審批，他舉例，第一種用「1+」機制審批的藥物，是用於治療較難醫治和擴散了的大腸癌，以往有病人接受化療後沒有效果，這種藥便能給予他們希望，透過「1+」機制加快藥物審批，更快可以使用。而更重要的是通過「1+」註冊後，醫管局審視了數據，發現這種藥真的有效，已將藥物列入藥物名冊。他認為對患有不治之症的病人來說是好消息，不僅病人受惠，對推動科研發展、香港的論文發布及香港醫學界的地位均有很大幫助。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793200-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793200-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793200-20250226.htmWed, 26 Feb 2025 10:26:00 +0800日股半日跌逾1%https://news.rthk.hk/rthk/ch/component/k2/1793201-20250226.htm<img alt="日經指數半日收市跌423點，報37814點，跌幅1.11%。（交易所圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793201\_1\_20250226104205.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+東京股市下跌。日經指數半日收市跌423點，報37814點，跌幅1.11%。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793201-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793201-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793201-20250226.htmWed, 26 Feb 2025 10:42:00 +0800國台辦批評日本妄圖製造「一中一台」　促慎重處理涉台問題https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm<img alt="朱鳳蓮強調，日本應恪守一個中國原則和中日四個政治文件精神，慎重處理涉台問題。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793203\_1\_20250226105924.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+在北京，國台辦回應日本法務省據報5月起允許在日台灣民眾將原籍地登記的「中國」改為「台灣」，發言人朱鳳蓮說，世界上只有一個中國，台灣是中國的一部分。日方的有關舉動妄圖製造「兩個中國」、「一中一台」，嚴重違背一個中國原則，嚴重干涉中國內政，中方對此堅決反對。
+<br>
+<br/>
+朱鳳蓮強調，日本作為在台灣問題上負有歷史罪責的國家，應該汲取歷史教訓，謹言慎行，恪守一個中國原則和中日四個政治文件精神，慎重處理涉台問題。正告民進黨當局，誤判形勢倚外謀獨，註定失敗。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htmWed, 26 Feb 2025 10:57:00 +0800梵蒂岡︰教宗病情仍然危急但穩定https://news.rthk.hk/rthk/ch/component/k2/1793202-20250226.htm<img alt="大批信眾在聖伯多祿廣場為教宗祈禱。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793202\_1\_20250226104800.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+梵蒂岡表示，感染肺炎的教宗方濟各目前情況仍然危急但穩定。
+<br>
+<br/>
+88歲的方濟各在醫院治療超過10天，梵蒂岡在聲明引述醫生報告說，方濟各的臨床狀況仍然危急但穩定，沒有出現急性呼吸道發作，心率和血壓等指數維持穩定。
+<br/>
+<br/>
+方濟各本月14日因肺炎入院，剛過去的周末曾經出現呼吸危機，需要接受高流量氧氣治療。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793202-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793202-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793202-20250226.htmWed, 26 Feb 2025 11:04:00 +0800財政預算案2025｜陳茂波：27/28年度經常開支累計削7%https://news.rthk.hk/rthk/ch/component/k2/1793204-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793204\_1\_20250226111121.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波發表新一份財政預算案，提出「強化版」的財政整合計劃，包括至2027/28年度累計削減政府經常開支7%。
+<br>
+<br/>
+他在引言表示，過去幾年應對疫情的大規模逆周期措施，達到了「撐企業、保就業、穩經濟、紓民困」的目標，但亦導致香港出現數年的財政赤字。去年受內外因素影響，與資產市場相關的收入遠遜預期，令政府今年度繼續錄得較大赤字。
+<br/>
+<br/>
+陳茂波說嚴控公共開支是必須做的工作，但也須小心平衡過程中的影響，穩慎推進，既盡最大努力減少對公共服務和社會民生的影響，也為未來發展提供可持續的財政基礎。「強化版」的計劃提供清晰的目標，讓政府可以逐步在本屆政府任期內把經營帳目回復平衡。
+<br/>
+<br/>
+他指出為抓緊科技創新迅速發展帶來的機遇，香港需要加速「北部都會區」建設，投資未來，又說香港具備條件和能力，在保持公共財政穩健的前提下，適度增加發債規模，妥善靈活運用資金為未來作投資。
+<br/>
+<br/>
+陳茂波又認為香港必須以科技創新為核心，全力加速發展經濟，尤其是強化經濟新動能、加快提升傳統產業的競爭力，同時必須抓緊機遇，把握好提速發展的關鍵窗口，先立後破，以改革創新引領未來，加速推動香港經濟高質量發展。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793204-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793204-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793204-20250226.htmWed, 26 Feb 2025 11:06:00 +0800財政預算案2025｜陳茂波：預測今年實質經濟增長介乎2-3%https://news.rthk.hk/rthk/ch/component/k2/1793206-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793206\_1\_20250226112805.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波預測香港經濟今年繼續溫和增長，全年實質增長介乎2%至3%，今年基本通脹率及整體通脹率分別為1.5%和1.8%。
+<br>
+<br/>
+陳茂波在新一份財政預算案表示，香港經濟仍面對非常具挑戰性的外圍環境，同時亦有不少正面因素，香港今年的出口預料會有平穩表現，訪港旅客數目應會進一步增加，加上其他跨境經濟活動進一步恢復，應可推動服務輸出繼續增長。
+<br/>
+<br/>
+在內部需求方面，他指出，今年投資者或因外圍不確定性而採取較審慎態度，但環球金融狀況料更為寬鬆，將有利固定資產投資。私人消費經歷去年的調整後，年底時已有回穩迹象。市民收入持續增加，資產市場穩定發展，都可進一步提振消費。
+<br/>
+<br/>
+陳茂波預測香港經濟在2026至2029年間，平均每年實質增長2.9%，基本通脹率預計為平均每年2.5%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793206-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793206-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793206-20250226.htmWed, 26 Feb 2025 11:12:00 +0800財政預算案2025｜去年基本消費物價通脹率為1.1%https://news.rthk.hk/rthk/ch/component/k2/1793207-20250226.htm<img alt="通脹整體輕微，撇除政府一次性措施的影響，去年基本消費物價通脹率為1.1%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793207\_1\_20250226114013.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，去年香港經濟在複雜多變的外圍環境中穩步發展，去年香港經濟錄得2.5%的溫和增長。通脹整體輕微，撇除政府一次性措施的影響，去年基本消費物價通脹率為1.1%。
+<br>
+<br/>
+陳茂波在立法會宣讀新一份財政預算案，他說受惠於國家的惠港措施，加上多項盛事活動舉行，以及航空運力進一步恢復，去年訪港旅客上升三成，至約4500萬人次，帶動旅遊及運輸服務輸出顯著上升，其他跨境經濟活動亦持續改善，整體服務輸出全年增長4.8%。
+<br/>
+<br/>
+陳茂波說，隨著整體經濟增長，以及政府大力推展基建工程，整體投資開支增加2.4%。然而，本地居民消費模式轉變，私人消費開支輕微下跌0.6%。
+<br/>
+<br/>
+他又說，年內資產市場氣氛好轉，主要受惠於中央政府推出一系列支持本港資本市場措施，以及美國啟動減息周期。股市價量齊升，恆生指數全年上升18%，平均每日成交額增加26%；新股上市集資額增加至880億元。
+<br/>
+<br/>
+住宅物業市場方面，陳茂波說，去年首三季繼續調整，但在減息後回穩。全年交投量增加23%，至約53000宗，樓價則下跌7%。非住宅物業市場持續淡靜。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793207-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793207-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793207-20250226.htmWed, 26 Feb 2025 11:20:00 +0800財政預算案2025｜引進辦下月公布新一批重點企業名單https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm<img alt="引進重點企業辦公室下月將公布新一批重點企業名單，涉及10多家企業。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793209\_1\_20250226114050.jpg&amp;q=25" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波發表新一年度財政預算案。他表示，近期多個經濟環節持續改善，政府拼經濟、搶企業、搶人才的努力已取得一定成果表示。引進重點企業辦公室下月將公布新一批重點企業名單，涉及10多家企業。連同早前引進的重點企業，未來數年會在香港合共投資近500億元，創造超過2萬個就業機會。
+<br>
+<br/>
+他提到，引進辦自成立以來，已引進66家重點企業來港，其中80%已經或正籌劃建立全球或地區總部。投資推廣署去年成功吸引超過500家內地和海外企業，在港開設或擴展業務，增長超過40%，預計可帶來超過677億元直接投資。截至去年底，各項人才入境計劃共收到超過43萬宗申請，批出超過27萬宗，共有約18萬名人才到港
+<br/>
+<br/>
+陳茂波又說，今年以來，港股交投更活躍，近日日均成交額超過2千億元，較去年全年上升超過一半，整體市值達40萬億元。另外，新股蓬勃，港交所正處理超過100宗上市申請。
+<br/>
+<br/>
+陳茂波指出，在香港的開放式基金型公司，按年倍增至超過470家，在港註冊成立的有限合伙基金更超過1050個，按年升近40%，預計2028年香港將成為全球最大跨境財富管理中心。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htmWed, 26 Feb 2025 11:22:00 +0800國台辦促美方糾正錯誤　停止向「台獨」分裂勢力發錯誤信號https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm<img alt="國台辦敦促美方糾正錯誤，停止發出任何縱容支持「台獨」分裂勢力的錯誤信號。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793208\_1\_20250226112628.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+在北京，國台辦回應美國國務院官網近日修改「美台關係」內容，刪除不支持「台獨」表述，發言人朱鳳蓮指出，有關舉動是美方在台灣問題上立場的嚴重倒退，嚴重違反一個中國原則和中美三個聯合公報，粗暴干涉中國內政，向「台獨」分裂勢力發出嚴重錯誤信號，只會損害台海和平穩定。
+<br>
+<br/>
+朱鳳蓮敦促美方恪守一個中國原則和中美三個聯合公報，糾正錯誤，慎之又慎處理台灣問題，停止發出任何縱容支持「台獨」分裂勢力的錯誤信號。
+<br/>
+<br/>
+朱鳳蓮強調，台灣是中國的台灣，台灣問題純屬中國內政，不容任何外來干涉。她正告民進黨當局，「倚美謀獨」是絕路，無論台美怎麼勾連折騰，都改變不了世界上只有一個中國、台灣是中國一部分的事實，改變不了中國必將統一也必然統一的大勢。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htmWed, 26 Feb 2025 11:24:00 +0800財政預算案2025｜預留10億元成立香港人工智能研發院https://news.rthk.hk/rthk/ch/component/k2/1793210-20250226.htm<img alt="預算案預留10億元，成立香港人工智能研發院。（法新社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793210\_1\_20250226114158.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份《財政預算案》提出預留10億元成立「香港人工智能研發院」，引導及助力香港的人工智能創新研發和產業應用，數字政策辦公室會制訂相關安排和具體目標，重點是促進人工智能上游研發、中下游成果轉化及開拓應用場景。
+<br>
+<br/>
+預算案又提出政府今年內會推出「製造及生產線『升』級支援先導計劃」，為期兩年，按1比2的配對比例，向每家在港營運生產線的企業提供最高25萬元資助，協助它們訂立智能生產策略以及為現有生產線引進先進技術。有關計劃已預留1億元，可惠及約400家企業。
+<br/>
+<br/>
+當局正籌備推出1.8億元的「創科加速器先導計劃」，會按1比2的配對比例，向每家專業初創企業服務機構提供最高3000萬元資助，通過商業網絡及經驗，豐富本港的初創生態圈。
+<br/>
+<br/>
+預算案又指出，商務及經濟發展局和通訊辦正研究簡化審批營辦低軌衞星牌照的流程，今年內完會成相關工作。港投公司將籌辦首屆「國際人工智能青年科學家論壇」，促進人工智能技術的研究和產業化發展，包括開源 (Open Source) 技術，尤其是開源芯片的設計和應用。港投公司亦會舉辦首屆「國際機器人大會」，匯聚頂尖科企、學術機構和投資者，提升香港科技領域的國際影響力。
+<br/>
+<br/>
+財政司司長陳茂波表示，人工智能是加速培育新質生產力的核心，會善用「一國兩制」的制度優勢及國際化特點，讓香港成為人工智能產業國際交流協作的匯聚地，全力發展人工智能關鍵產業，並賦能傳統產業升級轉型。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793210-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793210-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793210-20250226.htmWed, 26 Feb 2025 11:24:00 +0800財政預算案2025｜香港處於關鍵節點　需加速培育新質生產力https://news.rthk.hk/rthk/ch/component/k2/1793211-20250226.htm<img alt="陳茂波認為，要通過科技創新，催生新模式、新動能，加速新產業培育傳統產業轉型升級。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793211\_1\_20250226114658.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，在全球格局變化及科技變革下，香港正處於發展的關鍵節點，需要「因地制宜」加速培育新質生產力，推動高質量發展，因此必須勇於改革、敢於破局、不斷創新，以制度改革釋放創新及經濟潛能。
+<br>
+<br/>
+陳茂波認為，要通過科技創新，催生新模式、新動能，加速新產業培育傳統產業轉型升級；同時亦需完善人才培育及引進，推進教育、科技、人才一體化發展。
+<br/>
+<br/>
+他指出，人工智能技術迅速發展，正重塑全球經濟中長期格局，特別是有關發展不再局限單一技術領域，而是以「AI+」方式應用到各產業。他強調，這場科技變革不僅顛覆傳統的生產、商業及消費模式，更重新定義不同經濟體、產業或企業的核心競爭力。
+<br/>
+<br/>
+陳茂波說，要發揮好「一國兩制」優勢，積極參與粵港澳大灣區建設，善用內聯外通特點，加強與海外、特別是「全球南方」的新興市場聯動，做好「超級聯繫人」和「超級增值人」的角色。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793211-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793211-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793211-20250226.htmWed, 26 Feb 2025 11:30:00 +0800財政預算案2025｜舉辦國際機器人大會　提升香港影響力https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm<img alt="陳茂波提出舉辦國際機器人大會，藉此提升香港的影響力。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793212\_1\_20250226114809.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案表示，港投公司將會舉辦首屆「國際機器人大會」，匯聚頂尖科企、學術機構和投資者，展示最新科研成果和應用場景，進一步提升香港在科技領域的國際影響力。
+<br>
+<br/>
+財政司司長陳茂波說，去年優化了「新型工業化資助計劃」，加大力度支持本地生產商轉向智能製造。資助計劃支持在港建立的新智能生產線數目已突破100條，涵蓋不同行業，包括生物科技、納米纖維材料、新能源等，總投資金額約13億元，當中9億3000萬元為私人投資。
+<br/>
+<br/>
+他表示，政府去年9月推出「新型工業加速計劃」，為企業提供配對資助，在港建設智能生產設施。計劃已批出首宗申請，總投資金額約６億元，當中政府資助金額約2億元，項目將建設生命健康科技領域的智能生產設施。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htmWed, 26 Feb 2025 11:30:00 +0800財政預算案2025｜北都建大學城並推動生態旅遊https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793213\_1\_20250226123231.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波說，為配合創科產業發展及推動香港成為國際專上教育樞紐，在北部都會區預留約90公頃土地，發展「北都大學教育城」，包括第三所醫學院。
+<br>
+<br/>
+在文化體育及旅遊透而，北部都會區既預留用地建設文化及體育設施，亦保存傳統鄉鎮及歷史人文資源，會因應區內獨有的特色，發展文體旅產業，包括推動生態旅遊。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htmWed, 26 Feb 2025 11:33:00 +0800財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm<img alt="政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793215\_1\_20250226114849.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，去年底成立的「發展低空經濟工作組」正審議首批監管沙盒試點項目的申請，即將宣布結果。政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。
+<br>
+<br/>
+陳茂波說，政府正檢討民航法例，以完善配合低空經濟長遠發展的規管制度，在今年第二季向立法會提交修訂《小型無人機令》的建議。政府亦會研究為各類「先進空中運輸系統」訂立新的專用法例，並積極與內地當局就低空經濟相關議題加強對接。
+<br/>
+<br/>
+在生命健康科技方面，陳茂波表示，政府會通過「設立生命健康研發院資助計劃」，支持本地大學設立生命健康研發院。創新科技署正邀請院校提交建議書。科技園公司亦正與生命健康科技界探討市場對「生產質量管理規範」製造設施的需求，以及可行的發展和營運模式，協助業界在港進行新藥或創新醫療科技的臨牀試驗。
+<br/>
+<br/>
+另外，陳茂波說，政府會為本港科企提供更多產品的實體展示和銷售場景。貿發局在重點展覽會期間，將在旗艦零售平台「香港‧設計廊」和展覽會場增設「專題快閃展示區」，藉此向海內外買家或消費者，展示本港科企的創科產品。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htmWed, 26 Feb 2025 11:37:00 +0800國台辦：希望台灣有關方面讓更多優秀大陸電影進入台灣影院https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm<img alt="國台辦希望台灣有關方面傾聽民眾呼聲，讓更多優秀大陸電影進入台灣影院。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793214\_1\_20250226114023.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+在北京，國台辦發言人朱鳳蓮表示，很多台灣同胞在大陸已經看了《哪吒之魔童鬧海》這部電影，有近40萬條台灣網民評論呼籲盡快在台灣上映，希望台灣有關方面傾聽民眾呼聲，讓更多優秀大陸電影進入台灣影院，讓台灣同胞能欣賞更多優秀文化產品。
+<br>
+<br/>
+朱鳳蓮說，好電影自然有吸引力，這部電影自上映以來，憑藉對中華優秀傳統文化的創新演繹、精彩的劇情和震撼的動畫特效，受到廣大觀眾普遍認可。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htmWed, 26 Feb 2025 11:38:00 +0800財政預算案2025｜預留37億加快河套香港園區第一期基建設施https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm<img alt="陳茂波表示政府高度重視河套合作區的發展。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793216\_1\_20250226122104.jpg&amp;q=35" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，政府將會繼續優先為北部都會區項目投入資源。他指出，政府高度重視河套合作區的發展，該區提供大量創科用地，當局會推出新政策，促進創新要素跨境便捷流動。
+<br>
+<br/>
+陳茂波在新一份財政預算案表示，河套合作區香港園區今年將進入營運階段，第一期的首三座大樓正陸續落成，首批涵蓋生命健康科技、人工智能、數據科學等產業的租戶將會在年內進駐。他已預留37億元加快完成香港園區第一期的基建及公用設施，將揀選合適地塊並在今年徵求私人發展計劃，借助市場力量加快發展。他預期香港園區全面發展完成後，對香港經濟的貢獻每年可達520億元，並創造約5萬2千個職位。
+<br/>
+<br/>
+他表示，正就北部都會區三個「片區開發」試點，邀請市場提交意向書，目標今年下半年起，陸續為試點招標。
+<br/>
+<br/>
+為了專上教育發展，陳茂波表示，在北部都會區預留約90公頃土地，發展「北都大學教育城」，包括第三所醫學院。
+<br/>
+<br/>
+就新田科技城，陳茂波指出是推動創科的重要項目，當中20公頃用地將於2026/27年起，陸續交由科技園公司發展和營運。科技園公司正進行總體規劃研究，預計在本年第三季完成。至於沙嶺數據園區的改劃程序，預計年中完成，正積極籌備把土地推出市場。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htmWed, 26 Feb 2025 11:39:00 +0800財政預算案2025｜年內展開港深西部鐵路勘查及北環線支線規劃https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm<img alt="預算案提到，預計年內展開港深西部鐵路（洪水橋至前海）項目的勘查及設計研究，以及北環線支線的詳細規劃及設計。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793219\_1\_20250226122212.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波公布將全力推進北部都會區的土地發展，北部都會區在未來數年的房屋單位及產業用地將有可觀產出。
+<br>
+<br/>
+預算案提到，繼去年開展洪水橋/厦村新發展區第二期、古洞北/粉嶺北新發展區餘下階段，以及新田科技城首批土地平整及基礎設施工程 3個大型項目後，今年將啟動元朗南新發展區第二期的工程，完成沙嶺數據園區用地的改劃程序，並會敲定牛潭尾以至新界北新市鎮和馬草壟的土地用途建議，其後展開環境影響評估和其他法定程序。
+<br/>
+<br/>
+鐵路方面，北環線第一期的古洞站項目經已動工，目標在2027年竣工，第二期的前期工程亦已展開，配合於2034年完成北環線主線的目標。另外，特區政府與深圳當局正推展兩個跨境鐵路項目，預計於年內展開港深西部鐵路（洪水橋至前海）項目的勘查及設計研究，以及北環線支線的詳細規劃及設計。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htmWed, 26 Feb 2025 11:42:00 +0800滬深股市半日造好https://news.rthk.hk/rthk/ch/component/k2/1793220-20250226.htm<img alt="上證指數半日收報3362點，升16點，升幅0.5%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793220\_1\_20250226114638.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+內地股市上升。人形機器人、汽車產業鏈及固態電池等相關股份造好；農業、機場航運及白酒股表現較遜色。
+<br>
+<br/>
+上證指數半日收報3362點，升16點，升幅0.5%。
+<br/>
+<br/>
+深證成份指數報10880點，升25點，升幅0.24%。
+<br/>
+<br/>
+創業板指數收報2246點，升5點，升幅0.26%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793220-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793220-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793220-20250226.htmWed, 26 Feb 2025 11:46:00 +0800財政預算案2025｜研究設退市後場外交易機制https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm<img alt="陳茂波表示港交所會在年中起，為交易後系統逐步引入新功能，並進行系統升級。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793221\_1\_20250226122309.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，為配合最新經濟趨勢和企業需求，會審視上市要求和上市後持續責任；檢視上市規例和安排，改善審批流程；優化雙重主要上市及第二上市門檻，以及檢討市場結構，包括研究設立退市後場外交易機制。
+<br>
+<br/>
+他又指，港交所會在年中起，為交易後系統逐步引入新功能，並進行系統升級，以確保於年底前在技術上兼容T+1結算周期，為縮短結算周期作好準備；港交所與證監會，將在年內就改善交易單位制度，即俗稱手數制提出建議，讓交易安排，可更符合不同大小股份的流動性特質和投資需求，便利交易及提升效率。
+<br/>
+<br/>
+他又表示，港交所將就結構性產品發行機制提出優化建議，為產品上市和交易提供更大彈性，又指已向立法會提交落實無紙證券市場制度的附屬法例，期望在明年初實施。
+<br/>
+<br/>
+陳茂波說，為滿足投資者風險管理需要，證監會將就增加主要指數衍生工具持倉限額建議諮詢市場。
+<br/>
+<br/>
+另外，為進一步協助特專科技和生物科企籌融資發展業務，特別是已在內地上市的公司，港交所正積極籌備開通「科企專線」，便利有關企業的上市申請準備工作。證監會亦會配合，令申請過程更暢順。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htmWed, 26 Feb 2025 11:47:00 +0800財政預算案2025｜助力C919打進國際市場　擴展培訓範疇https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm<img alt="陳茂波表示，香港將助力C919打進國際市場。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793222\_1\_20250226122400.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，今年1月，國家自主研發的C919飛機正式應用於香港與上海的定期航班，是內地以外地區的首次，標誌著國產飛機走向世界的一大突破。香港將助力C919打進國際市場，香港國際航空學院會把培訓課程擴展至涵蓋與C919飛機相關的範疇。
+<br>
+<br/>
+陳茂波在新一份財政預算案中提到，香港國際機場連接全球近200個航點，單日客運量及航班升降量大致回復至疫情前水平，航空貨運量多年來排行全球第一。機場三跑道系統於去年年底啟用，客運設施亦會於年底分階段開始營運。
+<br/>
+<br/>
+陳茂波又說，為發展智慧港口，政府已預留2億1千5百萬元，構建港口社區系統，加強航運、港口及物流業持份者信息互通。當局年內會向立法會申請撥款。
+<br/>
+<br/>
+至於現代物流發展，陳茂波說，政府已展開在北部都會區物流用地的發展模式研究，建設現代物流圈，預計於今年公布研究結果。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htmWed, 26 Feb 2025 12:01:00 +0800財政預算案2025｜預留資源以配對形式籌建新醫學院https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htm<img alt="陳茂波表示公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793224\_1\_20250226122445.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，醫學生培訓學額將於2025/26年增至650個。公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。
+<br>
+<br/>
+他又說「籌備新醫學院工作組」已邀請有意開設第3間醫學院的本地大學提交建議書，會於年內完成評核並向政府提出建議，政府會預留資源以配對形式供大學籌建新醫學院。
+<br/>
+<br/>
+至於優化藥物及醫療器械規管，陳茂波說會於上半年提出「香港藥物及醫療器械監督管理中心」成立時間表及邁向「第一層審批」路線圖，並制訂支援藥械研發的策略及措施。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htmWed, 26 Feb 2025 12:03:00 +0800財政預算案2025｜向旅發局撥12.35億落實無處不旅遊理念https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793225\_1\_20250226122721.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波宣布，為落實「無處不旅遊」的理念及《香港旅遊業發展藍圖2.0》，來年會向旅發局撥款12億3500萬元。旅發局會與更多國際品牌合作舉辦活動，說好香港旅遊故事。
+<br>
+<br/>
+陳茂波說，當局會加強推廣一系列特色旅遊項目，例如生態旅遊、熊貓旅遊、賽馬旅遊等，旅發局會繼續支持更多會議、展覽及獎勵旅遊活動在港舉行，預計可吸引額外約18.3萬旅客人次訪港，帶來約14億元消費。政府亦已預留資源加強對郵輪業的支援，鼓勵郵輪公司增加訪港航次、過夜停泊，以及利用香港作為母港。政府會向郵輪公司提供更多優惠，吸引郵輪在淡季停靠啟德郵輪碼頭。
+<br/>
+<br/>
+盛事經濟方面，陳茂波說，政府會更策略性地吸引為香港帶來顯著經濟效益的體育活動持續落戶香港，並正與已連續兩年在香港舉辦的LIV Golf探討長遠合作，會盡快公布結果。
+<br/>
+<br/>
+另外，受惠於去年底恢復及擴展深圳「一簽多行」，陳茂波說，新措施實施後，超過70萬名旅客經此途徑訪港。受惠於新措施，加上海外旅客增加，本港整體市面人流暢旺。政府會用好各項惠港措施，積極推動香港旅遊業發展。另外又會聯同旅發局，加大力度開拓中東和東盟市場，吸引更多高端旅客訪港。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htmWed, 26 Feb 2025 12:06:00 +0800財政預算案2025｜陳茂波：推動香港債市採用代幣化技術https://news.rthk.hk/rthk/ch/component/k2/1793227-20250226.htm<img alt="陳茂波指金管局正準備發行第三批代幣化債券。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793227\_1\_20250226124457.jpg&amp;q=20" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+政府表示，會將代幣化債券發行恒常化。財政司司長陳茂波指，金管局正準備發行第三批代幣化債券，並繼續通過「數碼債券資助計劃」鼓勵發行數碼證券，同時積極探討將已發行的傳統債券代幣化。
+<br>
+<br/>
+他表示，政府將研究數碼債券發行及交易的法律和監管體系，探討優化措施，推動香港債券市場採用代幣化技術。
+<br/>
+<br/>
+另外，證監會和金管局已成立專組制訂路線圖，涵蓋發展一級及二級債券和貨幣市場，以及提升基礎設施，將於下半年舉辦旗艦論壇，向全球推廣香港這方面的優勢。
+<br/>
+<br/>
+陳茂波又說，本港即將舉辦第三屆「裕澤香江」高峰論壇，以「香港—為全球，向世界」為主題；在今年內就相關基金、單一家族辦公室和附帶權益的稅務優惠制訂方案，包括拓寬免稅制度下「基金」的定義，增加基金及單一家族辦公室享有稅務寬減的合資格交易種類、優化私募基金分發附帶權益的稅務寬減安排等。
+<br/>
+<br/>
+他提到，政府已就人民幣櫃台交易以人民幣繳交股票印花稅，進行準備工作，希望在明年提出立法建議；港交所正推進單股多櫃台安排，包括雙櫃台股票使用同一國際證券識別碼；又指會積極研究推出進一步擴容增量方案，擴展大灣區跨境理財通，提升市場流動性，豐富風險管理工具箱。
+<br/>
+<br/>
+另一方面，財經事務及庫務局將聯同引進辦及貿發局於年內，舉辦首屆「香港全球金融與產業合作峰會」；又預計最快在年中為內地及香港居民提供全天候即時小額跨境匯款服務。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793227-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793227-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793227-20250226.htmWed, 26 Feb 2025 12:09:00 +0800商務部稱堅決反對加拿大以涉俄為由制裁中國企業https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm<img alt="商務部說，中方將採取必要措施，堅決捍衛中國企業的合法權益。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793226\_1\_20250226120817.jpg&amp;q=30" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+商務部回應加拿大以涉俄為由制裁中國企業，發言人表示，加方制裁中國企業的單邊做法破壞國際經貿規則和秩序，損害全球產業鏈供應鏈安全穩定，中方對此強烈不滿，堅決反對，敦促加方立即停止錯誤做法。中方將採取必要措施，堅決捍衛中國企業的合法權益。
+<br>
+<br/>
+發言人說，中方一貫反對沒有國際法依據和聯合國安理會授權的單邊制裁，強調有關國家在處理烏克蘭問題上，不得損害中方企業、機構和個人的正當權益，包括開展正常貿易、投資和金融合作的權利。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htmWed, 26 Feb 2025 12:10:00 +0800財政預算案2025｜港鐵紅磡站南面臨海　研究打造成海濱新地標https://news.rthk.hk/rthk/ch/component/k2/1793229-20250226.htm<img alt="政府已邀請港鐵研究將紅磡站南面的臨海及前碼頭用地，打造成海濱新地標。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793229\_1\_20250226141217.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，政府正全力優化維港兩岸海濱，其中板道東段、紅磡都市公園（第二期）及西營盤東邊街北休憩用地，會在今年完成，又會在中環、灣仔、北角及尖沙咀海濱，加設輕食飲品攤檔，為遊人帶來更好體驗。
+<br>
+<br/>
+政府已邀請港鐵研究將紅磡站南面的臨海及前碼頭用地，打造成海濱新地標，包括興建具特色的商業及住宅項目，提供零售、餐飲、娛樂等設施，並設立遊艇會以帶動遊艇旅遊，政府會在今年中，就土地用途提出建議。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793229-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793229-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793229-20250226.htmWed, 26 Feb 2025 12:10:00 +0800港股早市升585點 半日成交1815億https://news.rthk.hk/rthk/ch/component/k2/1793230-20250226.htm<img alt="港股早市升585點，半日成交1815億。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793230\_1\_20250226121255.jpg&amp;q=20" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股開市後升幅擴大至近700點，恒指高見23697點，再創近期高位，上午收報23619點，升585點，升幅2.54%，主板成交1815億。
+<br>
+<br/>
+科技指數升幅更大，升近3.7%，上午收報5909點，升210點。
+<br/>
+<br/>
+ATMXJ全面造好，升3-7%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793230-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793230-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793230-20250226.htmWed, 26 Feb 2025 12:12:00 +0800財政預算案2025｜推出新一輪15億元研究配對補助金計劃https://news.rthk.hk/rthk/ch/component/k2/1793231-20250226.htm<img alt="陳茂波表示香港將會推出新一輪15億元的「研究配對補助金計劃」，以鼓勵更多機構資助院校研究。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793231\_1\_20250226122632.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，香港專上教育高度國際化和多元化，擁有五所世界百強大學及優秀的科研人才，將會推出新一輪15億元的「研究配對補助金計劃」，以鼓勵更多機構資助院校研究。
+<br>
+<br/>
+陳茂波在新一份財政預算案中提到，會加強在全球推廣「留學香港」品牌，吸引更多優秀境外學生。「香港博士研究生獎學金計劃」名額將增至每年400個。
+<br/>
+<br/>
+他又說，自資專上院校與政府資助院校相輔相成，為青年人提供多元的升學出路。政府已推出新一輪批地計劃及開辦課程貸款計劃，以象徵式地價批出土地及提供免息貸款，支持自資院校擴容提質。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793231-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793231-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793231-20250226.htmWed, 26 Feb 2025 12:13:00 +0800財政預算案2025｜引進辦有策略引入更多結合創科的文創企業https://news.rthk.hk/rthk/ch/component/k2/1793232-20250226.htm<img alt="陳茂波強調政府一直大力支持電影業發展。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793232\_1\_20250226122756.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在新一份財政預算案表示，政府致力推動文創產業化發展。
+<br>
+<br/>
+他說「創意智優計劃」累計批核超過780個文創項目，當中不少具有產業化潛力，資助款額合共約34億元，惠及超過3萬間中小企。引進辦會有策略地引入更多結合創科的文創企業，加速本地創意產業鏈蓬勃發展。
+<br/>
+<br/>
+陳茂波強調政府一直大力支持電影業發展，「電影發展基金」累計批出超過13億元，資助超過120部電影，起用了超過110名新晉導演和監製，相關電影獲得超過180個奬項。基金亦推出「開拓內地電影市場資助計劃」，鼓勵香港電影公司和內地文化企業投資和支持香港導演的製作。
+<br/>
+<br/>
+首屆「香港演藝博覽」於去年10月舉行，吸引超過1600名來自60多個國家和地區的藝術領袖及從業員參與，陳茂波說明年會舉辦第二屆博覽會，將活動打造成香港的文化藝術產業旗艦。政府亦會繼續善用「文化藝術盛事基金」，吸引和支持國際或大型文化藝術活動在香港舉行，促進香港發展成為中外文化藝術交流中心，當局已更新審批準則，加入活動須帶動旅遊及經濟的要求。
+<br/>
+<br/>
+他表示，政府未來5年會支持文化知識產權創造者和生產者，推進超過30個文化知識產權項目，正促進文創界內的跨範疇合作，增加文化知識產權產品的傳播力和商業價值。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793232-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793232-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793232-20250226.htmWed, 26 Feb 2025 12:16:00 +0800財政預算案2025｜即將發表第2份發展虛擬資產政策宣言https://news.rthk.hk/rthk/ch/component/k2/1793233-20250226.htm<img alt="陳茂波表示，政府近年以監管和市場發展並重的框架，走在世界領先位置。 （港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793233\_1\_20250226124556.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，政府近年積極發展香港虛擬資產生態圈，以監管和市場發展並重的框架，走在世界領先位置。政府即將發表第2份發展虛擬資產政策宣言，探討如何結合傳統金融服務優勢與虛擬資產領域技術創新等；亦會在年內就虛擬資產場外交易及託管服務發牌制度進行諮詢。
+<br>
+<br/>
+陳茂波提到，政府已就引入法幣穩定幣發行人監管制度向立法會提交條例草案，待條例通過後，金管局會盡早審批牌照申請。
+<br/>
+<br/>
+黃金及大宗商品方面，陳茂波指出，「推動黃金市場發展工作小組」會在年內制訂方案，涵蓋提升倉儲設施、優化交易和監管機制、拓展交易所產品、市場推廣等，並逐步落實。
+<br/>
+<br/>
+港交所旗下的倫敦金屬交易所年初將香港納入其許可交付地點，他透露，已有本地倉庫營運商表示有意成為其認可倉庫，正積極進行相關討論。
+<br/>
+<br/>
+陳茂波又說，本港作為國際風險管理中心，通過設立專屬規管制度和資助先導計劃，積極推動保險相連證券發展，至今促成6宗巨災債券在港發行，發行額逾58億元。業界對先導計劃的反應非常理想，政府會延長計劃3年。
+<br/>
+<br/>
+此外，他指，強制性公積金計劃管理局年內會就強積金「全自由行」的具體方案諮詢公眾，隨後向政府提交建議，務求強積金「全自由行」可於積金易平台全面運作後盡快實行。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793233-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793233-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793233-20250226.htmWed, 26 Feb 2025 12:17:00 +0800財政預算案2025｜新資本投資者入境計劃料帶來逾260億元https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm<img alt="「新資本投資者入境計劃」累計接獲超過880宗申請，預計帶來超過260億元投資。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793234\_1\_20250226124644.jpg&amp;q=1" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，「新資本投資者入境計劃」累計接獲超過880宗申請，預計帶來超過260億元投資，當局即將推出一系列優化措施，為計劃提供更大彈性。
+<br>
+<br/>
+他在預算案表示，政府會全力搶人才，短期內會在「優秀人才入境計劃」下，主動邀請頂尖及領軍人才來港發展，亦會優化「輸入內地人才計劃」和「一般就業政策」，容許具專業技術資格及經驗的年輕非學位專才來港，投身人力短缺的技術工種。
+<br/>
+<br/>
+陳茂波指出，人才辦為來港人才提供全方位一站式支援，並對外推廣香港優勢及招攬人才。人才辦計劃於明年初舉辦第二屆「香港·全球人才高峯會」，鞏固香港為國際高端人才集聚高地的地位。政府會繼續通過「一帶一路獎學金」等措施，吸引尤其東盟等「一帶一路」國家的學生來港升學。
+<br/>
+<br/>
+另外，為激發中小學生對創科的興趣，陳茂波說已邀請港投公司、科技園公司及數碼港統籌旗下合共超過100家科企，未來一年通過到校的產品展示或實地參觀等，與學生互動交流，分享科技的前沿探索和創業經驗，涵蓋人工智能、機器人、綠色科技等不同領域。
+<br/>
+<br/>
+當局亦正推動在港科企，為校園編程及人工智能學習等科技教育提供資源、技術指導及實踐場景，結合理論學習及實踐應用，進一步提升青少年對創科應用的興趣和能力。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htmWed, 26 Feb 2025 12:22:00 +0800財政預算案2025｜來年賣地表有8幅住宅地　不推售商業用地https://news.rthk.hk/rthk/ch/component/k2/1793235-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793235\_1\_20250226124808.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波宣布，考慮到寫字樓空置率近年處於高水平及未來幾年的供應仍相對充足，政府來年不會推售商業用地。當局會考慮將部分商業用地改劃作住宅用途，及提供更多用途上的彈性。政府將會推遲洪水橋/厦村新發展區市中心商業用地的原址換地完成期限。
+<br>
+<br/>
+他又說，來年賣地表將包括8幅住宅用地，加上鐵路物業發展、市區重建局及私人發展和重建項目，預計全年的潛在土地供應可供興建約13700個單位，數字與《長遠房屋策略》預計私人房屋的年度需求相若。而用地推售安排，將參考市場和其他情況按季公布。
+<br/>
+<br/>
+房屋供應方面，政府未來5年會準備可供興建約8萬個私營房屋單位的土地。當中約六成半土地來自北部都會區和東涌新市鎮擴展區。
+<br/>
+<br/>
+在公營房屋方面，政府已覓得足夠土地於未來10年滿足30萬8千個公營房屋單位的供應目標，連同「簡約公屋」，未來5年總體公營房屋供應量將達19萬個，較本屆政府上任時的5年期增加約八成。
+<br/>
+<br/>
+私人住宅單位未來5年的平均每年落成量估計超過17000個，較過去5年的平均數減少約8%。一手私人住宅潛在供應量，在未來3至4年約為10萬零7千個。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793235-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793235-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793235-20250226.htmWed, 26 Feb 2025 12:24:00 +0800財政預算案2025｜與17個國家磋商全面避免雙重課稅協定https://news.rthk.hk/rthk/ch/component/k2/1793236-20250226.htm<img alt="陳茂波表示政府正與馬來西亞和沙特阿拉伯政府，積極商討開設經濟貿易辦事處。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793236\_1\_20250226125932.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，為擴闊貿易網絡，吸引更多「全球南方」的企業和投資，政府正與馬來西亞和沙特阿拉伯政府，積極商討開設經濟貿易辦事處；正與沙特阿拉伯、孟加拉國、埃及和秘魯探討簽訂投資協定，並正與17個國家磋商全面避免雙重課稅協定。
+<br>
+<br/>
+他又說，政府會聯同工商及專業服務界深耕東盟、中東市場，並探索中亞、南亞及北非的市場潛力；貿發局亦會加強「一帶一路」項目對接，尤其聚焦綠色發展及創新科技；第十屆「一帶一路高峰論壇」將於9月舉辦。
+<br/>
+<br/>
+在支持本地企業方面，他說，政府會向「發展品牌、升級轉型及拓展內銷市場的專項基金」，及「市場推廣及工商機構支援基金」合共注資15億元，並優化申請安排，商經局稍後會公布詳情；另外，貿發局將推出「電子商務快車」。
+<br/>
+<br/>
+政府亦將參考聯合國國際貿易法委員會倡議的《電子可轉讓記錄示範法》，研究修訂法例，便利貿易文件電子化，並在明年將法例修訂建議提交立法會。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793236-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793236-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793236-20250226.htmWed, 26 Feb 2025 12:24:00 +0800財政預算案2025｜中九龍幹線料年底完成　六號幹線明年通車https://news.rthk.hk/rthk/ch/component/k2/1793237-20250226.htm<img alt="陳茂波表示，爭取年內就南港島線（西段）項目，開展詳細規劃及設計。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793237\_1\_20250226141325.jpg&amp;q=55" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，爭取年內就南港島線（西段）項目，開展詳細規劃及設計。六號幹線餘下的中九龍幹線和T2主幹路及茶果嶺隧道的建造工程，已進入最後階段。其中，中九龍幹線工程預計年底完成，而六號幹線明年全線通車。
+<br>
+<br/>
+陳茂波在財政預算案表示，建造業議會將出資約1.5億元，資助建造業界為合共約2500名工程、建築、測量、規劃及園境的學位課程畢業生提供在職培訓，協助更多青年人獲取專業資格。
+<br/>
+<br/>
+他表示，為吸引更多青年加入建造業，當局將與建造業議會合共撥款約9500萬元，在未來兩學年繼續為就讀建造業相關兼讀制學位課程的學員提供在職培訓津貼，預計約1000名學員受惠。
+<br/>
+<br/>
+陳茂波又說，已預留1500萬元在未來兩年支持「主要項目精英學院」的工作，以提升建造業的專業水平、創新能力及成本效益管理。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793237-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793237-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793237-20250226.htmWed, 26 Feb 2025 12:27:00 +0800財政預算案2025｜長者院舍與社區照顧服務券將各增1000張https://news.rthk.hk/rthk/ch/component/k2/1793238-20250226.htm<img alt="陳茂波說會增加殘疾人士日間社區康復及家居照顧服務名額1280個。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793238\_1\_20250226130116.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，將於下年度增加1千張長者院舍照顧服務券，令總數增至6千張；長者社區照顧服務券亦會增加1千張，令總數增至1萬2千張。全年總開支分別約17億1千萬元及9億元。
+<br>
+<br/>
+至於支援殘疾人士，陳茂波說會增加殘疾人士日間社區康復及家居照顧服務名額1280個，涉及額外開支每年約1億6千萬元。
+<br/>
+<br/>
+他又說，今年第3季起會將「優化職業康復服務試驗計劃」恆常化，按殘疾人士的個人興趣及能力提供培訓，以提高就業機會，涉及開支每年約1億元，預計約1萬人受惠。
+<br/>
+<br/>
+支援在職家庭方面，陳茂波說2025/26年度相關津貼計劃預算開支約21億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793238-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793238-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793238-20250226.htmWed, 26 Feb 2025 12:30:00 +0800財政預算案2025｜將積極探討規範籃球博彩活動https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm<img alt="陳茂波說政府將積極探討規範籃球博彩活動，並邀請香港賽馬會提交建議。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793239\_1\_20250226130235.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在預算案表示，近年有不少社會人士關注香港的籃球非法賭博問題。根據香港賽馬會的最新評估，去年的非法籃球賭博投注額高達700億至900億元。
+<br>
+<br/>
+他說，為有效打擊非法賭博活動，政府將積極探討規範籃球博彩活動，並邀請香港賽馬會提交建議。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htmWed, 26 Feb 2025 12:32:00 +0800財政預算案2025｜陳茂波稱綠色金融與綠色科技結合商機龐大https://news.rthk.hk/rthk/ch/component/k2/1793241-20250226.htm<img alt="科技園公司會將位於九龍塘的創新中心，建設為「GreenTech Hub」以匯聚綠色科企。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793241\_1\_20250226131938.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在預算案表示，發展綠色產業是國際大趨勢，也是應對全球氣候變化的一大關鍵。綠色金融與綠色科技的結合，將加速構建豐富的產業集群，帶來龐大的商機和融資需要，為綠色轉型發展作出貢獻。
+<br>
+<br/>
+綠色金融方面，陳茂波表示，去年公布「可持續金融行動計劃」，訂立銀行業邁向淨零排放的目標，亦已推出《香港可持續披露路線圖》，就大型公眾責任實體不遲於2028年全面採用國際財務報告可持續披露準則（ISSB準則）提供清晰路徑，使香港成為首批將本地準則銜接ISSB準則的司法管轄區。為持續支持本地綠色金融人才的培訓，「綠色和可持續金融培訓先導計劃」會延長至2028年，該計劃已累計批出超過5700宗申請。
+<br/>
+<br/>
+至於綠色科技，陳茂波表示，科技園公司會將位於九龍塘的創新中心建設為領先的綠色科技樞紐 ─ 「GreenTech Hub」，匯聚超過200間綠色科企。科技園公司將邀請金融及商業機構、大學、工商業支援機構等成為進駐企業的伙伴，提供人才培訓、測試及應用場景、商業配對等支援。
+<br/>
+<br/>
+綠色航運方面，他說將為用於加注的綠色甲醇提供稅務豁免，同時落實《綠色船用燃料加注行動綱領》，助力香港成為綠色船用燃料加注中心。至於綠色航空，為支持國際及本地航空界減碳，當局正推動在香港國際機場應用可持續航空燃料（SAF），機管局去年已完成相關研究，今年內將宣布SAF的用量目標。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793241-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793241-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793241-20250226.htmWed, 26 Feb 2025 12:34:00 +0800英國巴斯籌備作家簡奧斯汀誕辰250周年慶祝活動https://news.rthk.hk/rthk/ch/component/k2/1793228-20250226.htm<img alt="英國巴斯籌備作家簡奧斯汀誕辰250周年慶祝活動" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793228\_1\_20250226121027.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+英國城市巴斯籌備作家簡奧斯汀（Jane Austen）誕辰250周年慶祝活動，預計在9月為期10天的正式慶祝活動期間，將吸引全球大批簡奧斯汀書迷，前往巴斯參加。
+<br>
+<br/>
+當局預料遊客及書迷會穿著喬治亞時期服飾，穿梭城內大小街道，屆時亦按簡奧斯汀作品內場景，模擬舉行一系列舞會。據報在5月及6月提前舉行的舞會，每張約200英鎊的門券已經售罄。
+<br/>
+<br/>
+簡奧斯汀1775年生於英國南部漢普郡，曾居於巴斯。終年41歲。她在生時的著作不多，當中《傲慢與偏見》及《理智與情感》等小說內反映的女性主義，被指仍然影響現代潮流文化，包括啟發賣座電影《BJ 單身日記》的創作。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793228-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793228-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793228-20250226.htmWed, 26 Feb 2025 12:35:00 +0800財政預算案2025｜本年度綜合赤字872億財政儲備6473億https://news.rthk.hk/rthk/ch/component/k2/1793243-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793243\_1\_20250226132243.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波預計，本財政年度綜合赤字872億元，即較他去年的財赤估計481億元有所擴大，他預計下個財年綜合財赤為670億元。至於財政儲備會由本財政年度結束的6473億元，進一步下降至下個財政年度的5803億元。
+<br>
+<br/>
+陳茂波在預算案指出，政府的經營帳目由稅收及日常支出等組成，非經營帳目由土地收入及基建工程項目支出等組成。他說，因應政府經營帳目與非經營帳目的組成和性質不同，要以不同的理財目標和方法去分別管理。
+<br/>
+<br/>
+陳茂波表示，經營帳目要量入為出，以達致盈餘為目標。非經營帳目方面，基本工程開支是對未來作出投資，例如北部都會區，落成後會帶來經濟和社會效益，須按社會和經濟發展需要而推行。但由於收入會受經濟周期影響，所以收入與開支之間可能出現缺口。他認為可以運用經營帳目的盈餘或財政儲備支持，也可以靈活善用市場資源，包括不同形式的公私營合作、發行債券等處理。
+<br/>
+<br/>
+陳茂波預測，政府經營帳目在2025/26年度大致達致平衡，並從2026/27年度恢復盈餘。至於非經營帳目，由於提速推展北部都會區及其他與經濟民生相關的工務工程，預計在中期預測期內均會出現赤字，但赤字水平由26/27年度開始逐年下降。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793243-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793243-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793243-20250226.htmWed, 26 Feb 2025 12:44:00 +0800財政預算案2025｜薪俸稅退稅上限1500元https://news.rthk.hk/rthk/ch/component/k2/1793246-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793246\_1\_20250226130403.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波宣布，考慮到部分行業和市民仍面對一定壓力，以及政府的財政狀況，政府推出多項支援措施。
+<br>
+<br/>
+政府將寬減2024/25課稅年度百分之一百的薪俸稅和個人入息課稅，上限為1500元，全港約214萬名納稅人受惠。有關扣減會在2024/25課稅年度的最終應繳稅款反映，政府收入將減少約29億元。
+<br/>
+<br/>
+政府亦寬減2024/25課稅年度百分之一百的利得稅，上限為1500元，全港約16萬5400家企業受惠。有關扣減會在2024/25課稅年度的最終應繳稅款反映，政府收入將減少約兩億元。
+<br/>
+<br/>
+政府將寬減2025/26年度首季的住宅物業差餉，以每戶500元為上限，涉及約312萬個住宅物業，政府收入將減少約15億元；寬減2025/26年度首季的非住宅物業差餉，同樣以每戶500元為上限。涉及約43萬個非住宅物業。政府收入將減少約2億元。
+<br/>
+<br/>
+另外，政府向領取社會保障金的合資格人士，發放金額相當於半個月的綜合社會保障援助標準金額，高齡津貼、長者生活津貼或傷殘津貼，以及為在職家庭津貼計劃作出相若安排，涉及額外開支合共約31億元。
+<br/>
+<br/>
+另外，陳茂波說，為減輕購買樓價較低的住宅及非住宅物業人士負擔，宣布將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，即日生效，預計可惠及約百分之15的物業成交個案，政府收入將每年減少約4億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793246-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793246-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793246-20250226.htmWed, 26 Feb 2025 12:48:00 +0800財政預算案2025｜本屆政府任期內將削減約一萬個公務員職位https://news.rthk.hk/rthk/ch/component/k2/1793248-20250226.htm<img alt="陳茂波指出，在本屆政府任期內將削減約一萬個職位。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793248\_1\_20250226141525.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在預算案表示，會加大力度控制政府經營開支，指示所有政策局及部門進一步審視資源分配和工作優次，並通過整合內部資源、精簡程序及善用科技，以更具成本效益的方式為市民提供服務。
+<br>
+<br/>
+陳茂波指出，因應削減開支及優化人力資源運用，公務員編制在2026/27及2027/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約一萬個職位。
+<br/>
+<br/>
+他指出，會加大「資源效率優化計劃」的力度，在不影響綜援及公共福利金以及法定開支前提下，2025/26年度節省政府經常開支的幅度，將由原來1%增加至2%，並延續兩年至2027/28年度。
+<br/>
+<br/>
+連同2024/25年度1%的減幅，累計的削減幅度為7%，以2023/24年度經常開支為基礎，每年分別節省約39億元、117億元、195億元及273億元的政府經常開支。
+<br/>
+<br/>
+陳茂波又說，政府未來3年給予大學教育資助委員會資助大學的撥款達到681億元，撥款已反映每年2%的節省目標，與政府削減經常開支的幅度一致，強調撥款仍較上個三年期的632億元為高。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793248-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793248-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793248-20250226.htmWed, 26 Feb 2025 12:50:00 +0800財政預算案2025｜陳茂波稱政府會進一步優化及推展關愛服務https://news.rthk.hk/rthk/ch/component/k2/1793249-20250226.htm<img alt="預算案提到政府會進一步優化及推展關愛服務。（政府新聞處資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793249\_1\_20250226142120.jpg&amp;q=55" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在預算案表示，行政長官去年宣布政府會恆常化地區服務及關愛隊的設置，並在下一服務期，增加對關愛隊的資助金額五成。關愛隊成立至今，合共探訪約39萬個住戶，並提供約4萬3千次支援服務，政府會進一步優化及推展關愛服務。
+<br>
+<br/>
+他又強調政府重視婦女發展，當局於2023年6月成立「婦女自強基金」，每年撥款2000萬元，至今已資助婦女團體及非政府機構推行超過240項計劃，賦能婦女發揮所長。今年將推出試行兩年的友師計劃，為女大學生配對女性領袖友師，促進女性的職場發展。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793249-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793249-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793249-20250226.htmWed, 26 Feb 2025 12:53:00 +0800財政預算案2025｜一百元印花稅　物業價值上限提高至四百萬元https://news.rthk.hk/rthk/ch/component/k2/1793250-20250226.htm<img alt="陳茂波預計措施可惠及約15%的物業成交個案，政府收入將每年減少約4億元。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793250\_1\_20250226150304.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波說，考慮到部分行業及市民面對壓力及政府的財政狀況，推出多項支援措施。
+<br>
+<br/>
+他表示，政府向領取社會保障金的合資格人士，發放金額相當於半個月的綜合社會保障援助標準金額，高齡津貼、長者生活津貼或傷殘津貼，以及為在職家庭津貼計劃作出相若安排，涉及額外開支合共約31億元。
+<br/>
+<br/>
+陳茂波說，為減輕購買樓價較低的住宅及非住宅物業人士負擔，宣布將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，即日生效，預計可惠及約15%的物業成交個案，政府收入將每年減少約4億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793250-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793250-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793250-20250226.htmWed, 26 Feb 2025 12:53:00 +0800財政預算案2025｜二元優惠月限240程　車費10元以上兩折https://news.rthk.hk/rthk/ch/component/k2/1793251-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793251\_1\_20250226135327.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份《財政預算案》公布「二元優惠計劃」及「公共交通費用補貼計劃」調整方案，財政司司長陳茂波預料落實有關調整方案後，政府可於未來5年減省共約62億元開支。
+<br>
+<br/>
+針對「二元優惠計劃」調整，受惠對象維持60歲或以上人士以及合資格殘疾人士，並新增每月240程限制。新方案下，票價10元或以下，維持繳付2元車費；票價高於10元，則繳付全額車費的兩折。
+<br/>
+<br/>
+陳茂波表示，這個微調方案保留政策原意，並在提升計劃的可持續性及減低對受惠人士影響之間，盡量取得平衡。
+<br/>
+<br/>
+至於「公共交通費用補貼計劃」，經檢討後，由今年6月起，補貼領取門檻由每月公共交通實際開支水平400元、提高至500元。政府就市民每月超出500元的開支部分，維持提供三分之一補貼，每月400元補貼上限維持不變。
+<br/>
+<br/>
+陳茂波又說，去年的預算案已要求相關政策局，檢視這兩項涉及開支較大、增長迅速的交通資助計劃，令計劃以財政上可持續模式繼續運作，相關政策局稍後公布細節。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793251-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793251-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793251-20250226.htmWed, 26 Feb 2025 12:56:00 +0800財政預算案2025｜全體公務員行政立法司法機關及區議會凍薪https://news.rthk.hk/rthk/ch/component/k2/1793252-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793252\_1\_20250226134841.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在新一份財政預算案表示，政府提出在2025/26年度，所有行政、立法、司法機關及區議會全體人員，一致凍薪，包括行政長官及政治委任官員；行政會議非官守議員；全體公務員；立法會主席和所有議員，以及秘書處人員；終審法院首席法官、各級法院法官和司法機構人員；以及區議會議員。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793252-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793252-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793252-20250226.htmWed, 26 Feb 2025 12:58:00 +0800財政預算案2025｜預留6億多元資助業界購買電動巴士及的士https://news.rthk.hk/rthk/ch/component/k2/1793254-20250226.htm<img alt="政府預留1.35億元資助的士業界，購買3000輛電動的士。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793254\_1\_20250226141658.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，政府已公布《公共巴士和的士綠色轉型路線圖》，並在新能源運輸基金預留4.7億元以資助專營巴士營辦商購買約600輛電動巴士。另外亦預留1.35億元資助的士業界購買3000輛電動的士。「氫燃料電池重型車輛資助試驗計劃」亦已接受申請。
+<br>
+<br/>
+陳茂波又說，本港有超過10萬輛電動車，政府會在年中推出3億元資助計劃，預計可推動業界在2030年累計裝置3000個遍布全港的高速充電樁，供額外16萬輛電動車使用。
+<br/>
+<br/>
+而為了加強源頭減廢，政府將增撥1.8億元，增加全港住宅的智能廚餘回收桶或廚餘收集設施。首座都市固體廢物轉廢為能設施「I·PARK1」預計年內投入運作。政府亦已就第二座大型設施「I·PARK2」公開招標，預計每日可處理6000公噸都市固體廢物。
+<br/>
+<br/>
+另外，陳茂波說，政府已於去年就啟德、東九龍，以及洪水橋／厦村及元朗南新發展區的智慧綠色集體運輸系統邀請意向書，並會爭取分別於今年就啟德項目及明年就東九龍及洪水橋／厦村及元朗南新發展區項目招標。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793254-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793254-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793254-20250226.htmWed, 26 Feb 2025 13:00:00 +0800財政預算案2025｜飛機乘客離境稅第三季起加至200元https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm<img alt="由2025/26年度第三季起，飛機乘客離境稅由現時每位乘客120元增加至200元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793255\_1\_20250226141832.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，過去一段時間，部分政府收費未有按機制調整，以致未能充分反映成本及體現「用者自付」原則，將推出一系列措施，包括由2025/26年度第三季起，將飛機乘客離境稅，由現時每位乘客120元增加至200元，預計每年可增加約16億元收入，他估計對飛機乘客影響輕微。
+<br>
+<br/>
+其他措施亦包括由即日起，各項人才及資本投資者入境計劃，將收取申請費600元，並把簽證費按逗留期限長短，上調至600元或1300元，預計每年可增加約6億2千萬元收入。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htmWed, 26 Feb 2025 13:02:00 +0800恒指下午初段升逾600點https://news.rthk.hk/rthk/ch/component/k2/1793256-20250226.htm<img alt="恒指較早時報23655點，升621點，升幅2.7%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793256\_1\_20250226130326.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股下午初段升逾600點，恒指較早時報23655點，升621點，升幅2.7%。
+<br>
+<br/>
+科技指數報5919點，升近4%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793256-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793256-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793256-20250226.htmWed, 26 Feb 2025 13:05:00 +0800財政預算案2025｜消息：人民幣繳付人民幣櫃台印花稅涉及修例https://news.rthk.hk/rthk/ch/component/k2/1793259-20250226.htm<img alt="預算案提到，政府已就人民幣櫃台交易以人民幣繳交股票印花稅，進行準備工作。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793259\_1\_20250226142437.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份預算案提到，政府已就人民幣櫃台交易以人民幣繳交股票印花稅，進行準備工作。政府消息人士指，有意見反映人民幣櫃台以港元繳交股票印花稅並不理想，因此當局提出以人民幣繳稅的新想法。至於可否自行選擇哪種貨幣繳交，日後再研究。
+<br>
+<br/>
+消息人士指，期望明年提出立法建議，但形容較複雜，涉及修改法例以准許以人民幣收取股息印花稅，後台及相關系統亦要調整。
+<br/>
+<br/>
+預算案亦提到，港交所正籌備開通「科企專線」，政府消息人士指，現時針對特專科技公司、創新企業，已有相關上市安排，強調新設專線並非改變上市規則或新設類似18A或18C章機制，而是協助企業在正式遞交上市申請前，可盡早從港交所取得建議，加快申請。
+<br/>
+<br/>
+另外，證監會將就增加主要指數衍生工具持倉限額的建議諮詢市場，增加投資者使用工具的彈性。政府消息人士指，未來數日將公布諮詢文件，放寬現時的每日限額，但強調要平衡金融安全風險。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793259-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793259-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793259-20250226.htmWed, 26 Feb 2025 13:30:00 +0800財政預算案2025｜檢視電動私家車牌照費及交通違例罰款收費https://news.rthk.hk/rthk/ch/component/k2/1793260-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793260\_1\_20250226142556.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，政府3年前取消了一些主要隧道和幹道的收費，部分隧道的收費亦超過30年未有調整。
+<br>
+<br/>
+由於政府投入龐大資金興建這些基建，為體現「用者自付」的原則，運輸及物流局會檢視各政府隧道及主幹道的收費。局方亦會檢討電動私家車牌照費、停車收費錶的收費，和交通違例事項的定額罰款，以更好管理交通，初步估計相關調整可每年增加約20億元收入。
+<br/>
+<br/>
+政府亦會研究向由陸路邊境管制站離境的私家車，徵收邊境建設費，旅遊巴士和貨車等不受影響。若以每部私家車收取200元為例，每年可帶來約10億元的收入。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793260-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793260-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793260-20250226.htmWed, 26 Feb 2025 13:33:00 +0800財政預算案2025｜未來五年每年發債約1500億至1950億https://news.rthk.hk/rthk/ch/component/k2/1793262-20250226.htm<img alt="陳茂波表示香港有條件，也有能力適度增加發債，靈活運用市場力量。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793262\_1\_20250226142815.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，香港有條件，也有能力適度增加發債，靈活運用市場力量。隨著基建開支的增加，會相應擴大發債規模，預計2025/26至2029/30年度的5年間，每年在「政府可持續債券計劃」及「基礎建設債券計劃」下發行債券合共約1500億元至1950億元，其中約56%用於為到期的短期債務再融資。
+<br>
+<br/>
+陳茂波在預算案表示，在中期財政預測期內，預計政府在上述兩個債券計劃的合共借款上限，將由現時的5000億元上調至7000億元。政府債務與本地生產總值的比率，將維持在12%至16.5%的水平，屬於非常穩健和可控水平，遠低於大部分先進經濟體的債務水平。
+<br/>
+<br/>
+他提到未來幾年北部都會區相關工程將陸續展開，加上其他與經濟民生相關的基建工程，政府的基本工程開支將進入高峰期。中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來平均每年約1200億元。
+<br/>
+<br/>
+他指出，為確保這些策略性基建工程項目按時推展，早日惠及經濟民生，會更靈活善用市場資源，包括採用更多元的發展模式以推展相關項目，例如更多的公私營合作、原址換地、試行「片區開發」等，也會通過發行政府債券融資，確保對香港未來發展至關重要的項目進度，不會因公共財政狀況而受到制約。
+<br/>
+<br/>
+陳茂波強調政府發債所得資金是用在基建投資，不會用於支付政府經常開支，是一直嚴守的財政紀律，政府發債除了善用市場資金支持基建項目，更有助推動債券市場發展。另一方面，基建投資所帶動的經濟活動和產業發展，將為香港帶來更多新的發展機遇和收入，而通過發行較長期的債券來支持較長期的工程項目，也能讓現金流年期與工程項目的資金需要相匹配。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793262-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793262-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793262-20250226.htmWed, 26 Feb 2025 13:37:00 +0800財政預算案2025｜李家超稱預算案為經濟發展塑造新動能新優勢https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm<img alt="李家超指預算案提出多項措施，與施政報告的方向一致。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793263\_1\_20250226142911.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+行政長官李家超表示，新一份財政預算案就香港經濟發展和公共財政整合，提出一系列實際和有效措施，鞏固政府的財政實力，並為香港的經濟發展塑造新動能和新優勢。
+<br>
+<br/>
+李家超的聲明指出，預算案提出多項措施，與施政報告的方向一致，包括培育新質生產力，以加強發展創新科技、人工智能；加速發展北部都會區和河套深港科技創新合作區香港園區，充分發揮「三中心、一高地」戰略定位，進一步培育和引進人才，提升優勢產業，推動香港經濟提速發展。
+<br/>
+<br/>
+他又說預算案在改善公共財政方面提出務實措施，以嚴格控制政府開支為主，開源為輔，穩步回復收支平衡，同時顧及社會實際情況和香港的競爭力；與此同時，善用市場力量，以創新多元的發展模式推展基建工程，以及發行政府債券為相關工程融資。
+<br/>
+<br/>
+李家超表示，在複雜多變的外圍環境下，深信香港一定能夠把握各項機遇，繼續發揮好「一國兩制」下背靠祖國、聯通世界的獨特優勢，進一步推進內聯外通，積極融入國家發展策略，主動對接國家發展戰略，推動經濟更快發展，改善民生。他與財政司司長陳茂波一樣，對香港的發展和前景充滿信心，呼籲社會各界支持這份預算案。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htmWed, 26 Feb 2025 13:42:00 +0800財政預算案2025｜陳茂波稱利得稅薪俸稅收入反映經濟韌性強勁https://news.rthk.hk/rthk/ch/component/k2/1793265-20250226.htm<img alt="陳茂波表示，利得稅薪俸稅收入反映經濟韌性強勁。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793265\_1\_20250226142955.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在新一份預算案表示，2024/25年度，政府的整體收入修訂預算約為5596億元，較原來預算低11.6%。其中，利得稅與薪俸稅收入依然保持平穩，分別為1777億元和880億元，與原來預算相若，反映香港經濟韌性強勁。
+<br>
+<br/>
+陳茂波說資產市場受壓，政府從土地和印花稅的收入均有所減少。當中，地價收入為135億元，較原來預算大幅減少約195億元。印花稅收入為580億元，較原來預算低130億元。
+<br/>
+<br/>
+他指出，2024/25年度政府開支與預算相若，整體開支的修訂預算為7548億元，較原來預算低221億元。其中，經常開支為5625億元，較原來預算低177億元。計及發行1300億元政府債券及償還221億元到期款項後，預計2024/25年度綜合赤字為872億元。財政儲備在今年3月31日預計為6473億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793265-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793265-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793265-20250226.htmWed, 26 Feb 2025 13:53:00 +0800財政預算案2025｜陳茂波稱強化財政管理　有信心決心克服挑戰https://news.rthk.hk/rthk/ch/component/k2/1793266-20250226.htm<img alt="陳茂波表示過去一年，本港經濟穩定前行，增長勢頭持續向好。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793266\_1\_20250226143032.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，過去一年，本港經濟穩定前行，增長勢頭持續向好，為本港未來發展提供有利條件。面對公共財政壓力，政府採取一系列措施，積極應對，並強化財政管理，有信心和決心克服挑戰。
+<br>
+<br/>
+陳茂波在新一份財政預算案中的結語提到，必須從制度上著手，打破發展過程中的制約和瓶頸，克服發展不平均、成果分享不平衡的挑戰，並更加堅信，必須以變革回應挑戰、以創新驅動發展、以科技引領未來。
+<br/>
+<br/>
+他又說乘著科技變革的大潮，勇於改革、擁抱創新，讓科技創新帶來的突破，加速香港高質量發展，貢獻國家，他對香港未來滿懷信心與期盼。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793266-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793266-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793266-20250226.htmWed, 26 Feb 2025 13:56:00 +0800財政預算案2025｜利得稅和薪俸稅退稅上限減至1500元https://news.rthk.hk/rthk/ch/component/k2/1793267-20250226.htm<img alt="利得稅、薪俸稅和個人入息課稅的退稅上限將減至1500元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793267\_1\_20250226143138.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份財政預算案繼續「派糖」，但規模較以往幾年進一步「縮水」。
+<br>
+<br/>
+利得稅、薪俸稅和個人入息課稅的退稅上限將減至1500元；首季差餉獲寬減，上限減至500元；綜援、生果金等繼續獲發額外半個月。
+<br/>
+<br/>
+另外，為減輕購買樓價較低的住宅及非住宅物業人士負擔，政府宣布將徵收100元印花稅的物業價值上限，由300萬元提高至400萬元，即日生效。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793267-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793267-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793267-20250226.htmWed, 26 Feb 2025 14:00:00 +0800財政預算案2025｜陳茂波稱中期財政預測已反映強化整合措施https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm<img alt="陳茂波說中期財政預測，主要從宏觀角度估算政府的收支和財政情況。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793268\_1\_20250226143229.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在新一份預算案提到，中期財政預測主要從宏觀角度估算政府的收支和財政情況，並已全面反映強化後的財政整合計劃中的措施。2025/26年度所採納的實質經濟增長率為2%至3%，2026/27至2029/30年度則為約每年2.9%。
+<br>
+<br/>
+陳茂波說，這段期間政府基本工程開支平均每年約1200億元，經常開支則平均每年增加3.5%，政府整體開支佔本地生產總值的比率，將由2025/26年度約24.4%逐漸下降至2029/30年度約20.9%。
+<br/>
+<br/>
+地價收入方面，2026/27及之後年度主要以地價收入逐步增至本地生產總值2%計算，相比過去20年平均比率3.3%為低，地價收入預測屬保守水平。他亦假設利得稅和其他稅項收入的增長率，與未來幾年經濟增長率相若。總體而言，政府收入由2025/26年度起保持在相當於本地生產總值約20%的水平。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htmWed, 26 Feb 2025 14:00:00 +0800財政預算案2025｜政府探討規範籃球博彩　霍啟剛稱歡迎https://news.rthk.hk/rthk/ch/component/k2/1793269-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793269\_1\_20250226144007.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+預算案提出，將積極探討規範籃球博彩活動。立法會議員霍啟剛表示歡迎，認為顯示政府打擊非法賭博活動及將博彩收益帶回合法市場的決心。
+<br>
+<br/>
+霍啟剛指出，根據馬會最新評估，去年的非法籃球賭博投注額高達700億至900億元，可見市民對籃球博彩活動存在足夠龐大且持續的需求，有必要透過規範籃球博彩以打擊非法外圍賭博，同時將有關博彩收益帶回合法市場，預估每年可為本港帶來至少15至20億元的額外博彩稅收。
+<br/>
+<br/>
+他又說，相信馬會短期內能夠提交建議方案予政府，同時希望政府能夠盡快展開公眾諮詢及立法程序，聆聽社會聲音，有信心馬會能夠在明年NBA球季開始前推出有關博彩項目。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793269-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793269-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793269-20250226.htmWed, 26 Feb 2025 14:03:00 +0800財政預算案2025｜馬會歡迎獲邀提交規範籃球博彩建議https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htm<img alt="馬會歡迎並全力支持預算案中，邀請馬會提交推行規範籃球博彩的建議。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793270\_1\_20250226143322.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在預算案表示，為有效打擊非法賭博活動，政府將積極探討規範籃球博彩活動，並邀請香港賽馬會提交建議。
+<br>
+<br/>
+馬會回應表示，歡迎並全力支持預算案中，邀請馬會提交推行規範籃球博彩的建議。馬會指，完全認同已有充份理據規範籃球博彩，又指非法籃球賭博引致嚴重社會問題，包括高利貸及引誘未成年人賭博等。根據馬會評估，去年的非法籃球賭博投注額，高達約700億至900億元，認為規範籃球博彩是打擊非法籃球賭博的重要措施，將有效遏制其日益增長的趨勢。
+<br/>
+<br/>
+馬會表示，將於短期內向特區政府提交詳細建議，並期待與特區政府緊密合作，以盡快落實籃球博彩規範化這一項重要政策措施。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htmWed, 26 Feb 2025 14:06:00 +0800財政預算案2025｜消息指提早公布凍薪冀公務員提早準備https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm<img alt="消息人士說，今次提早公布凍薪是希望公務員提早準備，減低不明朗因素。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793271\_2\_20250226144033.jpg&amp;q=35" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案提出強化財政整合計劃，以應對財赤，當中包括行政，立法，司法機關，區議員及全體公務員，在2025/26年度一致凍薪。
+<br>
+<br/>
+政府消息人士表示，今次是首次在公務員薪酬趨勢調查有結果前，宣布凍薪，而有關調查在每年2月啟動，但考慮到再進行相關調查意義已不大，因此今年好大機會不會再做，當局亦不會揣測今年的調查結果。
+<br/>
+<br/>
+消息人士說，今次提早公布凍薪是希望公務員提早準備，減低不明朗因素。至於凍薪可以節省多少開支，消息人士指，由於不知道調查結果，所以難作估算，但去年加薪3%，開支就達到90億元，認為公眾可參考相關數字。
+<br/>
+<br/>
+另外，預算案亦提出加大「資源效率優化計劃」，公務員編制在2026/27及2027/28年度，每年減2%，到2027年4月，本屆政府將削減一萬個職位。
+<br/>
+<br/>
+消息人士表示，並無規定要削減哪一類公務員職位，各政策局可視乎運作需要作出決定，因此減少職位後，可以節省多少開支，仍有待估算，目前是言之尚早。至於增薪點制度將維持不變，政府亦不會就各部門，在為員工進行評估時，增加額外要求。
+<br/>
+<br/>
+至於會否削減公務員福利及津貼，消息人士指，這些屬合約要求，政府無計劃改變。另外，當局亦無意推出自願離職計劃，因參考2000年推出計劃時，未計及公務員退休金，政府的開支就達到40億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htmWed, 26 Feb 2025 14:07:00 +0800財政預算案2025｜公務員和行政立法機關人員等凍薪https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm<img alt="財政預算案預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793272\_1\_20250226143400.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份財政預算案提出，公務員編制在2026/27及2027/28年度，每年分別減百分之2，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
+<br>
+<br/>
+財政預算案亦提出，在2025/26年度，所有行政、立法、司法機關及區議會全體人員一致凍薪。
+<br/>
+<br/>
+財政司司長陳茂波表示，會加大力度控制政府經營開支，已指示所有政策局及部門進一步審視資源分配和工作優次，並通過整合內部資源、精簡程序及善用科技，以更具成本效益的方式為市民提供服務。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htmWed, 26 Feb 2025 14:09:00 +0800財政預算案2025｜消息人士冀就邊境建設費盡快制定落實方案https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm<img alt="消息人士表示，在陸路離境私家車徵費方面，仍在與運輸及物流局研究執行細節。（CCTV資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793273\_1\_20250226143436.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+政府消息人士表示，在考慮增加收入方面，由於薪俸稅影響層面大，因此揀選影響較小的項目，並對有能力人士徵收。
+<br>
+<br/>
+消息人士表示，對陸路離境私家車徵費方面，仍在與運輸及物流局研究執行細節，包括如何收費、過關系統調整等，亦需要立法。
+<br/>
+<br/>
+消息指，只對私家車徵費可降低對商業及一般市民的影響。消息人士提到，政府於2003年曾提出同類收費，每部車收取100元，每人收取18元，但社會反應大而擱置。今次以每部車200元為例，考慮了通脹因素；而按去年經蓮塘及深圳灣口岸、港珠澳大橋離境的500萬架次推算，預料每年可帶來約10億元收入。
+<br/>
+<br/>
+另外，飛機乘客離境稅將於10月1日起，由120元上調至200元，消息人士表示，已相隔逾20年沒有調整，相信不影響一般市民，亦不影響本港的航空優勢及機場競爭力。基於去年客流量2000萬人次，估算上調稅項可增加約16億元收入。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htmWed, 26 Feb 2025 14:10:00 +0800財政預算案2025｜消息稱種子基金結餘回撥體現善用財政資源https://news.rthk.hk/rthk/ch/component/k2/1793274-20250226.htm<img alt="政府消息人士表示，6個種子基金包括研究基金、醫管局公私營協作基金、語文基金、學生活動支援基金、資歷架構基金、資優教育基金。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793274\_1\_20250226150359.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份預算案建議2025/26年度將6個種子基金結餘，扣減未來5年所需營運開支後，回撥合共約620億元至政府帳目。
+<br>
+<br/>
+政府消息人士表示，該6個種子基金包括研究基金、醫管局公私營協作基金、語文基金、學生活動支援基金、資歷架構基金、資優教育基金。以研究基金回撥規模最大，有420億元，其餘介乎20億至68億元。
+<br/>
+<br/>
+消息人士指，現有42個基金在政府帳目以外，這6個種子基金規模較大，可利用投資回報作為開支，亦不涉及法例改動，回撥亦體現善用財政資源，預計5至6月向財委會申請轉撥。
+<br/>
+<br/>
+消息強調，選取基金並非針對醫療、教育範疇，純粹以結餘規模考慮，形容若只回撥3至4億元，作用不大。其他基金亦會檢視，但回撥難度及複雜性較大，有10多個基金是在法例下成立，動用程序繁複，亦有部分基金涉及捐款及贊助。
+<br/>
+<br/>
+另外，消息人士指，疫情時成立的2000多億元防疫抗疫基金，目前結餘180多億元，扣除拆卸設施、支付項目餘款，下月回撥150億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793274-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793274-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793274-20250226.htmWed, 26 Feb 2025 14:11:00 +0800財政預算案2025｜料來年潛在土地供應可建約13700個單位https://news.rthk.hk/rthk/ch/component/k2/1793275-20250226.htm<img alt="陳茂波宣布政府來年將不會推售商業用地。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793275\_1\_20250226143918.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在財政預算案宣布，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+<br>
+<br/>
+另外，預算案提到本年度地價收入為135億元，較原來預算大幅減少約195億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793275-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793275-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793275-20250226.htmWed, 26 Feb 2025 14:13:00 +0800台股收市升0.5%https://news.rthk.hk/rthk/ch/component/k2/1793276-20250226.htm<img alt="台灣加權指數收市報23402點，升116點，升幅0.5%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793276\_1\_20250226141509.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+台灣股市上升。加權指數收市報23402點，升116點，升幅0.5%。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793276-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793276-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793276-20250226.htmWed, 26 Feb 2025 14:16:00 +0800財政預算案2025｜10億設人工智能研發院　發展AI關鍵產業https://news.rthk.hk/rthk/ch/component/k2/1793277-20250226.htm<img alt="預算案預留10億元成立「香港人工智能研發院」，引導及助力本港人工智能創新研發和產業應用。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793277\_1\_20250226143542.jpg&amp;q=50" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份《財政預算案》提出，預留10億元成立「香港人工智能研發院」，引導及助力本港人工智能的創新研發和產業應用；並推出資助創科企業的配對「先導計劃」。
+<br>
+<br/>
+財政司司長陳茂波說，香港正處於人工智能發展的關鍵節點，政府會全力發展AI關鍵產業。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793277-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793277-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793277-20250226.htmWed, 26 Feb 2025 14:16:00 +0800財政預算案2025｜陳國基：政府續與社會各界合力發展經濟https://news.rthk.hk/rthk/ch/component/k2/1793279-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793279\_1\_20250226143625.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+政務司司長陳國基形容，新一份《財政預算案》全面、穩健和務實，一方面推動發展、改革創新，一方面著力管控公共開支、適度開源，特區政府會繼續與社會各界同心合力、把握機會、發展經濟。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793279-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793279-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793279-20250226.htmWed, 26 Feb 2025 14:21:00 +0800財政預算案2025｜葉劉淑儀：行會非官守成員歡迎預算案措施https://news.rthk.hk/rthk/ch/component/k2/1793280-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793280\_1\_20250226143703.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+行政會議召集人葉劉淑儀表示，行會非官守成員支持及歡迎新一份預算案推出多項有關新質生產力的措施，包括推動人工智能發展、加速北部都會區發展等，行會亦支持政府管控政府開支，包括調整「長者2元乘車優惠計劃」，以及2025至2026年所有行政、立法、司法機構和區議員全體凍薪。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793280-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793280-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793280-20250226.htmWed, 26 Feb 2025 14:31:00 +0800財政預算案2025｜港交所：與證監會合作探索更多市場改革https://news.rthk.hk/rthk/ch/component/k2/1793278-20250226.htm<img alt="唐家成表示，預算案涵蓋範疇非常全面，將繼續與證監會緊密合作，探索更多市場改革。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793278\_1\_20250226141816.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港交所主席唐家成表示，歡迎財政司司長在財政預算案中提出的措施，涵蓋範疇非常全面，特別是與香港資本市場相關部分，涉及到證券及衍生產品市場、交易及風險管理、離岸人民幣業務中心、與內地和國際的互聯互通、大宗商品發展，以及財富管理等領域。
+<br>
+<br/>
+唐家成指，措施將進一步提升香港作為全球領先國際金融中心的地位，交易所將繼續與證監會緊密合作，探索更多市場改革，並繼續深化與內地市場的互聯互通，加強與國際投資者和合作夥伴聯繫，並積極拓寬產品生態圈的廣度和多樣性。
+<br/>
+<br/>
+港交所行政總裁陳翊庭表示，預算案的舉措，突顯提升香港資本市場吸引力決心，並致力與各方持分者通力合作。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793278-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793278-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793278-20250226.htmWed, 26 Feb 2025 14:34:00 +0800財政預算案2025｜五年間將每年發債約1500億至1950億https://news.rthk.hk/rthk/ch/component/k2/1793281-20250226.htm<img alt="陳茂波預計2025/26起的五年間，政府將發債券合共約1500億元至1950億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793281\_1\_20250226150450.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，本財政年度綜合赤字將較去年預算有所擴大，預計錄得872億元，預測下個財政年度亦將有670億元財赤，財政儲備由本財年結束的6473億元，進一步下降至下個財政年度的5803億元。
+<br>
+<br/>
+陳茂波表示，預計2025/26起的五年間，政府每年發債券約1500億元至1950億元，以支持未來發展項目。他又預測，本港今年經濟增長2%至3%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793281-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793281-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793281-20250226.htmWed, 26 Feb 2025 14:36:00 +0800日股收市跌95點https://news.rthk.hk/rthk/ch/component/k2/1793282-20250226.htm<img alt="日經指數最多跌495點，收市跌幅收窄至95點，報38142點。（交易所圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793282\_1\_20250226143832.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+東京股市下跌，日經指數最多跌495點，收市跌幅收窄至95點，報38142點。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793282-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793282-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793282-20250226.htmWed, 26 Feb 2025 14:40:00 +0800韓股高收0.4%https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htm<img alt="首爾綜合指數收市報2641點，升10點，升幅0.41%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793283\_1\_20250226143849.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+南韓股市收市上升，首爾綜合指數報2641點，升10點，升幅0.41%。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htmWed, 26 Feb 2025 14:43:00 +0800財政預算案2025｜飛機乘客離境稅增至200元https://news.rthk.hk/rthk/ch/component/k2/1793284-20250226.htm<img alt="飛機乘客離境稅將由現時每位乘客120元增加至200元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793284\_1\_20250226150602.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+預算案提出由2025/26年度第三季起，飛機乘客離境稅由現時每位乘客120元增加至200元，預計每年可增加約16億元收入。
+<br>
+<br/>
+預算案亦提出，當局會積極探討規範籃球博彩活動。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793284-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793284-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793284-20250226.htmWed, 26 Feb 2025 14:44:00 +0800王滬寧：要堅定不移推進祖國統一大業https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm<img alt="中共中央政治局常委、全國政協主席王滬寧出席會議並發表講話。（新華社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793285\_1\_20250226144807.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中共中央政治局常委、全國政協主席王滬寧在2025年對台工作會議發表講話，強調要牢牢把握兩岸關係主導權和主動權，堅定不移推進祖國統一大業。
+<br>
+<br/>
+王滬寧表示，要堅持一個中國原則和九二共識，團結廣大台灣同胞，堅定支持島內愛國統一力量，堅決打擊台獨挑釁行徑，塑造祖國必然統一大勢。要推動兩岸交流合作，擴大兩岸人員往來，支持大陸台商台企發展，深化兩岸融合發展，讓台灣同胞共享中國式現代化發展機遇和成果，要為台灣青年來大陸追夢圓夢創造更好條件。
+<br/>
+<br/>
+他又說，要堅決反對和遏制外部勢力干涉，鞏固國際社會堅持一個中國原則的格局，加強黨中央對對台工作的集中統一領導，確保黨中央對台決策部署落到實處。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htmWed, 26 Feb 2025 14:54:00 +0800智利大停電至少800萬戶一度受影響https://news.rthk.hk/rthk/ch/component/k2/1793288-20250226.htm<img alt="智利有音樂節因停電終止演出，觀眾離開會場。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793288\_1\_20250226150418.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+南美洲國家智利發生大停電，至少800萬戶一度受影響，其中一半人已恢復供電。
+<br>
+<br/>
+停電由當地星期二下午3時許開始。在首都聖地亞哥，街道迫滿等待乘坐公共交通工具回家的人，亦有不少市民步行回家。消防接獲幾十個求救電話，聖地亞哥國際機場需要以應急電源，保障航班正常運作。
+<br/>
+<br/>
+當局宣布，受影響地區進入緊急狀態，並在北部阿里卡大區至南部洛斯拉戈斯大區實施宵禁。
+<br/>
+<br/>
+內政部長說，大停電是由北部一條輸電線路故障導致。總統博里奇說，一間或多間公司影響國民的生活，是不可接受，將採取堅決行動應對。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793288-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793288-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793288-20250226.htmWed, 26 Feb 2025 15:07:00 +0800滬股和創業板指數升逾1%https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htm<img alt="上證綜合指數收市報3380點，升34點，升幅1.02%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793290\_1\_20250226151050.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+滬深股市3大指數高收近1%或以上，鋼鐵、人形機械人、券商板塊上升；農業、機場航運、貴金屬相關股份下跌。
+<br>
+<br/>
+上證綜合指數收市報3380點，升34點，升幅1.02%。
+<br/>
+<br/>
+深證成份指數報10955點，升101點，升幅0.93%。
+<br/>
+<br/>
+創業板指數報2268點，升27點，升幅1.23%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793290-20250226.htmWed, 26 Feb 2025 15:16:00 +0800恒指升幅擴大至逾800點https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htm<img alt="恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793292\_1\_20250226151558.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股升幅擴大至逾800點，恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。
+<br>
+<br/>
+科技指數報5989點，升291點，升幅5.11%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htmWed, 26 Feb 2025 15:17:00 +0800財政預算案2025｜陳茂波：政府凍薪考慮到經濟狀況及財政整合https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793293\_1\_20250226161419.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案提出下個財政年度全體公務員凍薪。財政司司長陳茂波在記者會被問到有否考慮高官減薪或捐出薪酬，以顯示共渡時艱的決心，他回應說問責官員採取凍薪是合適做法。
+<br>
+<br/>
+他又說政府作出有關決定時，已考慮數個因素，包括本港過去兩年經濟增長，並預料今年亦持續；在職市民收入有增加；政府提出加強版財政整合計劃，預期在2026/27年度經營帳目恢復平衡並且有盈餘。
+<br/>
+<br/>
+至於公務員凍薪，是否仍會展開薪酬趨勢調查。陳茂波說有關凍薪決定得到公務員的支持及理解，認為是合適去做，即使有薪酬調查 ，但當中亦要考慮6個因素包括政府財政。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htmWed, 26 Feb 2025 15:20:00 +0800財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm<img alt="旅發局稱定必謹慎運用政府資源，精準制訂宣傳策略。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793294\_1\_20250226153056.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波宣布，為落實「無處不旅遊」的理念及《香港旅遊業發展藍圖2.0》，來年會向旅發局撥款12億3500萬元。
+<br>
+<br/>
+旅發局主席彭耀佳表示，在資源緊絀的環境下，旅發局感謝政府繼續調撥資源支持旅遊業的發展。旅發局定必謹慎運用政府資源，精準制訂宣傳策略，達至最大的效益。旅發局將加強宣傳，同時用好中央惠港措施，把握恢復和擴大深圳居民「一簽多行」的契機，充分發揮香港作為內地及海外城市「超級聯繫人」的角色，吸引旅客展開「一程多站」旅程，經香港前赴大灣區及其他內地城市。
+<br/>
+<br/>
+旅發局會運用資源，大力推動會議、展覽及獎勵旅遊和郵輪旅遊，並全力開拓中東和東盟的客源市場，加強推廣香港作為「穆斯林友好」旅遊目的地的形象。並將與國際品牌合作，串連盛事和香港的特色旅遊元素，為旅客創造全年精彩體驗。旅發局亦會促進智慧旅遊，優化 Discover Hong Kong 一站式旅遊資訊平台及提供「實時旅遊地圖」。
+<br/>
+<br/>
+旅發局將於稍後公布未來一年的工作計劃。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htmWed, 26 Feb 2025 15:22:00 +0800財政預算案2025｜消息稱相信印花稅措施可刺激低樓價物業交投https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm<img alt="政府消息人士說不想納稅人全無受惠寬減措施，因此在薪俸稅等方面作出上限劃一減半。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793295\_1\_20250226153144.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+徵收100元印花稅的物業價值上限，即日起由300萬元，提高至400萬元。政府消息人士指，相信可刺激低樓價物業的交投，若再拉高物業價值上限，會導致整體稅階改變。
+<br>
+<br/>
+政府消息人士說，考慮到仍錄得赤字，但不想納稅人全無受惠寬減措施，因此在薪俸稅等方面作出上限劃一減半。
+<br/>
+<br/>
+今份預算案提出的一次性紓緩措施，合共每年涉及78.6億元，低於上一份預算案的115.2億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htmWed, 26 Feb 2025 15:25:00 +0800財政預算案2025｜分析：1百元印花稅延至4百萬樓帶動租轉買https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htm<img alt="中原按揭指出，100元印花稅延至4百萬樓的新措施，將推動置業人士轉租為買；戴德梁行相信，可惠及的物業成交個案將會比政府預算更多，有望達20%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793289\_1\_20250226152706.jpg&amp;q=65" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一年度財政預算案提出，將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，令樓價400萬元的住宅單位印花稅由原來6萬元降至100元，即日生效，預計可惠及約15%物業成交個案，政府收入將每年減少約4億元。
+<br>
+<br/>
+戴德梁行相信，新措施將會吸引上車客及投資者入市，並加快細價樓的交投步伐。根據土地註冊處數字，2024年價值300萬至少於400萬元的住宅成交錄得7623宗，佔整體住宅約14%成交，相信將會帶動換樓鏈，可惠及的物業成交個案將會比政府預算的15%更多，有望達20%。
+<br/>
+<br/>
+中原按揭指出，新措施令初次置業人士受惠，推動更多置業人士選擇轉租為買，置業成本減少亦同步有利推動買樓收租。中原按揭指出，去年400萬元以下住宅買賣佔整體成交達25.3%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htmWed, 26 Feb 2025 15:27:00 +0800財政預算案2025｜消息指取消學生津貼為配合精準扶貧https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htm<img alt="消息表示，有經濟需要的學生仍然有書簿津貼、交通津貼和上網津貼等支援。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793297\_1\_20250226165325.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。政府消息人士表示，預計津貼取消後，每年可節省約20億元。
+<br>
+<br/>
+消息人士表示，取消津貼是為配合今屆政府精準扶貧策略，因有經濟需要的學生仍然有書簿津貼、交通津貼和上網津貼等支援。
+<br/>
+<br/>
+消息人士又說，今年內將成立專責小組檢討，給予中小學、幼稚園的各類津貼，將會整合重疊部分，預計4月初組成名單，小組將由教育局人員組成，學界會參與提供意見。
+<br/>
+<br/>
+另外，八間資助大學未來三年獲撥款總額達681億元，較上個三年期的約632億元為高。消息人士指，八大儲備合共達1393億元，其中111億元屬一般及發展基金，由於盈餘充足，政府首次要求各院校於結餘中，一次過退還40億元。
+<br/>
+<br/>
+消息人士表示，40億元的金額約佔基金三分一，剩下三分二的資金足夠8大未來四個月經常開支，至於各院校如何攤分這40億元，消息人士指將會很快公布。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htmWed, 26 Feb 2025 15:29:00 +0800財政預算案2025｜華員會蔡冠龍支持凍薪　體現與民共渡時艱https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793298\_1\_20250226153316.jpg&amp;q=35" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份財政預算案提出，2025/26年度，所有行政、立法、司法機關、區議會及全體公務員一致凍薪；公務員編制在2026/27及2027/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
+<br>
+<br/>
+有公務員表示，由於經濟不是太好，凍薪決定屬預料之內，至於公務員編制削減，她則說感到擔心，不知道自己會否成為被削減的目標。亦有公務員說會盡力工作，又認為公務員都盡忠職守，自己開心成為公務員一份子。
+<br/>
+<br/>
+華員會秘書長蔡冠龍表示，華員會支持公務員凍薪的決定，認為體現了公務員與市民共渡時艱，但相信全體人員一致凍薪，對較基層的公務員，生活上會構成一定壓力。
+<br/>
+<br/>
+他又說，希望當局透過簡化工作流程以達致削減編制及職位，例如一些文書工作可以在網上處理，不用專人負責批核，又或回應市民查詢亦可以透過人工智能或科技協助。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htmWed, 26 Feb 2025 15:29:00 +0800特朗普稱將推出金卡投資移民計劃　500萬美元可享永久居民待遇https://news.rthk.hk/rthk/ch/component/k2/1793296-20250226.htm<img alt="特朗普說，富人可以透過購買新的「金卡」進入美國。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793296\_1\_20250226152828.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普表示，將會推出新的「金卡」投資移民計劃，為外國人取得美國居住權並最終入籍，開闢新途徑。
+<br>
+<br/>
+特朗普說，金卡的費用大約是500萬美元、折合約3880多萬港元，投資者將會獲得「綠卡」、即是永久居民待遇，亦能踏上成為美國公民之路，富人可以透過購買這張卡進入美國，外國申請者將會大灑金錢、交很多稅、僱用很多人，聯邦政府可以出售1000萬張金卡來減少赤字。
+<br/>
+<br/>
+被問到俄羅斯掌握重大權力的少數人是否有資格購買金卡，特朗普說有可能。
+<br/>
+<br/>
+商務部長盧特尼克說，金卡計劃將提高投資者的進入門檻，亦可以消除現有EB-5移民投資者計劃中，可能出現的欺詐行為。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793296-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793296-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793296-20250226.htmWed, 26 Feb 2025 15:37:00 +0800財政預算案2025｜消息：「兩蚊兩折」優惠預計明年9月實施https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm<img alt="消息指，有關「兩蚊兩折」優惠，由於要與八達通公司商討系統設計等細節，預計在明年9月才會實施。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793300\_1\_20250226165356.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案公布「二元優惠計劃」調整方案，政府消息人士表示，估計實施後，在2027/28財政年度，將可節省約6億8千萬元，而「兩蚊兩折」優惠，由於要與八達通公司商討系統設計等細節，預計在明年9月實施。
+<br>
+<br/>
+消息人士又說，成人票價10元或以下的路線，佔公共交通路線接近6成，有相當部份受惠者仍舊只須支付2元車費。
+<br/>
+<br/>
+至於「公共交通費用補貼計劃」，消息人士指，領取門檻提升至500元後，平均每個月受惠人數將減少10萬人，預計2025/26財政年度，政府將減少5億4千萬開支。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htmWed, 26 Feb 2025 15:41:00 +0800財政預算案2025｜經民聯稱官員等帶頭減輕政府負擔屬應有之義https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm<img alt="經民聯立法會議員林健鋒認為，本港面對赤字，官員、立法會和全體公務員帶頭減輕政府負擔，是應有之義，亦符合社會整體期望。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793301\_1\_20250226163637.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+經民聯認為新一份財政預算案的措施，有助香港全速發展、改革創新和招商引財等。
+<br>
+<br/>
+對於政府提出所有行政、立法、司法機關和區議員及全體公務員凍薪，身兼行會成員的經民聯立法會議員林健鋒認為，本港面對赤字，官員、立法會和全體公務員帶頭減輕政府負擔，是應有之義，亦符合社會整體期望。
+<br/>
+<br/>
+至於問責官員、行會和立法會議員共同凍薪，都是向公眾展示大家有所承擔，他呼籲其他政府資助機構和法定公共機構都跟隨政府做法，不要政府減，他們不減。
+<br/>
+<br/>
+對於公務員編制將縮減一萬個職位，林健鋒認為政府稍微保守，他以新加坡為例，人口與香港相若，但對方的公務員編制遠低於香港，他認為縮減名額有再調整的空間，政府亦應該定期檢討編制，並借鑒商界營商思維，定期評估各部門的工作效率和成果。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htmWed, 26 Feb 2025 15:45:00 +0800梵蒂岡：教宗方濟各在醫院度過平靜一晚正在休息https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm<img alt="方濟各仍在羅馬留醫，有信徒在醫院外擺放蠟燭祈禱。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793302\_1\_20250226154919.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+梵蒂岡最新表示，感染肺炎的教宗方濟各在醫院度過平靜一晚，並正在休息。
+<br>
+<br/>
+88歲的方濟各在羅馬留醫超過十日。梵蒂岡在昨晚的聲明中說，方濟各仍然危殆但情況穩定，沒有出現急性呼吸道發作，心率和血壓等指數維持穩定。
+<br/>
+<br/>
+方濟各本月14日因呼吸困難入院，隨後病情惡化，過去的周末曾經出現呼吸危機，需要接受高濃度輸氧和輸血治療。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htmWed, 26 Feb 2025 15:52:00 +0800財政預算案2025｜入境修訂規例已刊憲由今早11時起生效https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm<img alt="各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793304\_1\_20250226165450.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份財政預算案公布，各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費，以反映成本及體現「用者自付」原則。政府為實施有關收費，《2025年入境（修訂）規例》已刊憲，並由今早11時起生效。
+<br>
+<br/>
+由生效時間起，主申請人及其受養人在指明入境計劃下提出每宗入境、改變逗留條件或延長逗留限期申請，均須繳交600元申請費，獲批申請的簽證費用，則由原來劃一收費230元，按簽證/入境證逗留期限長短上調至600元或1300元。
+<br/>
+<br/>
+入境處處長已根據經修訂的《入境規例》，指明收費適用於多項入境計劃，包括高端人才通行證計劃；一般就業政策；輸入內地人才計劃；優秀人才入境計劃；非本地畢業生留港/回港就業安排；輸入中國籍香港永久性居民第二代計劃；新資本投資者入境計劃；資本投資者入境計劃；科技人才入境計劃；及職專畢業生留港計劃。
+<br/>
+<br/>
+除指明計劃外，現時適用於其他類別的簽證/入境證的費用維持不變
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htmWed, 26 Feb 2025 15:52:00 +0800財政預算案2025｜陳茂波冀用者自付原則收回離境設施部分開支https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793305\_1\_20250226163059.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，政府財政要節流開源，節流方面要考慮和顧及本港競爭力，因本港招商引才，在開新種稅或加稅率時要小心考慮，避免影響競爭力，同時要盡可能減少對市民影響，但過程中有時難以避免，預算案提出研究向由陸路邊境管制站離境的私家車徵收邊境建設費，希望能朝著用者自付原則收回部分開支，有關建議會由相關政策局研究。
+<br>
+<br/>
+陳茂波在記者會被問到預算案對中產人士的影響，他說考慮到政府財政，希望公眾諒解推出的紓緩措施基本上是以往的一半，已在力所能及的範圍內，盡可能推行。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htmWed, 26 Feb 2025 15:55:00 +0800徐立之獲委任為籌備新醫學院工作組專家顧問https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm<img alt="政府委任徐立之為籌備新醫學院工作組專家顧問。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793306\_1\_20250226170023.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+政府委任徐立之為籌備新醫學院工作組專家顧問。
+<br>
+<br/>
+醫務衞生局局長盧寵茂說，徐立之是國際知名的分子人類遺傳學專家、現任香港珠海學院校務委員會主席和香港大學前任校長，在領導高等教育界及學術研究領域擁有豐富經驗。
+<br/>
+<br/>
+工作組下一階段的工作將按已制訂的準則，評核有意成立新醫學院的大學建議書，他深信徐立之定能為工作組新階段的工作，特別在考慮新醫學院的管治及科研發展策略方面，提供寶貴意見。
+<br/>
+<br/>
+工作組去年10月成立以來，已完成制定設立新醫學院的方向及準則，並在去年12月發信邀請有意成立新醫學院的本地大學，在今年3月17日或之前提交建議書。下一步會制訂評核建議書的具體準則，確保以透明和公平的方式，選定具條件和合資格的大學成立新醫學院，預期今年內完成評核，並向政府提出建議。
+<br/>
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htmWed, 26 Feb 2025 15:56:00 +0800中菲執法部門合作遣返近百名在菲從事離岸博彩中國公民https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm<img alt="中方敦促菲方早日徹底解決離岸博彩業相關頑疾。（中國駐菲律賓大使館網頁截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793253\_1\_20250226130151.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中國和菲律賓兩國執法部門合作，遣返近百名在菲從事離岸博彩的中國公民。中國駐菲律賓大使館形容，是菲律賓政府離岸博彩禁令生效後，中菲兩國開展執法合作的又一次重要行動，彰顯兩國合作打擊離岸博彩的決心。
+<br>
+<br/>
+大使館表示，中國政府致力嚴厲打擊賭博及相關犯罪，一貫要求海外中國公民嚴格遵守當地法律法規，不得從事違法犯罪活動，敦促菲方早日徹底解決離岸博彩業相關頑疾。中方願同菲方共同打擊犯罪活動，亦敦促菲方公正執法，切實保障在菲中國公民正當合法權益。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htmWed, 26 Feb 2025 16:01:00 +0800財政預算案2025｜鄧家彪稱乘車優惠利大於弊　冀改動到此為止https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm<img alt="鄧家彪（右三）說，有關「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案，希望改動「到此為止」。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793310\_1\_20250226170236.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+工聯會立法會議員鄧家彪回應財政預算案中「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案時表示，希望改動「到此為止」，不要再做一些「大刀闊斧」的處理。
+<br>
+<br/>
+他表示，長者兩元乘車優惠對於長者和社會整體的利益是利大於弊，認為關鍵的是除了每天上限8次之外，亦可在巴士公司設立分段收費，並在下車的位置設立一個拍卡機作配合，相信資源運用得會更到位。
+<br/>
+<br/>
+工聯會會長吳秋北表示，新一份財政預算案是透過穩固金融市場、擴大招商引資、強化國際樞紐功能的三大主軸，結合城市經濟和國家戰略對接，加速經濟轉型升級。報告亦強調守正創新，可以推動本地經濟轉型升級，強化作為國家參與全球的一個聯動、一個橋樑的角色。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htmWed, 26 Feb 2025 16:04:00 +0800美國據報解凍對台軍援　中方嚴重關切https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm<img alt="林劍敦促美方停止武裝台灣，停止破壞台海和平穩定。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793309\_1\_20250226160232.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國政府據報日前解凍53億美元的援外資金，包括8億7千萬美元的對台軍援，中方表示嚴重關切。
+<br>
+<br/>
+外交部發言人林劍說，美國向中國台灣地區提供軍事援助，嚴重違反一個中國原則和中美三個聯合公報，嚴重侵犯中國的主權和安全利益，向台獨分裂勢力發出嚴重錯誤信號，中方歷來堅決反對。
+<br/>
+<br/>
+林劍敦促美方停止武裝台灣，停止破壞台海和平穩定，中方將密切關注形勢發展，堅定捍衛國家主權安全和領土完整。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htmWed, 26 Feb 2025 16:04:00 +0800財政預算案2025｜籃球博彩稅料每年15億至20億元收入https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm<img alt="陳茂波說，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793311\_1\_20250226170301.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案提出政府將積極探討規範籃球博彩活動，並邀請馬會提交建議。
+<br>
+<br/>
+財政司司長陳茂波在記者會被問到有無制定籃球博彩合法化的時間表，以及長遠會否考慮開徵銷售稅或其他稅項。陳茂波回應說，留意到現時有不少關於籃球賭博的非法投注活動，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。
+<br/>
+<br/>
+對於是否引入新稅項，陳茂波說，原則是引入任何稅務措施時，必須考慮香港在吸引投資和人才方面的競爭力，並要盡量減少對市民的影響，強調目前無意引入任何形式的商品服務稅或銷售稅。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htmWed, 26 Feb 2025 16:07:00 +0800財政預算案2025｜陳克勤相信凍薪已平衡公務員士氣及社會要求https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htm<img alt="陳克勤相信政府決定凍薪已平衡公務員士氣和社會要求等各項因素。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793312\_1\_20250226170325.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案提出行政、立法、司法機關、區議員及全體公務員，在2025/26年度一致凍薪。
+<br>
+<br/>
+民建聯主席陳克勤相信，政府決定凍薪已平衡公務員士氣和社會要求等各項因素，以往凍薪安排主要應用於公務員或政治任命官員，今次涵蓋區議會和立法機關等，體現不同方面對財赤均有承擔。
+<br/>
+<br/>
+削減人手方面，陳克勤說，需要交由政策局局長或常任秘書長考慮可以精簡的人手崗位，認為政府很多諮詢架構秘書處有不少公務員提供支援，如果可以重組相關架構，即時可節省人手提供其他公共服務。
+<br/>
+<br/>
+對於預算案提出調整「二元優惠計劃」，議員李世榮說，理解措施有助節省開支，紓緩政府財政壓力，但需要乘搭長途車的偏遠地區居民或受影響，他們原本車費較貴，新方案下只能享兩折優惠，加重出行交通費負擔，建議公共交通營辦商承擔一定責任，為他們增加「免費乘車日」等優惠。
+<br/>
+<br/>
+議員葛珮帆說，樂見預算案大篇幅在創新科技投入資源，涵蓋智慧城市和低空經濟，認為是投資「未來」和「現在」。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htmWed, 26 Feb 2025 16:09:00 +0800【預算案一文看清】民生相關措施https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htm<img alt="【預算案一文看清】民生相關措施" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793299\_1\_20250226164025.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+<b>
+財政預算案民生相關措施
+</b>
+<br>
+<br/>
+<b>
+寬減稅務
+</b>
+<br/>
+<br/>
+-寬減2024/25課稅年度100%薪俸稅和個人入息課稅，上限1500元
+<br/>
+<br/>
+-寬減2024/25課稅年度100%利得稅，上限1500元
+<br/>
+<br/>
+-寬減2025/26年度首季住宅及非住宅物業差餉，每戶上限500元
+<br/>
+<br/>
+-綜援、生果金、長者生活津貼、傷殘津貼等，額外發放半個月金額
+<br/>
+<br/>
+-價值400萬元以下物業，印花稅劃一100元，即日生效
+<br/>
+<br/>
+<br/>
+<b>
+削減補貼
+</b>
+<br/>
+<br/>
+-2元乘車優惠每月限坐240程，10元以上車費變「兩折」
+<br/>
+<br/>
+-公共交通費用補貼計劃6月起領取門檻提高至每月開支500元
+<br/>
+<br/>
+-下學年起取消中小幼學生2500元津貼
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htmWed, 26 Feb 2025 16:10:00 +0800【預算案一文看清】嚴控政府開支https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm<br/>
+<div class="itemFullText">
+<b>
+財政預算案2025嚴控政府開支
+</b>
+<br>
+<br/>
+2024/25年度綜合赤字預計為872億元
+<br/>
+<br/>
+政府財政儲備6473億元
+<br/>
+<br/>
+未來5個財政年度擬每年發債1500億至1950億元
+<br/>
+<br/>
+<b>
+著力節流
+</b>
+<br/>
+<br/>
+-推「強化版」財政整合計劃，至2027/28年度累計減經常開支7%
+<br/>
+<br/>
+-行政長官、問責官員、全體公務員、立法會議員等2025/26年度凍薪
+<br/>
+<br/>
+-公務員編制2026年度起連續兩年減2%
+<br/>
+<br/>
+-本屆政府任期內削減約1萬個職位
+<br/>
+<br/>
+<b>
+致力開源
+</b>
+<br/>
+<br/>
+-2025/26年度第三季起飛機離境稅加至200元
+<br/>
+<br/>
+-研推陸路邊境建設費，若每輛私家車收200元，每年收入達10億元
+<br/>
+<br/>
+-研規範籃球博彩活動
+<br/>
+<br/>
+-檢討電動車牌費、咪錶收費
+<br/>
+<br/>
+-檢討「牛肉乾」定額罰款
+<br/>
+<br/>
+-檢討各政府隧道及主幹道收費
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htmWed, 26 Feb 2025 16:11:00 +0800財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm<img alt="陳茂波稱北都前期投入多，較後年份收回收益。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793313\_1\_20250226170620.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，特區政府一直發短期債，因為短期債息口較便宜，加上特區政府財政狀況強，如要發債，隨時可發行並被市場吸納。他指出，針對北部都會區項目，前期投入會較多，收益在較後年份收回，當局會積極研究發長期債券。
+<br>
+<br/>
+預算案預測，政府經營帳目在2025/26年度大致達致平衡，2026/27年度恢復盈餘。陳茂波表示，即使經濟周期波動，但本港的薪俸稅及利得稅收入相當平衡，本港經濟韌性強，而政府推動財政整合計劃，削減開支並嚴控政府人手編制增長，因此在收入增加及開支增幅放慢時，可讓經營帳目較早達致平衡。
+<br/>
+<br/>
+陳茂波又表示，因加快推動北都發展，需要長期資金，當局日後除了有賣地收入支持，亦會通過發債支持現金流的差異。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htmWed, 26 Feb 2025 16:16:00 +0800財政預算案2025｜消息稱數年內就調整交通牌費及罰款提出建議https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htm<img alt="財政將檢視停車收費錶、交通違例定額罰款、隧道收費等。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793314\_1\_20250226170350.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政預算案提出，檢視電動私家車牌照費、停車收費錶、交通違例定額罰款、隧道及主幹道收費。政府消息人士指，這些收費已多年沒有調整，是時候檢視，例如違例泊車定額罰款上一次調整是1994年。
+<br>
+<br/>
+消息指，提出調整為了提升交通管理，維持公共財政紀律，期望今年內檢討並諮詢交通事務委員會，目標盡快及有序推行，預料數年內提出具體建議及落實推行。
+<br/>
+<br/>
+消息人士又指，現時電動私家車牌照費計算方法不符合能者多付原則，按車輛淨重計算，不超於1公噸的車輛每年收取牌照費572元，其後每多250公斤會加收124元。但汽油車則按CC收取。根據2023年數據，電動私家車平均每年牌照費約1200元，汽油車約7600元，是電動車的逾6倍。
+<br/>
+<br/>
+消息指，檢視考慮包括4個方向，考慮電動車發展、電池重量越趨輕巧；國際收費水平、公共財政可持續性、維持推廣綠色運輸。消息又說，有些經濟體根據電動摩打輸出功率來收取牌照費。
+<br/>
+<br/>
+政府數據指，去年所有車輛牌照費約31億元，當中電動私家車佔9000多萬元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htmWed, 26 Feb 2025 16:23:00 +0800港股全日升753點https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm<img alt="恒生指數高見23973點，升約940點，收市報23787點，升753點，升幅近3.3%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793315\_1\_20250226162449.jpg&amp;q=30" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股尾市逼近24000點，恒生指數高見23973點，升約940點，最終收市報23787點，升753點，升幅近3.3%，主板成交額3701億元。
+<br>
+<br/>
+科技指數高見6023點，但收市未能企穩6000點，報5953點，升幅約4.5%。京東集團和美團升逾8%至近10%，小米再度破頂後升近6%。
+<br/>
+<br/>
+內房股造好，中海外及龍湖集團升近8%至近11%。本地地產股亦造好，新地發展升逾6%，恒隆地產升近4%。
+<br/>
+<br/>
+金融股向上，港交所業績前升逾5%，友邦升近4%，滙控升近2%，內銀及內險股上升。券商股亦向上。
+<br/>
+<br/>
+百威亞太業績後急升逾10%。石藥集團發盈警，股價跌4%收市。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htmWed, 26 Feb 2025 16:24:00 +0800財政預算案2025｜港投公司發掘及匯聚更多前沿科企落戶香港https://news.rthk.hk/rthk/ch/component/k2/1793308-20250226.htm<img alt="陳家齊稱前沿創科發展及更廣泛應用既是經濟增長重要動力，亦能為人工智能長遠發展帶來更大支持。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793308\_1\_20250226155909.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+香港投資管理有限公司全力支持財政司司長發表的新一年度《財政預算案》，認為預算案闡明香港未來創科創投發展重點且給予大力支持，相信將有助進一步發揮本港優勢和增添經濟發展動能。
+<br>
+<br/>
+港投公司行政總裁陳家齊表示，前沿創科發展及更廣泛應用，既是經濟增長重要動力，亦能為人工智能長遠發展帶來更大支持，並讓市民及社會直接受惠。
+<br/>
+<br/>
+她表示，港投公司將全方位聯動被投企業和合作夥伴，辦好相關活動，並會透過更多項目投資和戰略合作，發掘、引領和匯聚更多前沿科企落戶香港，同時匯聚國際上的「耐心資本」，搭建跨地域平台，抓緊人工智能加速發展帶來的機遇，鞏固和加速構建蓬勃的創科生態圈。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793308-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793308-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793308-20250226.htmWed, 26 Feb 2025 16:25:00 +0800財政預算案2025｜陳茂波認為增加飛機離境稅影響相對較輕微https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htm<img alt="《財政預算案》提出多項開源措施，包括增加飛機離境稅。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793316\_1\_20250226170436.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+《財政預算案》提出多項開源措施，包括增加飛機離境稅，下年度第三季起由120元加至200元；同時研究向過境私家車徵收邊境建設費。
+<br>
+<br/>
+財政司司長陳茂波說，香港國際機場具競爭力，每日飛200個航點 、涉及1000航班，向經香港機場離境人士多徵數十元離境稅，認為影響相對較輕微。
+<br/>
+<br/>
+他強調，政府開源考慮數個原則，包括要顧及本港的競爭力及招商引才的努力，同時希望盡量減少對一般市民的影響；市民出外旅遊時「略為畀多少少」，有關款項相對機票價錢輕微。他又說，過去數年，當局亦投放不少資源在機場建設，包括興建三跑等。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htmWed, 26 Feb 2025 16:29:00 +0800財政預算案2025｜消息指發債佔GDP比例仍處於可控水平https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm<img alt="消息說，金管局會視乎市況考慮，決定發債年期，大部分會對機構投資者發行。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793317\_1\_20250226170511.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+政府消息人士表示，未來公務工程開支平均每年約1200億元，發債規模高於工程開支，由於要償還過往發行的債務。發債規模將於2027/28年度增至1950億元，同年度還債規模逾1340億元，兩者都見頂，隨後年度會回落。
+<br>
+<br/>
+消息強調，不會超出債券計劃下的7000億元借款上限，處於可控水平，債務佔本地生產總值(GDP)最多16.5%，低於其他經濟體，以美國及日本為例，比率都超過一倍。有關借款上限明年會向立法會提交修例建議。
+<br/>
+<br/>
+消息說，金管局會視乎市況考慮，決定發債年期，大部分會對機構投資者發行。對於去年基建零售債認購不足額，消息指零售認購反應視乎息口、投資者考慮，又說仍會考慮發行基建零售債。
+<br/>
+<br/>
+消息說，對發債需求有信心，相信經過投資者比例及年期調節後，對市場吸納量有信心。
+<br/>
+<br/>
+另外，消息又指，有部分發債會以代幣代債券方式發行。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htmWed, 26 Feb 2025 16:32:00 +0800財政預算案2025｜陳茂波：金融市場暢旺有助帶動其他經濟環節https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htm<img alt="陳茂波稱港股市場進行不同改革目標令金融市場能與時並進。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793318\_1\_20250226163534.jpg&amp;q=55" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波出席記者會時表示，過去幾年，本港股票市場進行不同改革，包括同股不同權、特專科技公司上市制度等，目標令金融市場能與時並進，將實體經濟發生的變化，吸納到本港市場，讓相關企業能來港上市，以提升市場吸引力，盤活市場流動性，相信股票印花稅收入自然會提升，金融市場漸趨暢旺，亦有助帶動其他經濟環節。
+<br>
+<br/>
+新一份財政預算案提到，政府即將發表第二份發展虛擬資產政策宣言。財經事務及庫務局局長許正宇指出，第一份宣言著重構造可持續的虛擬資產生態圈，包括提出監管虛擬資產交易所及推出相關ETF產品等措施，並予已落實。
+<br/>
+<br/>
+許正宇說，第二份政策宣言目標以更宏觀角度，進一步促進市場可持續發展，相信在當前不確定環境下，更需要一個穩定、可信、可持續的虛擬資產市場環境。
+<br/>
+<br/>
+陳茂波補充指，金管局與證監會推出金融科技監管沙盒，以盡早反饋業界，同時推動與深圳在金融科技方面聯合設立沙盒，以鼓勵跨境金融創新。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htmWed, 26 Feb 2025 16:35:00 +0800財政預算案2025｜謝偉銓倡研增薪點　姚柏良促三思機場離境稅https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793319\_1\_20250226170554.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+立法會G19召集人謝偉銓表示，財政預算案提出削減一萬個公務員職位，有助節省部門開支，但建議政府重新研究公務員增薪點制度，引入按表現評核機制。他認為如果減薪會影響公務員士氣，可利用創科和人工智能支援、簡化現有程序，節省開支並提高職效，較減薪更有效。
+<br>
+<br/>
+旅遊界立法會議員姚柏良就對預算案提出，將機場離境稅增至200元，非常有保留，認為不利吸引中轉客源，影響未來機場城市發展，阻礙開拓過境客市場，建議豁免向他們徵收相關稅項，希望政府三思。
+<br/>
+<br/>
+選委界別議員周文港認為，政府以連續3年每年節省2%開支的方式，調整8間資助大學撥款，做法克制，相信不會影響大學運作和發展，促請大學善用財政儲備，避免削減教職員薪酬，同時落實其他開源措施，繼續擦亮留學香港品牌。他又指，預算案提出八大需要向政府回撥40億元資金，相信不會影響大學運作和整體競爭力。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htmWed, 26 Feb 2025 16:38:00 +0800財政預算案2025｜黎志華稱政策局及部門自行考慮如何節省開支https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm<img alt="黎志華說，如何節省2%，就交給相關政策局和部門自行考慮。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793320\_1\_20250226170656.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。
+<br>
+<br/>
+財經事務及庫務局常任秘書長黎志華在記者會被問到為何作出有關決定，他說預算案提出加強版財政整合計劃以「節流」為主，政府會以身作則，所有政府部門未來3個財政年度，每年度要減少2%開支或資源，即每個政策局收到的資源封套或財政預算，都會較對上一年減少。至於2%如何節省，就交給相關政策局和部門自行考慮，例如哪些計劃有精簡空間、哪些措施可以取消、哪些人手削減，教育局的節流措施是局方自行判斷和決定。
+<br/>
+<br/>
+另外，財政司司長陳茂波說過去幾年政府在金融市場方面進行不同改革，包括同股不同權、新經濟體公司上市、特專科技公司上市等措施，目標是將實體經濟的變化快捷地吸納到金融市場，如果能吸引更多公司或企業來港上市，政府的印花稅收入就會增加。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htmWed, 26 Feb 2025 16:46:00 +0800財政預算案2025｜陳茂波稱兩蚊兩折助控制計劃未來開支增幅https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm<img alt="陳茂波說2元乘車優惠計劃調整，可兼顧政策原意，亦可控制項目開支長遠增長。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793321\_1\_20250226171233.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+預算案提出調整2元乘車優惠計劃，設每月240程上限，10元以上車費改為全額車費的「兩折」。財政司司長陳茂波說「兩蚊兩折」方案有助控制有關計劃的未來開支增長幅度。
+<br>
+<br/>
+他表示，計劃的政策原意很好，讓長者更願意外出多走動，有一定社會效益，認為有關調整可兼顧政策原意，亦可控制項目開支長遠增長，當中已盡量求取平衡，希望大家明白理解，政府採取盡量寬鬆做法。
+<br/>
+<br/>
+財經事務及庫務局常任秘書長黎志華說需要考量長者出行實際情況，不要構成不必要滋擾。他舉例說調整計劃後，一日8次出行的上限好像很多，但並非每名長者都居於港鐵站附近，可以一程車到達目的地，例如前往醫院或要轉駁其他交通工具，因此政策需要有一定的靈活性。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htmWed, 26 Feb 2025 16:49:00 +0800財政預算案2025｜許正宇：開通科企專線冀申請上市過程更順利https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm<img alt="許正宇表示，科技企業來港申請上市的過程前，可能需要就較重大的監管問題進行諮詢。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793322\_1\_20250226170746.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+新一份財政預算案提到，港交所正籌備開通「科企專線」，有傳媒關注與上市規則18C章容許特專科技公司上市的機制有何區別。
+<br>
+<br/>
+財經事務及庫務局局長許正宇出席記者會時表示，科技企業來港申請上市的過程前，可能需要就較重大的監管問題進行諮詢，措施希望給予發行人靈活性，在遞交申請前能夠預先溝通，從監管角度，聚焦解決他們申請時可能遇到的問題，令上市申請更加順利。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htmWed, 26 Feb 2025 16:52:00 +0800財政預算案2025｜陳茂波稱有信心達到財政平衡目標https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm<img alt="陳茂波表示政府經營帳戶將逐步恢復平衡，並將錄得盈餘。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793323\_1\_20250226171508.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波表示，特區政府推出強化版的財政整合計劃，以節流為主，開源為輔，加上善用政府資源，適度增加收入，大力削減開支，控制編制增長，政府經營帳戶將逐步恢復平衡，並將錄得盈餘，當局對達到財政平衡的目標有信心。
+<br>
+<br/>
+至於非經營帳戶，陳茂波說主要涉及工務工程開支，以投資未來，除了賣地收入外，當局會通過發債支持，預計在發債後的借貸比率最高達16.5%，與全球比較仍是健康穩健水平。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htmWed, 26 Feb 2025 16:54:00 +0800財政預算案2025｜明光社反對探討規範籃球博彩　憂影響青少年https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm<img alt="預算案表示將積極探討規範籃球博彩活動，明光社表明反對。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793325\_1\_20250226174342.jpg&amp;q=55" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在預算案表示，將積極探討規範籃球博彩活動，並邀請馬會提交建議。關注團體明光社表明反對，認為是政府帶頭鼓勵市民參與籃球賭博，批評政府為減赤而不擇手段。
+<br>
+<br/>
+明光社表示，堅決反對政府以打擊非法賭博活動為名而罔顧對市民、青少年價值觀的長遠影響，認為籃球賭博合法化，只會令社會長遠投放更加多資源及成本。
+<br/>
+<br/>
+對於當局指出，根據馬會評估，去年非法籃球賭博投注額高達700億至900億元。明光社指出，足球博彩多年以來未能有效打擊外圍賭博，認為馬會推廣足球博彩，令更多原來不認識，或沒有興趣參與足球博彩活動的市民及青少年，加入投注行列，對社會造成重大負面影響。
+<br/>
+<br/>
+明光社又認為，若將籃球博彩合法化，會令更多原來喜歡籃球運動的市民，特別是青少年，加入賭徒行列。政府雖然推出平和基金資助戒賭服務，但20多年以來，本港病態賭徒有所增加，認為服務未能跟上。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htmWed, 26 Feb 2025 17:03:00 +0800財政預算案2025｜證券及期貨專業總會對未降股票印花稅感遺憾https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm<img alt="證券及期貨專業總會對新一份財政預算案表示支持，但對於未有提及下調股票印花稅表示遺憾。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793326\_1\_20250226171047.jpg&amp;q=1" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+證券及期貨專業總會對新一份財政預算案表示支持，但對於未有提及下調股票印花稅表示遺憾。
+<br>
+<br/>
+總會建議，將股票交易印花稅由現行買賣雙方各付0.1%，下調至0.0625%，長遠目標逐步撤銷股票交易印花稅，以增強香港市場的國際吸引力。同時建議對窩輪、牛熊證等產品，重新引入衍生工具印花稅。
+<br/>
+<br/>
+總會又指，支持政府提出多項資本市場改革措施，建議降低符合盈利要求企業最低市值門檻、優化雙重主要上市及第二上市的規則、放寬上市公司注入新資產的規定以促進市場併購及重組活動，並擴展滬深港通標的範圍，以及加快推進T+1結算周期。
+<br/>
+<br/>
+另外，總會支持政府推動數碼債券發行、代幣化技術應用及虛擬資產市場監管，建議加快推動「數碼港元」發展。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htmWed, 26 Feb 2025 17:26:00 +0800人民幣兌美元收市升逾90點子https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm<img alt="人民幣收市報7.2547兌1美元，較上日收市升94點子。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793328\_1\_20250226172003.jpg&amp;q=35" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美元偏弱，人民幣兌美元收市上升，報7.2547兌1美元，較上日收市升94點子。中間價再創逾1個月低位，報7.1732兌1美元，與市場預測偏離近800點子。
+<br>
+<br/>
+市場人士表示，關稅不確定性重新成為市場焦點，美國經濟數據表現可能加劇未來政策走向不明朗，美元走勢或較反覆，人民幣將跟隨，有待外部因素明朗化。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htmWed, 26 Feb 2025 17:28:00 +0800泰國巴真府有旅遊巴翻側至少18死逾30傷https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htm<img alt="事發在當地凌晨3時許，旅遊巴在巴真府一條高速公路的下坡路段失控翻側。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793327\_1\_20250226171635.jpg&amp;q=55" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+泰國巴真府有旅遊巴翻側，造成至少18人死亡，超過30人受傷。
+<br>
+<br/>
+事發在當地凌晨3時許，旅遊巴當時載著參加考察團的乘客，從汶干府開往羅勇府，但在巴真府一條高速公路的下坡路段失控，滑出路面翻側，救援人員到場將傷者送院。
+<br/>
+<br/>
+警方懷疑旅遊巴的煞車系統故障，導致失控。
+<br/>
+<br/>
+總理佩通坦在社交網站上發文，對事故遇難者及家屬表示哀悼，並責成交通部調查。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htmWed, 26 Feb 2025 17:33:00 +0800尹錫悅彈劾案進入法院評議階段　韓聯社料下月中宣判https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm<img alt="尹錫悅彈劾案的庭審昨日結束後，憲法法院今日起進行評議。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793330\_1\_20250226173037.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+南韓總統尹錫悅彈劾案的庭審昨日結束後，憲法法院今日起進行評議，韓聯社預計法院下月中宣判。
+<br>
+<br/>
+法院負責人說，評議會議時間、地點等資訊都要保密，開會地點安裝防竊聽設備，法院方面每日都會檢查，並為法官安排保安人員。
+<br/>
+<br/>
+韓聯社報道，前總統盧武鉉和朴槿惠的彈劾案都在星期五宣判，是考慮到宣判前後可能發生混亂。法律界推測，尹錫悅彈劾案很可能在3月14日宣判，若果評議順利，亦有可能在3月7日宣判，一般而言，宣判日期會提前兩三日公布。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htmWed, 26 Feb 2025 17:35:00 +0800
