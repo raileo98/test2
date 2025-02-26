@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 15:29:14 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 15:34:11 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5801,4 +5801,31 @@ https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htmWed, 26 Feb 2025 23:16:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htmWed, 26 Feb 2025 23:16:00 +0800機管局：正積極推動財政預算案中提及的機場城市發展計劃https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm<br/>
+<div class="itemFullText">
+機管局表示，正積極推動財政預算案中提及的機場城市發展計劃，並以全新品牌SKYTOPIA向國際商界推廣。機管局的願景是把SKYTOPIA建設成吸引訪客，以至推動香港經濟的世界級領先地標。
+<br>
+<br/>
+財政預算案亦提及香港國際機場與珠海機場深化合作，以及「香港國際機場東莞空港中心」項目。機管局將繼續推動這些項目，以進一步加強香港國際機場作為大灣區國際航空樞紐的角色。
+<br/>
+<br/>
+機管局將會探討提供專業服務以支持香港發展為亞洲首個飛機部件處理及交易中心的可能性。香港將助力C919飛機打入國際市場，香港國際航空學院會將培訓課程擴展至涵蓋C919飛機相關的範疇。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htmWed, 26 Feb 2025 23:30:00 +0800
