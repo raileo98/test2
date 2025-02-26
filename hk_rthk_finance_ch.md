@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:39:31 +0000webmaster@rthk.hk財政預算案2025｜公務員和行政立法機關人員等凍薪https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm<img alt="財政預算案預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793272\_1\_20250226143400.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一份財政預算案提出，公務員編制在2026/27及2027/28年度，每年分別減百分之2，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
-<br>
-<br/>
-財政預算案亦提出，在2025/26年度，所有行政、立法、司法機關及區議會全體人員一致凍薪。
-<br/>
-<br/>
-財政司司長陳茂波表示，會加大力度控制政府經營開支，已指示所有政策局及部門進一步審視資源分配和工作優次，並通過整合內部資源、精簡程序及善用科技，以更具成本效益的方式為市民提供服務。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htmWed, 26 Feb 2025 14:09:00 +0800財政預算案2025｜消息人士冀就邊境建設費盡快制定落實方案https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm<img alt="消息人士表示，在陸路離境私家車徵費方面，仍在與運輸及物流局研究執行細節。（CCTV資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793273\_1\_20250226143436.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:42:16 +0000webmaster@rthk.hk財政預算案2025｜消息人士冀就邊境建設費盡快制定落實方案https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm<img alt="消息人士表示，在陸路離境私家車徵費方面，仍在與運輸及物流局研究執行細節。（CCTV資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793273\_1\_20250226143436.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 政府消息人士表示，在考慮增加收入方面，由於薪俸稅影響層面大，因此揀選影響較小的項目，並對有能力人士徵收。
@@ -1713,7 +1685,9 @@ https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800財政預算案2025｜消息：無意重推俗稱肥雞餐公僕提前離職計劃https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800財政預算案2025｜消息：無意重推俗稱肥雞餐公僕提前離職計劃https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm<img alt="消息指政府無意重推俗稱「肥雞餐」的公務員提前離職計劃。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793358\_1\_20250226194131.jpg&amp;q=65" style="width:100%;height:auto"/>
+<img alt="政府問責官員與全體公務員一致凍薪。（政府新聞處資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793358\_2\_20250226194131.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 新一份預算案宣布，所有行政、立法、司法機關及區議會全體人員一致凍薪。政府消息人士回應為何問責官員只「凍薪不減薪」時解釋，考慮到過去兩年經濟持續增長，預期今年會持續增長勢頭，私人市場更出現有人工加，因此認為全體公務員、立法會及司法機關等「愛國者治港」整體人員一起凍薪的做法較為合適。
 <br>
@@ -1743,4 +1717,37 @@ https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htmWed, 26 Feb 2025 19:16:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htmWed, 26 Feb 2025 19:16:00 +0800財政預算案2025｜范鴻齡感謝政府於財政壓力下仍增醫管局撥款https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm<br/>
+<div class="itemFullText">
+醫管局主席范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。醫管局在下年度的撥款為1002億元，包括990億元經常撥款，較本年度修訂預算增加3%。
+<br>
+<br/>
+醫管局說，公立醫院會在下個財政年度開設約330張病床；增加手術室和內視鏡檢查節數及白內障手術服務量；同時會增加普通科門診籌額，並優化專科門診的分流制度和轉介安排，加強主要慢性疾病的治療和管理，以及護士診所服務，更全面照顧病人需要。醫管局亦會繼續提升急症室服務，放射治療和化療的服務量，並改善藥劑服務。
+<br/>
+<br/>
+醫管局會持續優化及加強公營醫療服務，將致力善用資源，提升效率，減少浪費，精準投放，務求公共資源用得其所，包括檢討資助架構及水平，讓公共醫療可持續發展。
+<br/>
+<br/>
+范鴻齡表示，在國家及特區政府大力支持下，醫管局持續加強服務，為病人提供合適的治療和照顧，包括啟用全港首間母乳庫，並按國家認證標準，全力籌備全港首間中風中心及第二間胸痛中心；亦致力擴大人才庫，透過內地及全球的人才交流計劃等吸納醫療人才來港服務。
+<br/>
+<br/>
+醫管局行政總裁高拔陞說，會繼續積極推行各項醫院重建及擴建計劃，包括瑪麗醫院、啟德發展區新急症醫院、廣華醫院二期以及多個座落不同地區的社區健康中心。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htmWed, 26 Feb 2025 19:40:00 +0800
