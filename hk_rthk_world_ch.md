@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:23:53 +0000webmaster@rthk.hk克里姆林宮：解決烏克蘭問題後俄美才可能發展經貿合作https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm<img alt="克宮發言人佩斯科夫說，只有在烏克蘭問題解決之後，俄羅斯和美國才可能開展經貿投資合作。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793157\_1\_20250226021357.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-俄羅斯克里姆林宮發言人佩斯科夫表示，俄方注意到美方在烏克蘭問題上持「平衡得多」的立場，但只有在烏克蘭問題解決之後，俄羅斯和美國才可能開展經貿投資合作。
-<br>
-<br/>
-佩斯科夫表示，美方立場有助推動烏克蘭問題的解決，俄方對此表示歡迎。但歐盟方面「尚未釋放出平衡信號」。
-<br/>
-<br/>
-佩斯科夫說，俄美元首已表現出合作和恢復對話的政治意願，下一步議程是解決烏克蘭問題，然後才是考慮有可能的經貿和投資合作項目。他表示，美國需要稀土金屬，俄羅斯有很多這種資源，並且有自己的戰略資源開發計劃，這方面有足夠廣闊的合作前景。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htmWed, 26 Feb 2025 02:13:00 +0800馬來西亞交通部長：已重啟MH370客機搜尋工作https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm<img alt="馬來西亞交通部長陸兆福周二表示，已重啟搜尋工作，大馬政府與海洋勘探公司「海洋無限」的合約細節仍在敲定中。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793159\_1\_20250226024734.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:32:02 +0000webmaster@rthk.hk馬來西亞交通部長：已重啟MH370客機搜尋工作https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm<img alt="馬來西亞交通部長陸兆福周二表示，已重啟搜尋工作，大馬政府與海洋勘探公司「海洋無限」的合約細節仍在敲定中。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793159\_1\_20250226024734.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 馬航MH370客機失蹤11年後，重新展開搜尋工作。
@@ -1779,4 +1751,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htmThu, 27 Feb 2025 04:23:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htmThu, 27 Feb 2025 04:23:00 +0800美國得州一名小童感染麻疹死亡　是十年來首宗死亡個案https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm<img alt="美國得州一名小童感染麻疹死亡，是全國十年來首宗死亡個案。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793399\_1\_20250227041534.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國得州一名小童死於麻疹，是十年來首宗死亡個案，當地麻疹感染更擴散至新墨西哥州，兩個州共有超過130人感染。
+<br>
+<br/>
+得州西部今個月初開始，陸續有人感染麻疹，大部分是小童，衛生部門指，死者未有接種疫苗，在兒童醫院留醫期間死亡。
+<br/>
+<br/>
+麻疹有高傳染性，可透過飛沫傳播，在美國，每一千宗麻疹個案中，約有1至3人死亡。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800
