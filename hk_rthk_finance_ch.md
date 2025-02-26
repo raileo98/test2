@@ -1,26 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:35:51 +0000webmaster@rthk.hk韓股高收0.4%https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htm<img alt="首爾綜合指數收市報2641點，升10點，升幅0.41%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793283\_1\_20250226143849.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-南韓股市收市上升，首爾綜合指數報2641點，升10點，升幅0.41%。
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793283-20250226.htmWed, 26 Feb 2025 14:43:00 +0800財政預算案2025｜飛機乘客離境稅增至200元https://news.rthk.hk/rthk/ch/component/k2/1793284-20250226.htm<img alt="飛機乘客離境稅將由現時每位乘客120元增加至200元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793284\_1\_20250226150602.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:39:34 +0000webmaster@rthk.hk財政預算案2025｜飛機乘客離境稅增至200元https://news.rthk.hk/rthk/ch/component/k2/1793284-20250226.htm<img alt="飛機乘客離境稅將由現時每位乘客120元增加至200元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793284\_1\_20250226150602.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 預算案提出由2025/26年度第三季起，飛機乘客離境稅由現時每位乘客120元增加至200元，預計每年可增加約16億元收入。
@@ -1268,21 +1247,24 @@ https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
 <br>
 <br/>
-政府又預計下年度地價收入預算為210億元。
+財政儲備在下財政年度結束時，將跌至5803億元，相當於8個月政府開支。
+<br/>
+<br/>
+政府預計2025/26起的5年間，每年發債1500億至1950億元，支持未來發展項目，並考慮為北都項目發長期債券。
 </br>
 </div>
 <br/>
 <hr/>
 <p>
 原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 </a>
 </p>
 <p>
@@ -1293,7 +1275,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
@@ -1324,24 +1306,21 @@ https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
+財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
 <br>
 <br/>
-財政儲備在下財政年度結束時，將跌至5803億元，相當於8個月政府開支。
-<br/>
-<br/>
-政府預計2025/26起的5年間，每年發債1500億至1950億元，支持未來發展項目，並考慮為北都項目發長期債券。
+政府又預計下年度地價收入預算為210億元。
 </br>
 </div>
 <br/>
 <hr/>
 <p>
 原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
 </a>
 </p>
 <p>
@@ -1352,7 +1331,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
@@ -1790,4 +1769,34 @@ https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htmWed, 26 Feb 2025 22:35:00 +0800財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm<br/>
+<div class="itemFullText">
+公務員事務局局長楊何蓓茵就《財政預算案》與公務員事務相關的政策措施，向全體公務員發信。
+<br>
+<br/>
+楊何蓓茵表示，相信公務員會理解整套財政整合計劃對香港的發展是必須，政府部門無論在任何環境下都應通過重訂工作優次、內部調配、精簡程序及應用科技以提升效率，控制編制，希望全體公務員繼續努力，以敢於破局、勇於創新的思維，進一步擁抱科技，更好地用好人力資源、提速提效。
+<br/>
+<br/>
+另外，楊何蓓茵與公務員中央評議會和公務員團體代表會面。她說，公務員在政府施政中有着重要的角色，要認識、理解和積極支持政府的施政理念和措施，專心致志全力拼經濟、謀發展、改善民生，加速推動香港的高質量發展。
+<br/>
+<br/>
+楊何蓓茵又說，很多公務員皆理解今次凍薪和削減編制的決定，支持政府改革工作模式、應用科技的方向，有信心公務員隊伍會精益求精，克服未來的挑戰，令特區政府的效率和效能可以達到另一個更高的台階。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800
