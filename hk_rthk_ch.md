@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 18:41:56 +0000webmaster@rthk.hk財政預算案2025｜明光社反對探討規範籃球博彩　憂影響青少年https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm<img alt="預算案表示將積極探討規範籃球博彩活動，明光社表明反對。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793325\_1\_20250226174342.jpg&amp;q=55" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 18:52:18 +0000webmaster@rthk.hk財政預算案2025｜明光社反對探討規範籃球博彩　憂影響青少年https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm<img alt="預算案表示將積極探討規範籃球博彩活動，明光社表明反對。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793325\_1\_20250226174342.jpg&amp;q=55" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波在預算案表示，將積極探討規範籃球博彩活動，並邀請馬會提交建議。關注團體明光社表明反對，認為是政府帶頭鼓勵市民參與籃球賭博，批評政府為減赤而不擇手段。
@@ -1660,6 +1660,9 @@ cnews@rthk.hk
 <br>
 <br/>
 參議院以56票贊成、43票反對通過提名。5名民主黨人投了贊成票。
+<br/>
+<br/>
+外界認為，格里爾將在特朗普的貿易戰略中扮演關鍵角色，尤其在關稅政策方面。
 <br/>
 <br/>
 格里爾是一名具有國際貿易法背景的律師，曾經在總統特朗普第一個任期內擔任時任美國貿易代表萊特希澤的幕僚長。

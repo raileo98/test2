@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 18:41:56 +0000webmaster@rthk.hk尹錫悅彈劾案庭審最終陳述　兩度向國民道歉https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htm<img alt="尹錫悅彈劾案庭審公開辯論在南韓憲法法院舉行。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793139\_1\_20250225214609.jpg&amp;q=70" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 18:52:19 +0000webmaster@rthk.hk尹錫悅彈劾案庭審最終陳述　兩度向國民道歉https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htm<img alt="尹錫悅彈劾案庭審公開辯論在南韓憲法法院舉行。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793139\_1\_20250225214609.jpg&amp;q=70" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 南韓總統尹錫悅在彈劾案最後一次庭審辯論發表最終陳述，指自己宣布緊急戒嚴是要向國民發出呼籲，表明國家處於亡國危機之中，希望國民面對現實，共同克服危機。
@@ -1743,6 +1743,9 @@ cnews@rthk.hk
 <br>
 <br/>
 參議院以56票贊成、43票反對通過提名。5名民主黨人投了贊成票。
+<br/>
+<br/>
+外界認為，格里爾將在特朗普的貿易戰略中扮演關鍵角色，尤其在關稅政策方面。
 <br/>
 <br/>
 格里爾是一名具有國際貿易法背景的律師，曾經在總統特朗普第一個任期內擔任時任美國貿易代表萊特希澤的幕僚長。
