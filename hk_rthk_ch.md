@@ -1,108 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 22:12:33 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<img alt="陳茂波相信，公務員會理解及支持凍薪的決定。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793342\_1\_20250226185047.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一份財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。公務員編制在2026/27及27/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
-<br>
-<br/>
-財政司司長陳茂波相信，公務員會理解及支持凍薪的決定，被問到有否考慮高官減薪，他說在考慮經濟持續增長等因素後，決定問責官員亦凍薪。
-<br/>
-<br/>
-預算案又提出，25/26年度節省政府經常開支的幅度，由原來1%增加至2%，延續兩年至2027/28年度。連同24/25年度1%的減幅，累計削減幅度7%。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htmWed, 26 Feb 2025 18:26:00 +0800財政預算案2025｜上調飛機乘客離境稅　檢討交通違例定額罰款https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm<img alt="每名飛機乘客離境稅將上調至200元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793344\_1\_20250226185127.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-預算案提出多項措施增加收入，包括將每名飛機乘客離境稅上調至200元；檢討俗稱「牛肉乾」的交通違例事項定額罰款；並研究徵收陸路離境的私家車「邊境建設費」等。
-<br>
-<br/>
-財政司司長陳茂波表示，希望體現「用者自付」原則，收回部分開支，考慮時亦顧及到香港的競爭力，以及盡量減少對一般市民的影響。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htmWed, 26 Feb 2025 18:38:00 +0800財政預算案2025｜提向旅發局撥逾12.3億　落實無處不旅遊https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793347\_1\_20250226184903.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-預算案提出向旅發局撥款超過12億3千萬元，落實「無處不旅遊」。
-<br>
-<br/>
-政府計劃在中環、灣仔、北角及尖沙咀海濱加設輕食飲品攤檔，並將紅磡站南面的臨海及前碼頭用地，打造成海濱新地標。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜探討規範籃球博彩邀馬會交建議　明光社反對https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm<img alt="陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793348\_1\_20250226185056.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
-<br>
-<br/>
-關注團體明光社表明反對，批評政府為減赤而不擇手段。明愛展晴中心表示，曾處理個別年輕人參與外圍籃球賭博的個案，擔心會令更多年輕人受影響。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 22:18:08 +0000webmaster@rthk.hk信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
@@ -1432,7 +1329,7 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htmThu, 27 Feb 2025 03:24:00 +0800特朗普：不會向烏克蘭提供安全保障或北約成員國資格https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm<img alt="特朗普主持首次內閣會議，談到烏克蘭問題。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793396\_1\_20250227032617.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-美國特朗普確認，烏克蘭總統澤連斯基將於星期五訪問華盛頓，簽署礦產協議，又說美國不會向烏克蘭提供廣泛的安全保障或北約成員國資格。
+美國特朗普確認，烏克蘭總統澤連斯基將於星期五訪問華盛頓，簽署礦產協議，又說美國不會向烏克蘭提供深遠的安全保障或北約成員國資格。
 <br>
 <br/>
 特朗普星期三在首次內閣會議上形容協議對烏克蘭來講亦是好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保障，認為歐洲作為烏克蘭的鄰居，應該承擔責任。
@@ -1721,4 +1618,122 @@ https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htmThu, 27 Feb 2025 05:35:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htmThu, 27 Feb 2025 05:35:00 +0800油價向下　美國成品油庫存意外增加https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm<img alt="油價下跌，美國成品油庫存意外增加，加上俄烏或達成和平協議，都對油價構成壓力。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793407\_1\_20250227053808.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+原油期貨價格下跌。美國成品油庫存意外增加，或反映需求疲軟，加上俄羅斯和烏克蘭可能達成和平協議，繼續對油價構成壓力。
+<br>
+<br/>
+倫敦布蘭特期油收報每桶72.53美元，下跌49美仙，跌幅0.67%。
+<br/>
+<br/>
+紐約期油收報每桶68.62美元，下跌31美仙，跌幅0.45%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htmThu, 27 Feb 2025 06:15:00 +0800紐約期金上升0.4%　市場注視美國通脹數據https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm<img alt="紐約期金收報每盎司2930.6美元，上升0.4%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793408\_1\_20250227054435.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+期金高收。市場關注將於本周公布的美國通脹數據，以及美國總統特朗普關稅計劃的進展。
+<br>
+<br/>
+紐約期金收報每盎司2930.6美元，上升0.4%。
+<br/>
+<br/>
+現貨金較早時變動不大，在每盎司2916.6美元水平上落。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htmThu, 27 Feb 2025 06:15:00 +0800美元指數靠穩https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm<img alt="美元指數靠穩，較早時報106.49，升約0.2%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793410\_1\_20250227055950.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美元指數靠穩，較早時報106.49，升約0.2%。
+<br>
+<br/>
+歐元兌美元下跌0.26%，報1.0486美元。
+<br/>
+<br/>
+加元兌美元曾跌0.9%；墨西哥披索兌美元上升0.3%。美國總統特朗普重申將對兩國徵收關稅。
+<br/>
+<br/>
+美元兌日圓、英鎊變動不大。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htmThu, 27 Feb 2025 06:15:00 +0800港股ADR較本港昨日收市價普遍向下https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm<img alt="港股ADR普遍向下，阿里巴巴及京東都跌逾1%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793411\_1\_20250227060859.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股美國預託證券(ADR)普遍向下。
+<br>
+<br/>
+ATMXJ中，阿里巴巴及京東都跌逾1%，騰訊及美團跌近1%，小米偏軟。
+<br/>
+<br/>
+內銀股建行、中行及工行跌約0.2%至逾0.3%。
+<br/>
+<br/>
+港交所跌0.7%，不過滙控升約2%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htmThu, 27 Feb 2025 06:16:00 +0800

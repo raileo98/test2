@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:12:33 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:18:07 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 敘利亞全國對話會議閉幕，發表聲明強調維護敘利亞統一和領土主權，呼籲加快組建臨時立法委員會和發布臨時憲法宣言。
@@ -1568,7 +1568,7 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htmThu, 27 Feb 2025 03:24:00 +0800特朗普：不會向烏克蘭提供安全保障或北約成員國資格https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm<img alt="特朗普主持首次內閣會議，談到烏克蘭問題。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793396\_1\_20250227032617.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-美國特朗普確認，烏克蘭總統澤連斯基將於星期五訪問華盛頓，簽署礦產協議，又說美國不會向烏克蘭提供廣泛的安全保障或北約成員國資格。
+美國特朗普確認，烏克蘭總統澤連斯基將於星期五訪問華盛頓，簽署礦產協議，又說美國不會向烏克蘭提供深遠的安全保障或北約成員國資格。
 <br>
 <br/>
 特朗普星期三在首次內閣會議上形容協議對烏克蘭來講亦是好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保障，認為歐洲作為烏克蘭的鄰居，應該承擔責任。

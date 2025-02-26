@@ -1,120 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:12:32 +0000webmaster@rthk.hk財政預算案2025｜華員會蔡冠龍支持凍薪　體現與民共渡時艱https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793298\_1\_20250226153316.jpg&amp;q=35" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一份財政預算案提出，2025/26年度，所有行政、立法、司法機關、區議會及全體公務員一致凍薪；公務員編制在2026/27及2027/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
-<br>
-<br/>
-有公務員表示，由於經濟不是太好，凍薪決定屬預料之內，至於公務員編制削減，她則說感到擔心，不知道自己會否成為被削減的目標。亦有公務員說會盡力工作，又認為公務員都盡忠職守，自己開心成為公務員一份子。
-<br/>
-<br/>
-華員會秘書長蔡冠龍表示，華員會支持公務員凍薪的決定，認為體現了公務員與市民共渡時艱，但相信全體人員一致凍薪，對較基層的公務員，生活上會構成一定壓力。
-<br/>
-<br/>
-他又說，希望當局透過簡化工作流程以達致削減編制及職位，例如一些文書工作可以在網上處理，不用專人負責批核，又或回應市民查詢亦可以透過人工智能或科技協助。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htmWed, 26 Feb 2025 15:29:00 +0800財政預算案2025｜消息：「兩蚊兩折」優惠預計明年9月實施https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm<img alt="消息指，有關「兩蚊兩折」優惠，由於要與八達通公司商討系統設計等細節，預計在明年9月才會實施。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793300\_1\_20250226165356.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政預算案公布「二元優惠計劃」調整方案，政府消息人士表示，估計實施後，在2027/28財政年度，將可節省約6億8千萬元，而「兩蚊兩折」優惠，由於要與八達通公司商討系統設計等細節，預計在明年9月實施。
-<br>
-<br/>
-消息人士又說，成人票價10元或以下的路線，佔公共交通路線接近6成，有相當部份受惠者仍舊只須支付2元車費。
-<br/>
-<br/>
-至於「公共交通費用補貼計劃」，消息人士指，領取門檻提升至500元後，平均每個月受惠人數將減少10萬人，預計2025/26財政年度，政府將減少5億4千萬開支。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htmWed, 26 Feb 2025 15:41:00 +0800財政預算案2025｜入境修訂規例已刊憲由今早11時起生效https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm<img alt="各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793304\_1\_20250226165450.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一份財政預算案公布，各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費，以反映成本及體現「用者自付」原則。政府為實施有關收費，《2025年入境（修訂）規例》已刊憲，並由今早11時起生效。
-<br>
-<br/>
-由生效時間起，主申請人及其受養人在指明入境計劃下提出每宗入境、改變逗留條件或延長逗留限期申請，均須繳交600元申請費，獲批申請的簽證費用，則由原來劃一收費230元，按簽證/入境證逗留期限長短上調至600元或1300元。
-<br/>
-<br/>
-入境處處長已根據經修訂的《入境規例》，指明收費適用於多項入境計劃，包括高端人才通行證計劃；一般就業政策；輸入內地人才計劃；優秀人才入境計劃；非本地畢業生留港/回港就業安排；輸入中國籍香港永久性居民第二代計劃；新資本投資者入境計劃；資本投資者入境計劃；科技人才入境計劃；及職專畢業生留港計劃。
-<br/>
-<br/>
-除指明計劃外，現時適用於其他類別的簽證/入境證的費用維持不變
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htmWed, 26 Feb 2025 15:52:00 +0800財政預算案2025｜陳茂波冀用者自付原則收回離境設施部分開支https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793305\_1\_20250226163059.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波表示，政府財政要節流開源，節流方面要考慮和顧及本港競爭力，因本港招商引才，在開新種稅或加稅率時要小心考慮，避免影響競爭力，同時要盡可能減少對市民影響，但過程中有時難以避免，預算案提出研究向由陸路邊境管制站離境的私家車徵收邊境建設費，希望能朝著用者自付原則收回部分開支，有關建議會由相關政策局研究。
-<br>
-<br/>
-陳茂波在記者會被問到預算案對中產人士的影響，他說考慮到政府財政，希望公眾諒解推出的紓緩措施基本上是以往的一半，已在力所能及的範圍內，盡可能推行。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htmWed, 26 Feb 2025 15:55:00 +0800財政預算案2025｜鄧家彪稱乘車優惠利大於弊　冀改動到此為止https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm<img alt="鄧家彪（右三）說，有關「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案，希望改動「到此為止」。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793310\_1\_20250226170236.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:18:07 +0000webmaster@rthk.hk財政預算案2025｜鄧家彪稱乘車優惠利大於弊　冀改動到此為止https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm<img alt="鄧家彪（右三）說，有關「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案，希望改動「到此為止」。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793310\_1\_20250226170236.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 工聯會立法會議員鄧家彪回應財政預算案中「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案時表示，希望改動「到此為止」，不要再做一些「大刀闊斧」的處理。
@@ -1017,38 +902,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
-<br>
-<br/>
-集團上半年度收入38.5億元，按年跌近22%。應佔物業銷售總收入減少63%至近24.5億元；應佔總租金收益跌約2%至近17.5億元，整體出租率跌1.3個百分點至89.5%，因零售業面臨新挑戰。
-<br/>
-<br/>
-截至去年底，集團在中國內地、香港，新加坡及澳洲悉尼擁有土地儲備應佔樓面面積約1940萬平方呎，足以應付未來數年發展需要。集團將繼續以選擇性策略增添土地儲備。
-<br/>
-<br/>
-集團未來有多個新項目可供推售，包括中環ONE CENTRAL PLACE、油塘通風樓物業發展項目、元朗柏瓏III及將軍澳日出康城第13期物業發展項目，以上項目已取得預售樓花同意書。集團預期土瓜灣榮光街/崇安街發展項目今年獲發預售樓花同意書。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
@@ -1101,7 +955,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
+<br>
+<br/>
+集團上半年度收入38.5億元，按年跌近22%。應佔物業銷售總收入減少63%至近24.5億元；應佔總租金收益跌約2%至近17.5億元，整體出租率跌1.3個百分點至89.5%，因零售業面臨新挑戰。
+<br/>
+<br/>
+截至去年底，集團在中國內地、香港，新加坡及澳洲悉尼擁有土地儲備應佔樓面面積約1940萬平方呎，足以應付未來數年發展需要。集團將繼續以選擇性策略增添土地儲備。
+<br/>
+<br/>
+集團未來有多個新項目可供推售，包括中環ONE CENTRAL PLACE、油塘通風樓物業發展項目、元朗柏瓏III及將軍澳日出康城第13期物業發展項目，以上項目已取得預售樓花同意書。集團預期土瓜灣榮光街/崇安街發展項目今年獲發預售樓花同意書。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
@@ -1812,4 +1697,122 @@ https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htmThu, 27 Feb 2025 05:35:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htmThu, 27 Feb 2025 05:35:00 +0800油價向下　美國成品油庫存意外增加https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm<img alt="油價下跌，美國成品油庫存意外增加，加上俄烏或達成和平協議，都對油價構成壓力。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793407\_1\_20250227053808.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+原油期貨價格下跌。美國成品油庫存意外增加，或反映需求疲軟，加上俄羅斯和烏克蘭可能達成和平協議，繼續對油價構成壓力。
+<br>
+<br/>
+倫敦布蘭特期油收報每桶72.53美元，下跌49美仙，跌幅0.67%。
+<br/>
+<br/>
+紐約期油收報每桶68.62美元，下跌31美仙，跌幅0.45%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htmThu, 27 Feb 2025 06:15:00 +0800紐約期金上升0.4%　市場注視美國通脹數據https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm<img alt="紐約期金收報每盎司2930.6美元，上升0.4%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793408\_1\_20250227054435.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+期金高收。市場關注將於本周公布的美國通脹數據，以及美國總統特朗普關稅計劃的進展。
+<br>
+<br/>
+紐約期金收報每盎司2930.6美元，上升0.4%。
+<br/>
+<br/>
+現貨金較早時變動不大，在每盎司2916.6美元水平上落。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htmThu, 27 Feb 2025 06:15:00 +0800美元指數靠穩https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm<img alt="美元指數靠穩，較早時報106.49，升約0.2%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793410\_1\_20250227055950.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美元指數靠穩，較早時報106.49，升約0.2%。
+<br>
+<br/>
+歐元兌美元下跌0.26%，報1.0486美元。
+<br/>
+<br/>
+加元兌美元曾跌0.9%；墨西哥披索兌美元上升0.3%。美國總統特朗普重申將對兩國徵收關稅。
+<br/>
+<br/>
+美元兌日圓、英鎊變動不大。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htmThu, 27 Feb 2025 06:15:00 +0800港股ADR較本港昨日收市價普遍向下https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm<img alt="港股ADR普遍向下，阿里巴巴及京東都跌逾1%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793411\_1\_20250227060859.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股美國預託證券(ADR)普遍向下。
+<br>
+<br/>
+ATMXJ中，阿里巴巴及京東都跌逾1%，騰訊及美團跌近1%，小米偏軟。
+<br/>
+<br/>
+內銀股建行、中行及工行跌約0.2%至逾0.3%。
+<br/>
+<br/>
+港交所跌0.7%，不過滙控升約2%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htmThu, 27 Feb 2025 06:16:00 +0800
