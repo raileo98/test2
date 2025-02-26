@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 15:12:22 +0000webmaster@rthk.hk財政預算案2025｜陳茂波：政府凍薪考慮到經濟狀況及財政整合https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793293\_1\_20250226161419.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政預算案提出下個財政年度全體公務員凍薪。財政司司長陳茂波在記者會被問到有否考慮高官減薪或捐出薪酬，以顯示共渡時艱的決心，他回應說問責官員採取凍薪是合適做法。
-<br>
-<br/>
-他又說政府作出有關決定時，已考慮數個因素，包括本港過去兩年經濟增長，並預料今年亦持續；在職市民收入有增加；政府提出加強版財政整合計劃，預期在2026/27年度經營帳目恢復平衡並且有盈餘。
-<br/>
-<br/>
-至於公務員凍薪，是否仍會展開薪酬趨勢調查。陳茂波說有關凍薪決定得到公務員的支持及理解，認為是合適去做，即使有薪酬調查 ，但當中亦要考慮6個因素包括政府財政。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793293-20250226.htmWed, 26 Feb 2025 15:20:00 +0800財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm<img alt="旅發局稱定必謹慎運用政府資源，精準制訂宣傳策略。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793294\_1\_20250226153056.jpg&amp;q=70" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 15:29:15 +0000webmaster@rthk.hk財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm<img alt="旅發局稱定必謹慎運用政府資源，精準制訂宣傳策略。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793294\_1\_20250226153056.jpg&amp;q=70" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波宣布，為落實「無處不旅遊」的理念及《香港旅遊業發展藍圖2.0》，來年會向旅發局撥款12億3500萬元。
@@ -1816,4 +1788,25 @@ https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htmWed, 26 Feb 2025 23:04:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htmWed, 26 Feb 2025 23:04:00 +0800美國1月新屋銷售少過預期https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm<img alt="美國1月新屋銷售按月減少10.5%，以年率計有65.7萬間，少過市場預期。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793384\_1\_20250226230918.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國商務部公布，美國1月新屋銷售按月減少10.5%，以年率計有65.7萬間，少過市場預期的68萬間。
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htmWed, 26 Feb 2025 23:16:00 +0800
