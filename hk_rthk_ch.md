@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 17:20:58 +0000webmaster@rthk.hk財政預算案2025｜謝偉銓倡研增薪點　姚柏良促三思機場離境稅https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793319\_1\_20250226170554.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 17:25:45 +0000webmaster@rthk.hk財政預算案2025｜謝偉銓倡研增薪點　姚柏良促三思機場離境稅https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793319\_1\_20250226170554.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 立法會G19召集人謝偉銓表示，財政預算案提出削減一萬個公務員職位，有助節省部門開支，但建議政府重新研究公務員增薪點制度，引入按表現評核機制。他認為如果減薪會影響公務員士氣，可利用創科和人工智能支援、簡化現有程序，節省開支並提高職效，較減薪更有效。
@@ -1628,7 +1628,10 @@ cnews@rthk.hk
 澤連斯基稱，烏美將首先簽署關於開發烏克蘭礦產資源的框架協議，接下來還將簽署聯合投資基金協議，兩國將共同持有該基金。
 <br/>
 <br/>
-路透社報道，協議沒有明確列出具體安全保障，但提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
+根據傳媒公布的協議文本，美國和烏克蘭將共同開發礦產資源，並將收入注入共同基金。根據條款，烏克蘭將把收入的一半向基金注資，每年至少一次重新投資於烏克蘭的項目。條款中沒有清楚說明美國將擁有基金的多少份額。
+<br/>
+<br/>
+路透社報道，協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
 </br>
 </div>
 <br/>

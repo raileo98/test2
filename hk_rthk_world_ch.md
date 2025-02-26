@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 17:20:58 +0000webmaster@rthk.hk麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm<img alt="麥萃才認為，如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793104\_1\_20250225170101.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 17:25:45 +0000webmaster@rthk.hk麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm<img alt="麥萃才認為，如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793104\_1\_20250225170101.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 香港迪士尼樂園公布業績，淨利潤達8.38億港元，10年來首次錄得盈利，收入按年增長54%至88億港元，同時創開幕以來新高。浸會大學會計、經濟及金融學系副教授麥萃才表示，疫情後機場的運力開始回升，令長短途旅客來港人數有所增加，而旅客增長主要受惠於東盟國家，包括來自菲律賓及泰國等地的遊客，再加上近年香港迪士尼樂園新增部分設施都能吸引區內旅客。
@@ -1705,7 +1705,10 @@ cnews@rthk.hk
 澤連斯基稱，烏美將首先簽署關於開發烏克蘭礦產資源的框架協議，接下來還將簽署聯合投資基金協議，兩國將共同持有該基金。
 <br/>
 <br/>
-路透社報道，協議沒有明確列出具體安全保障，但提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
+根據傳媒公布的協議文本，美國和烏克蘭將共同開發礦產資源，並將收入注入共同基金。根據條款，烏克蘭將把收入的一半向基金注資，每年至少一次重新投資於烏克蘭的項目。條款中沒有清楚說明美國將擁有基金的多少份額。
+<br/>
+<br/>
+路透社報道，協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
 </br>
 </div>
 <br/>
