@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 10:52:39 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 10:57:30 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -4912,4 +4912,84 @@ https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htmWed, 26 Feb 2025 18:50:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htmWed, 26 Feb 2025 18:50:00 +0800財政預算案2025｜倡推進上市制度改革　優化互聯互通機制https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793346\_1\_20250226185149.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+為鞏固香港作為國際金融中心的地位，《財政預算案》提出多項推動金融發展措施，包括推進上市制度改革，審視上市要求和上市後持續責任檢視上市規例和安排，改善審批流程等。
+<br>
+<br/>
+政府亦會繼續與內地優化互聯互通機制，包括在香港推出離岸國債期貨；人民銀行與金管局亦正積極落實兩地快速支付系統的互聯，預計最快年中推出兩地居民全天候即時小額跨境匯款服務。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htmWed, 26 Feb 2025 18:51:00 +0800財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm<img alt="財庫局局長許正宇將在本周稍後主持記者會，介紹《財政預算案》中有關金融發展各項政策措施。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793343\_1\_20250226182951.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財經事務及庫務局表示，財政司司長陳茂波今日發表2025至26年度《財政預算案》。金融是推動實體經濟發展重要支柱，財庫局將透過5大範疇策略部署，在「一國兩制」獨特優勢下，全方位鞏固香港國際金融中心地位，確保在全球金融市場中保持領先。
+<br>
+<br/>
+財庫局在社交媒體上表示，5大範疇包括股市及新股市場蓬勃發展、財富管理與資產管理卓越成就、金融科技與創新驅動、互聯互通與國際合作深化，以及制度改革持續推進。
+<br/>
+<br/>
+財經事務及庫務局局長許正宇將在本周稍後，主持記者會向公眾介紹《財政預算案》中有關金融發展各項政策措施。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800無業女子被捕涉行使偽鈔　用非洲國家舊外幣印港幣字樣https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm<br/>
+<div class="itemFullText">
+警方拘捕一名39歲無業女子，涉及3宗行使偽鈔案，她正被扣留調查，明日在九龍城裁判法院提堂。
+<br>
+<br/>
+3宗案件發生在上月底至周日，位於油麻地及尖沙咀的不同超級市場，收到來自客人的港幣500元懷疑偽鈔。警方調查發現，疑犯以500元大額偽鈔，在商店購買價值較少的商品，從而騙取商品及現金找贖。涉案的三張偽鈔中，有兩張是以真鈔作為藍本打印，另一張是以真鈔但價值低的非洲國家舊外幣，在上面直接打印「港幣$500」等字樣。
+<br/>
+<br/>
+警方提醒市民在接收或找贖鈔票時，務必仔細檢查鈔票的防偽特徵，又指騙徒常利用人多繁忙的時段，趁店員不注意的時候使用偽鈔，市民應加倍留神。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htmWed, 26 Feb 2025 18:54:00 +0800

@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:52:39 +0000webmaster@rthk.hk財政預算案2025｜馬會歡迎獲邀提交規範籃球博彩建議https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htm<img alt="馬會歡迎並全力支持預算案中，邀請馬會提交推行規範籃球博彩的建議。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793270\_1\_20250226143322.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波在預算案表示，為有效打擊非法賭博活動，政府將積極探討規範籃球博彩活動，並邀請香港賽馬會提交建議。
-<br>
-<br/>
-馬會回應表示，歡迎並全力支持預算案中，邀請馬會提交推行規範籃球博彩的建議。馬會指，完全認同已有充份理據規範籃球博彩，又指非法籃球賭博引致嚴重社會問題，包括高利貸及引誘未成年人賭博等。根據馬會評估，去年的非法籃球賭博投注額，高達約700億至900億元，認為規範籃球博彩是打擊非法籃球賭博的重要措施，將有效遏制其日益增長的趨勢。
-<br/>
-<br/>
-馬會表示，將於短期內向特區政府提交詳細建議，並期待與特區政府緊密合作，以盡快落實籃球博彩規範化這一項重要政策措施。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793270-20250226.htmWed, 26 Feb 2025 14:06:00 +0800財政預算案2025｜消息指提早公布凍薪冀公務員提早準備https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm<img alt="消息人士說，今次提早公布凍薪是希望公務員提早準備，減低不明朗因素。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793271\_2\_20250226144033.jpg&amp;q=35" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:57:30 +0000webmaster@rthk.hk財政預算案2025｜消息指提早公布凍薪冀公務員提早準備https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm<img alt="消息人士說，今次提早公布凍薪是希望公務員提早準備，減低不明朗因素。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793271\_2\_20250226144033.jpg&amp;q=35" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政預算案提出強化財政整合計劃，以應對財赤，當中包括行政，立法，司法機關，區議員及全體公務員，在2025/26年度一致凍薪。
@@ -1613,31 +1585,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<br/>
-<div class="itemFullText">
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-<br>
-<br/>
-政府又預計下年度地價收入預算為210億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
@@ -1695,7 +1643,31 @@ https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<br/>
+<div class="itemFullText">
+財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+<br>
+<br/>
+政府又預計下年度地價收入預算為210億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<br/>
 <div class="itemFullText">
 選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
 <br>
@@ -1747,4 +1719,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htmWed, 26 Feb 2025 18:51:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htmWed, 26 Feb 2025 18:51:00 +0800財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm<img alt="財庫局局長許正宇將在本周稍後主持記者會，介紹《財政預算案》中有關金融發展各項政策措施。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793343\_1\_20250226182951.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財經事務及庫務局表示，財政司司長陳茂波今日發表2025至26年度《財政預算案》。金融是推動實體經濟發展重要支柱，財庫局將透過5大範疇策略部署，在「一國兩制」獨特優勢下，全方位鞏固香港國際金融中心地位，確保在全球金融市場中保持領先。
+<br>
+<br/>
+財庫局在社交媒體上表示，5大範疇包括股市及新股市場蓬勃發展、財富管理與資產管理卓越成就、金融科技與創新驅動、互聯互通與國際合作深化，以及制度改革持續推進。
+<br/>
+<br/>
+財經事務及庫務局局長許正宇將在本周稍後，主持記者會向公眾介紹《財政預算案》中有關金融發展各項政策措施。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800

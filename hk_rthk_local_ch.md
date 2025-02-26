@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:52:38 +0000webmaster@rthk.hk財政預算案2025｜年內展開港深西部鐵路勘查及北環線支線規劃https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm<img alt="預算案提到，預計年內展開港深西部鐵路（洪水橋至前海）項目的勘查及設計研究，以及北環線支線的詳細規劃及設計。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793219\_1\_20250226122212.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波公布將全力推進北部都會區的土地發展，北部都會區在未來數年的房屋單位及產業用地將有可觀產出。
-<br>
-<br/>
-預算案提到，繼去年開展洪水橋/厦村新發展區第二期、古洞北/粉嶺北新發展區餘下階段，以及新田科技城首批土地平整及基礎設施工程 3個大型項目後，今年將啟動元朗南新發展區第二期的工程，完成沙嶺數據園區用地的改劃程序，並會敲定牛潭尾以至新界北新市鎮和馬草壟的土地用途建議，其後展開環境影響評估和其他法定程序。
-<br/>
-<br/>
-鐵路方面，北環線第一期的古洞站項目經已動工，目標在2027年竣工，第二期的前期工程亦已展開，配合於2034年完成北環線主線的目標。另外，特區政府與深圳當局正推展兩個跨境鐵路項目，預計於年內展開港深西部鐵路（洪水橋至前海）項目的勘查及設計研究，以及北環線支線的詳細規劃及設計。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htmWed, 26 Feb 2025 11:42:00 +0800財政預算案2025｜研究設退市後場外交易機制https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm<img alt="陳茂波表示港交所會在年中起，為交易後系統逐步引入新功能，並進行系統升級。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793221\_1\_20250226122309.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:57:30 +0000webmaster@rthk.hk財政預算案2025｜研究設退市後場外交易機制https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm<img alt="陳茂波表示港交所會在年中起，為交易後系統逐步引入新功能，並進行系統升級。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793221\_1\_20250226122309.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波表示，為配合最新經濟趨勢和企業需求，會審視上市要求和上市後持續責任；檢視上市規例和安排，改善審批流程；優化雙重主要上市及第二上市門檻，以及檢討市場結構，包括研究設立退市後場外交易機制。
@@ -2711,4 +2683,59 @@ https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htmWed, 26 Feb 2025 18:51:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htmWed, 26 Feb 2025 18:51:00 +0800財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm<img alt="財庫局局長許正宇將在本周稍後主持記者會，介紹《財政預算案》中有關金融發展各項政策措施。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793343\_1\_20250226182951.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財經事務及庫務局表示，財政司司長陳茂波今日發表2025至26年度《財政預算案》。金融是推動實體經濟發展重要支柱，財庫局將透過5大範疇策略部署，在「一國兩制」獨特優勢下，全方位鞏固香港國際金融中心地位，確保在全球金融市場中保持領先。
+<br>
+<br/>
+財庫局在社交媒體上表示，5大範疇包括股市及新股市場蓬勃發展、財富管理與資產管理卓越成就、金融科技與創新驅動、互聯互通與國際合作深化，以及制度改革持續推進。
+<br/>
+<br/>
+財經事務及庫務局局長許正宇將在本周稍後，主持記者會向公眾介紹《財政預算案》中有關金融發展各項政策措施。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800無業女子被捕涉行使偽鈔　用非洲國家舊外幣印港幣字樣https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm<br/>
+<div class="itemFullText">
+警方拘捕一名39歲無業女子，涉及3宗行使偽鈔案，她正被扣留調查，明日在九龍城裁判法院提堂。
+<br>
+<br/>
+3宗案件發生在上月底至周日，位於油麻地及尖沙咀的不同超級市場，收到來自客人的港幣500元懷疑偽鈔。警方調查發現，疑犯以500元大額偽鈔，在商店購買價值較少的商品，從而騙取商品及現金找贖。涉案的三張偽鈔中，有兩張是以真鈔作為藍本打印，另一張是以真鈔但價值低的非洲國家舊外幣，在上面直接打印「港幣$500」等字樣。
+<br/>
+<br/>
+警方提醒市民在接收或找贖鈔票時，務必仔細檢查鈔票的防偽特徵，又指騙徒常利用人多繁忙的時段，趁店員不注意的時候使用偽鈔，市民應加倍留神。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htmWed, 26 Feb 2025 18:54:00 +0800
