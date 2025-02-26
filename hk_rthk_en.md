@@ -1,39 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 14:17:30 +0000webmaster@rthk.hkChina mulls banning arbitrary fines on private firmshttps://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm<img alt="The draft law was submitted to an ongoing session of the Standing Committee of the National People's Congress for a second reading. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792989\_1\_20250224205037.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Mainland lawmakers on Monday began deliberations on the draft private economy promotion law, which adds new provisions prohibiting arbitrary fees and fines on private enterprises.
-<br>
-<br/>
-The draft law was submitted on Monday to an ongoing session of the Standing Committee of the National People's Congress for a second reading. The first reading took place last December.
-<br/>
-<br/>
-The draft bans the forced collection of funds or material donations from private enterprises and specifies that multiple inspection items of the same inspection target should be consolidated whenever possible or included within the scope of cross-departmental joint inspections.
-<br/>
-<br/>
-It also includes provisions requiring the State Council and local people's governments at or above the county level to regularly report to the standing committees of the people's congresses of their corresponding level on the promotion of the private economy.
-<br/>
-<br/>
-It stipulates that relevant industry associations and chambers of commerce should fulfill their coordinating and self-regulatory roles in accordance with laws, regulations, and their charters. (Xinhua)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htmMon, 24 Feb 2025 20:50:00 +0800Newborn baby found dead in Sham Tseng unithttps://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm<img alt="Police say they received a report on Monday afternoon regarding an unconscious infant in Sham Tseng. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792991\_1\_20250224205840.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 14:20:16 +0000webmaster@rthk.hkNewborn baby found dead in Sham Tseng unithttps://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm<img alt="Police say they received a report on Monday afternoon regarding an unconscious infant in Sham Tseng. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792991\_1\_20250224205840.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Police said a newborn baby was found dead in a unit in western Tsuen Wan on Monday.
@@ -2856,4 +2822,65 @@ https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htmWed, 26 Feb 2025 21:52:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htmWed, 26 Feb 2025 21:52:00 +0800Hamas to hand over four Israeli hostages' bodieshttps://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm<img alt="In Israel on Wednesday, thousands of mourners gathered for the funeral of Shiri Bibas and her sons, who died in captivity in Gaza. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793374\_1\_20250226212829.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Hamas will hand over the bodies of four Israeli hostages on Thursday in what it said would be an exchange for more than 600 Palestinian prisoners, capping the first phase of a Gaza ceasefire deal.
+<br>
+<br/>
+The United States said talks were on track for a second phase of the ceasefire deal that has largely held but whose complexity and long-drawn-out implementation have highlighted its fragility.
+<br/>
+<br/>
+In Israel on Wednesday, thousands of mourners gathered for the funeral of Shiri Bibas and her sons, who had died in captivity in Gaza and had become symbols of the country's hostage ordeal.
+<br/>
+<br/>
+The ceasefire has largely halted the Israel-Hamas war sparked by the October 7, 2023 attack, and has seen 25 hostages released alive so far in exchange for hundreds of prisoners.
+<br/>
+<br/>
+"Hamas and other resistance factions will hand over four bodies of Israeli captives," said a Hamas official, adding that in return, Israel would free 625 Palestinian prisoners in an exchange beginning on Thursday.
+<br/>
+<br/>
+Israel has reached an agreement with mediators for the return of the bodies of four Israeli hostages held in Gaza, the office of Prime Minister Benjamin Netanyahu said.
+<br/>
+<br/>
+In Washington, US President Donald Trump's top envoy on the Middle East said Israeli representatives were en route to talks on the next phase of the ceasefire deal.
+<br/>
+<br/>
+"We're making a lot of progress. Israel is sending a team right now as we speak," Steve Witkoff told an event for the American Jewish Committee.
+<br/>
+<br/>
+"It's either going to be in Doha or in Cairo, where negotiations will begin again with the Egyptians and the Qataris," he said.
+<br/>
+<br/>
+This first phase is supposed to end on Saturday, but negotiations for the next stage – which were due to begin in early February – have not yet started.
+<br/>
+<br/>
+Hamas has said it is ready to release all the remaining hostages "in one go" during the second phase.
+<br/>
+<br/>
+On Sunday, the group accused Israel of endangering the Gaza truce by delaying the release of more than 600 Palestinian prisoners.
+<br/>
+<br/>
+Israel said it had concerns over how the hostages have been freed, with Netanyahu describing the handovers as "humiliating ceremonies."
+<br/>
+<br/>
+Israel has yet to comment on whether it will release the Palestinian prisoners on Thursday. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htmWed, 26 Feb 2025 22:19:00 +0800

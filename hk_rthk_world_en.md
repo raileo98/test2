@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=rthk - World© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:17:29 +0000webmaster@rthk.hkUkraine peace talks should include all parties: Chinahttps://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm<img alt='Guo Jiakun says China is "happy to see all efforts towards peace". Photo from the Foreign Ministry website' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792134\_1\_20250218171116.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-China hopes that all parties and stakeholders can participate in the peace talks to solve the Ukraine crisis, the Foreign Ministry said on Tuesday.
-<br>
-<br/>
-Foreign Ministry spokesman Guo Jiakun said Beijing welcomes all peace efforts over Ukraine, including the talks between the United States and Russia, ahead of a meeting between diplomats from the two countries in Saudi Arabia.
-<br/>
-<br/>
-US President Donald Trump is pushing for a swift resolution to the three-year conflict in Ukraine. Ukrainian President Volodymyr Zelensky said Kyiv was not invited to the discussions in Riyadh, while European leaders were gathering in Paris for emergency talks on how to respond to the radical pivot by the new US administration.
-<br/>
-<br/>
-Guo said: "We hope that all parties can work together to resolve the root causes of the Ukraine crisis, find a balanced, effective and sustainable security structure and achieve long-term peace and stability in Europe." (Agencies)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htmTue, 18 Feb 2025 17:11:00 +0800Arab League summit on Gaza postponed to March 4https://news.rthk.hk/rthk/en/component/k2/1792174-20250218.htm<img alt="President Trump's proposal to take over the war-battered Gaza Strip has caused an outcry across the Arab world. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792174\_1\_20250218222149.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=rthk - World© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:20:17 +0000webmaster@rthk.hkArab League summit on Gaza postponed to March 4https://news.rthk.hk/rthk/en/component/k2/1792174-20250218.htm<img alt="President Trump's proposal to take over the war-battered Gaza Strip has caused an outcry across the Arab world. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792174\_1\_20250218222149.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 An extraordinary Arab League meeting on Gaza, initially set for next week, has been postponed to March 4, host Egypt said on Tuesday.
@@ -2927,4 +2896,65 @@ https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htmWed, 26 Feb 2025 15:13:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htmWed, 26 Feb 2025 15:13:00 +0800Hamas to hand over four Israeli hostages' bodieshttps://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm<img alt="In Israel on Wednesday, thousands of mourners gathered for the funeral of Shiri Bibas and her sons, who died in captivity in Gaza. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793374\_1\_20250226212829.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Hamas will hand over the bodies of four Israeli hostages on Thursday in what it said would be an exchange for more than 600 Palestinian prisoners, capping the first phase of a Gaza ceasefire deal.
+<br>
+<br/>
+The United States said talks were on track for a second phase of the ceasefire deal that has largely held but whose complexity and long-drawn-out implementation have highlighted its fragility.
+<br/>
+<br/>
+In Israel on Wednesday, thousands of mourners gathered for the funeral of Shiri Bibas and her sons, who had died in captivity in Gaza and had become symbols of the country's hostage ordeal.
+<br/>
+<br/>
+The ceasefire has largely halted the Israel-Hamas war sparked by the October 7, 2023 attack, and has seen 25 hostages released alive so far in exchange for hundreds of prisoners.
+<br/>
+<br/>
+"Hamas and other resistance factions will hand over four bodies of Israeli captives," said a Hamas official, adding that in return, Israel would free 625 Palestinian prisoners in an exchange beginning on Thursday.
+<br/>
+<br/>
+Israel has reached an agreement with mediators for the return of the bodies of four Israeli hostages held in Gaza, the office of Prime Minister Benjamin Netanyahu said.
+<br/>
+<br/>
+In Washington, US President Donald Trump's top envoy on the Middle East said Israeli representatives were en route to talks on the next phase of the ceasefire deal.
+<br/>
+<br/>
+"We're making a lot of progress. Israel is sending a team right now as we speak," Steve Witkoff told an event for the American Jewish Committee.
+<br/>
+<br/>
+"It's either going to be in Doha or in Cairo, where negotiations will begin again with the Egyptians and the Qataris," he said.
+<br/>
+<br/>
+This first phase is supposed to end on Saturday, but negotiations for the next stage – which were due to begin in early February – have not yet started.
+<br/>
+<br/>
+Hamas has said it is ready to release all the remaining hostages "in one go" during the second phase.
+<br/>
+<br/>
+On Sunday, the group accused Israel of endangering the Gaza truce by delaying the release of more than 600 Palestinian prisoners.
+<br/>
+<br/>
+Israel said it had concerns over how the hostages have been freed, with Netanyahu describing the handovers as "humiliating ceremonies."
+<br/>
+<br/>
+Israel has yet to comment on whether it will release the Palestinian prisoners on Thursday. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htmWed, 26 Feb 2025 22:19:00 +0800
