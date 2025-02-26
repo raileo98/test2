@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 09:59:55 +0000webmaster@rthk.hkDemocratic Party initiates move to disbandhttps://news.rthk.hk/rthk/en/component/k2/1792526-20250220.htm<img alt="The leadership of the Democratic Party backed a motion to dissolve the organisation. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792526\_1\_20250220224834.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:20:00 +0000webmaster@rthk.hkDemocratic Party initiates move to disbandhttps://news.rthk.hk/rthk/en/component/k2/1792526-20250220.htm<img alt="The leadership of the Democratic Party backed a motion to dissolve the organisation. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792526\_1\_20250220224834.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 The Democratic Party on Thursday evening announced its intention to disband following a central committee meeting to discuss its future.
@@ -2667,6 +2667,15 @@ She noted it would be up to the chief executive to decide whether or not to cut 
 <br/>
 <br/>
 Financial Secretary Paul Chan announced in his budget that two percent of the civil service would be cut annually between the 2026/27 and 2027/28 financial years, but Ip believes the move will not affect government efficiency.
+<br/>
+<br/>
+Felix Yip, associate director of the centre for human resources strategy and development at Baptist University, said slashing 10,000 civil service posts by April 2027 is reasonable, given advances in AI.
+<br/>
+<br/>
+"I guess those jobs may be coming from those administrative positions... We are not talking about effectiveness, but talking about efficiency. They can gain a lot from the application of AI," Yip said.
+<br/>
+<br/>
+"So in that regard, to a certain extent, the cost can be minimal."
 </br>
 </div>
 <br/>
@@ -2691,19 +2700,22 @@ cnews@rthk.hk
 Lawmaker and Lingnan University's associate vice president Lau Chi-pang on Wednesday said he believed universities could cope with the proposed funding cuts which he described as "mild and acceptable".
 <br>
 <br/>
-In his budget speech, Financial Secretary Paul Chan said he would set aside HK$68.1 billion for government-funded universities over the next three years, which reflect a two percent reduction.
+In his budget speech, Financial Secretary Paul Chan said he would set aside HK$68.1 billion for government-funded universities over the next three years, which reflect a two percent reduction each year.
+<br/>
+<br/>
+The government said the funding cut could save around HK$2.8 billion for the 2025-28 triennium.
 <br/>
 <br/>
 Lau told RTHK that universities had been preparing for the reduction and could absorb it without scaling down teaching or administrative staff.
 <br/>
 <br/>
-"It is acceptable in a way that we do have reserves for research, development, and other expenses. So this two percent, if it's only a triennium cut, I would say that the university community can solve that," he said.
+"It is acceptable in a way that we do have reserves for research, development, and other expenses. So this two percent, if it's only a triennium cut, I would say that the university community can absorb that," he said.
 <br/>
 <br/>
 However, he noted the city's universities were expanding and competing globally, which requires substantial funding.
 <br/>
 <br/>
-Universities will also have to return HK$4 billion from their General and Development Reserve Fund to the government, the University Grants Committee said in a statement.
+Universities will also have to return HK$4 billion from their General and Development Reserve Fund to the government on a one-off basis, the University Grants Committee said in a statement.
 <br/>
 <br/>
 Lau said while this is not good news, institutions were developing income sources including self-funded postgraduate programmes to help balance the funding cuts.

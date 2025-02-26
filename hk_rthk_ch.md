@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 09:59:54 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 10:20:00 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -4307,7 +4307,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htmWed, 26 Feb 2025 16:46:00 +0800財政預算案2025｜陳茂波稱兩蚊兩折助控制計劃未來開支增幅https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm<img alt="陳茂波說2元乘車優惠計劃調整，可兼顧政策原意，亦可控制項目開支長遠增長。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793321\_1\_20250226171233.jpg&amp;q=75" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htmWed, 26 Feb 2025 16:46:00 +0800財政預算案2025｜陳茂波稱兩蚊兩折助控制計劃未來開支增幅https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793321\_1\_20250226171233.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 預算案提出調整2元乘車優惠計劃，設每月240程上限，10元以上車費改為全額車費的「兩折」。財政司司長陳茂波說「兩蚊兩折」方案有助控制有關計劃的未來開支增長幅度。
@@ -4360,13 +4360,13 @@ https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htmWed, 26 Feb 2025 16:52:00 +0800財政預算案2025｜陳茂波稱有信心達到財政平衡目標https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm<img alt="陳茂波表示政府經營帳戶將逐步恢復平衡，並將錄得盈餘。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793323\_1\_20250226171508.jpg&amp;q=90" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htmWed, 26 Feb 2025 16:52:00 +0800財政預算案2025｜陳茂波稱有信心達到財政平衡目標https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm<img alt="陳茂波預計在發債後的借貸比率最高達16.5%，與全球比較仍是健康穩健水平。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793323\_1\_20250226181628.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波表示，特區政府推出強化版的財政整合計劃，以節流為主，開源為輔，加上善用政府資源，適度增加收入，大力削減開支，控制編制增長，政府經營帳戶將逐步恢復平衡，並將錄得盈餘，當局對達到財政平衡的目標有信心。
 <br>
 <br/>
-至於非經營帳戶，陳茂波說主要涉及工務工程開支，以投資未來，除了賣地收入外，當局會通過發債支持，預計在發債後的借貸比率最高達16.5%，與全球比較仍是健康穩健水平。
+至於非經營帳戶，陳茂波說，主要涉及工務工程開支，以投資未來，除了賣地收入外，當局會通過發債支持，預計在發債後的借貸比率最高達16.5%，與全球比較仍是健康穩健水平。
 </br>
 </div>
 <br/>
@@ -4531,4 +4531,117 @@ https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htmWed, 26 Feb 2025 17:35:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htmWed, 26 Feb 2025 17:35:00 +0800財政預算案2025｜自由黨張宇人稱探討規範籃球博彩達多贏局面https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm<br/>
+<div class="itemFullText">
+自由黨黨魁張宇人說，足球博彩稅過去多年累計為政府帶來大額收入，但未有鼓吹賭風，相信今次財政預算案提出探討規範籃球博彩，有助增加政府收入、打擊非法賭博，達致多贏局面。
+<br>
+<br/>
+另一名自由黨議員李鎮強說，很多中產人士原本預計今次「無糖派」，但預算案提出將100元印花稅的物業價值上限，上調至400萬元，認為在現時的財赤環境而言是帶來驚喜，希望有助吸引物業市場流動，推動年青人上車置業。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htmWed, 26 Feb 2025 18:04:00 +0800數碼通中期盈利按年升逾4%　派息14.5仙https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htm<img alt="數碼通中期盈利2.57億元，按年增長4.4%，中期息維持每股14.5港仙。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793335\_1\_20250226180901.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+數碼通截至去年12月底的中期盈利2.57億元，按年增長4.4%，中期息維持每股14.5港仙。
+<br>
+<br/>
+公司上半年度總收入按年增近3%至34.92億元，主要由於手機及配件銷售收入增加。服務總收入於期內維持平穩，反映香港流動服務市場競爭非常激烈，ARPU受壓。
+<br/>
+<br/>
+受數碼通的國際漫遊產品使用量上升帶動，漫遊收入錄得6%增長。
+<br/>
+<br/>
+期內，客戶人數增長8.5%至287萬名，5G服務客戶滲透率為40%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htmWed, 26 Feb 2025 18:09:00 +0800泰國央行減息0.25厘　重申今次減息並非寬鬆周期一部分https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htm<img alt="泰國央行減息0.25厘，將1天期回購利率降至2厘，符合市場預期。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793333\_1\_20250226180324.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+泰國央行減息0.25厘，將1日期回購利率降至2厘，符合市場預期，減息決定以6比1票數贊成通過。
+<br>
+<br/>
+央行表示，減息是基於經濟前景，並考慮到國內生產總值增長放緩，和主要經濟體貿易政策不確定性。如果前景發生變化，隨時準備調整政策，又指今次減息並非寬鬆周期一部分，進一步減息的門檻將很高。
+<br/>
+<br/>
+央行又指，儘管內需和旅遊業提供支持，泰國經濟擴張速度預計將低於預期，因製造業生產的結構性障礙以及進口商品的競爭。今次減息是為了令金融條件與經濟及通脹前景，以及金融穩定一致，並更好地應對日益加劇的下行風險。
+<br/>
+<br/>
+泰國央行去年12月維持利率不變，去年10月減息0.25厘。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htmWed, 26 Feb 2025 18:12:00 +0800財政預算案2025｜續派糖但規模再縮水　利得稅退稅上限減半https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm<br/>
+<div class="itemFullText">
+新一份財政預算案繼續「派糖」，但規模較以往幾年再「縮水」。
+<br>
+<br/>
+利得稅、薪俸稅和個人入息課稅的退稅上限減半，只有1500元；寬減差餉只得一季、上限500元；綜援、生果金等繼續額外多半個月。
+<br/>
+<br/>
+另外，預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。消息人士預計，每年可節省約20億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htmWed, 26 Feb 2025 18:13:00 +0800
