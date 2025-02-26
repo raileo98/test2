@@ -1,39 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:42:16 +0000webmaster@rthk.hk財政預算案2025｜研究設退市後場外交易機制https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm<img alt="陳茂波表示港交所會在年中起，為交易後系統逐步引入新功能，並進行系統升級。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793221\_1\_20250226122309.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波表示，為配合最新經濟趨勢和企業需求，會審視上市要求和上市後持續責任；檢視上市規例和安排，改善審批流程；優化雙重主要上市及第二上市門檻，以及檢討市場結構，包括研究設立退市後場外交易機制。
-<br>
-<br/>
-他又指，港交所會在年中起，為交易後系統逐步引入新功能，並進行系統升級，以確保於年底前在技術上兼容T+1結算周期，為縮短結算周期作好準備；港交所與證監會，將在年內就改善交易單位制度，即俗稱手數制提出建議，讓交易安排，可更符合不同大小股份的流動性特質和投資需求，便利交易及提升效率。
-<br/>
-<br/>
-他又表示，港交所將就結構性產品發行機制提出優化建議，為產品上市和交易提供更大彈性，又指已向立法會提交落實無紙證券市場制度的附屬法例，期望在明年初實施。
-<br/>
-<br/>
-陳茂波說，為滿足投資者風險管理需要，證監會將就增加主要指數衍生工具持倉限額建議諮詢市場。
-<br/>
-<br/>
-另外，為進一步協助特專科技和生物科企籌融資發展業務，特別是已在內地上市的公司，港交所正積極籌備開通「科企專線」，便利有關企業的上市申請準備工作。證監會亦會配合，令申請過程更暢順。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793221-20250226.htmWed, 26 Feb 2025 11:47:00 +0800財政預算案2025｜助力C919打進國際市場　擴展培訓範疇https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm<img alt="陳茂波表示，香港將助力C919打進國際市場。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793222\_1\_20250226122400.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:50:59 +0000webmaster@rthk.hk財政預算案2025｜助力C919打進國際市場　擴展培訓範疇https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm<img alt="陳茂波表示，香港將助力C919打進國際市場。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793222\_1\_20250226122400.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波表示，今年1月，國家自主研發的C919飛機正式應用於香港與上海的定期航班，是內地以外地區的首次，標誌著國產飛機走向世界的一大突破。香港將助力C919打進國際市場，香港國際航空學院會把培訓課程擴展至涵蓋與C919飛機相關的範疇。
@@ -2928,4 +2894,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htmWed, 26 Feb 2025 19:40:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htmWed, 26 Feb 2025 19:40:00 +0800財政預算案2025｜地建會歡迎預算案提出提振經濟及樓市措施https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm<img alt="地產建設商會稱政府為土地房屋供應訂定長遠發展目標並適時調整，展現促進者靈活變通的思維。（網頁截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793360\_1\_20250226194258.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+地產建設商會歡迎財政預算案提出多項提振經濟及樓市措施，為香港經濟發展作出長遠及前瞻性規劃，可望振興香港經濟，鞏固財政資源，改善民生福祉。商會表示支持。
+<br>
+<br/>
+商會表示，預算案提出來年停止推售商業用地及考慮將部分商業地改劃為住宅用途，以及推遲洪水橋/廈村新發展區市中心商業用地原址換地完成期限，認為政府因應市場發展，為土地房屋供應訂定長遠發展目標，並適時作出策略性調整，充份展現促進者靈活變通的思維。
+<br/>
+<br/>
+商會亦樂見將徵收一百元印花稅的物業價值上限，由300萬元提高至400萬元，相信可以助力年輕家庭早日達成置業安居目標。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htmWed, 26 Feb 2025 19:45:00 +0800

@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:42:16 +0000webmaster@rthk.hk財政預算案2025｜消息人士冀就邊境建設費盡快制定落實方案https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm<img alt="消息人士表示，在陸路離境私家車徵費方面，仍在與運輸及物流局研究執行細節。（CCTV資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793273\_1\_20250226143436.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-政府消息人士表示，在考慮增加收入方面，由於薪俸稅影響層面大，因此揀選影響較小的項目，並對有能力人士徵收。
-<br>
-<br/>
-消息人士表示，對陸路離境私家車徵費方面，仍在與運輸及物流局研究執行細節，包括如何收費、過關系統調整等，亦需要立法。
-<br/>
-<br/>
-消息指，只對私家車徵費可降低對商業及一般市民的影響。消息人士提到，政府於2003年曾提出同類收費，每部車收取100元，每人收取18元，但社會反應大而擱置。今次以每部車200元為例，考慮了通脹因素；而按去年經蓮塘及深圳灣口岸、港珠澳大橋離境的500萬架次推算，預料每年可帶來約10億元收入。
-<br/>
-<br/>
-另外，飛機乘客離境稅將於10月1日起，由120元上調至200元，消息人士表示，已相隔逾20年沒有調整，相信不影響一般市民，亦不影響本港的航空優勢及機場競爭力。基於去年客流量2000萬人次，估算上調稅項可增加約16億元收入。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793273-20250226.htmWed, 26 Feb 2025 14:10:00 +0800財政預算案2025｜消息稱種子基金結餘回撥體現善用財政資源https://news.rthk.hk/rthk/ch/component/k2/1793274-20250226.htm<img alt="政府消息人士表示，6個種子基金包括研究基金、醫管局公私營協作基金、語文基金、學生活動支援基金、資歷架構基金、資優教育基金。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793274\_1\_20250226150359.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:50:59 +0000webmaster@rthk.hk財政預算案2025｜消息稱種子基金結餘回撥體現善用財政資源https://news.rthk.hk/rthk/ch/component/k2/1793274-20250226.htm<img alt="政府消息人士表示，6個種子基金包括研究基金、醫管局公私營協作基金、語文基金、學生活動支援基金、資歷架構基金、資優教育基金。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793274\_1\_20250226150359.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 新一份預算案建議2025/26年度將6個種子基金結餘，扣減未來5年所需營運開支後，回撥合共約620億元至政府帳目。
@@ -1750,4 +1719,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htmWed, 26 Feb 2025 19:40:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htmWed, 26 Feb 2025 19:40:00 +0800財政預算案2025｜地建會歡迎預算案提出提振經濟及樓市措施https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm<img alt="地產建設商會稱政府為土地房屋供應訂定長遠發展目標並適時調整，展現促進者靈活變通的思維。（網頁截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793360\_1\_20250226194258.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+地產建設商會歡迎財政預算案提出多項提振經濟及樓市措施，為香港經濟發展作出長遠及前瞻性規劃，可望振興香港經濟，鞏固財政資源，改善民生福祉。商會表示支持。
+<br>
+<br/>
+商會表示，預算案提出來年停止推售商業用地及考慮將部分商業地改劃為住宅用途，以及推遲洪水橋/廈村新發展區市中心商業用地原址換地完成期限，認為政府因應市場發展，為土地房屋供應訂定長遠發展目標，並適時作出策略性調整，充份展現促進者靈活變通的思維。
+<br/>
+<br/>
+商會亦樂見將徵收一百元印花稅的物業價值上限，由300萬元提高至400萬元，相信可以助力年輕家庭早日達成置業安居目標。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htmWed, 26 Feb 2025 19:45:00 +0800

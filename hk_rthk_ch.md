@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 11:42:17 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 11:51:01 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5210,4 +5210,63 @@ https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htmWed, 26 Feb 2025 19:40:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htmWed, 26 Feb 2025 19:40:00 +0800財政預算案2025｜地建會歡迎預算案提出提振經濟及樓市措施https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm<img alt="地產建設商會稱政府為土地房屋供應訂定長遠發展目標並適時調整，展現促進者靈活變通的思維。（網頁截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793360\_1\_20250226194258.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+地產建設商會歡迎財政預算案提出多項提振經濟及樓市措施，為香港經濟發展作出長遠及前瞻性規劃，可望振興香港經濟，鞏固財政資源，改善民生福祉。商會表示支持。
+<br>
+<br/>
+商會表示，預算案提出來年停止推售商業用地及考慮將部分商業地改劃為住宅用途，以及推遲洪水橋/廈村新發展區市中心商業用地原址換地完成期限，認為政府因應市場發展，為土地房屋供應訂定長遠發展目標，並適時作出策略性調整，充份展現促進者靈活變通的思維。
+<br/>
+<br/>
+商會亦樂見將徵收一百元印花稅的物業價值上限，由300萬元提高至400萬元，相信可以助力年輕家庭早日達成置業安居目標。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htmWed, 26 Feb 2025 19:45:00 +0800拉夫羅夫：俄美代表明日於土耳其討論兩國使館工作問題https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm<img alt="拉夫羅夫說，莫斯科不考慮任何在烏克蘭部署歐洲維和軍隊的方案。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793361\_1\_20250226194700.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+俄羅斯外長拉夫羅夫表示，俄美雙方代表將於明日在土耳其伊斯坦布爾，舉行關於兩國使館工作問題的會談。
+<br>
+<br/>
+拉夫羅夫又說，莫斯科不考慮任何在烏克蘭部署歐洲維和軍隊的方案，法國和英國向烏克蘭派遣維和部隊的想法，旨在進一步加劇衝突，形容是一個騙局，目的是向烏克蘭輸送武裝。
+<br/>
+<br/>
+美國總統特朗普早前表示，他認為在烏克蘭部署維和力量是有必要，但部署的形式應該被各方接受。
+<br/>
+<br/>
+另外，克里姆林宮發言人佩斯科夫表示，目前未有關於總統普京和特朗普會面的具體細節，亦未有俄美兩國總統舉行新一輪電話會談的計劃，但如果有必要，電話會談可以迅速組織進行。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htmWed, 26 Feb 2025 19:47:00 +0800

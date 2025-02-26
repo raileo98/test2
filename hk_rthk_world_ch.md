@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:42:16 +0000webmaster@rthk.hk尹錫悅彈劾案今日進行最後一次庭審辯論　或下月中有判決結果https://news.rthk.hk/rthk/ch/component/k2/1793058-20250225.htm<img alt="尹錫悅下午將就彈劾案出席最後一次庭審辯論。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793058\_1\_20250225111020.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-南韓憲法法院今日下午將對總統尹錫悅彈劾案進行最後一次庭審辯論，預計可能下月中有判決結果。
-<br>
-<br/>
-辯論當地下午2時舉行，將聽取尹錫悅和國會方面的最後陳述。韓聯社報道，外界關注尹錫悅發出的信息。
-<br/>
-<br/>
-辯論終結後，法官將評議裁定彈劾與否，之後主審法官按照多數意見起草判決書，並最終敲定文案。法律界預測，判決日期會在辯論終結大約兩星期後，即可能在下月中。如果認定國會彈劾尹錫悅是妥當、尹錫悅嚴重違反憲法和法律，尹錫悅將會被罷免總統職務，相反如果法院駁回彈劾，尹錫悅就會隨即復職。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793058-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793058-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793058-20250225.htmTue, 25 Feb 2025 11:33:00 +0800日本氣象廳：落大雪高峰期已過　預測天氣回暖https://news.rthk.hk/rthk/ch/component/k2/1793073-20250225.htm<img alt="日本氣象廳表示，落大雪高峰期已過，預測天氣會回暖。（法新社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793073\_1\_20250225124914.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:50:59 +0000webmaster@rthk.hk日本氣象廳：落大雪高峰期已過　預測天氣回暖https://news.rthk.hk/rthk/ch/component/k2/1793073-20250225.htm<img alt="日本氣象廳表示，落大雪高峰期已過，預測天氣會回暖。（法新社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793073\_1\_20250225124914.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 日本氣象廳表示，落大雪高峰期已過，預測天氣會回暖，但各地目前的積雪量仍然超過往年平均水平，呼籲積雪較多地區的民眾防範剷雪工作可能引致的意外和雪崩等。
@@ -1762,4 +1734,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htmWed, 26 Feb 2025 19:07:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htmWed, 26 Feb 2025 19:07:00 +0800拉夫羅夫：俄美代表明日於土耳其討論兩國使館工作問題https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm<img alt="拉夫羅夫說，莫斯科不考慮任何在烏克蘭部署歐洲維和軍隊的方案。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793361\_1\_20250226194700.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+俄羅斯外長拉夫羅夫表示，俄美雙方代表將於明日在土耳其伊斯坦布爾，舉行關於兩國使館工作問題的會談。
+<br>
+<br/>
+拉夫羅夫又說，莫斯科不考慮任何在烏克蘭部署歐洲維和軍隊的方案，法國和英國向烏克蘭派遣維和部隊的想法，旨在進一步加劇衝突，形容是一個騙局，目的是向烏克蘭輸送武裝。
+<br/>
+<br/>
+美國總統特朗普早前表示，他認為在烏克蘭部署維和力量是有必要，但部署的形式應該被各方接受。
+<br/>
+<br/>
+另外，克里姆林宮發言人佩斯科夫表示，目前未有關於總統普京和特朗普會面的具體細節，亦未有俄美兩國總統舉行新一輪電話會談的計劃，但如果有必要，電話會談可以迅速組織進行。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htmWed, 26 Feb 2025 19:47:00 +0800
