@@ -1,30 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:32:02 +0000webmaster@rthk.hk中方表示願同新一屆德國聯邦政府鞏固好發展好中德關係https://news.rthk.hk/rthk/ch/component/k2/1792939-20250224.htm<img alt="中方表示願同新一屆德國聯邦政府鞏固好發展好中德關係。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792939\_1\_20250224154046.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-德國聯邦議院選舉初步結果顯示，德國聯盟黨獲勝。在北京，外交部發言人林劍表示，建交53年來，中方始終從戰略高度和長遠角度看待中德關系，秉持相互尊重、平等相待、互利共贏、求同存異的原則，發展雙邊關係。中方願同新一屆德國聯邦政府一起，鞏固好發展好中德全方位戰略伙伴關係。
-<br>
-<br/>
-林劍又說，德國和歐盟具有全球影響，中方樂見德國和歐盟在全球事務中發揮重要作用，支持歐洲一體化和歐盟的戰略自主，願同德方歐方共同努力，繼續為世界的和平與繁榮貢獻力量。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1792939-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1792939-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1792939-20250224.htmMon, 24 Feb 2025 15:45:00 +0800俄烏衝突三周年　外交部：中方一直致力為止戰凝聚共識https://news.rthk.hk/rthk/ch/component/k2/1792941-20250224.htm<img alt="俄烏衝突持續三年，烏克蘭民眾點燈悼念死者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792941\_1\_20250224155251.jpg&amp;q=70" style="width:100%;height:auto"/>
+rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:52:32 +0000webmaster@rthk.hk俄烏衝突三周年　外交部：中方一直致力為止戰凝聚共識https://news.rthk.hk/rthk/ch/component/k2/1792941-20250224.htm<img alt="俄烏衝突持續三年，烏克蘭民眾點燈悼念死者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792941\_1\_20250224155251.jpg&amp;q=70" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 俄烏衝突持續三年，外交部發言人林劍表示，中方在烏克蘭危機問題上的立場是一貫的、明確的。危機全面升級以來，中方一直同有關各方保持溝通，致力於為止戰凝聚共識，為和談鋪路搭橋，中方將始終堅定站在和平一邊，秉持客觀公正立場，繼續同國際社會一起，為推動危機政治解決發揮建設性作用。
@@ -1698,4 +1673,29 @@ https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htmThu, 27 Feb 2025 04:23:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htmThu, 27 Feb 2025 04:23:00 +0800中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm<img alt="中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793401\_1\_20250227043410.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中國駐歐盟使團發言人回應歐方官員的涉港言論時，要求歐方切實尊重中國主權和領土完整，停止對香港事務說三道四、指手劃腳，停止干涉中國內政。
+<br>
+<br/>
+發言人回應有歐方官員在社交媒體發文，就有關反中亂港組織解散一事妄加議論，對歐方官員有關言論表示強烈不滿和堅決反對，重申香港事務純屬中國內政，不容任何外部勢力干涉。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htmThu, 27 Feb 2025 04:34:00 +0800

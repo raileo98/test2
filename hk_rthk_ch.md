@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 20:32:03 +0000webmaster@rthk.hk數碼通中期盈利按年升逾4%　派息14.5仙https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htm<img alt="數碼通中期盈利2.57億元，按年增長4.4%，中期息維持每股14.5港仙。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793335\_1\_20250226180901.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-數碼通截至去年12月底的中期盈利2.57億元，按年增長4.4%，中期息維持每股14.5港仙。
-<br>
-<br/>
-公司上半年度總收入按年增近3%至34.92億元，主要由於手機及配件銷售收入增加。服務總收入於期內維持平穩，反映香港流動服務市場競爭非常激烈，ARPU受壓。
-<br/>
-<br/>
-受數碼通的國際漫遊產品使用量上升帶動，漫遊收入錄得6%增長。
-<br/>
-<br/>
-期內，客戶人數增長8.5%至287萬名，5G服務客戶滲透率為40%。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793335-20250226.htmWed, 26 Feb 2025 18:09:00 +0800泰國央行減息0.25厘　重申今次減息並非寬鬆周期一部分https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htm<img alt="泰國央行減息0.25厘，將1天期回購利率降至2厘，符合市場預期。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793333\_1\_20250226180324.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 20:52:32 +0000webmaster@rthk.hk泰國央行減息0.25厘　重申今次減息並非寬鬆周期一部分https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htm<img alt="泰國央行減息0.25厘，將1天期回購利率降至2厘，符合市場預期。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793333\_1\_20250226180324.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 泰國央行減息0.25厘，將1日期回購利率降至2厘，符合市場預期，減息決定以6比1票數贊成通過。
@@ -1715,4 +1684,29 @@ https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm<img alt="中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793401\_1\_20250227043410.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中國駐歐盟使團發言人回應歐方官員的涉港言論時，要求歐方切實尊重中國主權和領土完整，停止對香港事務說三道四、指手劃腳，停止干涉中國內政。
+<br>
+<br/>
+發言人回應有歐方官員在社交媒體發文，就有關反中亂港組織解散一事妄加議論，對歐方官員有關言論表示強烈不滿和堅決反對，重申香港事務純屬中國內政，不容任何外部勢力干涉。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htmThu, 27 Feb 2025 04:34:00 +0800
