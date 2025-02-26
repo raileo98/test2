@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 10:47:49 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 10:52:39 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -4097,16 +4097,16 @@ https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htmWed, 26 Feb 2025 16:23:00 +0800港股全日升753點https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm<img alt="恒生指數高見23973點，升約940點，收市報23787點，升753點，升幅近3.3%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793315\_1\_20250226162449.jpg&amp;q=30" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htmWed, 26 Feb 2025 16:23:00 +0800港股全日升753點　曾升逾900點　再創3年新高https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm<img alt="恒生指數高見23973點，升約940點，收市報23787點，升753點，升幅近3.3%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793315\_1\_20250226162449.jpg&amp;q=30" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-港股尾市逼近24000點，恒生指數高見23973點，升約940點，最終收市報23787點，升753點，升幅近3.3%，主板成交額3701億元。
+港股尾市逼近24000點，恒生指數高見23973點，升約940點，最終收市報23787點，升753點，升幅近3.3%，再創3年新高。主板成交額3701億元。
 <br>
 <br/>
 科技指數高見6023點，但收市未能企穩6000點，報5953點，升幅約4.5%。京東集團和美團升逾8%至近10%，小米再度破頂後升近6%。
 <br/>
 <br/>
-內房股造好，中海外及龍湖集團升近8%至近11%。本地地產股亦造好，新地發展升逾6%，恒隆地產升近4%。
+內房股造好，中海外及龍湖集團升近8%至近11%。本地地產股亦造好，新世界發展升逾6%，恒隆地產升近4%。
 <br/>
 <br/>
 金融股向上，港交所業績前升逾5%，友邦升近4%，滙控升近2%，內銀及內險股上升。券商股亦向上。
@@ -4619,7 +4619,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htmWed, 26 Feb 2025 18:12:00 +0800財政預算案2025｜續派糖但規模再縮水　利得稅退稅上限減半https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793333-20250226.htmWed, 26 Feb 2025 18:12:00 +0800財政預算案2025｜續派糖但規模再縮水　薪酬稅退稅上限減半https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm<img alt="利得稅、薪俸稅和個人入息課稅的退稅上限減半。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793338\_1\_20250226184834.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 新一份財政預算案繼續「派糖」，但規模較以往幾年再「縮水」。
 <br>
@@ -4674,7 +4675,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htmWed, 26 Feb 2025 18:20:00 +0800財政預算案2025｜有長者稱調整2元乘車優惠合理　有人感失望https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htmWed, 26 Feb 2025 18:20:00 +0800財政預算案2025｜有長者稱調整2元乘車優惠合理　有人感失望https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm<img alt="有長者擔心未來車費仍有機會上調。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793341\_1\_20250226185017.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 預算案宣布調整2元乘車優惠，有長者認為做法合理，可以節省政府資源，亦有長者感失望，擔心未來車費仍有機會上調。
 <br>
@@ -4698,7 +4700,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htmWed, 26 Feb 2025 18:23:00 +0800財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htmWed, 26 Feb 2025 18:23:00 +0800財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<img alt="陳茂波相信，公務員會理解及支持凍薪的決定。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793342\_1\_20250226185047.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 新一份財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。公務員編制在2026/27及27/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
 <br>
@@ -4725,7 +4728,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htmWed, 26 Feb 2025 18:26:00 +0800財政預算案2025｜上調飛機乘客離境稅　檢討交通違例定額罰款https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htmWed, 26 Feb 2025 18:26:00 +0800財政預算案2025｜上調飛機乘客離境稅　檢討交通違例定額罰款https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm<img alt="每名飛機乘客離境稅將上調至200元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793344\_1\_20250226185127.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 預算案提出多項措施增加收入，包括將每名飛機乘客離境稅上調至200元；檢討俗稱「牛肉乾」的交通違例事項定額罰款；並研究徵收陸路離境的私家車「邊境建設費」等。
 <br>
@@ -4749,7 +4753,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htmWed, 26 Feb 2025 18:38:00 +0800財政預算案2025｜提向旅發局撥逾12.3億　落實無處不旅遊https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htmWed, 26 Feb 2025 18:38:00 +0800財政預算案2025｜提向旅發局撥逾12.3億　落實無處不旅遊https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793347\_1\_20250226184903.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 預算案提出向旅發局撥款超過12億3千萬元，落實「無處不旅遊」。
 <br>
@@ -4773,7 +4778,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜探討規範籃球博彩邀馬會交建議　明光社反對https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜探討規範籃球博彩邀馬會交建議　明光社反對https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm<img alt="陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793348\_1\_20250226185056.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
 <br>
@@ -4879,4 +4885,31 @@ https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<br/>
+<div class="itemFullText">
+選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
+<br>
+<br/>
+江玉歡又期望政府就跨境鐵路項目提前規劃和進行全面影響評估，不應單考慮區域融合的積極影響，應正視可能帶來的挑戰。
+<br/>
+<br/>
+社福界立法會議員狄志遠表示，財政預算案展現政府改革的決心，但照顧基層方面存在不足，應平衡開源節流和民生需要。他又說現時長者輪候院舍需時以年計，照顧者缺乏支援，如再削減社福開支將直接影響基層市民生活質素。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htmWed, 26 Feb 2025 18:50:00 +0800
