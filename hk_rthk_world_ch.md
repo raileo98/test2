@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 19:44:13 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 19:51:10 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -1503,7 +1503,7 @@ cnews@rthk.hk
 澤連斯基在總統府召開記者會說，收到訪美邀請但具體安排尚待確認，烏美官員正在努力確認星期五在華盛頓與特朗普的會面。
 <br/>
 <br/>
-烏克蘭總理什梅加爾說，烏方與美方已制定礦產協議的最終版本，烏克蘭政府將會審議。澤連斯基形容這是一個開始及框架協議。雙方官員將進一步討論，以確定烏克蘭的安全保障性質以及協議中涉及的具體金額。他又說，協議能否取得成功，取決於與特朗普的對話。
+烏克蘭總理什梅加爾說，烏方與美方已制定礦產協議的最終版本，烏克蘭政府將會審議。澤連斯基形容這是一個開始及框架協議。雙方官員將進一步討論，以確定烏克蘭的安全保障性質以及協議中涉及的具體金額。他又說，協議能否取得成功，取決於與特朗普的對話。如果美國為烏克蘭提供安全保障，這將是成功的。
 <br/>
 <br/>
 澤連斯基稱，烏美將首先簽署關於開發烏克蘭礦產資源的框架協議，接下來還將簽署聯合投資基金協議，兩國將共同持有該基金。
@@ -1513,6 +1513,9 @@ cnews@rthk.hk
 <br/>
 <br/>
 協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
+<br/>
+<br/>
+澤連斯基表示，最重要的是目前的協議草稿並沒有把烏克蘭描繪為必須為過去軍事援助償還數千億美元的債務人。
 </br>
 </div>
 <br/>
