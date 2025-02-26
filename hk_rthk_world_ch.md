@@ -1,30 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 17:58:13 +0000webmaster@rthk.hk商務部：中方敦促歐方停止抹黑推責　將採措施維護中企合法權益https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm<img alt="商務部稱，歐方做法有違中歐領導人共識精神，對中歐經貿關係造成消極影響。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793112\_1\_20250225171058.jpg&amp;q=30" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-在北京，商務部回應歐盟宣布在第16輪對俄制裁中將部分中國企業和個人列入清單，發言人說，中方一貫反對沒有國際法依據、未經聯合國安理會授權的單邊制裁，已多次對歐盟無理制裁中國企業和個人表示強烈不滿，堅決反對。
-<br>
-<br/>
-發言人說，歐方做法有違中歐領導人共識精神，對中歐經貿關係造成消極影響。中方始終認為，對話談判是解決烏克蘭危機的唯一可行出路，始終堅持勸和促談。中方敦促歐方停止列單中國企業，停止對中方抹黑推責。中方將採取必要措施，堅決維護中國企業的正當合法權益。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htmTue, 25 Feb 2025 17:10:00 +080054名頂尖高爾夫球手下月「LIV Golf 香港站」競技https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm<img alt="「LIV Golf 2025香港站」將於粉嶺球場上演，是「香港盛匯超級三月」一個重頭體育盛事。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793115\_1\_20250225181355.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 18:17:40 +0000webmaster@rthk.hk54名頂尖高爾夫球手下月「LIV Golf 香港站」競技https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm<img alt="「LIV Golf 2025香港站」將於粉嶺球場上演，是「香港盛匯超級三月」一個重頭體育盛事。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793115\_1\_20250225181355.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 54名世界頂尖高爾夫球手將於下月7日至9日在「LIV Golf 香港站」同場競技。知名韓裔 DJ 兼音樂製作人金敏姬將於下月8日的的第二輪比賽結束後，擔任表演嘉賓。
@@ -1783,4 +1758,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htmThu, 27 Feb 2025 01:32:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htmThu, 27 Feb 2025 01:32:00 +0800聯合國報告：反對針對巴勒斯坦吞併和強行遷移建議https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm<img alt="在飽受戰火摧殘的加沙地帶，巴勒斯坦民眾棲身於臨時帳篷中。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793391\_1\_20250227020910.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+聯合國人權事務高級專員圖爾克表示，反對針對巴勒斯坦領土和人民的吞併和強制遷移提議，稱這些提議「非法」，並警告這些提議將威脅整個地區的安全。
+<br>
+<br/>
+圖爾克向聯合國人權理事會表示，必須堅決反對一切試圖使非法行為常態化的企圖，包括吞併或強制遷移的提議，這些行為將威脅巴勒斯坦人和以色列人，以至整個地區的和平與安全。
+<br/>
+<br/>
+圖爾克周三在提交一份關於巴勒斯坦領土人權狀況的最新報告中呼籲相關方盡快結束這場衝突，無條件釋放所有被扣押人員，並再次強調巴勒斯坦人民應當擁有自主決定自身未來的權利。
+<br/>
+<br/>
+圖爾克指出，加沙地帶和約旦河西岸的民眾多年來被剝奪了最基本的人權，包括自決權、行動自由和適當的生活條件。他說，在加沙地帶，民眾遭受的封鎖已構成集體懲罰；在約旦河西岸，非法定居點和暴力行為數十年來不斷升級，尤其是過去3年尤為嚴重，而大部分違法行為一直未受到懲罰。
+<br/>
+<br/>
+美國總統特朗普早前提議，美國接管加沙地帶，把當地的巴勒斯坦人遷移至鄰國。這個構想遭到廣泛譴責，但得到以色列總理內塔尼亞胡的歡迎。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800

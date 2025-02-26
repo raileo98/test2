@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 17:58:14 +0000webmaster@rthk.hk財政預算案2025｜黎志華稱政策局及部門自行考慮如何節省開支https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm<img alt="黎志華說，如何節省2%，就交給相關政策局和部門自行考慮。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793320\_1\_20250226170656.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。
-<br>
-<br/>
-財經事務及庫務局常任秘書長黎志華在記者會被問到為何作出有關決定，他說預算案提出加強版財政整合計劃以「節流」為主，政府會以身作則，所有政府部門未來3個財政年度，每年度要減少2%開支或資源，即每個政策局收到的資源封套或財政預算，都會較對上一年減少。至於2%如何節省，就交給相關政策局和部門自行考慮，例如哪些計劃有精簡空間、哪些措施可以取消、哪些人手削減，教育局的節流措施是局方自行判斷和決定。
-<br/>
-<br/>
-另外，財政司司長陳茂波說過去幾年政府在金融市場方面進行不同改革，包括同股不同權、新經濟體公司上市、特專科技公司上市等措施，目標是將實體經濟的變化快捷地吸納到金融市場，如果能吸引更多公司或企業來港上市，政府的印花稅收入就會增加。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htmWed, 26 Feb 2025 16:46:00 +0800財政預算案2025｜陳茂波稱兩蚊兩折助控制計劃未來開支增幅https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793321\_1\_20250226171233.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 18:17:40 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱兩蚊兩折助控制計劃未來開支增幅https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793321\_1\_20250226171233.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 預算案提出調整2元乘車優惠計劃，設每月240程上限，10元以上車費改為全額車費的「兩折」。財政司司長陳茂波說「兩蚊兩折」方案有助控制有關計劃的未來開支增長幅度。
@@ -1706,4 +1678,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htmThu, 27 Feb 2025 01:32:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htmThu, 27 Feb 2025 01:32:00 +0800聯合國報告：反對針對巴勒斯坦吞併和強行遷移建議https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm<img alt="在飽受戰火摧殘的加沙地帶，巴勒斯坦民眾棲身於臨時帳篷中。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793391\_1\_20250227020910.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+聯合國人權事務高級專員圖爾克表示，反對針對巴勒斯坦領土和人民的吞併和強制遷移提議，稱這些提議「非法」，並警告這些提議將威脅整個地區的安全。
+<br>
+<br/>
+圖爾克向聯合國人權理事會表示，必須堅決反對一切試圖使非法行為常態化的企圖，包括吞併或強制遷移的提議，這些行為將威脅巴勒斯坦人和以色列人，以至整個地區的和平與安全。
+<br/>
+<br/>
+圖爾克周三在提交一份關於巴勒斯坦領土人權狀況的最新報告中呼籲相關方盡快結束這場衝突，無條件釋放所有被扣押人員，並再次強調巴勒斯坦人民應當擁有自主決定自身未來的權利。
+<br/>
+<br/>
+圖爾克指出，加沙地帶和約旦河西岸的民眾多年來被剝奪了最基本的人權，包括自決權、行動自由和適當的生活條件。他說，在加沙地帶，民眾遭受的封鎖已構成集體懲罰；在約旦河西岸，非法定居點和暴力行為數十年來不斷升級，尤其是過去3年尤為嚴重，而大部分違法行為一直未受到懲罰。
+<br/>
+<br/>
+美國總統特朗普早前提議，美國接管加沙地帶，把當地的巴勒斯坦人遷移至鄰國。這個構想遭到廣泛譴責，但得到以色列總理內塔尼亞胡的歡迎。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800
