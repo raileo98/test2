@@ -1,39 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:53:39 +0000webmaster@rthk.hk南韓公路地盤橋樑倒塌4人死亡包括2名中國公民https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793092\_1\_20250225151456.jpg&amp;q=5" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-南韓京畿道安城市一條高速公路的地盤，有興建中的橋樑倒塌，造成4人死亡，6人受傷，其中2名死者和1名傷者是中國公民。
-<br>
-<br/>
-事發在當地上午9時許，首爾世宗高速公路天安—安城段的地盤，一條興建中橋樑橋墩上方的橋板發生倒塌。當地電視台播放的行車記錄儀視像顯示，橋樑連接兩處山地，巨大的橋板從大約50米高處呈V字倒塌，地面揚起巨大灰塵。
-<br/>
-<br/>
-消防部門表示，事故波及10名工人，現場發現3名死者，另有1人在送院後不治，6名傷者中有5人重傷。
-<br/>
-<br/>
-中國駐韓大使館與韓方聯繫交涉，希望韓方採取一切措施查明原因、做好善後，同時全力救助傷者，並已派專人前往慰問，了解情況。
-<br/>
-<br/>
-韓聯社較早前報道，事發在天安市。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htmTue, 25 Feb 2025 15:25:00 +0800外交部：美方脅迫別國打壓中國半導體產業　最終將損人害己https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm<img alt="林劍說，中方已多次就美國惡意封鎖打壓中國的半導體產業表明嚴正立場。（外交部網頁圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793097\_1\_20250225154727.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 15:02:09 +0000webmaster@rthk.hk外交部：美方脅迫別國打壓中國半導體產業　最終將損人害己https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm<img alt="林劍說，中方已多次就美國惡意封鎖打壓中國的半導體產業表明嚴正立場。（外交部網頁圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793097\_1\_20250225154727.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 美國特朗普政府據報正尋求加大對中國晶片產業的限制，並向主要盟友施壓，要求他們與美國保持一致，加強對中國晶片業的限制。
@@ -1774,4 +1740,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm<img alt="王毅在北京與新西蘭副總理兼外長彼得斯會談。（外交部網站圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793383\_1\_20250226230025.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中共中央政治局委員、外長王毅在北京與新西蘭副總理兼外長彼得斯會談。
+<br>
+<br/>
+王毅表示，雙方要堅持對彼此的正確認知，超越歷史、文化、地緣和制度的差異，在相互尊重基礎上進一步發展友好合作，對於一些具體分歧，雙方可透過建設性對話妥善解決。雙方要聚焦互利合作，推動經貿合作提質升級，盡快啟動服務貿易負面清單談判，共同打造人工智能、綠色經濟、因應氣變等新增長引擎。
+<br/>
+<br/>
+王毅提到，亞太地區是中新的共同家園，中方尊重新方與太平洋島國的傳統關係，雙方可透過南太事務磋商就共同關心的問題加強溝通。
+<br/>
+<br/>
+中方引述彼得斯表示，期待雙方進一步密切各層次交往，加強經貿、農業、防務、南極等領域交流合作，深化在地區和國際事務中的溝通協調。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800

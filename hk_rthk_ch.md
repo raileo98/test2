@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 14:53:39 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 15:02:09 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5565,10 +5565,14 @@ https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htmWed, 26 Feb 2025 21:43:00 +0800財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htmWed, 26 Feb 2025 21:43:00 +0800財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm<img alt="陳茂波出席電視論壇時說，有市民反映籃球博彩規範化助長賭風的影響有限，因此邀請馬會研究並向政府提交建議。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793378\_1\_20250226230058.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
 <br>
+<br/>
+陳茂波在電視論壇說，留意到現時有不少籃球非法博彩活動，有市民反映規範化會助長賭風的影響有限，因此邀請馬會研究向政府提交建議，又說博彩稅收入只佔政府整體收入一小部分，現時最重要是搞活經濟、吸引企業落戶、招商引資，才是增加收入的最有效方法。
+<br/>
 <br/>
 關注團體明光社表明反對，批評政府為減赤而不擇手段。明愛展晴中心表示，曾處理個別年輕人參與外圍籃球賭的個案，擔心會令更多年輕人受影響。
 </br>
@@ -5649,6 +5653,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm
 cnews@rthk.hk
 </a>
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800海洋公園與漁護署到珠海接收在走私過程被內地查獲及充公的大頭龜https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm<img alt="大頭龜在《世界自然保護聯盟瀕危物種紅色名錄》中被列為「極危」。（海洋公園提供）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793381\_1\_20250226225129.jpg&amp;q=85" style="width:100%;height:auto"/>
+<img alt="海洋公園將為大頭龜提供最適切的專業照料。（海洋公園提供）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793381\_2\_20250226230200.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 海洋公園昨日聯同漁護署到珠海拱北接收一批去年10月在走私過程被內地海關查獲及充公的大頭龜，其中14 隻交由海洋公園照顧。
@@ -5710,4 +5715,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htmWed, 26 Feb 2025 22:48:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htmWed, 26 Feb 2025 22:48:00 +0800王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm<img alt="王毅在北京與新西蘭副總理兼外長彼得斯會談。（外交部網站圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793383\_1\_20250226230025.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中共中央政治局委員、外長王毅在北京與新西蘭副總理兼外長彼得斯會談。
+<br>
+<br/>
+王毅表示，雙方要堅持對彼此的正確認知，超越歷史、文化、地緣和制度的差異，在相互尊重基礎上進一步發展友好合作，對於一些具體分歧，雙方可透過建設性對話妥善解決。雙方要聚焦互利合作，推動經貿合作提質升級，盡快啟動服務貿易負面清單談判，共同打造人工智能、綠色經濟、因應氣變等新增長引擎。
+<br/>
+<br/>
+王毅提到，亞太地區是中新的共同家園，中方尊重新方與太平洋島國的傳統關係，雙方可透過南太事務磋商就共同關心的問題加強溝通。
+<br/>
+<br/>
+中方引述彼得斯表示，期待雙方進一步密切各層次交往，加強經貿、農業、防務、南極等領域交流合作，深化在地區和國際事務中的溝通協調。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800

@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:53:38 +0000webmaster@rthk.hk恒指升幅擴大至逾800點https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htm<img alt="恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793292\_1\_20250226151558.jpg&amp;q=15" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 15:02:08 +0000webmaster@rthk.hk恒指升幅擴大至逾800點https://news.rthk.hk/rthk/ch/component/k2/1793292-20250226.htm<img alt="恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793292\_1\_20250226151558.jpg&amp;q=15" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 港股升幅擴大至逾800點，恒生指數高見23900點，較早時報23863點，升829點，升幅3.6%。
@@ -1689,10 +1689,14 @@ https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htmWed, 26 Feb 2025 21:43:00 +0800財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htmWed, 26 Feb 2025 21:43:00 +0800財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm<img alt="陳茂波出席電視論壇時說，有市民反映籃球博彩規範化助長賭風的影響有限，因此邀請馬會研究並向政府提交建議。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793378\_1\_20250226230058.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
 <br>
+<br/>
+陳茂波在電視論壇說，留意到現時有不少籃球非法博彩活動，有市民反映規範化會助長賭風的影響有限，因此邀請馬會研究向政府提交建議，又說博彩稅收入只佔政府整體收入一小部分，現時最重要是搞活經濟、吸引企業落戶、招商引資，才是增加收入的最有效方法。
+<br/>
 <br/>
 關注團體明光社表明反對，批評政府為減赤而不擇手段。明愛展晴中心表示，曾處理個別年輕人參與外圍籃球賭的個案，擔心會令更多年輕人受影響。
 </br>

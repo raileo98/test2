@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:53:39 +0000webmaster@rthk.hk中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htm<img alt="中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792909\_1\_20250224121819.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-中國聯通原黨組成員、副總經理曹興信嚴重違紀違法，被開除黨籍和公職。
-<br>
-<br/>
-新華社報道，經中共中央批准，中央紀委國家監委對曹興信嚴重違紀違法問題立案審查調查。經查，曹興信政治意識淡漠，對黨不忠誠，對抗組織審查，幹部選拔任用工作中為他人謀取利益，違規收受禮金，搞權色、錢色交易，利用職務便利為他人在項目承攬、工作安排、職務晉陞等方面謀利，又非法收受巨額財物。
-<br/>
-<br/>
-報道又說，曹興信在黨的十八大後不收斂、不收手，性質嚴重，影響惡劣，應予嚴肅處理，收繳其違紀違法所得，其涉嫌犯罪問題移送檢察機關依法審查起訴。
-<br/>
-<br/>
-另外，航空工業集團原黨組書記、董事長譚瑞松亦嚴重違反黨的政治紀律、組織紀律、廉潔紀律和生活紀律，構成嚴重職務違法並涉嫌貪污、受賄等犯罪，嚴重違紀違法，亦被開除黨籍，其涉嫌犯罪問題移送檢察機關，依法審查起訴。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htmMon, 24 Feb 2025 12:48:00 +0800全國涉外仲裁人才培訓班　學員掌握國際仲裁及普通法運作模式https://news.rthk.hk/rthk/ch/component/k2/1792937-20250224.htm<img alt="林定國表示，培訓班不僅讓學員掌握國際仲裁及普通法運作模式，還促進內地與香港法律界的互動交流。（林定國社交網站圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792937\_1\_20250224155159.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 15:02:10 +0000webmaster@rthk.hk全國涉外仲裁人才培訓班　學員掌握國際仲裁及普通法運作模式https://news.rthk.hk/rthk/ch/component/k2/1792937-20250224.htm<img alt="林定國表示，培訓班不僅讓學員掌握國際仲裁及普通法運作模式，還促進內地與香港法律界的互動交流。（林定國社交網站圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792937\_1\_20250224155159.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 律政司司長林定國表示，香港國際法律人才培訓學院與司法部合辦的全國涉外仲裁人才培訓班（香港）第一組39名學員，上周完成培訓課程；透過一系列講座、交流和實地參訪，深入了解香港的仲裁制度。學員普遍反映，課程既有理論深度，又緊扣實務需要，透過與香港法律業界不同人士、機構的互動交流及案例研討，他們對香港普通法系統有直觀而深刻的了解，深感香港的法律制度在「一國兩制」下，既尊重傳統，又積極創新。
@@ -1704,4 +1673,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htmWed, 26 Feb 2025 20:55:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htmWed, 26 Feb 2025 20:55:00 +0800王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm<img alt="王毅在北京與新西蘭副總理兼外長彼得斯會談。（外交部網站圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793383\_1\_20250226230025.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中共中央政治局委員、外長王毅在北京與新西蘭副總理兼外長彼得斯會談。
+<br>
+<br/>
+王毅表示，雙方要堅持對彼此的正確認知，超越歷史、文化、地緣和制度的差異，在相互尊重基礎上進一步發展友好合作，對於一些具體分歧，雙方可透過建設性對話妥善解決。雙方要聚焦互利合作，推動經貿合作提質升級，盡快啟動服務貿易負面清單談判，共同打造人工智能、綠色經濟、因應氣變等新增長引擎。
+<br/>
+<br/>
+王毅提到，亞太地區是中新的共同家園，中方尊重新方與太平洋島國的傳統關係，雙方可透過南太事務磋商就共同關心的問題加強溝通。
+<br/>
+<br/>
+中方引述彼得斯表示，期待雙方進一步密切各層次交往，加強經貿、農業、防務、南極等領域交流合作，深化在地區和國際事務中的溝通協調。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800
