@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 14:39:34 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 14:45:49 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5619,4 +5619,61 @@ https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htmWed, 26 Feb 2025 22:36:00 +0800財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm<br/>
+<div class="itemFullText">
+新一份財政預算案指出，香港要透過基本工程投資未來，提供土地和基建以支持香港經濟高質量發展，中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來五年平均每年約1200億元。
+<br>
+<br/>
+發展局表示，會全方位協助各部門用好資源，管控工務工程項目，亦正統籌減低建造成本的措施，包括制訂由政府有關工務部門直接或由單一部門中央採購建築物料和產品的政策、研究採用嶄新材料和創新建築技術等。
+<br/>
+<br/>
+局方又說，會致力精簡工程階段的行政審批程序，以便縮短工期，增加效益，同時繼續探索和引進更多讓發展提速提效的措施。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htmWed, 26 Feb 2025 22:40:00 +0800海洋公園與漁護署到珠海接收在走私過程被內地查獲及充公的大頭龜https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm<br/>
+<div class="itemFullText">
+海洋公園昨日聯同漁護署到珠海拱北接收一批去年10月在走私過程被內地海關查獲及充公的大頭龜，其中14 隻交由海洋公園照顧。
+<br>
+<br/>
+大頭龜於昨午運抵海洋公園後，公園獸醫及動物護理團隊隨即為牠們逐一進行初步檢查，包括量度體長、磅重以及 X 光掃描。
+<br/>
+<br/>
+率領公園團隊前赴拱北的海洋公園公司動物及保育主管祝效忠表示，大頭龜在《世界自然保護聯盟瀕危物種紅色名錄》中被列為『極危』，是極珍貴的本地物種。經檢查後，發現該批大頭龜大部分都出現不同程度的健康問題，例如尾巴或指骨斷裂，經初步檢查及診斷後已在公園後勤設施安頓，進行最少 30 天的隔離並接受治療。海洋公園將為牠們提供最適切的專業照料，讓牠們儘快恢復健康。
+<br/>
+<br/>
+由2000年至今，經海洋公園與漁護署一起拯救、由公園照料後成功重返海洋的海龜數量超過80隻。2023至2024年期間，公園先後接收並照顧9隻在走私過程被查獲的大頭龜及金錢龜。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htmWed, 26 Feb 2025 22:42:00 +0800
