@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:12:15 +0000webmaster@rthk.hk全國兩會｜趙樂際主持十四屆人大常委會十四次會議首次全體會議https://news.rthk.hk/rthk/ch/component/k2/1792938-20250224.htm<img alt="趙樂際主持第十四屆全國人大常委會第十四次會議首次全體會議。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792938\_1\_20250224153910.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新華社報道，第十四屆全國人大常委會第十四次會議，上午在北京人民大會堂舉行第一次全體會議。常委會組成人員162人出席，會議由委員長趙樂際主持。
-<br>
-<br/>
-報道說，會議聽取了全國人大憲法和法律委員會主任委員信春鷹，對於民營經濟促進法草案修改情況的匯報。草案二審稿進一步體現黨中央關於構建高水平社會主義市場經濟體制、優化民營經濟發展環境等要求；進一步充實完善法治保障相關內容；增加相關規定發揮行業協會商會在促進民營經濟發展中的作用等。
-<br/>
-<br/>
-此外，國務院提出提請審議民用航空法修訂草案的議案，維護國家領空主權和民用航空權利，保障民用航空活動安全、有序進行等，促進民用航空事業高質量發展。
-<br/>
-<br/>
-今次常委會會議的一項重要任務，是為召開第十四屆全國人大三次會議作準備。會議審議了全國人大常委會工作報告稿、委員長會議關於提請審議十四屆全國人大三次會議議程草案、主席團和秘書長名單草案、列席人員名單草案等議案。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1792938-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1792938-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1792938-20250224.htmMon, 24 Feb 2025 15:39:00 +0800中方表示願同新一屆德國聯邦政府鞏固好發展好中德關係https://news.rthk.hk/rthk/ch/component/k2/1792939-20250224.htm<img alt="中方表示願同新一屆德國聯邦政府鞏固好發展好中德關係。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792939\_1\_20250224154046.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:23:53 +0000webmaster@rthk.hk中方表示願同新一屆德國聯邦政府鞏固好發展好中德關係https://news.rthk.hk/rthk/ch/component/k2/1792939-20250224.htm<img alt="中方表示願同新一屆德國聯邦政府鞏固好發展好中德關係。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792939\_1\_20250224154046.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 德國聯邦議院選舉初步結果顯示，德國聯盟黨獲勝。在北京，外交部發言人林劍表示，建交53年來，中方始終從戰略高度和長遠角度看待中德關系，秉持相互尊重、平等相待、互利共贏、求同存異的原則，發展雙邊關係。中方願同新一屆德國聯邦政府一起，鞏固好發展好中德全方位戰略伙伴關係。
@@ -1701,4 +1670,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm<img alt="中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793400\_1\_20250227042334.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中國駐歐盟使團強烈不滿和堅決反對歐盟日前宣布新一輪對俄制裁中，將部分中國企業和個人列入清單，已向歐盟提出嚴正交涉。
+<br>
+<br/>
+發言人批評歐方的做法於理無憑、於法無據，十分錯誤，重申中方一貫反對沒有國際法依據、未經聯合國安理會授權的單邊制裁。
+<br/>
+<br/>
+發言人說，在烏克蘭問題上，中方始終秉持客觀公正立場，勸和促談，致力於推動危機政治解決，敦促歐方立即停止對中方抹黑推責，立即停止列單中國企業。中方將採取必要措施，堅決維護中國企業的正當合法權益。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htmThu, 27 Feb 2025 04:23:00 +0800

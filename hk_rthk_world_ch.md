@@ -1,40 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:12:16 +0000webmaster@rthk.hk伊朗外長：不會在壓力或制裁下進行核問題談判https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm<img alt="阿拉格齊（右）與到訪的拉夫羅夫會談後共同會見記者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793156\_1\_20250226015543.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-伊朗外長阿拉格齊強調，伊朗不會在「壓力、威脅或制裁」下進行談判。
-<br>
-<br/>
-阿拉格齊與到訪的俄羅斯外長拉夫羅夫舉行會談。阿拉格齊在會談後舉行的聯合記者會上說，伊朗正就伊朗核計劃與俄羅斯進行「非常密切的磋商」。伊朗不會在「壓力、威脅或制裁」下談判。只要美國繼續對伊朗實施「極限施壓」政策，伊朗與美國就不可能就核問題進行直接談判。
-<br/>
-<br/>
-阿拉格齊還說，雙方在會談中重申反對將巴勒斯坦人驅離加沙地帶的「統一立場」。美國總統特朗普的相關提議「不可接受」。
-<br/>
-<br/>
-拉夫羅夫表示，雙方進行了「詳細、有益和有建設性」的會談。關於伊朗核問題，俄羅斯始終認為外交是解決危機的最佳選擇。
-<br/>
-<br/>
-特朗普本月4日簽署總統備忘錄，決定重啟對伊朗的「極限施壓」措施，包括尋求將伊朗石油出口規模打壓至「零」的措施，以阻止伊朗獲得核武器。
-<br/>
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htmWed, 26 Feb 2025 01:55:00 +0800克里姆林宮：解決烏克蘭問題後俄美才可能發展經貿合作https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm<img alt="克宮發言人佩斯科夫說，只有在烏克蘭問題解決之後，俄羅斯和美國才可能開展經貿投資合作。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793157\_1\_20250226021357.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:23:53 +0000webmaster@rthk.hk克里姆林宮：解決烏克蘭問題後俄美才可能發展經貿合作https://news.rthk.hk/rthk/ch/component/k2/1793157-20250226.htm<img alt="克宮發言人佩斯科夫說，只有在烏克蘭問題解決之後，俄羅斯和美國才可能開展經貿投資合作。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793157\_1\_20250226021357.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 俄羅斯克里姆林宮發言人佩斯科夫表示，俄方注意到美方在烏克蘭問題上持「平衡得多」的立場，但只有在烏克蘭問題解決之後，俄羅斯和美國才可能開展經貿投資合作。
@@ -1786,4 +1751,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htmThu, 27 Feb 2025 03:54:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htmThu, 27 Feb 2025 03:54:00 +0800歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm<img alt="中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793400\_1\_20250227042334.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+中國駐歐盟使團強烈不滿和堅決反對歐盟日前宣布新一輪對俄制裁中，將部分中國企業和個人列入清單，已向歐盟提出嚴正交涉。
+<br>
+<br/>
+發言人批評歐方的做法於理無憑、於法無據，十分錯誤，重申中方一貫反對沒有國際法依據、未經聯合國安理會授權的單邊制裁。
+<br/>
+<br/>
+發言人說，在烏克蘭問題上，中方始終秉持客觀公正立場，勸和促談，致力於推動危機政治解決，敦促歐方立即停止對中方抹黑推責，立即停止列單中國企業。中方將採取必要措施，堅決維護中國企業的正當合法權益。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htmThu, 27 Feb 2025 04:23:00 +0800
