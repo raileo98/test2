@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 17:25:45 +0000webmaster@rthk.hk財政預算案2025｜謝偉銓倡研增薪點　姚柏良促三思機場離境稅https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793319\_1\_20250226170554.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-立法會G19召集人謝偉銓表示，財政預算案提出削減一萬個公務員職位，有助節省部門開支，但建議政府重新研究公務員增薪點制度，引入按表現評核機制。他認為如果減薪會影響公務員士氣，可利用創科和人工智能支援、簡化現有程序，節省開支並提高職效，較減薪更有效。
-<br>
-<br/>
-旅遊界立法會議員姚柏良就對預算案提出，將機場離境稅增至200元，非常有保留，認為不利吸引中轉客源，影響未來機場城市發展，阻礙開拓過境客市場，建議豁免向他們徵收相關稅項，希望政府三思。
-<br/>
-<br/>
-選委界別議員周文港認為，政府以連續3年每年節省2%開支的方式，調整8間資助大學撥款，做法克制，相信不會影響大學運作和發展，促請大學善用財政儲備，避免削減教職員薪酬，同時落實其他開源措施，繼續擦亮留學香港品牌。他又指，預算案提出八大需要向政府回撥40億元資金，相信不會影響大學運作和整體競爭力。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htmWed, 26 Feb 2025 16:38:00 +0800財政預算案2025｜黎志華稱政策局及部門自行考慮如何節省開支https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm<img alt="黎志華說，如何節省2%，就交給相關政策局和部門自行考慮。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793320\_1\_20250226170656.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 17:33:57 +0000webmaster@rthk.hk財政預算案2025｜黎志華稱政策局及部門自行考慮如何節省開支https://news.rthk.hk/rthk/ch/component/k2/1793320-20250226.htm<img alt="黎志華說，如何節省2%，就交給相關政策局和部門自行考慮。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793320\_1\_20250226170656.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。
@@ -1631,7 +1603,7 @@ cnews@rthk.hk
 根據傳媒公布的協議文本，美國和烏克蘭將共同開發礦產資源，並將收入注入共同基金。根據條款，烏克蘭將把收入的一半向基金注資，每年至少一次重新投資於烏克蘭的項目。條款中沒有清楚說明美國將擁有基金的多少份額。
 <br/>
 <br/>
-路透社報道，協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
+協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
 </br>
 </div>
 <br/>
@@ -1709,4 +1681,29 @@ https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htmThu, 27 Feb 2025 00:56:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htmThu, 27 Feb 2025 00:56:00 +0800特朗普確認周五在華盛頓會見澤連斯基https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm<img alt="特朗普主持首次內閣會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793390\_1\_20250227013236.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普確認，將於星期五在華盛頓會見烏克蘭總統澤連斯基。
+<br>
+<br/>
+特朗普星期三在他首次內閣會議上表示，澤連斯基將於星期五到來，這點現在已經得到確認。他又說，美國將與烏克蘭在稀土方面合作。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htmThu, 27 Feb 2025 01:32:00 +0800

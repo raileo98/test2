@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 17:25:45 +0000webmaster@rthk.hk麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm<img alt="麥萃才認為，如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793104\_1\_20250225170101.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-香港迪士尼樂園公布業績，淨利潤達8.38億港元，10年來首次錄得盈利，收入按年增長54%至88億港元，同時創開幕以來新高。浸會大學會計、經濟及金融學系副教授麥萃才表示，疫情後機場的運力開始回升，令長短途旅客來港人數有所增加，而旅客增長主要受惠於東盟國家，包括來自菲律賓及泰國等地的遊客，再加上近年香港迪士尼樂園新增部分設施都能吸引區內旅客。
-<br>
-<br/>
-對於香港迪士尼未來盈利展望，麥萃才表示正面，認為如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。他認為隨著本港的大型設施落成，包括啟德體育園開幕，來港看演場會或體育盛事的旅客亦會上升，同時可配合香港其他景點，讓遊客增加留港時間，產生協同效應。
-<br/>
-<br/>
-被問到香港迪士尼轉虧為盈對作為大股東的特區政府，財政上有多大支持，麥萃才表示，特區政府投資興建迪士尼，除了直接盈利，主要原因是為香港整體經濟帶來收益，包括帶來更多旅客來港，以及在住宿等方面帶動，而樂園同時帶來就業職位，在多方面為香港帶來間接經濟利益。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htmTue, 25 Feb 2025 16:29:00 +0800商務部：中方敦促歐方停止抹黑推責　將採措施維護中企合法權益https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm<img alt="商務部稱，歐方做法有違中歐領導人共識精神，對中歐經貿關係造成消極影響。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793112\_1\_20250225171058.jpg&amp;q=30" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 17:33:57 +0000webmaster@rthk.hk商務部：中方敦促歐方停止抹黑推責　將採措施維護中企合法權益https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm<img alt="商務部稱，歐方做法有違中歐領導人共識精神，對中歐經貿關係造成消極影響。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793112\_1\_20250225171058.jpg&amp;q=30" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 在北京，商務部回應歐盟宣布在第16輪對俄制裁中將部分中國企業和個人列入清單，發言人說，中方一貫反對沒有國際法依據、未經聯合國安理會授權的單邊制裁，已多次對歐盟無理制裁中國企業和個人表示強烈不滿，堅決反對。
@@ -1708,7 +1680,7 @@ cnews@rthk.hk
 根據傳媒公布的協議文本，美國和烏克蘭將共同開發礦產資源，並將收入注入共同基金。根據條款，烏克蘭將把收入的一半向基金注資，每年至少一次重新投資於烏克蘭的項目。條款中沒有清楚說明美國將擁有基金的多少份額。
 <br/>
 <br/>
-路透社報道，協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
+協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
 </br>
 </div>
 <br/>
@@ -1786,4 +1758,29 @@ https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htmThu, 27 Feb 2025 00:56:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htmThu, 27 Feb 2025 00:56:00 +0800特朗普確認周五在華盛頓會見澤連斯基https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm<img alt="特朗普主持首次內閣會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793390\_1\_20250227013236.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普確認，將於星期五在華盛頓會見烏克蘭總統澤連斯基。
+<br>
+<br/>
+特朗普星期三在他首次內閣會議上表示，澤連斯基將於星期五到來，這點現在已經得到確認。他又說，美國將與烏克蘭在稀土方面合作。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htmThu, 27 Feb 2025 01:32:00 +0800
