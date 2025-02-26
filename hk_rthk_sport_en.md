@@ -1,51 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=rthk - Sport© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:58:41 +0000webmaster@rthk.hkCE meets injured HK ice hockey players in Harbinhttps://news.rthk.hk/rthk/en/component/k2/1791005-20250210.htm<img alt="Pictures were posted on the CE's Facebook account of his meeting with the injured players at the Asian Winter Games in Harbin." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791005\_1\_20250210132006.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Chief Executive John Lee on Monday paid a visit to ice hockey players who were injured during a post-game fight between players from Hong Kong, China and Turkmenistan at the Winter Asian Games in Harbin.
-<br>
-<br/>
-SAR sports officials are demanding action from relevant authorities and have condemned the "deliberate attack and injury" by Turkmenistan athletes after Sunday's game.
-<br/>
-<br/>
-Lee, who's in Harbin, went to the athletes' village to meet three Hong Kong players hurt in the brawl.
-<br/>
-<br/>
-He said the trio were fine and should be able to play in Monday night's quarter-final clash against Kyrgyzstan.
-<br/>
-<br/>
-The CE praised the players for staying calm and showing restraint during the incident, saying they showed professionalism and displayed sportsmanship.
-<br/>
-<br/>
-"I encourage them to maintain the best mental condition and play with a professional attitude, not to be affected by any incident," Lee wrote on social media.
-<br/>
-<br/>
-"I also expressed the support of Hong Kong people for the ice hockey team, and encourage the team members to keep it up and focus on the upcoming games."
-<br/>
-<br/>
-The chief executive also called on the Sports Federation and Olympic Committee of Hong Kong, China, and the Culture, Sports and Tourism Bureau to follow up on the matter, and ensure the safety of the SAR's athletes.
-<br/>
-<br/>
-Lee was flanked by sports minister Rosanna Law and Chief Executive's Office director Carol Yip as he met the ice hockey team.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1791005-20250210.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1791005-20250210.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1791005-20250210.htmMon, 10 Feb 2025 13:38:00 +0800'Physical side of hockey may have induced fight'https://news.rthk.hk/rthk/en/component/k2/1791010-20250210.htm<img alt="Lobo Louie said players may have gotten riled up after the match due to the physical side of the sport. Photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791010\_1\_20250210141009.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=rthk - Sport© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:18:30 +0000webmaster@rthk.hk'Physical side of hockey may have induced fight'https://news.rthk.hk/rthk/en/component/k2/1791010-20250210.htm<img alt="Lobo Louie said players may have gotten riled up after the match due to the physical side of the sport. Photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791010\_1\_20250210141009.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Sunday's fight involving ice hockey players from Turkmenistan and Hong Kong, China may have escalated due to the physical nature of the sport.
@@ -3582,4 +3536,87 @@ https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htmWed, 26 Feb 2025 20:44:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htmWed, 26 Feb 2025 20:44:00 +0800Liverpool beat Newcastle to extend lead; Arsenal heldhttps://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm<img alt="Dominik Szoboszlai opened the scoring early for the Reds. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793414\_1\_20250227071410.jpg&amp;q=90" style="width:100%;height:auto"/>
+<img alt="Arsenal's Gabriel Magalhães reacts after his side's goalless draw against Nottingham Forest. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793414\_2\_20250227071410.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Liverpool moved a giant step closer to the Premier League title with a ruthless 2-0 win against Newcastle, while Arsenal's challenge was left in tatters after a 0-0 draw against Nottingham Forest.
+<br>
+<br/>
+With suspended boss Arne Slot watching from the Anfield stands, Liverpool opened up a massive 13-point lead over second-placed Arsenal thanks to goals from Dominik Szoboszlai and Alexis Mac Allister.
+<br/>
+<br/>
+In Wednesday's other action, Manchester City won 1-0 at Tottenham, while 10-man Manchester United held on to beat lowly Ipswich 3-2.
+<br/>
+<br/>
+But it is Liverpool who continue to hog the Premier League spotlight as an almost-flawless campaign approaches a memorable climax.
+<br/>
+<br/>
+The Reds look certain to win the Premier League for the first time since 2020, which will move them level with Manchester United on a record-equalling 20 English titles.
+<br/>
+<br/>
+Having won 2-0 at fading champions City on Sunday 24 hours after Arsenal lost to West Ham, Slot's men kept their foot on the gas to turn the title race into a procession.
+<br/>
+<br/>
+Szoboszlai netted with a clinical finish in the 11th minute and Mac Allister's fine strike in the 63rd minute made it 20 wins and just one defeat from 28 league games this term.
+<br/>
+<br/>
+In his first season after replacing Jurgen Klopp, Slot has made an astonishing impact, which could yet include Champions League and League Cup glory as well.
+<br/>
+<br/>
+The Reds play Paris Saint-Germain in the Champions League last 16 first leg next week and face a rematch with Newcastle at Wembley in the League Cup final on March 16.
+<br/>
+<br/>
+Arsenal boss Mikel Arteta had said his side would concede the title "over my dead body".
+<br/>
+<br/>
+The Gunners have a game in hand on Liverpool, but Arteta may have to accept the stalemate at the City Ground was the final nail in the coffin for Arsenal's attempt to win a first title since 2004.
+<br/>
+<br/>
+The toothless Gunners, playing without a recognised striker, managed just one shot on target at the City Ground, with Riccardo Calafiori hitting the post in the first half.
+<br/>
+<br/>
+Third-placed Forest's surprise challenge for Champions League qualification has also hit the rocks after just one win from their last five matches.
+<br/>
+<br/>
+Meanwhile, Erling Haaland returned from injury to clinch Manchester City's victory at Tottenham as the troubled champions moved into fourth place.
+<br/>
+<br/>
+Haaland had missed City's previous two defeats against Real Madrid and Liverpool with a knee injury suffered against Newcastle on February 15.
+<br/>
+<br/>
+The Norway star showed no rust with the first-half winner in north London as City climbed one point above fifth-placed Chelsea.
+<br/>
+<br/>
+It was Haaland's 28th goal in all competitions this season, with 10 of those coming in his last 11 games to silence the critics after a barren spell earlier this season.
+<br/>
+<br/>
+After four defeats in their last six games in all competitions, this was a much-needed victory for City, who started strongly but rode their luck as Tottenham missed a series of second-half chances.
+<br/>
+<br/>
+Elsewhere, Harry Maguire's header earned Manchester United a hard-fought win at Old Trafford, easing Patrick Dorgu's embarrassment after his part in a calamitous Ipswich opener was compounded by a first-half red card.
+<br/>
+<br/>
+Maguire's second-half header ended United's three-match winless run in the league and lifted a little of the gloom after Monday's announcement of a second round of redundancies at the club.
+<br/>
+<br/>
+Ruben Amorim secured just his fifth league win as United boss despite a disastrous mix up between Dorgu and keeper Andre Onana that gifted Jaden Philogene an early goal. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htmThu, 27 Feb 2025 07:14:00 +0800

@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 22:58:41 +0000webmaster@rthk.hk信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
-<br>
-<br/>
-集團上半年度收入38.5億元，按年跌近22%。應佔物業銷售總收入減少63%至近24.5億元；應佔總租金收益跌約2%至近17.5億元，整體出租率跌1.3個百分點至89.5%，因零售業面臨新挑戰。
-<br/>
-<br/>
-截至去年底，集團在中國內地、香港，新加坡及澳洲悉尼擁有土地儲備應佔樓面面積約1940萬平方呎，足以應付未來數年發展需要。集團將繼續以選擇性策略增添土地儲備。
-<br/>
-<br/>
-集團未來有多個新項目可供推售，包括中環ONE CENTRAL PLACE、油塘通風樓物業發展項目、元朗柏瓏III及將軍澳日出康城第13期物業發展項目，以上項目已取得預售樓花同意書。集團預期土瓜灣榮光街/崇安街發展項目今年獲發預售樓花同意書。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 23:18:30 +0000webmaster@rthk.hk財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
@@ -1736,4 +1705,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htmThu, 27 Feb 2025 06:16:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htmThu, 27 Feb 2025 06:16:00 +0800英超聯賽　利物浦主場2:0擊敗紐卡素　榜首優勢擴大至13分https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm<img alt="利物浦主場2:0擊敗紐卡素，麥卡里士打入球後與隊友慶祝。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793413\_1\_20250227071034.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+英格蘭超級足球聯賽，利物浦主場2:0擊敗紐卡素。11分鐘，蘇保斯拉爾接應路易斯迪亞斯傳送後趁機突圍，近距離射破門領先。63分鐘，阿歷斯麥卡里士打接應沙拿傳送，猛烈射門，為主隊奠定勝局。
+<br>
+<br/>
+阿仙奴作客對諾定咸森林，雖然大部分時間控球，但多次嘗試射門都受到限制，最終雙方只能賽和0:0。
+<br/>
+<br/>
+曼城作客1:0擊敗熱刺，夏蘭特12分鐘取得全場唯一入球。
+<br/>
+<br/>
+至於曼聯主場踢少一人下，3:2擊敗下游的葉士域治。
+<br/>
+<br/>
+在積分榜，利物浦28戰67分，繼續擴大榜首領先優勢，拋離踢少一場，排第二的阿仙奴13分，諾定咸森林48分排第三，比升上第四的曼城多1分，紐卡素就44分跌落第六。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htmThu, 27 Feb 2025 07:10:00 +0800

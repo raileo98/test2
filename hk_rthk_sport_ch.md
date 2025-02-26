@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=rthk - 體育© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:58:40 +0000webmaster@rthk.hk亞冬會今晚閉幕　港隊首次參與男子冰壺項目位居第4https://news.rthk.hk/rthk/ch/component/k2/1791653-20250214.htm<img alt="男子冰壺男子銅牌戰，中國香港隊選手甄浩天（左）、鄭政楠在比賽中擦冰。（新華社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791653\_1\_20250214171430.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-在哈爾濱舉行的亞洲冬季運動會今晚閉幕，閉幕式在哈爾濱國際會展體育中心舉行，國務院總理李強將會出席。
-<br>
-<br/>
-自由式滑雪女子空中技巧運動員徐夢桃，將出任國家隊閉幕式旗手。中國香港代表團持旗手則由男子冰壺運動員甄浩天擔任。
-<br/>
-<br/>
-在最後一天賽事，港隊在男子冰壺銅牌戰，以3:10不敵國家隊，無緣獎牌，首次參與這個項目已位居第4。港協暨奧委會指中國香港代表團在今屆亞冬運突破不斷，以歷屆最好成績，為連日賽事畫上圓滿句號。
-<br/>
-<br/>
-獎牌榜，國家隊以32金27銀26銅排第一，排第二的南韓有16金，日本以10金排第三。亞奧理事會表示，哈爾濱亞冬會是最成功的一屆亞冬會。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1791653-20250214.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1791653-20250214.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1791653-20250214.htmFri, 14 Feb 2025 17:04:00 +0800啟德體育園推「離場易」網站　提供離場路線所需時間及人流資訊https://news.rthk.hk/rthk/ch/component/k2/1791661-20250214.htm<img alt="「離場易」網站提供離場路線所需時間及人流密度資訊，協助觀眾選擇最適合的離場路線。（離場易網站截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791661\_1\_20250214173152.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=rthk - 體育© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:18:30 +0000webmaster@rthk.hk啟德體育園推「離場易」網站　提供離場路線所需時間及人流資訊https://news.rthk.hk/rthk/ch/component/k2/1791661-20250214.htm<img alt="「離場易」網站提供離場路線所需時間及人流密度資訊，協助觀眾選擇最適合的離場路線。（離場易網站截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791661\_1\_20250214173152.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 為配合啟德體育園啟用，當局聯同港鐵及巴士營運商及啟德體育園公司等推出「離場易」網站，提供離場路線所需時間及人流密度資訊，協助觀眾選擇最適合的離場路線，以紓緩大型活動散場時的大量人流及公共交通壓力。
@@ -1809,4 +1778,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800英超聯賽　利物浦主場2:0擊敗紐卡素　榜首優勢擴大至13分https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm<img alt="利物浦主場2:0擊敗紐卡素，麥卡里士打入球後與隊友慶祝。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793413\_1\_20250227071034.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+英格蘭超級足球聯賽，利物浦主場2:0擊敗紐卡素。11分鐘，蘇保斯拉爾接應路易斯迪亞斯傳送後趁機突圍，近距離射破門領先。63分鐘，阿歷斯麥卡里士打接應沙拿傳送，猛烈射門，為主隊奠定勝局。
+<br>
+<br/>
+阿仙奴作客對諾定咸森林，雖然大部分時間控球，但多次嘗試射門都受到限制，最終雙方只能賽和0:0。
+<br/>
+<br/>
+曼城作客1:0擊敗熱刺，夏蘭特12分鐘取得全場唯一入球。
+<br/>
+<br/>
+至於曼聯主場踢少一人下，3:2擊敗下游的葉士域治。
+<br/>
+<br/>
+在積分榜，利物浦28戰67分，繼續擴大榜首領先優勢，拋離踢少一場，排第二的阿仙奴13分，諾定咸森林48分排第三，比升上第四的曼城多1分，紐卡素就44分跌落第六。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htmThu, 27 Feb 2025 07:10:00 +0800

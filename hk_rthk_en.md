@@ -1,48 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 22:58:40 +0000webmaster@rthk.hkWall Street holds steadier but still fallshttps://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm<img alt="US markets face uncertainty over growth, valuations, and geopolitics. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793018\_1\_20250225073058.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-US stocks drifted lower on Monday to compound their sharp losses from last week .
-<br>
-<br/>
-The S&amp;P 500 dipped 0.5 percent to 5,983 after flipping between small gains and losses several times through the day. The relatively modest moves followed its 1.7 percent tumble on Friday, which came after several weaker-than-expected reports on the US economy.
-<br/>
-<br/>
-The Dow added 0.1 percent to 43.461, while the Nasdaq composite fell 1.2 percent to 19,286.
-<br/>
-<br/>
-Berkshire Hathaway climbed 4.1 percent for one of the market’s bigger gains after Warren Buffett’s company reported a jumped in operating profits for the latest quarter.
-<br/>
-<br/>
-Starbucks rose 1.3 percent after saying it would cut 1,100 corporate jobs and leave several hundred more positions unfilled as new CEO Brian Niccol tries to make it a leaner operation.
-<br/>
-<br/>
-Big US companies have broadly been reporting better profits for the last three months of 2024 than analysts expected, which is one of the main reasons the S&amp;P 500 set a record before sliding at the end of last week. The pace of reports will slow this week, but several potentially market-moving updates are still on deck.
-<br/>
-<br/>
-Chief among them is Nvidia, the company that’s become one of Wall Street’s most influential stocks because of what had been nearly insatiable demand for its chips.
-<br/>
-<br/>
-Wednesday will be the company’s first profit report since a Chinese upstart, DeepSeek, upended the artificial-intelligence industry by saying it developed a large language model that can compete with big US rivals without having to use the top-flight, most expensive chips. (AP)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htmTue, 25 Feb 2025 07:30:00 +0800Canada, Mexico tariffs are going forward: Trumphttps://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm<img alt="US President Donald Trump wants to impose 25 percent tariffs on Canada and Mexico as soon as March 4. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793020\_1\_20250225073658.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 23:18:31 +0000webmaster@rthk.hkCanada, Mexico tariffs are going forward: Trumphttps://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm<img alt="US President Donald Trump wants to impose 25 percent tariffs on Canada and Mexico as soon as March 4. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793020\_1\_20250225073658.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 US President Donald Trump said on Monday that his tariffs on Canada and Mexico are starting next month, ending a month-long suspension on the planned import taxes that could potentially hurt economic growth and worsen inflation.
@@ -2865,4 +2822,87 @@ https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htmThu, 27 Feb 2025 05:57:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htmThu, 27 Feb 2025 05:57:00 +0800Liverpool beat Newcastle to extend lead; Arsenal heldhttps://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm<img alt="Dominik Szoboszlai opened the scoring early for the Reds. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793414\_1\_20250227071410.jpg&amp;q=90" style="width:100%;height:auto"/>
+<img alt="Arsenal's Gabriel Magalhães reacts after his side's goalless draw against Nottingham Forest. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793414\_2\_20250227071410.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Liverpool moved a giant step closer to the Premier League title with a ruthless 2-0 win against Newcastle, while Arsenal's challenge was left in tatters after a 0-0 draw against Nottingham Forest.
+<br>
+<br/>
+With suspended boss Arne Slot watching from the Anfield stands, Liverpool opened up a massive 13-point lead over second-placed Arsenal thanks to goals from Dominik Szoboszlai and Alexis Mac Allister.
+<br/>
+<br/>
+In Wednesday's other action, Manchester City won 1-0 at Tottenham, while 10-man Manchester United held on to beat lowly Ipswich 3-2.
+<br/>
+<br/>
+But it is Liverpool who continue to hog the Premier League spotlight as an almost-flawless campaign approaches a memorable climax.
+<br/>
+<br/>
+The Reds look certain to win the Premier League for the first time since 2020, which will move them level with Manchester United on a record-equalling 20 English titles.
+<br/>
+<br/>
+Having won 2-0 at fading champions City on Sunday 24 hours after Arsenal lost to West Ham, Slot's men kept their foot on the gas to turn the title race into a procession.
+<br/>
+<br/>
+Szoboszlai netted with a clinical finish in the 11th minute and Mac Allister's fine strike in the 63rd minute made it 20 wins and just one defeat from 28 league games this term.
+<br/>
+<br/>
+In his first season after replacing Jurgen Klopp, Slot has made an astonishing impact, which could yet include Champions League and League Cup glory as well.
+<br/>
+<br/>
+The Reds play Paris Saint-Germain in the Champions League last 16 first leg next week and face a rematch with Newcastle at Wembley in the League Cup final on March 16.
+<br/>
+<br/>
+Arsenal boss Mikel Arteta had said his side would concede the title "over my dead body".
+<br/>
+<br/>
+The Gunners have a game in hand on Liverpool, but Arteta may have to accept the stalemate at the City Ground was the final nail in the coffin for Arsenal's attempt to win a first title since 2004.
+<br/>
+<br/>
+The toothless Gunners, playing without a recognised striker, managed just one shot on target at the City Ground, with Riccardo Calafiori hitting the post in the first half.
+<br/>
+<br/>
+Third-placed Forest's surprise challenge for Champions League qualification has also hit the rocks after just one win from their last five matches.
+<br/>
+<br/>
+Meanwhile, Erling Haaland returned from injury to clinch Manchester City's victory at Tottenham as the troubled champions moved into fourth place.
+<br/>
+<br/>
+Haaland had missed City's previous two defeats against Real Madrid and Liverpool with a knee injury suffered against Newcastle on February 15.
+<br/>
+<br/>
+The Norway star showed no rust with the first-half winner in north London as City climbed one point above fifth-placed Chelsea.
+<br/>
+<br/>
+It was Haaland's 28th goal in all competitions this season, with 10 of those coming in his last 11 games to silence the critics after a barren spell earlier this season.
+<br/>
+<br/>
+After four defeats in their last six games in all competitions, this was a much-needed victory for City, who started strongly but rode their luck as Tottenham missed a series of second-half chances.
+<br/>
+<br/>
+Elsewhere, Harry Maguire's header earned Manchester United a hard-fought win at Old Trafford, easing Patrick Dorgu's embarrassment after his part in a calamitous Ipswich opener was compounded by a first-half red card.
+<br/>
+<br/>
+Maguire's second-half header ended United's three-match winless run in the league and lifted a little of the gloom after Monday's announcement of a second round of redundancies at the club.
+<br/>
+<br/>
+Ruben Amorim secured just his fifth league win as United boss despite a disastrous mix up between Dorgu and keeper Andre Onana that gifted Jaden Philogene an early goal. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htmThu, 27 Feb 2025 07:14:00 +0800
