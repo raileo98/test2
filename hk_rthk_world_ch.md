@@ -1,67 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 19:17:40 +0000webmaster@rthk.hk尹錫悅彈劾案庭審最終陳述　兩度向國民道歉https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htm<img alt="尹錫悅彈劾案庭審公開辯論在南韓憲法法院舉行。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793139\_1\_20250225214609.jpg&amp;q=70" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-南韓總統尹錫悅在彈劾案最後一次庭審辯論發表最終陳述，指自己宣布緊急戒嚴是要向國民發出呼籲，表明國家處於亡國危機之中，希望國民面對現實，共同克服危機。
-<br>
-<br/>
-庭審辯論在憲法法院舉行，尹錫悅發言約40分鐘，兩次向國民道歉，又提到如果復職，會專注於推動修憲和政治改革。
-<br/>
-<br/>
-國會彈劾委員團團長鄭清來發言時說，尹錫悅企圖破壞憲法和民主，理應遭到罷免。
-<br/>
-<br/>
-完成辯論後，法官將評議裁定彈劾與否，之後主審法官按照多數意見起草判決書。法律界預測，裁決日期會在大約兩星期後，即可能在下月中。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htmTue, 25 Feb 2025 21:40:00 +0800阿富汗暴雨引發洪水導致29人死亡https://news.rthk.hk/rthk/ch/component/k2/1793151-20250225.htm<img alt="阿富汗暴雨引發洪水導致29人死亡" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793151\_1\_20250225235201.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-阿富汗西部和南部地區因暴雨引發洪災，已造成29人死亡。
-<br>
-<br/>
-西部法拉省災難管理部門負責人對新華社記者說，暴雨導致該省卡拉卡地區突發洪水，造成21人死亡、6人受傷。
-<br/>
-<br/>
-南部坎大哈省災難管理部門負責人說，該省發生的暴雨災害已致8人死亡、3人受傷。
-<br/>
-<br/>
-本周以來，阿富汗多地強降雨，引發洪水、山泥傾瀉等災害。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793151-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793151-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793151-20250225.htmTue, 25 Feb 2025 23:52:00 +0800烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 19:36:19 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -1795,4 +1733,66 @@ https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800華府要求部門削減職位　特朗普：政府規模臃腫https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm<img alt="特朗普指現時政府規模臃腫而鬆散，很多職員無做好本份。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793395\_1\_20250227030200.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國政府要求各部門制定削減職位等減低開支的計劃。總統特朗普在第一次內閣會議上表示，必須縮小政府的規模，他形容現時政府規模臃腫而鬆散，指很多職員無做好本份。
+<br>
+<br/>
+根據白宮發出的備忘，各部門要在下月13日前提交削減職位計劃，之後在四月中再提交整合管理的計劃，以提高效率，甚至重置辦公室於華盛頓以外較便宜的地區，各項計劃要在今年九月底前落實。
+<br/>
+<br/>
+並非內閣成員的政府效率部負責人馬斯克，亦有參與內閣會議。他說，政府效率部是提供「技術支援」，協助政府削減巨額財政赤字，否則美國將會破產。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htmThu, 27 Feb 2025 03:24:00 +0800特朗普：不會向烏克蘭提供安全保障或北約成員國資格https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm<img alt="特朗普主持首次內閣會議，談到烏克蘭問題。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793396\_1\_20250227032617.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國特朗普確認，將於星期五在華盛頓會見烏克蘭總統澤連斯基，又說美國不會向烏克蘭提供安全保障或北約成員國資格。
+<br>
+<br/>
+特朗普星期三在首次內閣會議上表示，澤連斯基訪問華盛頓期間，將簽署礦產資源協議。特朗普形容這對烏克蘭來說也是一筆好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保證，認為歐洲應該承擔責任，因為歐洲是烏克蘭的鄰居，但美國會確保一切順利進行。
+<br/>
+<br/>
+特朗普排除烏克蘭加入北約的可能性，稱「你可以忘掉北約了。我認為這可能是整個事情開始的原因。」
+<br/>
+<br/>
+特朗普表示，相信可以達成協議，將盡最大努力為俄烏雙方達成最好的協議，讓烏克蘭盡可能挽回損失。
+<br/>
+<br/>
+特朗普又說，他的外交努力正在帶來俄羅斯總統普京的新妥協精神，指普京之前「想要整個烏克蘭」。特朗普稱普京是「非常聰明又非常狡猾的人」，認為如果他沒有當選，普京會繼續在烏克蘭推進。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htmThu, 27 Feb 2025 03:26:00 +0800

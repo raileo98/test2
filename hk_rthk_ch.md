@@ -1,67 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 19:17:39 +0000webmaster@rthk.hk財政預算案2025｜明光社反對探討規範籃球博彩　憂影響青少年https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm<img alt="預算案表示將積極探討規範籃球博彩活動，明光社表明反對。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793325\_1\_20250226174342.jpg&amp;q=55" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波在預算案表示，將積極探討規範籃球博彩活動，並邀請馬會提交建議。關注團體明光社表明反對，認為是政府帶頭鼓勵市民參與籃球賭博，批評政府為減赤而不擇手段。
-<br>
-<br/>
-明光社表示，堅決反對政府以打擊非法賭博活動為名而罔顧對市民、青少年價值觀的長遠影響，認為籃球賭博合法化，只會令社會長遠投放更加多資源及成本。
-<br/>
-<br/>
-對於當局指出，根據馬會評估，去年非法籃球賭博投注額高達700億至900億元。明光社指出，足球博彩多年以來未能有效打擊外圍賭博，認為馬會推廣足球博彩，令更多原來不認識，或沒有興趣參與足球博彩活動的市民及青少年，加入投注行列，對社會造成重大負面影響。
-<br/>
-<br/>
-明光社又認為，若將籃球博彩合法化，會令更多原來喜歡籃球運動的市民，特別是青少年，加入賭徒行列。政府雖然推出平和基金資助戒賭服務，但20多年以來，本港病態賭徒有所增加，認為服務未能跟上。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htmWed, 26 Feb 2025 17:03:00 +0800財政預算案2025｜證券及期貨專業總會對未降股票印花稅感遺憾https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm<img alt="證券及期貨專業總會對新一份財政預算案表示支持，但對於未有提及下調股票印花稅表示遺憾。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793326\_1\_20250226171047.jpg&amp;q=1" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-證券及期貨專業總會對新一份財政預算案表示支持，但對於未有提及下調股票印花稅表示遺憾。
-<br>
-<br/>
-總會建議，將股票交易印花稅由現行買賣雙方各付0.1%，下調至0.0625%，長遠目標逐步撤銷股票交易印花稅，以增強香港市場的國際吸引力。同時建議對窩輪、牛熊證等產品，重新引入衍生工具印花稅。
-<br/>
-<br/>
-總會又指，支持政府提出多項資本市場改革措施，建議降低符合盈利要求企業最低市值門檻、優化雙重主要上市及第二上市的規則、放寬上市公司注入新資產的規定以促進市場併購及重組活動，並擴展滬深港通標的範圍，以及加快推進T+1結算周期。
-<br/>
-<br/>
-另外，總會支持政府推動數碼債券發行、代幣化技術應用及虛擬資產市場監管，建議加快推動「數碼港元」發展。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htmWed, 26 Feb 2025 17:26:00 +0800人民幣兌美元收市升逾90點子https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm<img alt="人民幣收市報7.2547兌1美元，較上日收市升94點子。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793328\_1\_20250226172003.jpg&amp;q=35" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 19:36:19 +0000webmaster@rthk.hk人民幣兌美元收市升逾90點子https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm<img alt="人民幣收市報7.2547兌1美元，較上日收市升94點子。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793328\_1\_20250226172003.jpg&amp;q=35" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 美元偏弱，人民幣兌美元收市上升，報7.2547兌1美元，較上日收市升94點子。中間價再創逾1個月低位，報7.1732兌1美元，與市場預測偏離近800點子。
@@ -416,7 +354,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+<br>
+<br/>
+政府又預計下年度地價收入預算為210億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
@@ -475,32 +438,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-<br>
-<br/>
-政府又預計下年度地價收入預算為210億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
@@ -1712,4 +1650,66 @@ https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800華府要求部門削減職位　特朗普：政府規模臃腫https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm<img alt="特朗普指現時政府規模臃腫而鬆散，很多職員無做好本份。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793395\_1\_20250227030200.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國政府要求各部門制定削減職位等減低開支的計劃。總統特朗普在第一次內閣會議上表示，必須縮小政府的規模，他形容現時政府規模臃腫而鬆散，指很多職員無做好本份。
+<br>
+<br/>
+根據白宮發出的備忘，各部門要在下月13日前提交削減職位計劃，之後在四月中再提交整合管理的計劃，以提高效率，甚至重置辦公室於華盛頓以外較便宜的地區，各項計劃要在今年九月底前落實。
+<br/>
+<br/>
+並非內閣成員的政府效率部負責人馬斯克，亦有參與內閣會議。他說，政府效率部是提供「技術支援」，協助政府削減巨額財政赤字，否則美國將會破產。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htmThu, 27 Feb 2025 03:24:00 +0800特朗普：不會向烏克蘭提供安全保障或北約成員國資格https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm<img alt="特朗普主持首次內閣會議，談到烏克蘭問題。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793396\_1\_20250227032617.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國特朗普確認，將於星期五在華盛頓會見烏克蘭總統澤連斯基，又說美國不會向烏克蘭提供安全保障或北約成員國資格。
+<br>
+<br/>
+特朗普星期三在首次內閣會議上表示，澤連斯基訪問華盛頓期間，將簽署礦產資源協議。特朗普形容這對烏克蘭來說也是一筆好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保證，認為歐洲應該承擔責任，因為歐洲是烏克蘭的鄰居，但美國會確保一切順利進行。
+<br/>
+<br/>
+特朗普排除烏克蘭加入北約的可能性，稱「你可以忘掉北約了。我認為這可能是整個事情開始的原因。」
+<br/>
+<br/>
+特朗普表示，相信可以達成協議，將盡最大努力為俄烏雙方達成最好的協議，讓烏克蘭盡可能挽回損失。
+<br/>
+<br/>
+特朗普又說，他的外交努力正在帶來俄羅斯總統普京的新妥協精神，指普京之前「想要整個烏克蘭」。特朗普稱普京是「非常聰明又非常狡猾的人」，認為如果他沒有當選，普京會繼續在烏克蘭推進。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htmThu, 27 Feb 2025 03:26:00 +0800
