@@ -1,60 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=rthk - Finance© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:50:59 +0000webmaster@rthk.hkTrump says to announce 'reciprocal' tariffs next weekhttps://news.rthk.hk/rthk/en/component/k2/1790769-20250208.htm<img alt="Donald Trump made tariffs a key platform of his presidential campaign. File photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790769\_1\_20250208043942.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-US President Donald Trump said on Friday he plans to announce reciprocal tariffs on many countries next week, a major escalation of his trade war.
-<br>
-<br/>
-Trump made the announcement during a meeting with visiting Japanese Prime Minister Shigeru Ishiba.
-<br/>
-<br/>
-Trump did not identify which countries would be hit but suggested it would be a broad effort that could also help solve US budget problems.
-<br/>
-<br/>
-He said auto tariffs remained on the table amid reports that the White House was weighing potential exemptions.
-<br/>
-<br/>
-"I'll be announcing that, next week, reciprocal trade, so that we're treated evenly with other countries," Trump said. "We don't want any more, any less."
-<br/>
-<br/>
-The move would fulfil Trump's campaign promise to impose tariffs on American imports equal to rates that trading partners impose on American exports.
-<br/>
-<br/>
-Trump told Republican lawmakers of his plans during budget discussions at the White House on Thursday, three sources familiar with the plan told Reuters.
-<br/>
-<br/>
-Trump and top aides have said they plan to use higher tariffs on foreign imports to help pay for extending Trump's 2017 tax cuts, which independent budget analysts say could add trillions of dollars to the US debt.
-<br/>
-<br/>
-Increased tariffs could offset some of that cost, though they have only accounted for about 2 percent of annual revenues in recent years.
-<br/>
-<br/>
-Trump announced tariffs of 25 percent on Canada and Mexico on Saturday but delayed them after a negative reaction from investors. The two largest US trading partners agreed to increase enforcement efforts at the border, a top Trump priority.
-<br/>
-<br/>
-Wall Street extended losses on Friday following the Reuters report of Trump's discussion with lawmakers.
-<br/>
-<br/>
-US consumer sentiment dropped to a seven-month low in February, and attitudes soured among Republicans as households took stock of what they believe will be a surge in inflation from Trump's tariffs. (Reuters)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1790769-20250208.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1790769-20250208.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1790769-20250208.htmSat, 08 Feb 2025 08:31:00 +0800US adds 143K jobs in Jan, unemployment rate downhttps://news.rthk.hk/rthk/en/component/k2/1790763-20250208.htm<img alt="The United States added fewer jobs than expected in January, with the total employment rose by 143,000 jobs last month. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790763\_1\_20250208021813.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=rthk - Finance© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:58:15 +0000webmaster@rthk.hkUS adds 143K jobs in Jan, unemployment rate downhttps://news.rthk.hk/rthk/en/component/k2/1790763-20250208.htm<img alt="The United States added fewer jobs than expected in January, with the total employment rose by 143,000 jobs last month. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790763\_1\_20250208021813.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 The United States added fewer jobs than expected in January; although hiring remained healthy, government data showed on Friday, marking resilience in the labour market heading into President Donald Trump's new term.
@@ -2493,4 +2438,62 @@ https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htmWed, 26 Feb 2025 17:38:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htmWed, 26 Feb 2025 17:38:00 +0800Commercial land sale pause draws mixed viewshttps://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm<img alt="The vacancy rate for Hong Kong's prime office space reached a historic high of 17 percent in January, according to property consultancy Colliers. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793353\_2\_20250226195707.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The government’s move to pause the sale of commercial land in the upcoming fiscal year has drawn mixed views from analysts – some say it will ease a supply glut of office space while others felt it will have limited impact to the market.
+<br>
+<br/>
+The vacancy rate of Grade-A offices reached a record 17 percent in January, according to commercial real estate agency Colliers.
+<br/>
+<br/>
+That translates to 14 million square feet of empty floor space, while another 5.5 million square feet will be rolled out this year and 2026.
+<br/>
+<br/>
+Cathy Lee, head of research and retail consultancy at Colliers, said rental value of prime office space plunged 40 percent over the past three years.
+<br/>
+<br/>
+"I think the government is very wise to stop selling any commercial land, [so as] to let the market to have some time to digest and absorb the existing available stocks," she told RTHK.
+<br/>
+<br/>
+Lee added the decision to halt the sale of commercial land was not out of the blue, citing the example of the Queensway Plaza redevelopment which was put on ice amid a market downturn.
+<br/>
+<br/>
+But Hannah Jeong, head of valuation and advisory services at CBRE, warned the current supply glut will take as long as 10 years to be fully absorbed.
+<br/>
+<br/>
+On a separate note, the government also extended the $100 concessionary stamp duty to all properties priced at HK$4 million or below, up from HK$3 million.
+<br/>
+<br/>
+Lee from Colliers welcomed the adjustment, saying it will ease the burden for homebuyers.
+<br/>
+<br/>
+"The interest rates remain at a high level, so a lot of homebuyers might still find it difficult to meet their mortgage duties. I think this will help boost demand for smaller-sized units," she explained.
+<br/>
+<br/>
+However, JLL Hong Kong chairman Joseph Tsang was less optimistic.
+<br/>
+<br/>
+"The Budget doesn't focus much on the property market. And this measure has no stimulating effect on the housing market but will instead affect government revenue," he said in a statement.
+<br/>
+<br/>
+"With the high inventory of residential properties, housing prices are likely to continue falling."
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htmWed, 26 Feb 2025 19:57:00 +0800

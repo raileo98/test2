@@ -1,58 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:50:59 +0000webmaster@rthk.hk'Robust sports dispute resolution system essential'https://news.rthk.hk/rthk/en/component/k2/1792564-20250221.htm<img alt="The Law Society's Roden Tong says the 2025 Sports Law Mega Event looks at how sports law can create opportunities in the SAR. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792564\_1\_20250221084533.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-A four-day conference aimed at promoting the importance of sports law and arbitration is currently underway in Hong Kong.
-<br>
-<br/>
-Organised by the Law Society, the symposium – called the 2025 Sports Law Mega Event – explores the connection between sports, law, and business.
-<br/>
-<br/>
-Starting from Thursday and lasting until Sunday, a number of activities will be held with the goal of facilitating exchange between lawyers and visiting guests.
-<br/>
-<br/>
-“This conference is all about how sports law can create opportunities for Hong Kong’s legal and sports industries,” the president of the Law Society, Roden Tong, told
-<a href="https://news.rthk.hk/rthk/en/news-programmes/this-episode.htm?cmsid=77" style="font-size: inherit; color: #1a0dab" target="\_blank">
-RTHK's Hong Kong Today programme
-</a>
-on Friday.
-<br/>
-<br/>
-He explained that the conference will cover a number of areas, including broadcasting rights.
-<br/>
-<br/>
-“We even have e-sports specialists actually in one of the sessions,” he added.
-<br/>
-<br/>
-Deputy Secretary for Justice Horace Cheung had revealed earlier this month that the pilot scheme for sports dispute resolution will be rolled out in the latter half of this year.
-<br/>
-<br/>
-The idea was first unveiled in the Policy Address last year with the aim of promoting sports arbitration, which Tong said is currently not a common method of solving disputes.
-<br/>
-<br/>
-“What we see now is the global sports market is in fact booming, and with [this], there are more disputes, whether it’s about contracts, governance issues or competition-related matters,” Tong said.
-<br/>
-<br/>
-“We believe that a robust and efficient dispute resolution system is essential, particularly in sports.”
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792564-20250221.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792564-20250221.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792564-20250221.htmFri, 21 Feb 2025 08:45:00 +0800Sports park ceremony tickets sell out in half an hourhttps://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htm<img alt="Tickets for the Kai Tak Sports Park opening ceremony were sold out within half an hour." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792583\_1\_20250221110347.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:58:15 +0000webmaster@rthk.hkSports park ceremony tickets sell out in half an hourhttps://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htm<img alt="Tickets for the Kai Tak Sports Park opening ceremony were sold out within half an hour." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792583\_1\_20250221110347.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 The 8,500 tickets available for Kai Tak Sports Park's opening ceremony next month were snapped up within around half an hour of going on sale on Friday morning.
@@ -2813,4 +2760,62 @@ https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htmWed, 26 Feb 2025 18:45:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htmWed, 26 Feb 2025 18:45:00 +0800Commercial land sale pause draws mixed viewshttps://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm<img alt="The vacancy rate for Hong Kong's prime office space reached a historic high of 17 percent in January, according to property consultancy Colliers. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793353\_2\_20250226195707.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The government’s move to pause the sale of commercial land in the upcoming fiscal year has drawn mixed views from analysts – some say it will ease a supply glut of office space while others felt it will have limited impact to the market.
+<br>
+<br/>
+The vacancy rate of Grade-A offices reached a record 17 percent in January, according to commercial real estate agency Colliers.
+<br/>
+<br/>
+That translates to 14 million square feet of empty floor space, while another 5.5 million square feet will be rolled out this year and 2026.
+<br/>
+<br/>
+Cathy Lee, head of research and retail consultancy at Colliers, said rental value of prime office space plunged 40 percent over the past three years.
+<br/>
+<br/>
+"I think the government is very wise to stop selling any commercial land, [so as] to let the market to have some time to digest and absorb the existing available stocks," she told RTHK.
+<br/>
+<br/>
+Lee added the decision to halt the sale of commercial land was not out of the blue, citing the example of the Queensway Plaza redevelopment which was put on ice amid a market downturn.
+<br/>
+<br/>
+But Hannah Jeong, head of valuation and advisory services at CBRE, warned the current supply glut will take as long as 10 years to be fully absorbed.
+<br/>
+<br/>
+On a separate note, the government also extended the $100 concessionary stamp duty to all properties priced at HK$4 million or below, up from HK$3 million.
+<br/>
+<br/>
+Lee from Colliers welcomed the adjustment, saying it will ease the burden for homebuyers.
+<br/>
+<br/>
+"The interest rates remain at a high level, so a lot of homebuyers might still find it difficult to meet their mortgage duties. I think this will help boost demand for smaller-sized units," she explained.
+<br/>
+<br/>
+However, JLL Hong Kong chairman Joseph Tsang was less optimistic.
+<br/>
+<br/>
+"The Budget doesn't focus much on the property market. And this measure has no stimulating effect on the housing market but will instead affect government revenue," he said in a statement.
+<br/>
+<br/>
+"With the high inventory of residential properties, housing prices are likely to continue falling."
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htmWed, 26 Feb 2025 19:57:00 +0800
