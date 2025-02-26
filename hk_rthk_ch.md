@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 13:03:13 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 13:31:00 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5445,4 +5445,62 @@ https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htmWed, 26 Feb 2025 20:55:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htmWed, 26 Feb 2025 20:55:00 +0800中金公司、中國銀河澄清合併傳聞：未得到任何書面或口頭信息https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm<img alt="市傳中金公司和中國銀河進行合併，兩間公司分別澄清指，未得到任何來自政府部門、監管機構或公司股東就相關傳聞的書面或口頭信息。（網上截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793371\_1\_20250226211631.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+對於市傳中金公司和中國銀河進行合併，兩間公司分別澄清指，未得到任何來自政府部門、監管機構或公司股東就相關傳聞的書面或口頭信息。
+<br>
+<br/>
+公告指，中金公司和中國銀河分別經控股股東及實際控制人中央匯金確認，不存在籌劃上述傳聞所述事項，或其他涉及公司的應披露而未披露的重大事項，公司亦無應披露而未披露的信息。為避免相關傳聞對社會各界和投資者造成誤導，因此發出澄清說明。
+<br/>
+<br/>
+中金公司和中國銀河周三股價急升，分別升19%和17%收市。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htmWed, 26 Feb 2025 21:17:00 +0800財政預算案2025｜陳茂波稱以前規劃作商業地未來或可改住宅地https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm<br/>
+<div class="itemFullText">
+預算案提出來年不會推售商業地，財政司司長陳茂波表示，疫情後辦公方式及商業模式均出現變化，市場上亦多了很多電商，反而形成一種契機，以前規劃用作商業用途的土地，未來或可改成住宅用地。
+<br>
+<br/>
+陳茂波在預算案電視論壇表示，很多市民都希望住在市區，若市區的樓宇供應增加，更多人能夠受惠；同時，在其他地方如洪水橋、廈村等，當局亦會檢視有否部分商業用地可轉換用途，令土地供應能適當地按著市場變化作出反應。
+<br/>
+<br/>
+來年賣地表將包括8幅住宅用地，陳茂波表示，政府對於未來幾年的地價收入預算較保守，其中2025至26年度的地價收入為210億元，地價收入在未來幾年佔生產總值比例逐年增長至2%，對比過往十年或二十年3.3%的比例，形容估算是較穩陣。
+<br/>
+<br/>
+陳茂波說，當局在賣地表中列出8幅地，是希望讓大眾知道，現時有多少熟地，但不代表要急於一時推出。被問到當局有否考慮重推勾地表，減少出現流標。陳茂波表示，將土地放入勾地表，土地供應的主導權就不在政府，認為現時於年初時公布賣地計劃，其後按季考慮市場情況有序推出，做法較審慎及合適。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htmWed, 26 Feb 2025 21:22:00 +0800
