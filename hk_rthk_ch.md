@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 23:18:30 +0000webmaster@rthk.hk財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
-<br>
-<br/>
-財政儲備在下財政年度結束時，將跌至5803億元，相當於8個月政府開支。
-<br/>
-<br/>
-政府預計2025/26起的5年間，每年發債1500億至1950億元，支持未來發展項目，並考慮為北都項目發長期債券。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 23:41:50 +0000webmaster@rthk.hk財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
@@ -1183,7 +1155,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800以軍稱在黎巴嫩精準打擊一名真主黨重要成員https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm<img alt="以軍稱在黎巴嫩精準打擊一名真主黨重要成員" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793393\_1\_20250227022823.jpg&amp;q=90" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800以軍稱在黎巴嫩精準打擊一名真主黨重要成員https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm<img alt="以軍士兵在靠近黎巴嫩的邊境站崗。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793393\_2\_20250227072036.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 以色列軍方說，星期三在黎巴嫩卡斯爾地區發動空襲，對黎巴嫩真主黨一名「重要」成員進行「基於情報」的精準打擊。
@@ -1739,4 +1711,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htmThu, 27 Feb 2025 07:10:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htmThu, 27 Feb 2025 07:10:00 +0800Nvidia首季度收入預測高於預期https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm<img alt="Nvidia上季經調整每股盈利0.89美元，預計首季度收入430億美元，兩者都高於市場預期。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793412\_1\_20250227070025.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+晶片製造商Nvidia上季盈利220.9億美元，按年升80%，按季升14%。經調整每股盈利0.89美元，高於預期。
+<br>
+<br/>
+上季收入增長78%，至393億美元，亦高於預期。數據中心收入356億美元，創新高，按年增長93%，按季增長16%。
+<br/>
+<br/>
+上季毛利率跌至73%，按年及按季分別跌3個百分點及1.6個百分點。
+<br/>
+<br/>
+公司預計首季度收入430億美元，高於市場預期。由於要努力提升旗艦產品 Blackwell AI晶片性能，毛利率及經調整毛利率預料將降至70.6%及71%。市場原本估計為72.2%。
+<br/>
+<br/>
+Nvdia股價在收市後交易時段走勢反覆。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htmThu, 27 Feb 2025 07:23:00 +0800

@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:18:29 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:41:49 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 敘利亞全國對話會議閉幕，發表聲明強調維護敘利亞統一和領土主權，呼籲加快組建臨時立法委員會和發布臨時憲法宣言。
@@ -1453,7 +1453,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800以軍稱在黎巴嫩精準打擊一名真主黨重要成員https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm<img alt="以軍稱在黎巴嫩精準打擊一名真主黨重要成員" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793393\_1\_20250227022823.jpg&amp;q=90" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800以軍稱在黎巴嫩精準打擊一名真主黨重要成員https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm<img alt="以軍士兵在靠近黎巴嫩的邊境站崗。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793393\_2\_20250227072036.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 以色列軍方說，星期三在黎巴嫩卡斯爾地區發動空襲，對黎巴嫩真主黨一名「重要」成員進行「基於情報」的精準打擊。

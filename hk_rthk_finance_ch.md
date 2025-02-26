@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:18:29 +0000webmaster@rthk.hk財政預算案2025｜鄧家彪稱乘車優惠利大於弊　冀改動到此為止https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm<img alt="鄧家彪（右三）說，有關「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案，希望改動「到此為止」。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793310\_1\_20250226170236.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-工聯會立法會議員鄧家彪回應財政預算案中「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案時表示，希望改動「到此為止」，不要再做一些「大刀闊斧」的處理。
-<br>
-<br/>
-他表示，長者兩元乘車優惠對於長者和社會整體的利益是利大於弊，認為關鍵的是除了每天上限8次之外，亦可在巴士公司設立分段收費，並在下車的位置設立一個拍卡機作配合，相信資源運用得會更到位。
-<br/>
-<br/>
-工聯會會長吳秋北表示，新一份財政預算案是透過穩固金融市場、擴大招商引資、強化國際樞紐功能的三大主軸，結合城市經濟和國家戰略對接，加速經濟轉型升級。報告亦強調守正創新，可以推動本地經濟轉型升級，強化作為國家參與全球的一個聯動、一個橋樑的角色。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htmWed, 26 Feb 2025 16:04:00 +0800財政預算案2025｜籃球博彩稅料每年15億至20億元收入https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm<img alt="陳茂波說，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793311\_1\_20250226170301.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:41:49 +0000webmaster@rthk.hk財政預算案2025｜籃球博彩稅料每年15億至20億元收入https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm<img alt="陳茂波說，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793311\_1\_20250226170301.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政預算案提出政府將積極探討規範籃球博彩活動，並邀請馬會提交建議。
@@ -902,7 +874,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+<br>
+<br/>
+政府又預計下年度地價收入預算為210億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
@@ -930,32 +927,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-<br>
-<br/>
-政府又預計下年度地價收入預算為210億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
@@ -1815,4 +1787,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htmThu, 27 Feb 2025 06:16:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htmThu, 27 Feb 2025 06:16:00 +0800Nvidia首季度收入預測高於預期https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm<img alt="Nvidia上季經調整每股盈利0.89美元，預計首季度收入430億美元，兩者都高於市場預期。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793412\_1\_20250227070025.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+晶片製造商Nvidia上季盈利220.9億美元，按年升80%，按季升14%。經調整每股盈利0.89美元，高於預期。
+<br>
+<br/>
+上季收入增長78%，至393億美元，亦高於預期。數據中心收入356億美元，創新高，按年增長93%，按季增長16%。
+<br/>
+<br/>
+上季毛利率跌至73%，按年及按季分別跌3個百分點及1.6個百分點。
+<br/>
+<br/>
+公司預計首季度收入430億美元，高於市場預期。由於要努力提升旗艦產品 Blackwell AI晶片性能，毛利率及經調整毛利率預料將降至70.6%及71%。市場原本估計為72.2%。
+<br/>
+<br/>
+Nvdia股價在收市後交易時段走勢反覆。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htmThu, 27 Feb 2025 07:23:00 +0800
