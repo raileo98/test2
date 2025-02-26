@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 13:43:44 +0000webmaster@rthk.hk中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htm<img alt="中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792909\_1\_20250224121819.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:17:29 +0000webmaster@rthk.hk中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htm<img alt="中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792909\_1\_20250224121819.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 中國聯通原黨組成員、副總經理曹興信嚴重違紀違法，被開除黨籍和公職。
@@ -1645,7 +1645,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htmWed, 26 Feb 2025 16:16:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htmWed, 26 Feb 2025 16:16:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793365\_1\_20250226214510.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
 <br>
@@ -1675,7 +1676,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793368\_1\_20250226214637.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
 <br>

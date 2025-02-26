@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 13:43:44 +0000webmaster@rthk.hk南韓公路地盤橋樑倒塌4人死亡包括2名中國公民https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793092\_1\_20250225151456.jpg&amp;q=5" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:17:29 +0000webmaster@rthk.hk南韓公路地盤橋樑倒塌4人死亡包括2名中國公民https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793092\_1\_20250225151456.jpg&amp;q=5" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 南韓京畿道安城市一條高速公路的地盤，有興建中的橋樑倒塌，造成4人死亡，6人受傷，其中2名死者和1名傷者是中國公民。
@@ -1743,7 +1743,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htmWed, 26 Feb 2025 20:18:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htmWed, 26 Feb 2025 20:18:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793365\_1\_20250226214510.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
 <br>

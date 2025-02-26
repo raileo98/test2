@@ -1,42 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 13:43:44 +0000webmaster@rthk.hkSports park ceremony tickets sell out in half an hourhttps://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htm<img alt="Tickets for the Kai Tak Sports Park opening ceremony were sold out within half an hour." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792583\_1\_20250221110347.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-The 8,500 tickets available for Kai Tak Sports Park's opening ceremony next month were snapped up within around half an hour of going on sale on Friday morning.
-<br>
-<br/>
-A total of 33,600 spectators are expected at the star-studded event on March 1.
-<br/>
-<br/>
-More than 20,000 people started queueing on the Urbtix online platform at 10am for the tickets priced at HK$10 each.
-<br/>
-<br/>
-Buyers need to collect their tickets at the park on February 27, 28, or the day itself.
-<br/>
-<br/>
-Cantopop diva Joey Yung, singer MC Cheung, movie star Donnie Yen, retired gold medallist fencer Vivian Kong and some mainland sports stars will be among those at the opening ceremony.
-<br/>
-<br/>
-There will be no live broadcast for the 6.30pm show, but a recording will be aired by RTHK, TVB, ViuTV and HOY TV at 9.30pm.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htmFri, 21 Feb 2025 11:11:00 +0800Post-production suits Kai Tak opening better: govthttps://news.rthk.hk/rthk/en/component/k2/1792587-20250221.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792587\_1\_20250221113347.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 14:17:29 +0000webmaster@rthk.hkPost-production suits Kai Tak opening better: govthttps://news.rthk.hk/rthk/en/component/k2/1792587-20250221.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792587\_1\_20250221113347.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Secretary for Culture, Sports and Tourism Rosanna Law on Friday said a recording of the opening ceremony for Kai Tak Sports Park will be aired after editing in order to provide the best viewer experience.
@@ -2329,7 +2292,7 @@ cnews@rthk.hk
 Financial Secretary Paul Chan on Wednesday confirmed that changes are planned to the city's subsidised public transport fares for the over 60s, dubbing the new arrangement "HK$2 flat rate cum 80 percent discount".
 <br>
 <br/>
-Journeys will still cost HK$2 in many cases, but for those that come with standard fares of HK$10 or more, only a discount of 80 percent will be provided.
+Journeys will still cost HK$2 in many cases, but for standard fares which exceed HK$10, only a discount of 80 percent will be provided.
 <br/>
 <br/>
 Another change means the number of subsidised trips per month will be capped at 240, which works out at an average of roughly eight per day.
@@ -2726,7 +2689,7 @@ But he also said very few over 60s make that many journeys, so the move won't sa
 Ho added that a small number of people could be affected by the cap, such as those who need to make a lot of transfers.
 <br/>
 <br/>
-New People's Party chairwoman Regina Ip, for her part, said she welcomes the changes to the fare scheme, which include offering an 80 percent discount for journeys that cost regular passengers HK$10 or more, rather than the current HK$2 flat rate subsidised trip.
+New People's Party chairwoman Regina Ip, for her part, said she welcomes the changes to the fare scheme, which include offering an 80 percent discount for journeys that cost regular passengers more than HK$10, rather than the current HK$2 flat rate subsidised trip.
 <br/>
 <br/>
 "I think the government measures introduced to make it sustainable are fairly moderate," said Ip, who's also convenor of the Executive Council.
@@ -2818,4 +2781,47 @@ https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htmWed, 26 Feb 2025 19:57:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htmWed, 26 Feb 2025 19:57:00 +0800Universities 'fully prepared' for funding cuthttps://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm<img alt="Several public universities say it will find ways to absorb an imminent spending cut. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793373\_1\_20250226212540.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Several public universities on Wednesday said they understood the public finance challenges faced by the government, and are fully prepared for a funding cut.
+<br>
+<br/>
+This follows Financial Secretary Paul Chan's announcement in his budget speech that publicly-financed universities will see funding slashed by two percent. The reduction will be compounded over three years.
+<br/>
+<br/>
+Chan said the move will result in savings of HK$2.8 billion between 2025-28.
+<br/>
+<br/>
+The University Grants Committee also revealed in a subsequent statement that universities need to return HK$4 billion from their General and Development Reserve Fund to the government in a one-off special arrangement.
+<br/>
+<br/>
+In response to the development, Chinese University said it understood the need for all sectors to work together during tough times, adding that it will carefully study the potential impact on its operations, and minimise disruption to teaching and research.
+<br/>
+<br/>
+The sentiment was shared by City University, which said in a statement that it will actively explore diverse income sources and seek additional research funding.
+<br/>
+<br/>
+Polytechnic University also echoed the views, saying it will find ways to optimise its fiscal resources by controlling its expenditure and increasing revenue.
+<br/>
+<br/>
+Meanwhile, the University of Hong Kong said it'll work through tough times as part of the society, but hoped the administration will review university funding policies when the economy gradually recovers.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htmWed, 26 Feb 2025 21:52:00 +0800

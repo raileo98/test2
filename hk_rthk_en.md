@@ -1,54 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 13:43:44 +0000webmaster@rthk.hkExplosives thrown at Russian consulate in Francehttps://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm<img alt="Bomb-squad officers prepare a de-mining robot in front of the Russian consulate in Marseille, France. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792988\_1\_20250224204408.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Three improvised explosive devices were thrown at the Russian consulate in the southern French port city of Marseille on Monday but no one was injured, a police source said.
-<br>
-<br/>
-Only two of the devices detonated in the attack on the third anniversary of Russia's campaign in Ukraine, the source said.
-<br/>
-<br/>
-The consulate was sealed off by police and AFP journalists heard a detonation caused by a bomb disposal robot.
-<br/>
-<br/>
-The Russian foreign ministry denounced what it called a "terrorist attack".
-<br/>
-<br/>
-"The explosions on the territory of the Russian consulate general in Marseille have all the signs of a terrorist attack," foreign ministry spokeswoman Maria Zakharova told Russian reporters.
-<br/>
-<br/>
-"We demand that the host country undertake exhaustive and speedy investigative measures, as well as steps to strengthen the security of Russia's foreign missions," said Zakharova.
-<br/>
-<br/>
-Paris condemned the incident. "France condemns any infringement of the security of diplomatic compounds," a foreign ministry spokesperson told reporters.
-<br/>
-<br/>
-"The inviolability, protection and integrity of diplomatic and consular compounds and their staff are fundamental principles in international law," the spokesperson said.
-<br/>
-<br/>
-A dozen leaders from Europe and Canada were in Ukraine's capital on Monday to mark the third anniversary of Russia’s military campaign.
-<br/>
-<br/>
-The visitors, including European Commission President Ursula von der Leyen and Canadian Prime Minister Justin Trudeau, were set to attend anniversary events and discuss supporting Kyiv with President Volodymyr Zelenskyy. (Agencies)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htmMon, 24 Feb 2025 20:44:00 +0800China mulls banning arbitrary fines on private firmshttps://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm<img alt="The draft law was submitted to an ongoing session of the Standing Committee of the National People's Congress for a second reading. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792989\_1\_20250224205037.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 14:17:30 +0000webmaster@rthk.hkChina mulls banning arbitrary fines on private firmshttps://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm<img alt="The draft law was submitted to an ongoing session of the Standing Committee of the National People's Congress for a second reading. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792989\_1\_20250224205037.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Mainland lawmakers on Monday began deliberations on the draft private economy promotion law, which adds new provisions prohibiting arbitrary fees and fines on private enterprises.
@@ -2134,7 +2085,7 @@ cnews@rthk.hk
 Financial Secretary Paul Chan on Wednesday confirmed that changes are planned to the city's subsidised public transport fares for the over 60s, dubbing the new arrangement "HK$2 flat rate cum 80 percent discount".
 <br>
 <br/>
-Journeys will still cost HK$2 in many cases, but for those that come with standard fares of HK$10 or more, only a discount of 80 percent will be provided.
+Journeys will still cost HK$2 in many cases, but for standard fares which exceed HK$10, only a discount of 80 percent will be provided.
 <br/>
 <br/>
 Another change means the number of subsidised trips per month will be capped at 240, which works out at an average of roughly eight per day.
@@ -2672,7 +2623,7 @@ But he also said very few over 60s make that many journeys, so the move won't sa
 Ho added that a small number of people could be affected by the cap, such as those who need to make a lot of transfers.
 <br/>
 <br/>
-New People's Party chairwoman Regina Ip, for her part, said she welcomes the changes to the fare scheme, which include offering an 80 percent discount for journeys that cost regular passengers HK$10 or more, rather than the current HK$2 flat rate subsidised trip.
+New People's Party chairwoman Regina Ip, for her part, said she welcomes the changes to the fare scheme, which include offering an 80 percent discount for journeys that cost regular passengers more than HK$10, rather than the current HK$2 flat rate subsidised trip.
 <br/>
 <br/>
 "I think the government measures introduced to make it sustainable are fairly moderate," said Ip, who's also convenor of the Executive Council.
@@ -2862,4 +2813,47 @@ https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htmWed, 26 Feb 2025 21:01:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htmWed, 26 Feb 2025 21:01:00 +0800Universities 'fully prepared' for funding cuthttps://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm<img alt="Several public universities say it will find ways to absorb an imminent spending cut. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793373\_1\_20250226212540.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Several public universities on Wednesday said they understood the public finance challenges faced by the government, and are fully prepared for a funding cut.
+<br>
+<br/>
+This follows Financial Secretary Paul Chan's announcement in his budget speech that publicly-financed universities will see funding slashed by two percent. The reduction will be compounded over three years.
+<br/>
+<br/>
+Chan said the move will result in savings of HK$2.8 billion between 2025-28.
+<br/>
+<br/>
+The University Grants Committee also revealed in a subsequent statement that universities need to return HK$4 billion from their General and Development Reserve Fund to the government in a one-off special arrangement.
+<br/>
+<br/>
+In response to the development, Chinese University said it understood the need for all sectors to work together during tough times, adding that it will carefully study the potential impact on its operations, and minimise disruption to teaching and research.
+<br/>
+<br/>
+The sentiment was shared by City University, which said in a statement that it will actively explore diverse income sources and seek additional research funding.
+<br/>
+<br/>
+Polytechnic University also echoed the views, saying it will find ways to optimise its fiscal resources by controlling its expenditure and increasing revenue.
+<br/>
+<br/>
+Meanwhile, the University of Hong Kong said it'll work through tough times as part of the society, but hoped the administration will review university funding policies when the economy gradually recovers.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htmWed, 26 Feb 2025 21:52:00 +0800

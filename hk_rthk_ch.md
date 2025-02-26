@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 13:43:44 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 14:17:29 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5177,7 +5177,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htmWed, 26 Feb 2025 19:16:00 +0800財政預算案2025｜范鴻齡感謝政府於財政壓力下仍增醫管局撥款https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htmWed, 26 Feb 2025 19:16:00 +0800財政預算案2025｜范鴻齡感謝政府於財政壓力下仍增醫管局撥款https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm<img alt="范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793359\_1\_20250226214748.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 醫管局主席范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。醫管局在下年度的撥款為1002億元，包括990億元經常撥款，較本年度修訂預算增加3%。
 <br>
@@ -5334,7 +5335,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htmWed, 26 Feb 2025 20:18:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htmWed, 26 Feb 2025 20:18:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793365\_1\_20250226214510.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
 <br>
@@ -5364,7 +5366,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800財政預算案2025｜公務員凍薪4月生效　不續進行今年薪趨調查https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800財政預算案2025｜公務員凍薪4月生效　不續進行今年薪趨調查https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm<img alt="凍結全體公務員薪酬的安排將於4月1日生效。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793367\_1\_20250226214534.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 財政司司長於《財政預算案》公布，在強化財政整合計劃下，政府提出下年度凍結包括全體公務員的所有行政機關人員薪酬。因此，政府決定不繼續進行2025年薪酬趨勢調查。
 <br>
@@ -5391,7 +5394,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htmWed, 26 Feb 2025 20:45:00 +0800財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htmWed, 26 Feb 2025 20:45:00 +0800財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793368\_1\_20250226214637.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
 <br>
@@ -5418,7 +5422,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htmWed, 26 Feb 2025 20:55:00 +0800財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htmWed, 26 Feb 2025 20:55:00 +0800財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793369\_1\_20250226214615.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 財政司司長陳茂波出席電視論壇時，被問到來年財政儲備達到5800多億，等於8個月的政府開支，如果再出現另一場疫症，是否有足夠抵禦能力，陳茂波說，現時財政儲備水平不錯，相信未來隨著經濟持續增長，經營帳目錄得盈餘，政府多善用市場資源投入長期基建項目，可以保持一定水平的財政儲備，相信有足夠實力應對任何突如來襲的情況。
 <br>
@@ -5473,7 +5478,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htmWed, 26 Feb 2025 21:17:00 +0800財政預算案2025｜陳茂波稱以前規劃作商業地未來或可改住宅地https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htmWed, 26 Feb 2025 21:17:00 +0800財政預算案2025｜陳茂波稱以前規劃作商業地未來或可改住宅地https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793372\_1\_20250226214659.jpg&amp;q=10" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 預算案提出來年不會推售商業地，財政司司長陳茂波表示，疫情後辦公方式及商業模式均出現變化，市場上亦多了很多電商，反而形成一種契機，以前規劃用作商業用途的土地，未來或可改成住宅用地。
 <br>
@@ -5503,7 +5509,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htmWed, 26 Feb 2025 21:22:00 +0800啟德體育園舉行倒數燈光展https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htmWed, 26 Feb 2025 21:22:00 +0800啟德體育園舉行倒數燈光展https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm<img alt="啟德體育園一連三晚舉行倒數燈光展。（張連登攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793376\_1\_20250226214728.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 啟德體育園一連三晚舉行倒數燈光展。
 <br>
@@ -5527,4 +5534,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htmWed, 26 Feb 2025 21:42:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htmWed, 26 Feb 2025 21:42:00 +0800勞氏公司上季業績勝預期　盤前股價升近4%https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm<img alt="勞氏公司(Lowe's)上季經調整每股盈利1.93美元，收入185.5億美元，兩者都好過市場預期。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793375\_1\_20250226214010.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國家居裝修零售公司勞氏公司(Lowe's)公布，截至1月底止，上季盈利升10%至近11.3億美元，經調整每股盈利1.93美元，好過市場預期的1.84美元。
+<br>
+<br/>
+期內收入185.5億美元，高過預期的182.9億美元。
+<br/>
+<br/>
+公司預計，本年度總收入將介乎835億至845億美元，上限將高於上財年總收入的836.7億美元。公司又預計，可比銷售額按年持平至增長1%，每股盈利約為12.15美元至12.4美元。
+<br/>
+<br/>
+勞氏股價在盤前交易升近4%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htmWed, 26 Feb 2025 21:43:00 +0800
