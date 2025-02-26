@@ -297,8 +297,18 @@ async def process_category(category, url):
 
     # 將 RSS 輸出到 .rss.xml 文件
     rss_filename = f'{category}.xml'
+
+    # 找到<lastBuildDate>標籤並移除它們
+    tag = soup_rss.find('lastBuildDate')
+
+    if tag:
+        tag.decompose()
+
+    soup_rss = soup_rss.prettify().strip()
+    soup_rss = soup_rss.replace( 'http://', 'https://' )
+
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
-        await file.write(rss_str)
+        await file.write(soup_rss)
 
     # 將 Markdown 輸出到 .md 文件
     md_filename = f'{category}.md'
