@@ -1,42 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 11:58:16 +0000webmaster@rthk.hkHKTDC says new index flags up city's ESG strengthshttps://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm<img alt="HKTDC says there are plans to acquire more data from three more trade fairs for a final report. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792976\_1\_20250224183308.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-The Hong Kong Trade Development Council (HKTDC) on Monday said a new index it has introduced to gauge how well the city fares in environmental, social and governance (ESG) has identified several strengths.
-<br>
-<br/>
-The council said it used the index in a survey of more than 1,200 vendors and buyers during several of its trade fairs and business events last year.
-<br/>
-<br/>
-Overall, Hong Kong received a total of 64.3 points on the index, a figure well above the neutral point of 50.
-<br/>
-<br/>
-Irina Fan, HKTDC's director of research, said the findings suggest Hong Kong excels in areas such as availability and diversity in green and sustainable products or services, talent training and market connection with international trade partners.
-<br/>
-<br/>
-Fan said the survey showed that ESG considerations are increasingly regarded as integral elements in business decision-making processes.
-<br/>
-<br/>
-Buyers also indicated a willingness to pay a premium of at least 10% for ESG products, while vendors reported additional profit margins from engaging with ESG businesses, Fan said.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htmMon, 24 Feb 2025 18:33:00 +0800Xi praises efforts to defuse Ukraine crisishttps://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm<img alt="President Xi Jinping says China and Russia are good neighbours and true friends supporting each other. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792982\_1\_20250224190145.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 12:57:30 +0000webmaster@rthk.hkXi praises efforts to defuse Ukraine crisishttps://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm<img alt="President Xi Jinping says China and Russia are good neighbours and true friends supporting each other. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792982\_1\_20250224190145.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 President Xi Jinping on Monday held a phone conversation with his Russian counterpart Vladimir Putin on the third anniversary of the war in Ukraine and said China is happy to see efforts by Moscow and others to defuse the crisis.
@@ -2798,7 +2761,7 @@ The vacancy rate of Grade-A offices reached a record 17 percent in January, acco
 That translates to 14 million square feet of empty floor space, while another 5.5 million square feet will be rolled out this year and 2026.
 <br/>
 <br/>
-Cathy Lee, head of research and retail consultancy at Colliers, said rental value of prime office space plunged 40 percent over the past three years.
+Kathy Lee, head of research and retail consultancy at Colliers, said rental value of prime office space plunged 40 percent over the past three years.
 <br/>
 <br/>
 "I think the government is very wise to stop selling any commercial land, [so as] to let the market to have some time to digest and absorb the existing available stocks," she told RTHK.
@@ -2844,4 +2807,65 @@ https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htmWed, 26 Feb 2025 19:57:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htmWed, 26 Feb 2025 19:57:00 +0800Liverpool's Slot gets two-match ban over derby chaoshttps://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm<img alt="Arne Slot gets his marching orders from referee Michael Oliver. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793366\_1\_20250226204458.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Liverpool manager Arne Slot will not be on the touchline for Wednesday's home match against Newcastle after he was handed a two-match ban and given a hefty fine for his behaviour in the Merseyside derby.
+<br>
+<br/>
+James Tarkowski's equaliser for Everton deep into stoppage time in the 2-2 draw at Goodison Park on February 12 provoked chaotic scenes.
+<br/>
+<br/>
+Slot and his assistant Sipke Hulshoff were sent off by referee Michael Oliver, along with Liverpool's Curtis Jones and Everton midfielder Abdoulaye Doucoure.
+<br/>
+<br/>
+The FA issued a statement on Wednesday saying an independent regulatory commission had sanctioned Everton, Liverpool, Slot and Hulshoff.
+<br/>
+<br/>
+"It was alleged that the Liverpool head coach acted in an improper manner and/or used insulting and/or abusive words and/or behaviour towards both the match referee and an assistant referee after the match had finished," it said.
+<br/>
+<br/>
+"Arne Slot admitted the charge, and the Regulatory Commission imposed a two-match touchline suspension and £70,000 (US$89,000) fine."
+<br/>
+<br/>
+In addition, Everton have been fined £65,000 and Liverpool £50,000.
+<br/>
+<br/>
+Slot and Hulshoff were both dismissed after approaching Oliver following the final whistle. Speaking about the incident at a press conference two days later, Slot admitted his emotions had got the better of him and he had "made the wrong decision."
+<br/>
+<br/>
+"I should have acted differently after the game, but it's an emotional sport and sometimes individuals make wrong decisions and that's definitely what I did," the Dutchman said.
+<br/>
+<br/>
+Jones and Doucoure clashed after the Everton player celebrated in front of the Liverpool fans, leading Jones to confront him before players and staff from both sides raced over.
+<br/>
+<br/>
+Slot will be in the stands for Wednesday's game against Newcastle and the ban also covers Liverpool's home fixture against Southampton on March 8.
+<br/>
+<br/>
+The ban is for domestic games only, meaning he will be allowed in the technical area when Liverpool visit Paris Saint-Germain for the first leg of their Champions League last-16 tie on March 5.
+<br/>
+<br/>
+He will also be on the touchline for Liverpool's League Cup final against Newcastle at Wembley on March 16.
+<br/>
+<br/>
+Premier League leaders Liverpool are 11 points clear of second-placed Arsenal at the top of the table and are hot favourites to lift a record-equalling 20th English top-flight title. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htmWed, 26 Feb 2025 20:44:00 +0800

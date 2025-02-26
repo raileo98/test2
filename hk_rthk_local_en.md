@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:58:15 +0000webmaster@rthk.hkSports park ceremony tickets sell out in half an hourhttps://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htm<img alt="Tickets for the Kai Tak Sports Park opening ceremony were sold out within half an hour." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792583\_1\_20250221110347.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 12:57:29 +0000webmaster@rthk.hkSports park ceremony tickets sell out in half an hourhttps://news.rthk.hk/rthk/en/component/k2/1792583-20250221.htm<img alt="Tickets for the Kai Tak Sports Park opening ceremony were sold out within half an hour." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792583\_1\_20250221110347.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 The 8,500 tickets available for Kai Tak Sports Park's opening ceremony next month were snapped up within around half an hour of going on sale on Friday morning.
@@ -2772,7 +2772,7 @@ The vacancy rate of Grade-A offices reached a record 17 percent in January, acco
 That translates to 14 million square feet of empty floor space, while another 5.5 million square feet will be rolled out this year and 2026.
 <br/>
 <br/>
-Cathy Lee, head of research and retail consultancy at Colliers, said rental value of prime office space plunged 40 percent over the past three years.
+Kathy Lee, head of research and retail consultancy at Colliers, said rental value of prime office space plunged 40 percent over the past three years.
 <br/>
 <br/>
 "I think the government is very wise to stop selling any commercial land, [so as] to let the market to have some time to digest and absorb the existing available stocks," she told RTHK.

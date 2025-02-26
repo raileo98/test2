@@ -1,58 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:58:13 +0000webmaster@rthk.hk日本氣象廳：落大雪高峰期已過　預測天氣回暖https://news.rthk.hk/rthk/ch/component/k2/1793073-20250225.htm<img alt="日本氣象廳表示，落大雪高峰期已過，預測天氣會回暖。（法新社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793073\_1\_20250225124914.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-日本氣象廳表示，落大雪高峰期已過，預測天氣會回暖，但各地目前的積雪量仍然超過往年平均水平，呼籲積雪較多地區的民眾防範剷雪工作可能引致的意外和雪崩等。
-<br>
-<br/>
-氣象廳表示，日本各地今日氣溫上升，東京中部和福岡的氣溫將達到攝氏12 度，仙台和大阪等城市將達到10度。在積雪較多的地區日間最高氣溫也將達到或超出往年平均水平，預計到周末會出現往年4月才有的春季溫暖天氣。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793073-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793073-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793073-20250225.htmTue, 25 Feb 2025 12:49:00 +0800星展集團：AI日益取代人類工作　料未來3年裁4千人https://news.rthk.hk/rthk/ch/component/k2/1793085-20250225.htm<img alt="星展集團表示，考慮到AI可日益取代人類執行的工作，預計未來3年會裁減4千個職位。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793085\_1\_20250225145042.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-總部設於新加坡的星展集團表示，考慮到人工智能（AI）可以日益取代人類執行的工作，預計未來3年會裁減4千個職位。
-<br>
-<br/>
-英國廣播公司引述星展集團發言人說，隨著未來幾年臨時職位和合約職位的減少，勞動力的減少將會來自自然流失，預計正職員工不會受到影響。
-<br/>
-<br/>
-報道又引述星展集團執行總裁高博德表示，預計集團會創造大約1千個與人工智能相關的職位。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793085-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793085-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793085-20250225.htmTue, 25 Feb 2025 14:50:00 +0800南韓公路地盤橋樑倒塌4人死亡包括2名中國公民https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793092\_1\_20250225151456.jpg&amp;q=5" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 12:57:27 +0000webmaster@rthk.hk南韓公路地盤橋樑倒塌4人死亡包括2名中國公民https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793092\_1\_20250225151456.jpg&amp;q=5" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 南韓京畿道安城市一條高速公路的地盤，有興建中的橋樑倒塌，造成4人死亡，6人受傷，其中2名死者和1名傷者是中國公民。
@@ -1765,4 +1712,65 @@ https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htmWed, 26 Feb 2025 19:47:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htmWed, 26 Feb 2025 19:47:00 +0800烏總理：烏美已制定礦產協議最終版本https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm<img alt="什梅加爾說，烏克蘭總統和政府不會在不考慮國家安全保障的情況下，簽署協議。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793363\_1\_20250226201823.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+烏克蘭總理什梅加爾表示，烏克蘭和美國已制定礦產協議的最終版本，烏克蘭政府將會審議。
+<br>
+<br/>
+什梅加爾接受電視台訪問時說，協議被稱為「關於制定烏克蘭重建投資基金規則和條件的協議」，是一項具法律效力的初步協議，未來會創建一個用於重建烏克蘭的投資基金，基輔和華盛頓將會平等地管理有關基金。
+<br/>
+<br/>
+什梅加爾又說，協議與烏克蘭的安全保障直接相關，烏克蘭總統和政府不會在不考慮國家安全保障的情況下，簽署協議。
+<br/>
+<br/>
+美國總統特朗普較早時說，基本上已就礦產問題與烏克蘭達成協議，形容是一筆數額非常巨大的交易，他得悉烏克蘭總統澤連斯基計劃星期五到美國簽署協議的消息。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htmWed, 26 Feb 2025 20:18:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<br/>
+<div class="itemFullText">
+本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
+<br>
+<br/>
+財政司司長陳茂波在電視論壇回應推遲的原因，他說特區政府目標是經營帳目在兩年內恢復平衡；非經營帳目收入之間主要來自地價收入，支出來自工務工程、基建投資，政府未來幾年要加速推動北部都會區發展，因此基建工程開支維持每年1200億的高水平，但土地收入未能快速恢復，導致中間出現缺口，因此恢復綜合盈餘的時間需要推後。
+<br/>
+<br/>
+被問到要推遲到2028/29年度才恢復盈餘，是否將財政負擔交予下屆政府處理，陳茂波說單計經營帳目在26/27年度已恢復盈餘，但需要投資未來，導致出現赤字，加快北部都會區發展有助招商引資、製造就業機會拉動發展，如果現時不把握機會，加速投資推動發展，反而往後拖，做法並不合適，認為現時有能力和空間適度運用市場資金，通過公私營合作或適度發債加速發展，才是最負責任做法。
+<br/>
+<br/>
+至於會否擔心有評級機構因應財政收支情況將評級下調，增加發債成本，陳茂波說未來幾年發債水平在全世界先進經濟體而言仍然較低，評級機構較關心特區政府會否有可信的計劃，在合理時間內恢復收支平衡，因此財政預算案提出財政整合計劃，以削減開支為目標，並適度增加收入，令兩年內恢復經營帳目平衡，同時投資未來恢復財政穩健。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800

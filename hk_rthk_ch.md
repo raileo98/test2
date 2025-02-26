@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 11:58:13 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 12:57:28 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5269,4 +5269,172 @@ https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htmWed, 26 Feb 2025 19:47:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793361-20250226.htmWed, 26 Feb 2025 19:47:00 +0800財政預算案2025｜證監會歡迎預算案提升香港競爭優勢各項措施https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm<img alt="證監會稱財政司司長提出的措施將推動香港證券及衍生工具市場，鞏固香港資產及財富管理樞紐地位。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793362\_1\_20250226200018.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+證監會歡迎財政預算案中為進一步提升香港作為國際金融中心競爭優勢提出各項措施。
+<br>
+<br/>
+主席黃天祐表示，財政司司長提出的措施將進一步推動香港證券及衍生工具市場，鞏固香港作為資產及財富管理樞紐地位。
+<br/>
+<br/>
+證監會對於港交所正積極籌備開通「科企專線」以便利特專科技和生物科技企業上市申請準備工作，感到鼓舞。證監會將就專線運作與交易所緊密合作並提供支持，使申請流程更順暢。證監會亦將與港交所及其他持份者就進一步優化上市制度密切合作。
+<br/>
+<br/>
+行政總裁梁鳳儀說，正與監管同業及相關機構緊密合作，將香港提升為固定收益及貨幣樞紐，促進虛擬資產市場發展，以及深化與內地及海外市場聯繫。
+<br/>
+<br/>
+證監會亦歡迎政府計劃發表第二份政策宣言，內容涉及如何利用傳統金融服務優勢及虛擬資產創新技術。證監會繼發表香港虛擬資產市場監管路線圖後將繼續提供指引，確保金融科技生態系統以穩健、有序及可持續方式發展。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htmWed, 26 Feb 2025 20:14:00 +0800烏總理：烏美已制定礦產協議最終版本https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm<img alt="什梅加爾說，烏克蘭總統和政府不會在不考慮國家安全保障的情況下，簽署協議。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793363\_1\_20250226201823.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+烏克蘭總理什梅加爾表示，烏克蘭和美國已制定礦產協議的最終版本，烏克蘭政府將會審議。
+<br>
+<br/>
+什梅加爾接受電視台訪問時說，協議被稱為「關於制定烏克蘭重建投資基金規則和條件的協議」，是一項具法律效力的初步協議，未來會創建一個用於重建烏克蘭的投資基金，基輔和華盛頓將會平等地管理有關基金。
+<br/>
+<br/>
+什梅加爾又說，協議與烏克蘭的安全保障直接相關，烏克蘭總統和政府不會在不考慮國家安全保障的情況下，簽署協議。
+<br/>
+<br/>
+美國總統特朗普較早時說，基本上已就礦產問題與烏克蘭達成協議，形容是一筆數額非常巨大的交易，他得悉烏克蘭總統澤連斯基計劃星期五到美國簽署協議的消息。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793363-20250226.htmWed, 26 Feb 2025 20:18:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<br/>
+<div class="itemFullText">
+本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
+<br>
+<br/>
+財政司司長陳茂波在電視論壇回應推遲的原因，他說特區政府目標是經營帳目在兩年內恢復平衡；非經營帳目收入之間主要來自地價收入，支出來自工務工程、基建投資，政府未來幾年要加速推動北部都會區發展，因此基建工程開支維持每年1200億的高水平，但土地收入未能快速恢復，導致中間出現缺口，因此恢復綜合盈餘的時間需要推後。
+<br/>
+<br/>
+被問到要推遲到2028/29年度才恢復盈餘，是否將財政負擔交予下屆政府處理，陳茂波說單計經營帳目在26/27年度已恢復盈餘，但需要投資未來，導致出現赤字，加快北部都會區發展有助招商引資、製造就業機會拉動發展，如果現時不把握機會，加速投資推動發展，反而往後拖，做法並不合適，認為現時有能力和空間適度運用市場資金，通過公私營合作或適度發債加速發展，才是最負責任做法。
+<br/>
+<br/>
+至於會否擔心有評級機構因應財政收支情況將評級下調，增加發債成本，陳茂波說未來幾年發債水平在全世界先進經濟體而言仍然較低，評級機構較關心特區政府會否有可信的計劃，在合理時間內恢復收支平衡，因此財政預算案提出財政整合計劃，以削減開支為目標，並適度增加收入，令兩年內恢復經營帳目平衡，同時投資未來恢復財政穩健。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800凍結公務員薪酬4月1日生效　不繼續進行今年薪酬趨勢調查https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm<br/>
+<div class="itemFullText">
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htmWed, 26 Feb 2025 20:45:00 +0800財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm<br/>
+<div class="itemFullText">
+預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
+<br>
+<br/>
+陳茂波在財政預算案電視論壇上表示，政府增加收入的同時，要盡量減少對一般市民的影響，現時大部分到内地的市民都不是自駕，認為影響範圍比較窄。
+<br/>
+<br/>
+至於預算案提出增加違例泊車等罰款，預料數年內提出具體建議及落實推行。被問到為何不即時調整，陳茂波表示做法主要為了更好地管理交通效率，運輸及物流局會展開全面深入研究，檢視有哪些罰款需要調整。被問到有否考慮增加停車位，陳茂波說當局有增加，但由於香港地少人多，希望把車輛的增長維持在可控水平。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htmWed, 26 Feb 2025 20:55:00 +0800財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm<br/>
+<div class="itemFullText">
+財政司司長陳茂波出席電視論壇時，被問到來年財政儲備達到5800多億，等於8個月的政府開支，如果再出現另一場疫症，是否有足夠抵禦能力，陳茂波說，現時財政儲備水平不錯，相信未來隨著經濟持續增長，經營帳目錄得盈餘，政府多善用市場資源投入長期基建項目，可以保持一定水平的財政儲備，相信有足夠實力應對任何突如來襲的情況。
+<br>
+<br/>
+陳茂波又說，留意到現時有不少籃球非法博彩活動，有市民反映規範化會助長賭風的影響有限，因此邀請馬會研究向政府提交建議，又說博彩稅收入只佔政府整體收入一小部分，現時最重要是搞活經濟、吸引企業落戶、招商引資，才是增加收入的最有效方法。
+<br/>
+<br/>
+對於預算案預計今年實質經濟增長介乎2%至3%，陳茂波說，地緣政治壓力影響投資氣氛，因此採取較保守的預測，特區政府會盡力發展經濟吸引投資，因此將預計增長幅度訂為這水平屬較穩陣和合適。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htmWed, 26 Feb 2025 20:55:00 +0800

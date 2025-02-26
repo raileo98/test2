@@ -1,60 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=rthk - Sport© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:58:14 +0000webmaster@rthk.hkTrump at Super Bowl in first for sitting US presidenthttps://news.rthk.hk/rthk/en/component/k2/1790989-20250210.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790989\_1\_20250210120317.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-The Super Bowl extravaganza was watched by a star-studded 65,719 crowd bristling with celebrities and VIPs headed by Donald Trump, who became the first sitting US president to attend the event after jetting into New Orleans from Florida on Air Force One earlier in the day following a round of golf with Tiger Woods.
-<br>
-<br/>
-Trump has had an uneasy relationship with the NFL over the years, triggering uproar in 2017 after attacking players for kneeling in protest against racial injustice during renditions of the US national anthem.
-<br/>
-<br/>
-But the US leader was given a broadly positive reception at the Superdome after arriving at the venue shortly before kick-off.
-<br/>
-<br/>
-Soon after arriving, Trump met with first responders and family members of victims of the January 1 attack in New Orleans that left 14 people dead and dozens wounded.
-<br/>
-<br/>
-Later, loud cheering could be heard among the crowd when the Superdome's giant screen showed Trump saluting during the national anthem.
-<br/>
-<br/>
-That warm applause was in stark contrast to the booing that rang around the venue early in the first quarter when the same screen showed pop icon Taylor Swift sitting in the VIP seats.
-<br/>
-<br/>
-Trump, meanwhile, expressed hope the nation could come together for the Super Bowl, which is by far the biggest annual event on the American sporting calendar.
-<br/>
-<br/>
-"Football is America's most popular sport -- for good reason -- it fosters a sense of national unity, bringing families, friends, and fans together and strengthening communities," Trump said in a statement released by the White House.
-<br/>
-<br/>
-"This annual tradition transcends our differences and personifies our shared patriotic values of family, faith, and freedom," he added.
-<br/>
-<br/>
-Swift, watching boyfriend and Chiefs ace Travis Kelce, was among a galaxy of stars crowded into the venue, with the likes of Beatles legend Paul McCartney rubbing shoulders with Hollywood actors Kevin Costner, Paul Rudd and Anne Hathaway and soccer star Lionel Messi.
-<br/>
-<br/>
-The catcalls for Swift -- who backed Trump's opponent Kamala Harris in last year's election -- were not lost on the US President.
-<br/>
-<br/>
-Trump later shared a post on his TruthSocial network which read: "Trump gets massive cheers at the Super Bowl while Taylor Swift gets booed - the world is healing!" (AFP)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1790989-20250210.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1790989-20250210.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1790989-20250210.htmMon, 10 Feb 2025 12:03:00 +0800CE meets injured HK ice hockey players in Harbinhttps://news.rthk.hk/rthk/en/component/k2/1791005-20250210.htm<img alt="Pictures were posted on the CE's Facebook account of his meeting with the injured players at the Asian Winter Games in Harbin." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791005\_1\_20250210132006.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=rthk - Sport© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Sporthttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=11&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 12:57:28 +0000webmaster@rthk.hkCE meets injured HK ice hockey players in Harbinhttps://news.rthk.hk/rthk/en/component/k2/1791005-20250210.htm<img alt="Pictures were posted on the CE's Facebook account of his meeting with the injured players at the Asian Winter Games in Harbin." referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791005\_1\_20250210132006.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Chief Executive John Lee on Monday paid a visit to ice hockey players who were injured during a post-game fight between players from Hong Kong, China and Turkmenistan at the Winter Asian Games in Harbin.
@@ -3576,4 +3521,65 @@ https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htmWed, 26 Feb 2025 07:48:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htmWed, 26 Feb 2025 07:48:00 +0800Liverpool's Slot gets two-match ban over derby chaoshttps://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm<img alt="Arne Slot gets his marching orders from referee Michael Oliver. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793366\_1\_20250226204458.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Liverpool manager Arne Slot will not be on the touchline for Wednesday's home match against Newcastle after he was handed a two-match ban and given a hefty fine for his behaviour in the Merseyside derby.
+<br>
+<br/>
+James Tarkowski's equaliser for Everton deep into stoppage time in the 2-2 draw at Goodison Park on February 12 provoked chaotic scenes.
+<br/>
+<br/>
+Slot and his assistant Sipke Hulshoff were sent off by referee Michael Oliver, along with Liverpool's Curtis Jones and Everton midfielder Abdoulaye Doucoure.
+<br/>
+<br/>
+The FA issued a statement on Wednesday saying an independent regulatory commission had sanctioned Everton, Liverpool, Slot and Hulshoff.
+<br/>
+<br/>
+"It was alleged that the Liverpool head coach acted in an improper manner and/or used insulting and/or abusive words and/or behaviour towards both the match referee and an assistant referee after the match had finished," it said.
+<br/>
+<br/>
+"Arne Slot admitted the charge, and the Regulatory Commission imposed a two-match touchline suspension and £70,000 (US$89,000) fine."
+<br/>
+<br/>
+In addition, Everton have been fined £65,000 and Liverpool £50,000.
+<br/>
+<br/>
+Slot and Hulshoff were both dismissed after approaching Oliver following the final whistle. Speaking about the incident at a press conference two days later, Slot admitted his emotions had got the better of him and he had "made the wrong decision."
+<br/>
+<br/>
+"I should have acted differently after the game, but it's an emotional sport and sometimes individuals make wrong decisions and that's definitely what I did," the Dutchman said.
+<br/>
+<br/>
+Jones and Doucoure clashed after the Everton player celebrated in front of the Liverpool fans, leading Jones to confront him before players and staff from both sides raced over.
+<br/>
+<br/>
+Slot will be in the stands for Wednesday's game against Newcastle and the ban also covers Liverpool's home fixture against Southampton on March 8.
+<br/>
+<br/>
+The ban is for domestic games only, meaning he will be allowed in the technical area when Liverpool visit Paris Saint-Germain for the first leg of their Champions League last-16 tie on March 5.
+<br/>
+<br/>
+He will also be on the touchline for Liverpool's League Cup final against Newcastle at Wembley on March 16.
+<br/>
+<br/>
+Premier League leaders Liverpool are 11 points clear of second-placed Arsenal at the top of the table and are hot favourites to lift a record-equalling 20th English top-flight title. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htmWed, 26 Feb 2025 20:44:00 +0800

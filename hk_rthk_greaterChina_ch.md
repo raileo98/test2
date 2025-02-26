@@ -1,61 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:58:14 +0000webmaster@rthk.hk報道：內地2月地方債發行再度突破1.3萬億元人民幣https://news.rthk.hk/rthk/ch/component/k2/1792902-20250224.htm<img alt="外電：內地2月地方債發行再度突破1.3萬億元人民幣，置換存量隱性債務的再融資專項債佔近60%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792902\_1\_20250224112622.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-內地近期地方債發行節奏加快。外電分析已有發行公告統計，2月地方債發行規模相隔兩個月後再度突破1.3萬億元人民幣，當中置換存量隱性債務的再融資專項債發行規模7823億元，佔地方債發行近60%。
-<br>
-<br/>
-外電報道，今年自1月中旬啟動發行以來，已披露的置換存量隱性債務地方債規模達9542.4億元，佔今年2萬億元發行額度約48%。
-<br/>
-<br/>
-資料顯示，青島市今年1月共發行約679億元地方政府債，正式拉開地方債發行序幕。1月單月13省市累計發行地方債約5600億元，按年增加45%。市場人士預計，今年地方債將靠前發行，用於置換存量隱性債務的再融資專項債有望加快發行。
-<br/>
-<br/>
-中國去年累計發行地方債規模達9.78萬億元，再創紀錄新高；特殊再融資債發行規模逾2.5萬億元，包括用於置換存量隱性債務的2萬億元，以及償還存量債務的5千多億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1792902-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1792902-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1792902-20250224.htmMon, 24 Feb 2025 11:48:00 +0800內地逐步延遲法定退休年齡　有人把握「銀髮經濟」商機創業https://news.rthk.hk/rthk/ch/component/k2/1792913-20250224.htm<img alt="有智庫稱，內地人口老齡化，有需要延遲退休年齡。（新華社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792913\_1\_20250224134031.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-內地今年起逐步延遲職工法定退休年齡，有智庫認為，不少打工仔到50幾歲仍處於準備養老金階段，延遲退休年齡可以讓他們有更充足時間準備退休生活。
-<br>
-<br/>
-不過，有人因工作壓力大，選擇提早退休，在其他平台找出新事業賽道；有退休人士就把握「銀髮經濟」商機創業。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1792913-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1792913-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1792913-20250224.htmMon, 24 Feb 2025 12:41:00 +0800中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htm<img alt="中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792909\_1\_20250224121819.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 12:57:28 +0000webmaster@rthk.hk中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職https://news.rthk.hk/rthk/ch/component/k2/1792909-20250224.htm<img alt="中聯通原副總經理曹興信嚴重違紀違法被開除黨籍和公職。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792909\_1\_20250224121819.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 中國聯通原黨組成員、副總經理曹興信嚴重違紀違法，被開除黨籍和公職。
@@ -1701,4 +1645,61 @@ https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htmWed, 26 Feb 2025 16:16:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htmWed, 26 Feb 2025 16:16:00 +0800財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm<br/>
+<div class="itemFullText">
+本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
+<br>
+<br/>
+財政司司長陳茂波在電視論壇回應推遲的原因，他說特區政府目標是經營帳目在兩年內恢復平衡；非經營帳目收入之間主要來自地價收入，支出來自工務工程、基建投資，政府未來幾年要加速推動北部都會區發展，因此基建工程開支維持每年1200億的高水平，但土地收入未能快速恢復，導致中間出現缺口，因此恢復綜合盈餘的時間需要推後。
+<br/>
+<br/>
+被問到要推遲到2028/29年度才恢復盈餘，是否將財政負擔交予下屆政府處理，陳茂波說單計經營帳目在26/27年度已恢復盈餘，但需要投資未來，導致出現赤字，加快北部都會區發展有助招商引資、製造就業機會拉動發展，如果現時不把握機會，加速投資推動發展，反而往後拖，做法並不合適，認為現時有能力和空間適度運用市場資金，通過公私營合作或適度發債加速發展，才是最負責任做法。
+<br/>
+<br/>
+至於會否擔心有評級機構因應財政收支情況將評級下調，增加發債成本，陳茂波說未來幾年發債水平在全世界先進經濟體而言仍然較低，評級機構較關心特區政府會否有可信的計劃，在合理時間內恢復收支平衡，因此財政預算案提出財政整合計劃，以削減開支為目標，並適度增加收入，令兩年內恢復經營帳目平衡，同時投資未來恢復財政穩健。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm<br/>
+<div class="itemFullText">
+預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
+<br>
+<br/>
+陳茂波在財政預算案電視論壇上表示，政府增加收入的同時，要盡量減少對一般市民的影響，現時大部分到内地的市民都不是自駕，認為影響範圍比較窄。
+<br/>
+<br/>
+至於預算案提出增加違例泊車等罰款，預料數年內提出具體建議及落實推行。被問到為何不即時調整，陳茂波表示做法主要為了更好地管理交通效率，運輸及物流局會展開全面深入研究，檢視有哪些罰款需要調整。被問到有否考慮增加停車位，陳茂波說當局有增加，但由於香港地少人多，希望把車輛的增長維持在可控水平。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htmWed, 26 Feb 2025 20:55:00 +0800
