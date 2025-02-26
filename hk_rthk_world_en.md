@@ -1,57 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=rthk - World© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:49:46 +0000webmaster@rthk.hk'Elon Musk has no formal decision-making authority'https://news.rthk.hk/rthk/en/component/k2/1792176-20250218.htm<img alt='According to a court filing on Monday by the director of the Office of Administration, Musk "is an employee of the White House." Photo: AFP' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792176\_1\_20250218223453.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Elon Musk is not an official employee of the Department of Government Efficiency (Doge) and has "no formal authority to make government decisions," according to a White House court filing.
-<br>
-<br/>
-The world's richest man is widely seen as the de-facto head of Doge, created by President Donald Trump, which has sought to drastically reduce US government spending including with thousands of job cuts.
-<br/>
-<br/>
-Trump had announced in November that "the Great Elon Musk... will lead the Department of Government Efficiency ('DOGE')."
-<br/>
-<br/>
-According to the filing on Monday by Joshua Fisher, director of the Office of Administration, Musk "is an employee of the White House... as a non-career Special Government Employee" and a "Senior Advisor to the President."
-<br/>
-<br/>
-"Like other senior White House advisors, Mr Musk has no actual or formal authority to make government decisions himself. Mr Musk can only advise the President and communicate the President's directives," Fisher said.
-<br/>
-<br/>
-"The US Doge Service is a component of the Executive Office of the President. The US Doge Service Temporary Organisation is within the US Doge Service. Both are separate from the White House Office," he said in the filing.
-<br/>
-<br/>
-"Mr Musk is an employee of the White House Office. He is not an employee of the US Doge Service or US Doge Service Temporary Organisation. Mr Musk is not the Temporary Administrator," he added.
-<br/>
-<br/>
-Fisher's filing was made in a case brought against Musk by 14 US states, including New Mexico.
-<br/>
-<br/>
-In a joint interview with Musk due to be broadcast on Fox News later on Tuesday, Trump took aim at critics saying that the Tesla founder was the one running the White House.
-<br/>
-<br/>
-"I think nobody in history has ever gotten more bad publicity than me... But you know what I have learned Elon? That people are smart, they get it," Trump said in an excerpt of the interview.
-<br/>
-<br/>
-Musk added: "Yeah they do actually." (AFP)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792176-20250218.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792176-20250218.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792176-20250218.htmTue, 18 Feb 2025 22:34:00 +0800Russia, US to name Ukraine negotiatorshttps://news.rthk.hk/rthk/en/component/k2/1792190-20250219.htm<img alt="Ukrainian President Volodymyr Zelensky slammed his nation's exclusion from the Riyadh gathering. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792190\_1\_20250219035354.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=rthk - World© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:57:49 +0000webmaster@rthk.hkRussia, US to name Ukraine negotiatorshttps://news.rthk.hk/rthk/en/component/k2/1792190-20250219.htm<img alt="Ukrainian President Volodymyr Zelensky slammed his nation's exclusion from the Riyadh gathering. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792190\_1\_20250219035354.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Russia and the United States agreed on Tuesday to establish teams to negotiate a path to ending the war in Ukraine after talks that drew a strong rebuke from Kyiv over its exclusion.
@@ -2981,4 +2929,62 @@ https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htmThu, 27 Feb 2025 05:32:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htmThu, 27 Feb 2025 05:32:00 +0800EU was born to 'screw' US, Trump sayshttps://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm<img alt="US President Donald Trump hosts his first cabinet meeting with Elon Musk in attendance, Washington DC. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793415\_1\_20250227075523.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+President Donald Trump said on Wednesday that the European Union was born to "screw" the United States, laying bare his hostility to the longtime US partner as he detailed new tariffs.
+<br>
+<br/>
+Trump's month back in the White House has been marked by soaring friction between Washington and its European allies, with the United States abruptly shifting gears on support for Ukraine and Germany's likely next leader urging Europe to seek take greater control of its own defense.
+<br/>
+<br/>
+"Look, let's be honest, the European Union was formed in order to screw the United States," Trump told reporters as he gathered his cabinet for the first time.
+<br/>
+<br/>
+"That's the purpose of it, and they've done a good job of it. But now I'm president," Trump said.
+<br/>
+<br/>
+The European Commission shot back that the European Union is "the world's largest free market" and has been "a boon for the United States."
+<br/>
+<br/>
+Former Swedish prime minister Carl Bildt, writing on X, said Trump had a "seriously distorted view of history" as the EU was "actually set up to prevent war on the European continent."
+<br/>
+<br/>
+Trump said at his cabinet meeting that the European Union has "really taken advantage of us."
+<br/>
+<br/>
+The United States had a trade deficit to the 27-nation bloc of $235.6 billion last year, according to official US figures.
+<br/>
+<br/>
+Asked if he had made a decision on tariff levels for the European Union, Trump added: "We'll be announcing it very soon and it'll be 25 percent, generally speaking."
+<br/>
+<br/>
+He said that cars would be among the products to be hit, grim news for Germany whose export-driven economy has been in a slump.
+<br/>
+<br/>
+The European Commission warned it would respond "firmly and immediately" to new tariffs.
+<br/>
+<br/>
+Meanwhile, while speaking to reporters during the meeting, Trump said he has a "very good" relationship with President Xi Jinping.
+<br/>
+<br/>
+"I have a great relationship with President Xi. We want them to come in and invest. I see so many things saying that we don't want China in this country. That's not right. We want them to invest in the United States," said Trump. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htmThu, 27 Feb 2025 07:55:00 +0800

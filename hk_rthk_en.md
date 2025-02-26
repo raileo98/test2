@@ -1,54 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 23:49:47 +0000webmaster@rthk.hkCanada, Mexico tariffs are going forward: Trumphttps://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm<img alt="US President Donald Trump wants to impose 25 percent tariffs on Canada and Mexico as soon as March 4. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793020\_1\_20250225073658.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-US President Donald Trump said on Monday that his tariffs on Canada and Mexico are starting next month, ending a month-long suspension on the planned import taxes that could potentially hurt economic growth and worsen inflation.
-<br>
-<br/>
-“We’re on time with the tariffs, and it seems like that’s moving along very rapidly,” he said at a White House news conference with French President Emmanuel Macron.
-<br/>
-<br/>
-While Trump was answering a specific question about the taxes to be charged on America's two largest trading partners, the US president also stressed more broadly that his intended “reciprocal” tariffs were on schedule to begin as soon as April.
-<br/>
-<br/>
-“The tariffs are going forward on time, on schedule,” Trump said.
-<br/>
-<br/>
-Trump has claimed that other countries charge unfair import taxes that have come at the expense of domestic manufacturing and jobs.
-<br/>
-<br/>
-His near constant threats of tariffs have already raised concerns among businesses and consumers about an economic slowdown and accelerating inflation.
-<br/>
-<br/>
-But Trump claims that the import taxes would ultimately generate revenues to reduce the federal budget deficit and new jobs for workers.
-<br/>
-<br/>
-Still, Mexican President Claudia Sheinbaum appeared confident on Monday that her administration would reach agreements with the US government before the deadline set by Trump.
-<br/>
-<br/>
-“We would need to be reaching important agreements this Friday,” Sheinbaum told reporters before Trump's remarks.
-<br/>
-<br/>
-In high-level discussions between both governments, Mexico has insisted that the US also take a hard look at the drug distribution and consumption in its own country rather than pointing only at production in Mexico, Sheinbaum said. (AP)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htmTue, 25 Feb 2025 08:05:00 +0800Injured champion Martin to miss MotoGP season openerhttps://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm<img alt="Martin will miss the opening race of the season to undergo surgery in Barcelona. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793024\_1\_20250225081917.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 23:57:49 +0000webmaster@rthk.hkInjured champion Martin to miss MotoGP season openerhttps://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm<img alt="Martin will miss the opening race of the season to undergo surgery in Barcelona. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793024\_1\_20250225081917.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 World MotoGP champion Jorge Martin will miss the first race of the season this weekend in Thailand after sustaining several fractures in a fall, his Aprilia team announced.
@@ -2905,4 +2856,62 @@ https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htmThu, 27 Feb 2025 07:14:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htmThu, 27 Feb 2025 07:14:00 +0800EU was born to 'screw' US, Trump sayshttps://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm<img alt="US President Donald Trump hosts his first cabinet meeting with Elon Musk in attendance, Washington DC. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793415\_1\_20250227075523.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+President Donald Trump said on Wednesday that the European Union was born to "screw" the United States, laying bare his hostility to the longtime US partner as he detailed new tariffs.
+<br>
+<br/>
+Trump's month back in the White House has been marked by soaring friction between Washington and its European allies, with the United States abruptly shifting gears on support for Ukraine and Germany's likely next leader urging Europe to seek take greater control of its own defense.
+<br/>
+<br/>
+"Look, let's be honest, the European Union was formed in order to screw the United States," Trump told reporters as he gathered his cabinet for the first time.
+<br/>
+<br/>
+"That's the purpose of it, and they've done a good job of it. But now I'm president," Trump said.
+<br/>
+<br/>
+The European Commission shot back that the European Union is "the world's largest free market" and has been "a boon for the United States."
+<br/>
+<br/>
+Former Swedish prime minister Carl Bildt, writing on X, said Trump had a "seriously distorted view of history" as the EU was "actually set up to prevent war on the European continent."
+<br/>
+<br/>
+Trump said at his cabinet meeting that the European Union has "really taken advantage of us."
+<br/>
+<br/>
+The United States had a trade deficit to the 27-nation bloc of $235.6 billion last year, according to official US figures.
+<br/>
+<br/>
+Asked if he had made a decision on tariff levels for the European Union, Trump added: "We'll be announcing it very soon and it'll be 25 percent, generally speaking."
+<br/>
+<br/>
+He said that cars would be among the products to be hit, grim news for Germany whose export-driven economy has been in a slump.
+<br/>
+<br/>
+The European Commission warned it would respond "firmly and immediately" to new tariffs.
+<br/>
+<br/>
+Meanwhile, while speaking to reporters during the meeting, Trump said he has a "very good" relationship with President Xi Jinping.
+<br/>
+<br/>
+"I have a great relationship with President Xi. We want them to come in and invest. I see so many things saying that we don't want China in this country. That's not right. We want them to invest in the United States," said Trump. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htmThu, 27 Feb 2025 07:55:00 +0800
