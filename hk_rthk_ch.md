@@ -1,64 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 16:49:53 +0000webmaster@rthk.hk財政預算案2025｜消息指發債佔GDP比例仍處於可控水平https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm<img alt="消息說，金管局會視乎市況考慮，決定發債年期，大部分會對機構投資者發行。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793317\_1\_20250226170511.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-政府消息人士表示，未來公務工程開支平均每年約1200億元，發債規模高於工程開支，由於要償還過往發行的債務。發債規模將於2027/28年度增至1950億元，同年度還債規模逾1340億元，兩者都見頂，隨後年度會回落。
-<br>
-<br/>
-消息強調，不會超出債券計劃下的7000億元借款上限，處於可控水平，債務佔本地生產總值(GDP)最多16.5%，低於其他經濟體，以美國及日本為例，比率都超過一倍。有關借款上限明年會向立法會提交修例建議。
-<br/>
-<br/>
-消息說，金管局會視乎市況考慮，決定發債年期，大部分會對機構投資者發行。對於去年基建零售債認購不足額，消息指零售認購反應視乎息口、投資者考慮，又說仍會考慮發行基建零售債。
-<br/>
-<br/>
-消息說，對發債需求有信心，相信經過投資者比例及年期調節後，對市場吸納量有信心。
-<br/>
-<br/>
-另外，消息又指，有部分發債會以代幣代債券方式發行。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htmWed, 26 Feb 2025 16:32:00 +0800財政預算案2025｜陳茂波：金融市場暢旺有助帶動其他經濟環節https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htm<img alt="陳茂波稱港股市場進行不同改革目標令金融市場能與時並進。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793318\_1\_20250226163534.jpg&amp;q=55" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波出席記者會時表示，過去幾年，本港股票市場進行不同改革，包括同股不同權、特專科技公司上市制度等，目標令金融市場能與時並進，將實體經濟發生的變化，吸納到本港市場，讓相關企業能來港上市，以提升市場吸引力，盤活市場流動性，相信股票印花稅收入自然會提升，金融市場漸趨暢旺，亦有助帶動其他經濟環節。
-<br>
-<br/>
-陳茂波補充指，金管局與證監會推出金融科技監管沙盒，以盡早反饋業界，同時推動與深圳在金融科技方面聯合設立沙盒，以鼓勵跨境金融創新。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htmWed, 26 Feb 2025 16:35:00 +0800財政預算案2025｜謝偉銓倡研增薪點　姚柏良促三思機場離境稅https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793319\_1\_20250226170554.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 17:20:58 +0000webmaster@rthk.hk財政預算案2025｜謝偉銓倡研增薪點　姚柏良促三思機場離境稅https://news.rthk.hk/rthk/ch/component/k2/1793319-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793319\_1\_20250226170554.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 立法會G19召集人謝偉銓表示，財政預算案提出削減一萬個公務員職位，有助節省部門開支，但建議政府重新研究公務員增薪點制度，引入按表現評核機制。他認為如果減薪會影響公務員士氣，可利用創科和人工智能支援、簡化現有程序，節省開支並提高職效，較減薪更有效。
@@ -1706,4 +1647,63 @@ https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htmThu, 27 Feb 2025 00:15:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htmThu, 27 Feb 2025 00:15:00 +0800德媒：默茨在大選勝出後首度外訪　將與馬克龍會面https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm<img alt="默茨領導的聯盟黨周日在德國大選中得票排第一。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793389\_1\_20250227005403.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+德國傳媒報道，在德國大選中勝出的聯盟黨領袖默茨將於星期三晚，在巴黎與法國總統馬克龍共晉晚餐，嘗試協調加強歐洲防禦的努力。
+<br>
+<br/>
+這次巴黎之行將是默茨在選舉後的首次外訪。預計默茨將聽取馬克龍早前訪美，與總統特朗普會談的情況。
+<br/>
+<br/>
+基民盟與基社盟組成的聯盟黨在剛過去周日的大選中以28.5%得票排第一。默茨在選舉後表示，將把加強歐洲防禦作為政府的「絕對優先事項」。
+<br/>
+<br/>
+默茨表示，他對特朗普政府 「不抱任何幻想」，並說，在國防問題上 「獨立於美國 」是戰略需要。在競選期間，默茨承諾德國將在歐盟發出「強力的聲音」，並與德國鄰國更緊密合作。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htmThu, 27 Feb 2025 00:54:00 +0800日本岩手縣發生山火　數十座房屋損毀https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm<img alt="日本岩手縣發生山火，數十座房屋損毀，其他地區的消防隊伍亦派員協助救援。（下北消防本部圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793388\_1\_20250227011543.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+日本岩手縣大船渡市發生山火，超過80座房屋損毀，當地消防救援部門通宵撲救。
+<br>
+<br/>
+大船渡市等地個多星期前開始發生山火，日前一度幾乎全部撲滅，當局解除疏散令，但到星期三再有三個地區發生山火，火場面積約6平方公里，並且持續蔓延，二千多名居民疏散。
+<br/>
+<br/>
+鄰近的宮城和山形縣派消防員協助救援，陸上自衛隊亦派員參與，當局計劃視乎天氣情況出動直升機投擲水彈滅火。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htmThu, 27 Feb 2025 00:56:00 +0800

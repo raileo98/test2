@@ -1,61 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 16:49:52 +0000webmaster@rthk.hk香港迪士尼Pixar及Marvel主題區擴建工程今年內展開https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htm<img alt="莫偉庭說，賓客人均消費增加，遠超定價範圍，反映園方在定價及市場促銷方面的工作有效。（林紹鋒攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793099\_1\_20250225163018.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-香港迪士尼樂園度假區宣布，將會自資擴建Pixar主題娛樂體驗，以及擴建Marvel主題區，相關工程今年內展開。
-<br>
-<br/>
-香港迪士尼樂園度假區去年轉虧為盈，行政總裁莫偉庭說，賓客人均消費增加，遠超定價範圍，反映園方在定價和市場促銷方面的工作有效。被問到盈利的可持續性，莫偉庭說要視乎港元匯率、主要市場的經濟健康狀況等，他對目前的進展感到滿意，暫時未有計劃調整票價。
-<br/>
-<br/>
-迪士尼樂園將於6月起，開展為期一年的度假區20周年慶祝活動，包括全新的城堡演出、度假區史上最大型的巡遊表演，其中巡遊的花車數量多達11輛。被問到預計能吸引多少訪客，莫偉庭說，正與旅發局等多方合作，相信能夠成為吸引入境旅客的重大盛事。
-<br/>
-<br/>
-至於開拓新市場的計劃，莫偉庭說，現時香港正發展成穆斯林友善旅遊城市，迪士尼一向有提供清真食品，亦有祈禱室等設施，認為園方在這方面具有領先優勢。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htmTue, 25 Feb 2025 15:59:00 +0800中方就歐盟和加拿大制裁中國企業提出嚴正交涉https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm<img alt="外交部回應歐盟制裁中企，表示已向歐方提出嚴正交涉，敦促歐方停止抹黑推責。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793098\_1\_20250225155509.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-中方就歐盟和加拿大因應俄烏戰事，制裁向俄羅斯提供軍民兩用物項支持的個人和實體，影響中國企業，向歐方及加方提出嚴正交涉，敦促歐方停止在沒有事實依據的情況下，對中方抹黑推責，停止損害中國企業的合法利益，敦促加方立即撤銷錯誤決定，將採取必要措施，堅決維護中國企業的合法權益。
-<br>
-<br/>
-外交部發言人林劍強調，中方明確反對非法單邊制裁的立場是一貫的，中俄企業的正常交往合作也不應受到干擾和影響，他重申，中方在烏克蘭問題上始終秉持客觀公正立場，致力於推動危機的政治解決，從不向衝突方提供致命性武器，嚴格管控軍民兩用物項出口，對無人機的出口管制範圍和措施是全球最嚴的水平。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htmTue, 25 Feb 2025 16:00:00 +0800麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm<img alt="麥萃才認為，如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793104\_1\_20250225170101.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 17:20:58 +0000webmaster@rthk.hk麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm<img alt="麥萃才認為，如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793104\_1\_20250225170101.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 香港迪士尼樂園公布業績，淨利潤達8.38億港元，10年來首次錄得盈利，收入按年增長54%至88億港元，同時創開幕以來新高。浸會大學會計、經濟及金融學系副教授麥萃才表示，疫情後機場的運力開始回升，令長短途旅客來港人數有所增加，而旅客增長主要受惠於東盟國家，包括來自菲律賓及泰國等地的遊客，再加上近年香港迪士尼樂園新增部分設施都能吸引區內旅客。
@@ -1780,4 +1724,63 @@ https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htmThu, 27 Feb 2025 00:15:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htmThu, 27 Feb 2025 00:15:00 +0800德媒：默茨在大選勝出後首度外訪　將與馬克龍會面https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm<img alt="默茨領導的聯盟黨周日在德國大選中得票排第一。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793389\_1\_20250227005403.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+德國傳媒報道，在德國大選中勝出的聯盟黨領袖默茨將於星期三晚，在巴黎與法國總統馬克龍共晉晚餐，嘗試協調加強歐洲防禦的努力。
+<br>
+<br/>
+這次巴黎之行將是默茨在選舉後的首次外訪。預計默茨將聽取馬克龍早前訪美，與總統特朗普會談的情況。
+<br/>
+<br/>
+基民盟與基社盟組成的聯盟黨在剛過去周日的大選中以28.5%得票排第一。默茨在選舉後表示，將把加強歐洲防禦作為政府的「絕對優先事項」。
+<br/>
+<br/>
+默茨表示，他對特朗普政府 「不抱任何幻想」，並說，在國防問題上 「獨立於美國 」是戰略需要。在競選期間，默茨承諾德國將在歐盟發出「強力的聲音」，並與德國鄰國更緊密合作。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htmThu, 27 Feb 2025 00:54:00 +0800日本岩手縣發生山火　數十座房屋損毀https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm<img alt="日本岩手縣發生山火，數十座房屋損毀，其他地區的消防隊伍亦派員協助救援。（下北消防本部圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793388\_1\_20250227011543.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+日本岩手縣大船渡市發生山火，超過80座房屋損毀，當地消防救援部門通宵撲救。
+<br>
+<br/>
+大船渡市等地個多星期前開始發生山火，日前一度幾乎全部撲滅，當局解除疏散令，但到星期三再有三個地區發生山火，火場面積約6平方公里，並且持續蔓延，二千多名居民疏散。
+<br/>
+<br/>
+鄰近的宮城和山形縣派消防員協助救援，陸上自衛隊亦派員參與，當局計劃視乎天氣情況出動直升機投擲水彈滅火。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htmThu, 27 Feb 2025 00:56:00 +0800
