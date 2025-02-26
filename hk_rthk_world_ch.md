@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:01:18 +0000webmaster@rthk.hk馬來西亞交通部長：已重啟MH370客機搜尋工作https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm<img alt="馬來西亞交通部長陸兆福周二表示，已重啟搜尋工作，大馬政府與海洋勘探公司「海洋無限」的合約細節仍在敲定中。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793159\_1\_20250226024734.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-馬航MH370客機失蹤11年後，重新展開搜尋工作。
-<br>
-<br/>
-馬來西亞交通部長陸兆福周二表示，已重啟對這架失蹤客機的搜尋工作。馬來西亞與海洋勘探公司「海洋無限」的合約細節仍在敲定中，但歡迎該公司積極調派船隻展開搜尋行動，關於搜尋將持續多長時間等細節尚未商定。
-<br/>
-<br/>
-這架波音777客機載有239人，2014年3月8日在從吉隆坡飛往北京途中從雷達消失。儘管進行了航空史上最大規模的搜尋行動，但仍未找到。
-<br/>
-<br/>
-陸兆福曾於去年12月表示，「海洋無限」將搜尋印度洋南部一個15000平方公里的新區域，將遵循公司之前「無成果無報酬」原則，即只有在找到飛機的情況下政府才會支付費用。合約為期18個月，如果找到飛機，馬來西亞將支付7000萬美元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793159-20250226.htmWed, 26 Feb 2025 02:47:00 +0800歐盟據報已向烏克蘭政府遞交礦產合作協議https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm<img alt="歐盟委員會主席馮德萊恩周一訪問基輔，與烏克蘭外長瑟比加會面。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793160\_1\_20250226032654.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:32:41 +0000webmaster@rthk.hk歐盟據報已向烏克蘭政府遞交礦產合作協議https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm<img alt="歐盟委員會主席馮德萊恩周一訪問基輔，與烏克蘭外長瑟比加會面。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793160\_1\_20250226032654.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭傳媒報道，歐盟已向烏克蘭政府遞交一份礦產合作協議。
@@ -1723,7 +1692,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htmThu, 27 Feb 2025 03:54:00 +0800歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm<img alt="中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793400\_1\_20250227042334.jpg&amp;q=90" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htmThu, 27 Feb 2025 03:54:00 +0800歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm<img alt="中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（中國駐歐盟使團網頁截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793400\_1\_20250227042334.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 中國駐歐盟使團強烈不滿和堅決反對歐盟日前宣布新一輪對俄制裁中，將部分中國企業和個人列入清單，已向歐盟提出嚴正交涉。
@@ -1779,4 +1748,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800澤連斯基周五訪美與特朗普會面https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm<img alt="澤連斯基說，礦產協議能否取得成功，取決於與特朗普的對話結果。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793403\_1\_20250227051402.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+烏克蘭澤連斯基將訪問美國與總統特朗普會面。澤連斯基當地星期三晚在視像講話中表示，雙方團隊正為會談做準備。他強調，美國的援助不停止至關重要。
+<br>
+<br/>
+澤連斯基早前在記者會說，烏美將首先簽署關於開發烏克蘭礦產資源的框架協議，然後簽署聯合投資基金協議，兩國將共同持有這個基金。他又說，協議能否取得成功，取決於與特朗普的對話結果。訪美之後，他會隨即轉往英國，與英國首相施紀賢及其他歐洲領導人會面。
+<br/>
+<br/>
+根據傳媒公布的協議文本，美國和烏克蘭將共同開發礦產資源，並將收入注入共同基金。協議沒有明確列出具體安全保障，只提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htmThu, 27 Feb 2025 05:14:00 +0800

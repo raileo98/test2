@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:01:17 +0000webmaster@rthk.hk俄烏衝突三周年　外交部：中方一直致力為止戰凝聚共識https://news.rthk.hk/rthk/ch/component/k2/1792941-20250224.htm<img alt="俄烏衝突持續三年，烏克蘭民眾點燈悼念死者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792941\_1\_20250224155251.jpg&amp;q=70" style="width:100%;height:auto"/>
+rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:32:41 +0000webmaster@rthk.hk俄烏衝突三周年　外交部：中方一直致力為止戰凝聚共識https://news.rthk.hk/rthk/ch/component/k2/1792941-20250224.htm<img alt="俄烏衝突持續三年，烏克蘭民眾點燈悼念死者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792941\_1\_20250224155251.jpg&amp;q=70" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 俄烏衝突持續三年，外交部發言人林劍表示，中方在烏克蘭危機問題上的立場是一貫的、明確的。危機全面升級以來，中方一直同有關各方保持溝通，致力於為止戰凝聚共識，為和談鋪路搭橋，中方將始終堅定站在和平一邊，秉持客觀公正立場，繼續同國際社會一起，為推動危機政治解決發揮建設性作用。
@@ -1645,7 +1645,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm<img alt="中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793400\_1\_20250227042334.jpg&amp;q=90" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm<img alt="中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（中國駐歐盟使團網頁截圖）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793400\_1\_20250227042334.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 中國駐歐盟使團強烈不滿和堅決反對歐盟日前宣布新一輪對俄制裁中，將部分中國企業和個人列入清單，已向歐盟提出嚴正交涉。

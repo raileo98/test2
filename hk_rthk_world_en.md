@@ -1,39 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=rthk - World© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:01:17 +0000webmaster@rthk.hkArab League summit on Gaza postponed to March 4https://news.rthk.hk/rthk/en/component/k2/1792174-20250218.htm<img alt="President Trump's proposal to take over the war-battered Gaza Strip has caused an outcry across the Arab world. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792174\_1\_20250218222149.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-An extraordinary Arab League meeting on Gaza, initially set for next week, has been postponed to March 4, host Egypt said on Tuesday.
-<br>
-<br/>
-The Egyptian foreign ministry said the new date was agreed with Arab League members as part of "substantive and logistical preparations" for the summit.
-<br/>
-<br/>
-The meeting was called in response to US President Donald Trump's proposal to take over the war-battered Gaza Strip and move its Palestinian inhabitants elsewhere, including to Egypt and Jordan.
-<br/>
-<br/>
-Saudi Arabia is set to host the leaders of Egypt, Jordan, Qatar and the United Arab Emirates on Friday to present their own plan for Gaza's reconstruction while ensuring that Palestinians remain on their land.
-<br/>
-<br/>
-Trump's Gaza plan has sparked outcry across the Arab world, prompting a rare show of unity among Arab nations to block it. (AFP)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792174-20250218.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792174-20250218.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792174-20250218.htmTue, 18 Feb 2025 22:21:00 +0800'Elon Musk has no formal decision-making authority'https://news.rthk.hk/rthk/en/component/k2/1792176-20250218.htm<img alt='According to a court filing on Monday by the director of the Office of Administration, Musk "is an employee of the White House." Photo: AFP' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792176\_1\_20250218223453.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=rthk - World© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Worldhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=10&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:32:41 +0000webmaster@rthk.hk'Elon Musk has no formal decision-making authority'https://news.rthk.hk/rthk/en/component/k2/1792176-20250218.htm<img alt='According to a court filing on Monday by the director of the Office of Administration, Musk "is an employee of the White House." Photo: AFP' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792176\_1\_20250218223453.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Elon Musk is not an official employee of the Department of Government Efficiency (Doge) and has "no formal authority to make government decisions," according to a White House court filing.
@@ -2957,4 +2923,62 @@ https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htmWed, 26 Feb 2025 22:19:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htmWed, 26 Feb 2025 22:19:00 +0800Gaza as gold resort posted on Trump social mediahttps://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm<img alt="Palestinians sit next to a fire among the rubble of destroyed buildings, amid a ceasefire between Israel and Hamas, at Jabalia refugee camp, northern Gaza. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793405\_1\_20250227053207.jpg&amp;q=30" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+US President Donald Trump's official social media accounts posted an apparently AI-generated video depicting war-ravaged Gaza rebuilt into a seaside resort, replete with a towering golden statue of himself.
+<br>
+<br/>
+The video, which racked up more than 29 million views on Instagram and was shared thousands of times on Trump's Truth Social network by Wednesday afternoon, prompted some commenters to question whether the president's accounts had been hacked.
+<br/>
+<br/>
+The 33-second clip remained on Trump's accounts without denial or retraction hours after the initial posting on Tuesday night.
+<br/>
+<br/>
+The video "Gaza 2025 What's Next?" opens with people on a rubble-strewn street emerging from a tunnel onto a beach with palm trees and yachts.
+<br/>
+<br/>
+Trump has floated the idea of a US takeover of Gaza under which its Palestinian population would be relocated, a proposal met with global condemnation.
+<br/>
+<br/>
+He later appeared to soften his plan, saying he was only recommending the idea, and conceding that the leaders of Jordan and Egypt, the proposed destinations for relocated Gazans, had rejected any effort to move Palestinians against their will.
+<br/>
+<br/>
+In the social media clip, the soundtrack includes lyrics such as "Donald's coming to set you free, bringing the light for all to see", and "Feast and dance, the deal is done, Trump Gaza number one".
+<br/>
+<br/>
+Seemingly AI-generated renditions of Trump and Israeli Prime Minister Benjamin Netanyahu sip cocktails in swimsuits by a pool, while other shots show what appears to be Elon Musk dancing under a shower of cash on the beach.
+<br/>
+<br/>
+A larger-than-life golden statue of Trump is also featured.
+<br/>
+<br/>
+One scene closely resembles an AI-generated image of Trump and Netanyahu drinking cocktails that began circulating in early February.
+<br/>
+<br/>
+Senir Hamas official Bassem Naim said in reaction to the video: "Unfortunately, President Trump is once again proposing ideas and solutions that do not take into account the cultures and interests of the indigenous population."
+<br/>
+<br/>
+In Gaza, people who watched the video were in disbelief.
+<br/>
+<br/>
+"This video of Trump is full of fallacies and shows a lack of cultural awareness... Gaza won't become a tourist spot like Italy or Spain," said Nasser Abu Hadaid, a 60-year-old resident of Khan Yunis in southern Gaza. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htmThu, 27 Feb 2025 05:32:00 +0800
