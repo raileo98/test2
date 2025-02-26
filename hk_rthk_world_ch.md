@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:42:53 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:48:35 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 敘利亞全國對話會議閉幕，發表聲明強調維護敘利亞統一和領土主權，呼籲加快組建臨時立法委員會和發布臨時憲法宣言。
@@ -1705,7 +1705,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800澤連斯基周五訪美與特朗普會面https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm<img alt="澤連斯基說，礦產協議能否取得成功，取決於與特朗普的對話結果。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793403\_1\_20250227051402.jpg&amp;q=90" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800澤連斯基周五訪美與特朗普會面　稱美援不停止至關重要https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm<img alt="澤連斯基說，礦產協議能否取得成功，取決於與特朗普的對話結果。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793403\_1\_20250227051402.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭總統澤連斯基將於星期五訪問美國，與總統特朗普會面。澤連斯基當地星期三晚在視像講話中表示，雙方團隊正為會談做準備。他強調，美國的援助不停止至關重要。
