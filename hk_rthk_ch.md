@@ -1,86 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 21:32:42 +0000webmaster@rthk.hk財政預算案2025｜續派糖但規模再縮水　薪酬稅退稅上限減半https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm<img alt="利得稅、薪俸稅和個人入息課稅的退稅上限減半。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793338\_1\_20250226184834.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一份財政預算案繼續「派糖」，但規模較以往幾年再「縮水」。
-<br>
-<br/>
-利得稅、薪俸稅和個人入息課稅的退稅上限減半，只有1500元；寬減差餉只得一季、上限500元；綜援、生果金等繼續額外多半個月。
-<br/>
-<br/>
-另外，預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。消息人士預計，每年可節省約20億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htmWed, 26 Feb 2025 18:13:00 +0800財政預算案2025｜調整二元優惠及公共交通費補貼計劃減省開支https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793340\_1\_20250226184627.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-預算案公布「二元優惠計劃」及「公共交通費用補貼計劃」調整方案，政府預料未來5年，可減省共約62億元開支。
-<br>
-<br/>
-「二元優惠計劃」受惠對象不變，新增每月240程限制，10元以上改為全額車費「兩折」。消息指最快明年9月實施。
-<br/>
-<br/>
-至於「公共交通費用補貼計劃」，今年6月開始，補貼領取門檻將提高至500元。消息指平均每月將會少10萬人受惠。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htmWed, 26 Feb 2025 18:20:00 +0800財政預算案2025｜有長者稱調整2元乘車優惠合理　有人感失望https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm<img alt="有長者擔心未來車費仍有機會上調。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793341\_1\_20250226185017.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-預算案宣布調整2元乘車優惠，有長者認為做法合理，可以節省政府資源，亦有長者感失望，擔心未來車費仍有機會上調。
-<br>
-<br/>
-有立法會議員認為，2元乘車優惠對長者及社會整體利益是利多於弊，希望就計劃的改動到此為止。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htmWed, 26 Feb 2025 18:23:00 +0800財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<img alt="陳茂波相信，公務員會理解及支持凍薪的決定。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793342\_1\_20250226185047.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 21:39:50 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<img alt="陳茂波相信，公務員會理解及支持凍薪的決定。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793342\_1\_20250226185047.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 新一份財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。公務員編制在2026/27及27/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
@@ -1681,7 +1600,7 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htmThu, 27 Feb 2025 04:34:00 +0800澤連斯基周五訪美與特朗普會面https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm<img alt="澤連斯基說，礦產協議能否取得成功，取決於與特朗普的對話結果。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793403\_1\_20250227051402.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-烏克蘭澤連斯基將訪問美國與總統特朗普會面。澤連斯基當地星期三晚在視像講話中表示，雙方團隊正為會談做準備。他強調，美國的援助不停止至關重要。
+烏克蘭總統澤連斯基將於星期五訪問美國，與總統特朗普會面。澤連斯基當地星期三晚在視像講話中表示，雙方團隊正為會談做準備。他強調，美國的援助不停止至關重要。
 <br>
 <br/>
 澤連斯基早前在記者會說，烏美將首先簽署關於開發烏克蘭礦產資源的框架協議，然後簽署聯合投資基金協議，兩國將共同持有這個基金。他又說，協議能否取得成功，取決於與特朗普的對話結果。訪美之後，他會隨即轉往英國，與英國首相施紀賢及其他歐洲領導人會面。
@@ -1706,4 +1625,103 @@ https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htmThu, 27 Feb 2025 05:14:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htmThu, 27 Feb 2025 05:14:00 +0800特朗普稱將對歐盟徵收25%關稅https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm<img alt="特朗普指歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793406\_1\_20250227053349.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普說，已決定對歐盟徵收25%關稅，適用於汽車和其他各種商品，將很快宣布。
+<br>
+<br/>
+特朗普在舉行內閣會議時對記者表示，歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」，美國和歐盟之間有大約「3000億美元」的貿易逆差，又指歐盟成立的目的是為了「搞垮」美國。
+<br/>
+<br/>
+被問及會否因邊境管控的進展而繼續暫緩針對墨西哥、加拿大加徵關稅時，特朗普說，不會阻止關稅生效，美國將對墨西哥、加拿大徵收25%關稅。
+<br/>
+<br/>
+另外，美國商務部長盧特尼克說，針對各國的總體關稅行動將於4月2日實施。
+<br/>
+<br/>
+歐盟委員會消息人士說，歐盟是世界上最大的自由市場，對美國來說是好事，又說歐盟將「堅決而且立即」 應對最新的關稅威脅。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htmThu, 27 Feb 2025 05:33:00 +0800道指跌188點　納指及標普500指數結束多日跌勢https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm<img alt="道瓊斯指數收報43433點，跌188點，跌幅0.43%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793404\_1\_20250227053133.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美股個別發展，道指低收近190點，納指及標普500指數結束4個交易日跌勢，但升幅有限。美國總統特朗普重申4月對加拿大和墨西哥徵收關稅，又稱決定對歐盟徵收25%關稅。
+<br>
+<br/>
+道瓊斯指數早段最多曾升近250點，升至43866點，之後倒跌，最多跌逾300點，收市跌188點，報43433點，跌幅0.43%。
+<br/>
+<br/>
+納斯達克指數曾升逾1%，但一度蒸發升幅並轉跌，收市靠穩，報19075點，升48點，升幅0.26%
+<br/>
+<br/>
+標準普爾500指數曾經重上6000點，最多升近1%，收市接近持平，報5956點，升不足1點。
+<br/>
+<br/>
+Nvidia收市後公布業績，股價最多升近6%，收市升近4%，Tesla延續跌勢，低收近4%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htmThu, 27 Feb 2025 05:34:00 +0800英法德股市升0.72%至約1.7%https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm<img alt="德國DAX指數收報22794點，升383點，升幅1.71%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793402\_1\_20250227051345.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+歐洲3大指數上升，法德股市升逾1%。
+<br>
+<br/>
+英國富時100指數收報8731點，升62點，升幅0.72%。
+<br/>
+<br/>
+法國CAC指數收報8143點，升92點，升幅1.15%。
+<br/>
+<br/>
+德國DAX指數收報22794點，升383點，升幅1.71%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htmThu, 27 Feb 2025 05:35:00 +0800

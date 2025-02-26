@@ -1,95 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:32:41 +0000webmaster@rthk.hk財政預算案2025｜消息稱相信印花稅措施可刺激低樓價物業交投https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm<img alt="政府消息人士說不想納稅人全無受惠寬減措施，因此在薪俸稅等方面作出上限劃一減半。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793295\_1\_20250226153144.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-徵收100元印花稅的物業價值上限，即日起由300萬元，提高至400萬元。政府消息人士指，相信可刺激低樓價物業的交投，若再拉高物業價值上限，會導致整體稅階改變。
-<br>
-<br/>
-政府消息人士說，考慮到仍錄得赤字，但不想納稅人全無受惠寬減措施，因此在薪俸稅等方面作出上限劃一減半。
-<br/>
-<br/>
-今份預算案提出的一次性紓緩措施，合共每年涉及78.6億元，低於上一份預算案的115.2億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htmWed, 26 Feb 2025 15:25:00 +0800財政預算案2025｜分析：1百元印花稅延至4百萬樓帶動租轉買https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htm<img alt="中原按揭指出，100元印花稅延至4百萬樓的新措施，將推動置業人士轉租為買；戴德梁行相信，可惠及的物業成交個案將會比政府預算更多，有望達20%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793289\_1\_20250226152706.jpg&amp;q=65" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一年度財政預算案提出，將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，令樓價400萬元的住宅單位印花稅由原來6萬元降至100元，即日生效，預計可惠及約15%物業成交個案，政府收入將每年減少約4億元。
-<br>
-<br/>
-戴德梁行相信，新措施將會吸引上車客及投資者入市，並加快細價樓的交投步伐。根據土地註冊處數字，2024年價值300萬至少於400萬元的住宅成交錄得7623宗，佔整體住宅約14%成交，相信將會帶動換樓鏈，可惠及的物業成交個案將會比政府預算的15%更多，有望達20%。
-<br/>
-<br/>
-中原按揭指出，新措施令初次置業人士受惠，推動更多置業人士選擇轉租為買，置業成本減少亦同步有利推動買樓收租。中原按揭指出，去年400萬元以下住宅買賣佔整體成交達25.3%。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793289-20250226.htmWed, 26 Feb 2025 15:27:00 +0800財政預算案2025｜消息指取消學生津貼為配合精準扶貧https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htm<img alt="消息表示，有經濟需要的學生仍然有書簿津貼、交通津貼和上網津貼等支援。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793297\_1\_20250226165325.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。政府消息人士表示，預計津貼取消後，每年可節省約20億元。
-<br>
-<br/>
-消息人士表示，取消津貼是為配合今屆政府精準扶貧策略，因有經濟需要的學生仍然有書簿津貼、交通津貼和上網津貼等支援。
-<br/>
-<br/>
-消息人士又說，今年內將成立專責小組檢討，給予中小學、幼稚園的各類津貼，將會整合重疊部分，預計4月初組成名單，小組將由教育局人員組成，學界會參與提供意見。
-<br/>
-<br/>
-另外，八間資助大學未來三年獲撥款總額達681億元，較上個三年期的約632億元為高。消息人士指，八大儲備合共達1393億元，其中111億元屬一般及發展基金，由於盈餘充足，政府首次要求各院校於結餘中，一次過退還40億元。
-<br/>
-<br/>
-消息人士表示，40億元的金額約佔基金三分一，剩下三分二的資金足夠8大未來四個月經常開支，至於各院校如何攤分這40億元，消息人士指將會很快公布。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793297-20250226.htmWed, 26 Feb 2025 15:29:00 +0800財政預算案2025｜華員會蔡冠龍支持凍薪　體現與民共渡時艱https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793298\_1\_20250226153316.jpg&amp;q=35" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:39:50 +0000webmaster@rthk.hk財政預算案2025｜華員會蔡冠龍支持凍薪　體現與民共渡時艱https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793298\_1\_20250226153316.jpg&amp;q=35" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 新一份財政預算案提出，2025/26年度，所有行政、立法、司法機關、區議會及全體公務員一致凍薪；公務員編制在2026/27及2027/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
@@ -1803,4 +1713,103 @@ https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800特朗普稱將對歐盟徵收25%關稅https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm<img alt="特朗普指歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793406\_1\_20250227053349.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普說，已決定對歐盟徵收25%關稅，適用於汽車和其他各種商品，將很快宣布。
+<br>
+<br/>
+特朗普在舉行內閣會議時對記者表示，歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」，美國和歐盟之間有大約「3000億美元」的貿易逆差，又指歐盟成立的目的是為了「搞垮」美國。
+<br/>
+<br/>
+被問及會否因邊境管控的進展而繼續暫緩針對墨西哥、加拿大加徵關稅時，特朗普說，不會阻止關稅生效，美國將對墨西哥、加拿大徵收25%關稅。
+<br/>
+<br/>
+另外，美國商務部長盧特尼克說，針對各國的總體關稅行動將於4月2日實施。
+<br/>
+<br/>
+歐盟委員會消息人士說，歐盟是世界上最大的自由市場，對美國來說是好事，又說歐盟將「堅決而且立即」 應對最新的關稅威脅。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htmThu, 27 Feb 2025 05:33:00 +0800道指跌188點　納指及標普500指數結束多日跌勢https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm<img alt="道瓊斯指數收報43433點，跌188點，跌幅0.43%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793404\_1\_20250227053133.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美股個別發展，道指低收近190點，納指及標普500指數結束4個交易日跌勢，但升幅有限。美國總統特朗普重申4月對加拿大和墨西哥徵收關稅，又稱決定對歐盟徵收25%關稅。
+<br>
+<br/>
+道瓊斯指數早段最多曾升近250點，升至43866點，之後倒跌，最多跌逾300點，收市跌188點，報43433點，跌幅0.43%。
+<br/>
+<br/>
+納斯達克指數曾升逾1%，但一度蒸發升幅並轉跌，收市靠穩，報19075點，升48點，升幅0.26%
+<br/>
+<br/>
+標準普爾500指數曾經重上6000點，最多升近1%，收市接近持平，報5956點，升不足1點。
+<br/>
+<br/>
+Nvidia收市後公布業績，股價最多升近6%，收市升近4%，Tesla延續跌勢，低收近4%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htmThu, 27 Feb 2025 05:34:00 +0800英法德股市升0.72%至約1.7%https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm<img alt="德國DAX指數收報22794點，升383點，升幅1.71%。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793402\_1\_20250227051345.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+歐洲3大指數上升，法德股市升逾1%。
+<br>
+<br/>
+英國富時100指數收報8731點，升62點，升幅0.72%。
+<br/>
+<br/>
+法國CAC指數收報8143點，升92點，升幅1.15%。
+<br/>
+<br/>
+德國DAX指數收報22794點，升383點，升幅1.71%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htmThu, 27 Feb 2025 05:35:00 +0800

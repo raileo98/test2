@@ -1,45 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:32:41 +0000webmaster@rthk.hk歐盟據報已向烏克蘭政府遞交礦產合作協議https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm<img alt="歐盟委員會主席馮德萊恩周一訪問基輔，與烏克蘭外長瑟比加會面。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793160\_1\_20250226032654.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-烏克蘭傳媒報道，歐盟已向烏克蘭政府遞交一份礦產合作協議。
-<br>
-<br/>
-報道說，歐盟委員會分管產業戰略的執行副主席塞茹爾內和歐盟委員會主席馮德萊恩周一訪問烏克蘭首都基輔，並向烏克蘭政府遞交礦產合作「互惠」協議。塞茹爾內對烏克蘭傳媒表示，歐洲需要的30種關鍵礦產中，烏克蘭可提供21種，但歐洲永遠不會要求烏方達成任何不具有互惠性質的礦產協議。
-<br/>
-<br/>
-烏克蘭總理什梅加爾當天在烏克蘭政府與歐盟委員會舉行的聯席會議上說，烏克蘭重建預計需要5000億歐元，這為歐洲企業提供巨大投資空間，烏克蘭將向歐洲提供切實的「戰略優勢」資源，包括鋰、鈦、鈾、天然氣等。
-<br/>
-<br/>
-烏克蘭與美國正進行礦產協議談判。美國總統特朗普周一稱，美烏礦產協議已「非常接近完成」，內容將涉及「稀土和許多其他東西」。烏克蘭總統澤連斯基可能「本周或下周」赴美簽署協議
-<br/>
-<br/>
-世界銀行、聯合國、歐盟委員會和烏克蘭政府的研究發現，要重建烏克蘭經濟，估計成本上升至5240億美元，幾乎是烏克蘭去年預期經濟總值的三倍，相比一年前的估計，上升7%。
-<br/>
-<br/>
-根據這份最新研究，房屋、交通、能源、商業和教育是受影響最嚴重的行業，其中能源基礎設施的損失增加了7成。
-<br/>
-<br/>
-烏克蘭政府在捐助方的支持下，已撥出73.7 億美元應付今年的優先需求，但仍有近100 億美元的資金缺口。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793160-20250226.htmWed, 26 Feb 2025 03:26:00 +0800敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:39:50 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 敘利亞全國對話會議閉幕，發表聲明強調維護敘利亞統一和領土主權，呼籲加快組建臨時立法委員會和發布臨時憲法宣言。
@@ -1751,7 +1711,7 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htmThu, 27 Feb 2025 04:25:00 +0800澤連斯基周五訪美與特朗普會面https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm<img alt="澤連斯基說，礦產協議能否取得成功，取決於與特朗普的對話結果。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793403\_1\_20250227051402.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-烏克蘭澤連斯基將訪問美國與總統特朗普會面。澤連斯基當地星期三晚在視像講話中表示，雙方團隊正為會談做準備。他強調，美國的援助不停止至關重要。
+烏克蘭總統澤連斯基將於星期五訪問美國，與總統特朗普會面。澤連斯基當地星期三晚在視像講話中表示，雙方團隊正為會談做準備。他強調，美國的援助不停止至關重要。
 <br>
 <br/>
 澤連斯基早前在記者會說，烏美將首先簽署關於開發烏克蘭礦產資源的框架協議，然後簽署聯合投資基金協議，兩國將共同持有這個基金。他又說，協議能否取得成功，取決於與特朗普的對話結果。訪美之後，他會隨即轉往英國，與英國首相施紀賢及其他歐洲領導人會面。
@@ -1776,4 +1736,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htmThu, 27 Feb 2025 05:14:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htmThu, 27 Feb 2025 05:14:00 +0800特朗普稱將對歐盟徵收25%關稅https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm<img alt="特朗普指歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793406\_1\_20250227053349.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普說，已決定對歐盟徵收25%關稅，適用於汽車和其他各種商品，將很快宣布。
+<br>
+<br/>
+特朗普在舉行內閣會議時對記者表示，歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」，美國和歐盟之間有大約「3000億美元」的貿易逆差，又指歐盟成立的目的是為了「搞垮」美國。
+<br/>
+<br/>
+被問及會否因邊境管控的進展而繼續暫緩針對墨西哥、加拿大加徵關稅時，特朗普說，不會阻止關稅生效，美國將對墨西哥、加拿大徵收25%關稅。
+<br/>
+<br/>
+另外，美國商務部長盧特尼克說，針對各國的總體關稅行動將於4月2日實施。
+<br/>
+<br/>
+歐盟委員會消息人士說，歐盟是世界上最大的自由市場，對美國來說是好事，又說歐盟將「堅決而且立即」 應對最新的關稅威脅。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htmThu, 27 Feb 2025 05:33:00 +0800
