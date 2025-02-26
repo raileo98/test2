@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 12:57:28 +0000webmaster@rthk.hk財政預算案2025｜預留資源以配對形式籌建新醫學院https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htm<img alt="陳茂波表示公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793224\_1\_20250226122445.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 13:03:12 +0000webmaster@rthk.hk財政預算案2025｜預留資源以配對形式籌建新醫學院https://news.rthk.hk/rthk/ch/component/k2/1793224-20250226.htm<img alt="陳茂波表示公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793224\_1\_20250226122445.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波表示，醫學生培訓學額將於2025/26年增至650個。公營醫療系統會善用已修訂法律框架，引入非本地培訓醫護人員。
@@ -2955,8 +2955,16 @@ https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800凍結公務員薪酬4月1日生效　不繼續進行今年薪酬趨勢調查https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htmWed, 26 Feb 2025 20:37:00 +0800財政預算案2025｜公務員凍薪4月生效　不續進行今年薪趨調查https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm<br/>
 <div class="itemFullText">
+財政司司長於《財政預算案》公布，在強化財政整合計劃下，政府提出下年度凍結包括全體公務員的所有行政機關人員薪酬。因此，政府決定不繼續進行2025年薪酬趨勢調查。
+<br>
+<br/>
+凍結全體公務員薪酬的安排將於4月1日生效。根據既定政策，凍薪安排會適用於廉政公署人員。根據既定做法，對於那些資助額計算公式包括按公務員薪酬調整而變動的因子資助機構，在公務員薪酬作出年度調整時，政府亦會調整這些機構的資助金。有關資助機構的資助金在2025至26年度將不作相應調整。
+<br/>
+<br/>
+公務員事務局發言人說，在有限資源下，政府有必要嚴控開支增長。公務員團隊作為政府的重要一部分，會全力支持和配合預算案公布的強化財政整合計劃，繼續致力提升公共服務，共同應對未來挑戰。
+</br>
 </div>
 <br/>
 <hr/>

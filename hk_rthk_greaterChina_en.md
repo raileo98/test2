@@ -1,48 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Greater Chinahttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive\_date=rthk - Greater China© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Greater Chinahttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 12:57:27 +0000webmaster@rthk.hk'Chinese products still competitive after tariff hike'https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htm<img alt="The Hong Kong General Chamber of Small and Medium Business said products from the mainland and Hong Kong might still be competitive after the tariff hike. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790572\_1\_20250206185139.jpg&amp;q=45" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-The deputy head of a local chamber for small to medium-sized firms on Thursday said companies from mainland China and Hong Kong focused on e-commerce may still have profit margins, despite higher US tariffs.
-<br>
-<br/>
-US authorities began charging an extra 10 percent levy on top of existing tariffs, and cancelled a tax exemption for parcels with a retail value of US$800 or less.
-<br/>
-<br/>
-A vice president of the Hong Kong General Chamber of Small and Medium Business, Stanley Lee, said while the tariff rise might have come abruptly, some products can still be competitive in the US market.
-<br/>
-<br/>
-"For example, in traditional retail, it costs US$20 to buy an item. It's US$15 for them to buy on [American] online platforms, but it's US$10 on [Chinese] e-platforms before the rise," he explained to RTHK.
-<br/>
-<br/>
-"So even with [25 to 35 percent extra tariffs], it's still cheaper to buy [Chinese products] than the traditional way."
-<br/>
-<br/>
-Lee, who also heads the chamber's e-commerce policy committee, said his own firm was relatively unaffected by the new US policies, as his products are stored in warehouses on American soil and they clear customs regularly.
-<br/>
-<br/>
-He said he expects some mainland e-commerce firms to do the same if they no longer find the parcel-mailing strategy profitable.
-<br/>
-<br/>
-Lee added that companies mostly expected the trade spat to intensify, and have therefore turned to different markets in search for potential customers.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1790572-20250206.htmThu, 06 Feb 2025 20:27:00 +0800Panama formally withdraws from Belt & Road initiativehttps://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htm<img alt="Panama says it has informed Beijing of its decision. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790600\_1\_20250206224906.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Greater Chinahttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive\_date=rthk - Greater China© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Greater Chinahttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=9&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 13:03:11 +0000webmaster@rthk.hkPanama formally withdraws from Belt & Road initiativehttps://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htm<img alt="Panama says it has informed Beijing of its decision. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790600\_1\_20250206224906.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Panama has formally pulled out of China's Belt and Road initiative, President Jose Raul Mulino announced on Thursday.
@@ -2712,4 +2669,41 @@ https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htmTue, 25 Feb 2025 16:12:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htmTue, 25 Feb 2025 16:12:00 +0800Manila repatriates 100 Chinese nationals in joint ophttps://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm<img alt='The Chinese Embassy in Manila urged Philippines authorities to "completely eradicate the scourge" inflicted by offshore gambling. Photo: screenshot of embassy website' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793364\_1\_20250226205158.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+About 100 Chinese nationals who engaged in illegal offshore gambling operations in the Philippines have been repatriated to the country.
+<br>
+<br/>
+The Chinese Embassy in Manila on Wednesday said law enforcement agencies of the two countries had joined hands to crack down on Philippine Offshore Gaming Operators (POGOs).
+<br/>
+<br/>
+"The Chinese government is committed to cracking down on gambling and relevant crimes and always asks overseas Chinese nationals to strictly abide by local laws and regulations and do not engage in any illegal and criminal activities," it wrote in a statement.
+<br/>
+<br/>
+"We urge the Philippines to completely eradicate the scourge inflicted by offshore gambling as soon as possible. China will continue to work with the Philippines to jointly combat crimes."
+<br/>
+<br/>
+The Philippines announced a ban on POGOs in July last year, and the operation marked another step towards that goal.
+<br/>
+<br/>
+The online gambling industry emerged in the Philippines in 2016, and expanded rapidly as operators leveraged the country's liberal gambling laws to target Chinese customers. Gambling is illegal in China. (Additional reporting by Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htmWed, 26 Feb 2025 21:01:00 +0800

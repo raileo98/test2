@@ -1,48 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 12:57:30 +0000webmaster@rthk.hkXi praises efforts to defuse Ukraine crisishttps://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm<img alt="President Xi Jinping says China and Russia are good neighbours and true friends supporting each other. File photo: Xinhua" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792982\_1\_20250224190145.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-President Xi Jinping on Monday held a phone conversation with his Russian counterpart Vladimir Putin on the third anniversary of the war in Ukraine and said China is happy to see efforts by Moscow and others to defuse the crisis.
-<br>
-<br/>
-Xinhua News Agency quoted the president as saying "China is happy to see Russia and relevant parties make positive efforts to defuse the Ukraine crisis".
-<br/>
-<br/>
-Xi also said China and Russia are good neighbours and true friends supporting each other and achieving common development.
-<br/>
-<br/>
-The president said their relationship does not target any third party, nor would it be influenced by any third party.
-<br/>
-<br/>
-The Kremlin said in a statement that Xi expressed his support for dialogue between the US and Russia.
-<br/>
-<br/>
-US and Russian officials met in Saudi Arabia last week and agreed to start work on restoring bilateral ties and preparing for Ukraine peace talks.
-<br/>
-<br/>
-Meanwhile, a dozen leaders from Europe and Canada were in Ukraine's capital on Monday to mark the third anniversary of Russia’s military campaign.
-<br/>
-<br/>
-The visitors, including European Commission President Ursula von der Leyen and Canadian Prime Minister Justin Trudeau, were set to attend anniversary events and discuss supporting Kyiv with President Volodymyr Zelenskyy. (Agencies)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htmMon, 24 Feb 2025 19:01:00 +0800Explosives thrown at Russian consulate in Francehttps://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm<img alt="Bomb-squad officers prepare a de-mining robot in front of the Russian consulate in Marseille, France. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792988\_1\_20250224204408.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 13:03:12 +0000webmaster@rthk.hkExplosives thrown at Russian consulate in Francehttps://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm<img alt="Bomb-squad officers prepare a de-mining robot in front of the Russian consulate in Marseille, France. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792988\_1\_20250224204408.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Three improvised explosive devices were thrown at the Russian consulate in the southern French port city of Marseille on Monday but no one was injured, a police source said.
@@ -2868,4 +2825,41 @@ https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htmWed, 26 Feb 2025 20:44:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htmWed, 26 Feb 2025 20:44:00 +0800Manila repatriates 100 Chinese nationals in joint ophttps://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm<img alt='The Chinese Embassy in Manila urged Philippines authorities to "completely eradicate the scourge" inflicted by offshore gambling. Photo: screenshot of embassy website' referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793364\_1\_20250226205158.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+About 100 Chinese nationals who engaged in illegal offshore gambling operations in the Philippines have been repatriated to the country.
+<br>
+<br/>
+The Chinese Embassy in Manila on Wednesday said law enforcement agencies of the two countries had joined hands to crack down on Philippine Offshore Gaming Operators (POGOs).
+<br/>
+<br/>
+"The Chinese government is committed to cracking down on gambling and relevant crimes and always asks overseas Chinese nationals to strictly abide by local laws and regulations and do not engage in any illegal and criminal activities," it wrote in a statement.
+<br/>
+<br/>
+"We urge the Philippines to completely eradicate the scourge inflicted by offshore gambling as soon as possible. China will continue to work with the Philippines to jointly combat crimes."
+<br/>
+<br/>
+The Philippines announced a ban on POGOs in July last year, and the operation marked another step towards that goal.
+<br/>
+<br/>
+The online gambling industry emerged in the Philippines in 2016, and expanded rapidly as operators leveraged the country's liberal gambling laws to target Chinese customers. Gambling is illegal in China. (Additional reporting by Reuters)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htmWed, 26 Feb 2025 21:01:00 +0800
