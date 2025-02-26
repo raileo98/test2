@@ -1,30 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 15:58:22 +0000webmaster@rthk.hk外交部：美方脅迫別國打壓中國半導體產業　最終將損人害己https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm<img alt="林劍說，中方已多次就美國惡意封鎖打壓中國的半導體產業表明嚴正立場。（外交部網頁圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793097\_1\_20250225154727.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-美國特朗普政府據報正尋求加大對中國晶片產業的限制，並向主要盟友施壓，要求他們與美國保持一致，加強對中國晶片業的限制。
-<br>
-<br/>
-在北京，外交部發言人林劍在例行記者會回應有關提問時表示，中方已多次就美國惡意封鎖打壓中國的半導體產業表明嚴正立場。美方將經貿科技問題政治化、泛安全化、工具化，不斷加碼對華芯片的出口管制，脅迫別國打壓中國的半導體產業，這種行徑阻礙了全球半導體產業的發展，最終將反噬自身，損人害己。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htmTue, 25 Feb 2025 15:47:00 +0800香港迪士尼Pixar及Marvel主題區擴建工程今年內展開https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htm<img alt="莫偉庭說，賓客人均消費增加，遠超定價範圍，反映園方在定價及市場促銷方面的工作有效。（林紹鋒攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793099\_1\_20250225163018.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 16:19:49 +0000webmaster@rthk.hk香港迪士尼Pixar及Marvel主題區擴建工程今年內展開https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htm<img alt="莫偉庭說，賓客人均消費增加，遠超定價範圍，反映園方在定價及市場促銷方面的工作有效。（林紹鋒攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793099\_1\_20250225163018.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 香港迪士尼樂園度假區宣布，將會自資擴建Pixar主題娛樂體驗，以及擴建Marvel主題區，相關工程今年內展開。
@@ -1771,4 +1746,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800澤連斯基：礦產協議能否成功取決於與特朗普對話https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htm<img alt="澤連斯基召開記者會提到他本周潛在的美國之行。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793387\_1\_20250227001527.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+烏克蘭總統澤連斯基表示，希望今個星期訪問華盛頓，與美國總統特朗普會面，討論美國對烏克蘭的未來支持及兩國之間的礦產協議。
+<br>
+<br/>
+澤連斯基在總統府的記者會說，烏美官員正在努力確認星期五在華盛頓與特朗普的會面。
+<br/>
+<br/>
+烏克蘭總理什梅加爾說，烏方與美方已制定礦產協議的最終版本，烏克蘭政府將會審議。澤連斯基形容這是一個開始及框架協議。雙方官員將進一步討論，以確定烏克蘭的安全保障性質以及協議中涉及的具體金額。他又說，協議能否取得成功，取決於與特朗普的對話。
+<br/>
+<br/>
+烏克蘭傳媒報道，美方就礦產協議關鍵條款作出讓步。按照新版協議，烏美將設立「烏克蘭重建投資基金」，由兩國共同注資和管理。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htmThu, 27 Feb 2025 00:15:00 +0800
