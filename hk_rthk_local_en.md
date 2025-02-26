@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:20:00 +0000webmaster@rthk.hkDemocratic Party initiates move to disbandhttps://news.rthk.hk/rthk/en/component/k2/1792526-20250220.htm<img alt="The leadership of the Democratic Party backed a motion to dissolve the organisation. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792526\_1\_20250220224834.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-The Democratic Party on Thursday evening announced its intention to disband following a central committee meeting to discuss its future.
-<br>
-<br/>
-But party chairman Lo Kin-hei said a general meeting would be held at a later date and the disbandment would only move ahead if 75 percent of attending members approved.
-<br/>
-<br/>
-“It is a decision that we make based on our understanding of the current political situation and things like that,” he said.
-<br/>
-<br/>
-Lo also said he would chair a three-person working group to handle the initial preparations for the party's shutdown.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792526-20250220.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792526-20250220.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792526-20250220.htmThu, 20 Feb 2025 22:48:00 +0800'Robust sports dispute resolution system essential'https://news.rthk.hk/rthk/en/component/k2/1792564-20250221.htm<img alt="The Law Society's Roden Tong says the 2025 Sports Law Mega Event looks at how sports law can create opportunities in the SAR. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792564\_1\_20250221084533.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:47:49 +0000webmaster@rthk.hk'Robust sports dispute resolution system essential'https://news.rthk.hk/rthk/en/component/k2/1792564-20250221.htm<img alt="The Law Society's Roden Tong says the 2025 Sports Law Mega Event looks at how sports law can create opportunities in the SAR. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792564\_1\_20250221084533.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 A four-day conference aimed at promoting the importance of sports law and arbitration is currently underway in Hong Kong.
@@ -2553,7 +2522,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htmWed, 26 Feb 2025 13:44:00 +0800Airport departure tax, govt fees to go uphttps://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm<img alt="Financial Secretary Paul Chan says the increase in air passenger departure tax won't have much of an impact on travellers. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793258\_1\_20250226132546.jpg&amp;q=65" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htmWed, 26 Feb 2025 13:44:00 +0800Airport departure tax, govt fees to go uphttps://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793258\_1\_20250226132546.jpg&amp;q=65" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Financial Secretary Paul Chan proposed in his budget blueprint on Wednesday an increase in air passenger departure tax and certain government fees and charges to help generate revenue, amid a budget deficit.
@@ -2648,7 +2617,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htmWed, 26 Feb 2025 14:30:00 +0800'Public sector pay freeze is the best choice'https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm<img alt="Regina Ip says freezing public servants' pay is the best option. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793303\_1\_20250226154954.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htmWed, 26 Feb 2025 14:30:00 +0800'Public sector pay freeze is the best choice'https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793303\_1\_20250226154954.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Executive Council convenor Regina Ip on Wednesday said she supported the government's decision to freeze public servants' pay.
@@ -2746,7 +2715,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htmWed, 26 Feb 2025 17:23:00 +0800Everyone needs to chip in, says cash-strapped FShttps://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm<img alt="Financial Secretary Paul Chan (second left) says the government currently has no plans to introduce any new taxes. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793329\_1\_20250226172752.jpg&amp;q=80" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htmWed, 26 Feb 2025 17:23:00 +0800Everyone needs to chip in, says cash-strapped FShttps://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793329\_1\_20250226172752.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Financial Secretary Paul Chan on Wednesday said he hopes the public understand that everyone has to play their part when it comes to the city's "belt-tightening", given the tough financial situation.
@@ -2786,4 +2755,62 @@ https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htmWed, 26 Feb 2025 17:35:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htmWed, 26 Feb 2025 17:35:00 +0800Views to HK$2 transport scheme tweaks mostly positivehttps://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm<img alt="Ho Lok-sang says the government has good intentions in trying to cut costs, but that the cap won't offer a major boost to the public coffers. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793286\_1\_20250226145154.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+An economics professor on Wednesday said he supports proposed changes to the HK$2 transport subsidy scheme but questioned whether capping the number of journeys would offer a significant boost to the public coffers.
+<br>
+<br/>
+The 240 monthly maximum number of trips mentioned by Financial Secretary Paul Chan in his budget works out at around eight per day on average in future.
+<br/>
+<br/>
+Ho Lok-sang, adjunct professor of Lingnan University’s Department of Economics, said the government has good intentions in trying to cut costs.
+<br/>
+<br/>
+But he also said very few over 60s make that many journeys, so the move won't save much for the government.
+<br/>
+<br/>
+“I don't think capping the number of trips for the elderly makes sense. It's not going to make much effect on the revenue anyway because there are relatively few people who will travel so many times,” he told RTHK.
+<br/>
+<br/>
+“I think there's really no point in making that kind of provision, because it makes people feel bad and it also tarnishes the government's image in terms of caring for the benefit of the well-being of the elderly.”
+<br/>
+<br/>
+Ho added that a small number of people could be affected by the cap, such as those who need to make a lot of transfers.
+<br/>
+<br/>
+New People's Party chairwoman Regina Ip, for her part, said she welcomes the changes to the fare scheme, which include offering an 80 percent discount for journeys that cost regular passengers HK$10 or more, rather than the current HK$2 flat rate subsidised trip.
+<br/>
+<br/>
+"I think the government measures introduced to make it sustainable are fairly moderate," said Ip, who's also convenor of the Executive Council.
+<br/>
+<br/>
+"(There is) no impact on the qualifying age of those benefiting from this concession, but it would help to solve the problem of paying very little fare for very long journeys."
+<br/>
+<br/>
+DAB party vice-chairman Holden Chow also supports the changes.
+<br/>
+<br/>
+"We believe the scheme unveiled by the (financial secretary) today is acceptable. It strikes a balance between the [need for] financial sustainability, but at the same time, will look after the needs of the elderly," he said.
+<br/>
+<br/>
+"The people who live further away from the city centre, including people in Tuen Mun or Tung Chung, they may actually be affected. I think going forward, we will try to explore with the government and see whether there's anything we could do to alleviate the pain of these people."
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htmWed, 26 Feb 2025 18:45:00 +0800

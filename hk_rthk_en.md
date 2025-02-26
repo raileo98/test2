@@ -1,30 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 10:19:59 +0000webmaster@rthk.hkHong Kong stocks close lowerhttps://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm<img alt="The Hang Seng Index finished down 0.6 percent at 23,341. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792970\_1\_20250224180846.jpg&amp;q=55" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 0.6 percent at 23,341.
-<br>
-<br/>
-The Shanghai Composite Index finished down 0.2 percent at 3,373, while the Shenzhen Component Index closed 0.1 percent lower at 10,983. (Xinhua)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htmMon, 24 Feb 2025 18:08:00 +0800Central and Wan Chai road closures for triathlon testhttps://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm<img alt="The 15th National Games Triathlon Test Event is set to take place at Central Harbourfront and Victoria Harbour on March 1 and 2. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792964\_1\_20250224173206.jpg&amp;q=30" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 10:47:49 +0000webmaster@rthk.hkCentral and Wan Chai road closures for triathlon testhttps://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm<img alt="The 15th National Games Triathlon Test Event is set to take place at Central Harbourfront and Victoria Harbour on March 1 and 2. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792964\_1\_20250224173206.jpg&amp;q=30" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Drivers are urged to steer clear of certain roads in Central and Wan Chai because of an upcoming triathlon test event.
@@ -2422,7 +2397,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htmWed, 26 Feb 2025 13:44:00 +0800Airport departure tax, govt fees to go uphttps://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm<img alt="Financial Secretary Paul Chan says the increase in air passenger departure tax won't have much of an impact on travellers. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793258\_1\_20250226132546.jpg&amp;q=65" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htmWed, 26 Feb 2025 13:44:00 +0800Airport departure tax, govt fees to go uphttps://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793258\_1\_20250226132546.jpg&amp;q=65" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Financial Secretary Paul Chan proposed in his budget blueprint on Wednesday an increase in air passenger departure tax and certain government fees and charges to help generate revenue, amid a budget deficit.
@@ -2633,7 +2608,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htmWed, 26 Feb 2025 15:13:00 +0800'Public sector pay freeze is the best choice'https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm<img alt="Regina Ip says freezing public servants' pay is the best option. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793303\_1\_20250226154954.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htmWed, 26 Feb 2025 15:13:00 +0800'Public sector pay freeze is the best choice'https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793303\_1\_20250226154954.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Executive Council convenor Regina Ip on Wednesday said she supported the government's decision to freeze public servants' pay.
@@ -2731,7 +2706,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htmWed, 26 Feb 2025 17:23:00 +0800Everyone needs to chip in, says cash-strapped FShttps://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm<img alt="Financial Secretary Paul Chan (second left) says the government currently has no plans to introduce any new taxes. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793329\_1\_20250226172752.jpg&amp;q=80" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htmWed, 26 Feb 2025 17:23:00 +0800Everyone needs to chip in, says cash-strapped FShttps://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793329\_1\_20250226172752.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Financial Secretary Paul Chan on Wednesday said he hopes the public understand that everyone has to play their part when it comes to the city's "belt-tightening", given the tough financial situation.
@@ -2796,4 +2771,62 @@ https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htmWed, 26 Feb 2025 17:38:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htmWed, 26 Feb 2025 17:38:00 +0800Views to HK$2 transport scheme tweaks mostly positivehttps://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm<img alt="Ho Lok-sang says the government has good intentions in trying to cut costs, but that the cap won't offer a major boost to the public coffers. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793286\_1\_20250226145154.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+An economics professor on Wednesday said he supports proposed changes to the HK$2 transport subsidy scheme but questioned whether capping the number of journeys would offer a significant boost to the public coffers.
+<br>
+<br/>
+The 240 monthly maximum number of trips mentioned by Financial Secretary Paul Chan in his budget works out at around eight per day on average in future.
+<br/>
+<br/>
+Ho Lok-sang, adjunct professor of Lingnan University’s Department of Economics, said the government has good intentions in trying to cut costs.
+<br/>
+<br/>
+But he also said very few over 60s make that many journeys, so the move won't save much for the government.
+<br/>
+<br/>
+“I don't think capping the number of trips for the elderly makes sense. It's not going to make much effect on the revenue anyway because there are relatively few people who will travel so many times,” he told RTHK.
+<br/>
+<br/>
+“I think there's really no point in making that kind of provision, because it makes people feel bad and it also tarnishes the government's image in terms of caring for the benefit of the well-being of the elderly.”
+<br/>
+<br/>
+Ho added that a small number of people could be affected by the cap, such as those who need to make a lot of transfers.
+<br/>
+<br/>
+New People's Party chairwoman Regina Ip, for her part, said she welcomes the changes to the fare scheme, which include offering an 80 percent discount for journeys that cost regular passengers HK$10 or more, rather than the current HK$2 flat rate subsidised trip.
+<br/>
+<br/>
+"I think the government measures introduced to make it sustainable are fairly moderate," said Ip, who's also convenor of the Executive Council.
+<br/>
+<br/>
+"(There is) no impact on the qualifying age of those benefiting from this concession, but it would help to solve the problem of paying very little fare for very long journeys."
+<br/>
+<br/>
+DAB party vice-chairman Holden Chow also supports the changes.
+<br/>
+<br/>
+"We believe the scheme unveiled by the (financial secretary) today is acceptable. It strikes a balance between the [need for] financial sustainability, but at the same time, will look after the needs of the elderly," he said.
+<br/>
+<br/>
+"The people who live further away from the city centre, including people in Tuen Mun or Tung Chung, they may actually be affected. I think going forward, we will try to explore with the government and see whether there's anything we could do to alleviate the pain of these people."
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htmWed, 26 Feb 2025 18:45:00 +0800

@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:19:59 +0000webmaster@rthk.hk丘應樺稱本港對外資具有吸引力是因為巿場自由公平https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793056\_1\_20250225112552.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-商務及經濟發展局局長丘應樺表示，截至去年底，本港有約一萬間來自香港以外的公司，按年增長一成，是有紀錄以來最多，有關數字是對香港的信任，將繼續令香港成為主要的投資地點。
-<br>
-<br/>
-丘應樺出席競爭事務委員會舉行的論壇，他致辭表示，香港是自由市場經濟體，對外資具有吸引力是因為本港巿場自由、公平及以規則為基礎。本港需要一個健康的競爭市場，能夠帶來更好的價格、產品和選擇。
-<br/>
-<br/>
-他又提到競委會的職責是調查反競爭行為、向公眾普及競爭法並就競爭事宜向政府提供建議，而堅實的競爭制度是香港成功的因素之一，特區政府將繼續支持競委會的工作，並繼續擁抱競爭。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htmTue, 25 Feb 2025 10:49:00 +0800據報特朗普政府向盟友施壓要求加強對中國晶片業限制措施https://news.rthk.hk/rthk/ch/component/k2/1793059-20250225.htm<img alt="美國政府據報有官員打算進一步限制Nvidia出口的晶片數量及種類。（公司圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793059\_1\_20250225111054.jpg&amp;q=70" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:47:49 +0000webmaster@rthk.hk據報特朗普政府向盟友施壓要求加強對中國晶片業限制措施https://news.rthk.hk/rthk/ch/component/k2/1793059-20250225.htm<img alt="美國政府據報有官員打算進一步限制Nvidia出口的晶片數量及種類。（公司圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793059\_1\_20250225111054.jpg&amp;q=70" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 彭博新聞報道，特朗普政府有意擴大在前總統拜登時期對中國在晶片方面的限制。
@@ -1768,4 +1740,31 @@ https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htmWed, 26 Feb 2025 17:35:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htmWed, 26 Feb 2025 17:35:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<br/>
+<div class="itemFullText">
+本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
+<br>
+<br/>
+財政儲備在下財政年度結束時，將跌至5803億元，相當於8個月政府開支。
+<br/>
+<br/>
+政府預計2025/26起的5年間，每年發債1500億至1950億元，支持未來發展項目，並考慮為北都項目發長期債券。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800

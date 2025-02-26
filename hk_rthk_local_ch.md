@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:20:00 +0000webmaster@rthk.hk財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm<img alt="政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793215\_1\_20250226114849.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:47:49 +0000webmaster@rthk.hk財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm<img alt="政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793215\_1\_20250226114849.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波表示，去年底成立的「發展低空經濟工作組」正審議首批監管沙盒試點項目的申請，即將宣布結果。政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。
@@ -1978,7 +1978,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htmWed, 26 Feb 2025 16:10:00 +0800【預算案一文看清】嚴控政府開支https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htmWed, 26 Feb 2025 16:10:00 +0800【預算案一文看清】嚴控政府開支https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm<img alt="【預算案一文看清】嚴控政府開支" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793307\_1\_20250226182327.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 <b>
 財政預算案2025嚴控政府開支
@@ -2429,7 +2430,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htmWed, 26 Feb 2025 17:26:00 +0800財政預算案2025｜自由黨張宇人稱探討規範籃球博彩達多贏局面https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htmWed, 26 Feb 2025 17:26:00 +0800財政預算案2025｜自由黨張宇人稱探討規範籃球博彩達多贏局面https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm<img alt="張宇人（右二）相信探討規範籃球博彩有助增加政府收入及打擊非法賭博。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793334\_1\_20250226184800.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 自由黨黨魁張宇人說，足球博彩稅過去多年累計為政府帶來大額收入，但未有鼓吹賭風，相信今次財政預算案提出探討規範籃球博彩，有助增加政府收入、打擊非法賭博，達致多贏局面。
 <br>
@@ -2480,4 +2482,206 @@ https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htmWed, 26 Feb 2025 18:13:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htmWed, 26 Feb 2025 18:13:00 +0800財政預算案2025｜調整二元優惠及公共交通費補貼計劃減省開支https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793340\_1\_20250226184627.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+預算案公布「二元優惠計劃」及「公共交通費用補貼計劃」調整方案，政府預料未來5年，可減省共約62億元開支。
+<br>
+<br/>
+「二元優惠計劃」受惠對象不變，新增每月240程限制，10元以上改為全額車費「兩折」。消息指最快明年9月實施。
+<br/>
+<br/>
+至於「公共交通費用補貼計劃」，今年6月開始，補貼領取門檻將提高至500元。消息指平均每月將會少10萬人受惠。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793340-20250226.htmWed, 26 Feb 2025 18:20:00 +0800財政預算案2025｜有長者稱調整2元乘車優惠合理　有人感失望https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm<br/>
+<div class="itemFullText">
+預算案宣布調整2元乘車優惠，有長者認為做法合理，可以節省政府資源，亦有長者感失望，擔心未來車費仍有機會上調。
+<br>
+<br/>
+有立法會議員認為，2元乘車優惠對長者及社會整體利益是利多於弊，希望就計劃的改動到此為止。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htmWed, 26 Feb 2025 18:23:00 +0800財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<br/>
+<div class="itemFullText">
+新一份財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。公務員編制在2026/27及27/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
+<br>
+<br/>
+財政司司長陳茂波相信，公務員會理解及支持凍薪的決定，被問到有否考慮高官減薪，他說在考慮經濟持續增長等因素後，決定問責官員亦凍薪。
+<br/>
+<br/>
+預算案又提出，25/26年度節省政府經常開支的幅度，由原來1%增加至2%，延續兩年至2027/28年度。連同24/25年度1%的減幅，累計削減幅度7%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htmWed, 26 Feb 2025 18:26:00 +0800財政預算案2025｜上調飛機乘客離境稅　檢討交通違例定額罰款https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm<br/>
+<div class="itemFullText">
+預算案提出多項措施增加收入，包括將每名飛機乘客離境稅上調至200元；檢討俗稱「牛肉乾」的交通違例事項定額罰款；並研究徵收陸路離境的私家車「邊境建設費」等。
+<br>
+<br/>
+財政司司長陳茂波表示，希望體現「用者自付」原則，收回部分開支，考慮時亦顧及到香港的競爭力，以及盡量減少對一般市民的影響。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htmWed, 26 Feb 2025 18:38:00 +0800財政預算案2025｜提向旅發局撥逾12.3億　落實無處不旅遊https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm<br/>
+<div class="itemFullText">
+預算案提出向旅發局撥款超過12億3千萬元，落實「無處不旅遊」。
+<br>
+<br/>
+政府計劃在中環、灣仔、北角及尖沙咀海濱加設輕食飲品攤檔，並將紅磡站南面的臨海及前碼頭用地，打造成海濱新地標。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜探討規範籃球博彩邀馬會交建議　明光社反對https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm<br/>
+<div class="itemFullText">
+財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
+<br>
+<br/>
+關注團體明光社表明反對，批評政府為減赤而不擇手段。明愛展晴中心表示，曾處理個別年輕人參與外圍籃球賭博的個案，擔心會令更多年輕人受影響。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<br/>
+<div class="itemFullText">
+財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+<br>
+<br/>
+政府又預計下年度地價收入預算為210億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<br/>
+<div class="itemFullText">
+本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
+<br>
+<br/>
+財政儲備在下財政年度結束時，將跌至5803億元，相當於8個月政府開支。
+<br/>
+<br/>
+政府預計2025/26起的5年間，每年發債1500億至1950億元，支持未來發展項目，並考慮為北都項目發長期債券。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800
