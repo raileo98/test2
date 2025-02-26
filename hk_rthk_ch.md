@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 15:34:11 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 15:58:21 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5801,7 +5801,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htmWed, 26 Feb 2025 23:16:00 +0800機管局：正積極推動財政預算案中提及的機場城市發展計劃https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htmWed, 26 Feb 2025 23:16:00 +0800機管局：正積極推動財政預算案中提及的機場城市發展計劃https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm<img alt="機管局表示，正積極推動財政預算案中提及的機場城市發展計劃，並以全新品牌SKYTOPIA向國際商界推廣。（機管局提供）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793385\_1\_20250226233506.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 機管局表示，正積極推動財政預算案中提及的機場城市發展計劃，並以全新品牌SKYTOPIA向國際商界推廣。機管局的願景是把SKYTOPIA建設成吸引訪客，以至推動香港經濟的世界級領先地標。
 <br>
@@ -5828,4 +5829,35 @@ https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htmWed, 26 Feb 2025 23:30:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htmWed, 26 Feb 2025 23:30:00 +0800海洋公園稱將善用大熊貓及盛事經濟機遇豐富香港旅遊體驗https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm<img alt="海洋公園公司主席龐建貽表示，將繼續善用大熊貓及盛事經濟帶來的機遇，豐富香港的旅遊體驗。（資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793386\_1\_20250226234124.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+海洋公園歡迎政府在《財政預算案》加大力度落實「無處不旅遊」理念以及《香港旅遊業發展藍圖2.0》。園方亦歡迎《財政預算案》支持開拓中東和東盟旅客客源，相信有關推廣將有助擴闊公園的海外市場。
+<br>
+<br/>
+海洋公園最近榮獲穆斯林旅遊推廣公司「新月評等」的黃金級認證，園方稱，是香港少數獲此最高級別認證的旅遊景點。
+<br/>
+<br/>
+海洋公園公司主席龐建貽表示，將繼續善用大熊貓及盛事經濟帶來的機遇，並通過與旅遊、零售、文創、體育、保育、教育及其他相關界別合作，豐富香港的旅遊體驗，全力推動熊貓熱潮及加強熊貓主題之特色及零售體驗。
+<br/>
+<br/>
+旅遊業監管局主席馬豪輝支持一系列促進旅遊業發展的措施，旅監局會繼續透過履行規管、培訓及支援業界的角色，全面提升旅遊從業員的專業化，同時致力擴大人才庫吸納更多年青人加入旅遊業，更好發揮本港旅遊業的優勢，進一步建設香港成為可持續旅遊發展的示範點。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htmWed, 26 Feb 2025 23:41:00 +0800
