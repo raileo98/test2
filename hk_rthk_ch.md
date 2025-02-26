@@ -1,61 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 19:51:09 +0000webmaster@rthk.hk人民幣兌美元收市升逾90點子https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm<img alt="人民幣收市報7.2547兌1美元，較上日收市升94點子。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793328\_1\_20250226172003.jpg&amp;q=35" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-美元偏弱，人民幣兌美元收市上升，報7.2547兌1美元，較上日收市升94點子。中間價再創逾1個月低位，報7.1732兌1美元，與市場預測偏離近800點子。
-<br>
-<br/>
-市場人士表示，關稅不確定性重新成為市場焦點，美國經濟數據表現可能加劇未來政策走向不明朗，美元走勢或較反覆，人民幣將跟隨，有待外部因素明朗化。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htmWed, 26 Feb 2025 17:28:00 +0800泰國巴真府有旅遊巴翻側至少18死逾30傷https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htm<img alt="事發在當地凌晨3時許，旅遊巴在巴真府一條高速公路的下坡路段失控翻側。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793327\_1\_20250226171635.jpg&amp;q=55" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-泰國巴真府有旅遊巴翻側，造成至少18人死亡，超過30人受傷。
-<br>
-<br/>
-事發在當地凌晨3時許，旅遊巴當時載著參加考察團的乘客，從汶干府開往羅勇府，但在巴真府一條高速公路的下坡路段失控，滑出路面翻側，救援人員到場將傷者送院。
-<br/>
-<br/>
-警方懷疑旅遊巴的煞車系統故障，導致失控。
-<br/>
-<br/>
-總理佩通坦在社交網站上發文，對事故遇難者及家屬表示哀悼，並責成交通部調查。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793327-20250226.htmWed, 26 Feb 2025 17:33:00 +0800尹錫悅彈劾案進入法院評議階段　韓聯社料下月中宣判https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm<img alt="尹錫悅彈劾案的庭審昨日結束後，憲法法院今日起進行評議。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793330\_1\_20250226173037.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 20:00:16 +0000webmaster@rthk.hk尹錫悅彈劾案進入法院評議階段　韓聯社料下月中宣判https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm<img alt="尹錫悅彈劾案的庭審昨日結束後，憲法法院今日起進行評議。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793330\_1\_20250226173037.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 南韓總統尹錫悅彈劾案的庭審昨日結束後，憲法法院今日起進行評議，韓聯社預計法院下月中宣判。
@@ -354,32 +298,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-<br>
-<br/>
-政府又預計下年度地價收入預算為210億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
@@ -438,7 +357,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+<br>
+<br/>
+政府又預計下年度地價收入預算為210億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
@@ -1715,4 +1659,57 @@ https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htmThu, 27 Feb 2025 03:26:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htmThu, 27 Feb 2025 03:26:00 +0800特朗普相信美中關係會是好的關係https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm<img alt="美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793398\_1\_20250227034730.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。
+<br>
+<br/>
+特朗普說，很多說法認為美國容不下中國，這並不正確，他認為中國企業投資美國是好事，會為美國帶來資金，美國企業也會到中國投資，與中國合作，他相信美中關係將會是好的關係。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800教宗方濟各病情有改善　腎功能不足情況已緩解https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm<img alt="梵蒂岡指教宗方濟各病情有改善，有信眾在聖伯多祿廣場為教宗祈禱。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793397\_1\_20250227033208.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+教宗方濟各繼續留院，病情有改善，腎功能不足的情況已緩解。
+<br>
+<br/>
+教宗已留醫一個多星期，梵蒂岡指星期二晚做的電腦掃描顯示，他的肺炎情況正常，而各項血液化驗亦顯示健康狀況持續改善，臨床病徵過去24小時進一步好轉。
+<br/>
+<br/>
+教宗繼續接受高流量的氧氣治療，無再出現哮喘型呼吸危機，並且有處理公務。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htmThu, 27 Feb 2025 03:54:00 +0800

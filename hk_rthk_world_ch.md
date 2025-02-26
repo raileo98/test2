@@ -1,70 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 19:51:10 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
-<br>
-<br/>
-國家通訊社引述一名議員說，有關「戰時無法舉行選舉」的議案周二經過再次投票，獲得268票支持，超過所需最低的226票。議案前一天因支持票數不足未獲通過。
-<br/>
-<br/>
-國會發表聲明說，烏克蘭將在「全面、公正和持久和平」獲得保障後，依照國會決定宣布舉行選舉。聲明強調，澤連斯基是經由選舉產生的總統，民眾和國會沒有質疑其合法性。在新總統就職前，澤連斯基必須依照憲法規定繼續行使權力。
-<br/>
-<br/>
-美國總統特朗普近日呼籲烏克蘭盡快停火並舉行總統選舉。
-<br/>
-<br/>
-澤連斯基2019年5月就任烏克蘭總統，任期至去年5月。烏克蘭其後因國家進入戰時狀態未如期於去年3月舉行新一屆總統選舉。根據澤連斯基簽署的最新總統令，國家戰時狀態已延長至今年5月9日。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htmWed, 26 Feb 2025 00:17:00 +0800施紀賢宣布英國國防開支佔GDP比重將增至2.5%https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htm<img alt="施紀賢在國會下議院發言，宣布提高國防開支佔比。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793154\_1\_20250226013824.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-英國首相施紀賢宣布，英國到2027年，國防開支佔國內生產總值的比重，將提高至2.5%，意味國防開支將增加134億英鎊。
-<br>
-<br/>
-英國目前的國防開支約佔GDP的2.3%。施紀賢本周將前往美國訪問，與總統特朗普會面。特朗普之前要求北約成員國將國防開支佔GDP比重提升到5%。
-<br/>
-<br/>
-施紀賢星期二在國會下議院說，將會有一些「艱難抉擇」，但這將是「冷戰結束以來最大的持續國防支出增加」。他表示，為增加國防支出，政府將在2027年把發展援助支出佔GDP比重從0.5%削減至0.3%，不過，英國將繼續在烏克蘭、巴勒斯坦加沙地帶等地發揮重要人道主義作用。
-<br/>
-<br/>
-施紀賢還說，如果工黨政府在2029年贏得英國大選，英國國防開支佔GDP比重將增加到3%。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793154-20250226.htmWed, 26 Feb 2025 01:38:00 +0800伊朗外長：不會在壓力或制裁下進行核問題談判https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm<img alt="阿拉格齊（右）與到訪的拉夫羅夫會談後共同會見記者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793156\_1\_20250226015543.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:00:14 +0000webmaster@rthk.hk伊朗外長：不會在壓力或制裁下進行核問題談判https://news.rthk.hk/rthk/ch/component/k2/1793156-20250226.htm<img alt="阿拉格齊（右）與到訪的拉夫羅夫會談後共同會見記者。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793156\_1\_20250226015543.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 伊朗外長阿拉格齊強調，伊朗不會在「壓力、威脅或制裁」下進行談判。
@@ -1798,4 +1733,57 @@ https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htmThu, 27 Feb 2025 03:26:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htmThu, 27 Feb 2025 03:26:00 +0800特朗普相信美中關係會是好的關係https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm<img alt="美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793398\_1\_20250227034730.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。
+<br>
+<br/>
+特朗普說，很多說法認為美國容不下中國，這並不正確，他認為中國企業投資美國是好事，會為美國帶來資金，美國企業也會到中國投資，與中國合作，他相信美中關係將會是好的關係。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800教宗方濟各病情有改善　腎功能不足情況已緩解https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm<img alt="梵蒂岡指教宗方濟各病情有改善，有信眾在聖伯多祿廣場為教宗祈禱。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793397\_1\_20250227033208.jpg&amp;q=70" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+教宗方濟各繼續留院，病情有改善，腎功能不足的情況已緩解。
+<br>
+<br/>
+教宗已留醫一個多星期，梵蒂岡指星期二晚做的電腦掃描顯示，他的肺炎情況正常，而各項血液化驗亦顯示健康狀況持續改善，臨床病徵過去24小時進一步好轉。
+<br/>
+<br/>
+教宗繼續接受高流量的氧氣治療，無再出現哮喘型呼吸危機，並且有處理公務。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htmThu, 27 Feb 2025 03:54:00 +0800

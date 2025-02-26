@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 19:51:09 +0000webmaster@rthk.hk全國涉外仲裁人才培訓班　學員掌握國際仲裁及普通法運作模式https://news.rthk.hk/rthk/ch/component/k2/1792937-20250224.htm<img alt="林定國表示，培訓班不僅讓學員掌握國際仲裁及普通法運作模式，還促進內地與香港法律界的互動交流。（林定國社交網站圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792937\_1\_20250224155159.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-律政司司長林定國表示，香港國際法律人才培訓學院與司法部合辦的全國涉外仲裁人才培訓班（香港）第一組39名學員，上周完成培訓課程；透過一系列講座、交流和實地參訪，深入了解香港的仲裁制度。學員普遍反映，課程既有理論深度，又緊扣實務需要，透過與香港法律業界不同人士、機構的互動交流及案例研討，他們對香港普通法系統有直觀而深刻的了解，深感香港的法律制度在「一國兩制」下，既尊重傳統，又積極創新。
-<br>
-<br/>
-林定國在社交網頁表示，培訓班不僅讓學員掌握國際仲裁及普通法運作模式，還促進內地與香港法律界的互動交流。有學員表示，認識到兩地法律制度雖處不同的法系，兩地仲裁既能保持各自的特色，又具有互相借鑒和合作的空間，可以在跨境爭議解決、人才共享、仲裁制度推介和學術研究等方面開展交流和合作。
-<br/>
-<br/>
-他又說培訓班今日迎來第二組41名學員，將延續內地與香港法律人才的交流與學習。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1792937-20250224.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1792937-20250224.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1792937-20250224.htmMon, 24 Feb 2025 15:33:00 +0800全國兩會｜趙樂際主持十四屆人大常委會十四次會議首次全體會議https://news.rthk.hk/rthk/ch/component/k2/1792938-20250224.htm<img alt="趙樂際主持第十四屆全國人大常委會第十四次會議首次全體會議。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792938\_1\_20250224153910.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=rthk - 大中華© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 大中華https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=2&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:00:14 +0000webmaster@rthk.hk全國兩會｜趙樂際主持十四屆人大常委會十四次會議首次全體會議https://news.rthk.hk/rthk/ch/component/k2/1792938-20250224.htm<img alt="趙樂際主持第十四屆全國人大常委會第十四次會議首次全體會議。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792938\_1\_20250224153910.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 新華社報道，第十四屆全國人大常委會第十四次會議，上午在北京人民大會堂舉行第一次全體會議。常委會組成人員162人出席，會議由委員長趙樂際主持。
@@ -1704,4 +1676,29 @@ https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800特朗普相信美中關係會是好的關係https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm<img alt="美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793398\_1\_20250227034730.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。
+<br>
+<br/>
+特朗普說，很多說法認為美國容不下中國，這並不正確，他認為中國企業投資美國是好事，會為美國帶來資金，美國企業也會到中國投資，與中國合作，他相信美中關係將會是好的關係。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800

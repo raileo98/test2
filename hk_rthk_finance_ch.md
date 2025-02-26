@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 19:51:09 +0000webmaster@rthk.hk財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm<img alt="旅發局稱定必謹慎運用政府資源，精準制訂宣傳策略。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793294\_1\_20250226153056.jpg&amp;q=70" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波宣布，為落實「無處不旅遊」的理念及《香港旅遊業發展藍圖2.0》，來年會向旅發局撥款12億3500萬元。
-<br>
-<br/>
-旅發局主席彭耀佳表示，在資源緊絀的環境下，旅發局感謝政府繼續調撥資源支持旅遊業的發展。旅發局定必謹慎運用政府資源，精準制訂宣傳策略，達至最大的效益。旅發局將加強宣傳，同時用好中央惠港措施，把握恢復和擴大深圳居民「一簽多行」的契機，充分發揮香港作為內地及海外城市「超級聯繫人」的角色，吸引旅客展開「一程多站」旅程，經香港前赴大灣區及其他內地城市。
-<br/>
-<br/>
-旅發局會運用資源，大力推動會議、展覽及獎勵旅遊和郵輪旅遊，並全力開拓中東和東盟的客源市場，加強推廣香港作為「穆斯林友好」旅遊目的地的形象。並將與國際品牌合作，串連盛事和香港的特色旅遊元素，為旅客創造全年精彩體驗。旅發局亦會促進智慧旅遊，優化 Discover Hong Kong 一站式旅遊資訊平台及提供「實時旅遊地圖」。
-<br/>
-<br/>
-旅發局將於稍後公布未來一年的工作計劃。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htmWed, 26 Feb 2025 15:22:00 +0800財政預算案2025｜消息稱相信印花稅措施可刺激低樓價物業交投https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm<img alt="政府消息人士說不想納稅人全無受惠寬減措施，因此在薪俸稅等方面作出上限劃一減半。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793295\_1\_20250226153144.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 20:00:15 +0000webmaster@rthk.hk財政預算案2025｜消息稱相信印花稅措施可刺激低樓價物業交投https://news.rthk.hk/rthk/ch/component/k2/1793295-20250226.htm<img alt="政府消息人士說不想納稅人全無受惠寬減措施，因此在薪俸稅等方面作出上限劃一減半。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793295\_1\_20250226153144.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 徵收100元印花稅的物業價值上限，即日起由300萬元，提高至400萬元。政府消息人士指，相信可刺激低樓價物業的交投，若再拉高物業價值上限，會導致整體稅階改變。
@@ -1809,4 +1778,29 @@ https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htmWed, 26 Feb 2025 23:16:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htmWed, 26 Feb 2025 23:16:00 +0800特朗普相信美中關係會是好的關係https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm<img alt="美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793398\_1\_20250227034730.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。
+<br>
+<br/>
+特朗普說，很多說法認為美國容不下中國，這並不正確，他認為中國企業投資美國是好事，會為美國帶來資金，美國企業也會到中國投資，與中國合作，他相信美中關係將會是好的關係。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htmThu, 27 Feb 2025 03:52:00 +0800
