@@ -1,39 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:57:30 +0000webmaster@rthk.hk據報特朗普政府向盟友施壓要求加強對中國晶片業限制措施https://news.rthk.hk/rthk/ch/component/k2/1793059-20250225.htm<img alt="美國政府據報有官員打算進一步限制Nvidia出口的晶片數量及種類。（公司圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793059\_1\_20250225111054.jpg&amp;q=70" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-彭博新聞報道，特朗普政府有意擴大在前總統拜登時期對中國在晶片方面的限制。
-<br>
-<br/>
-報道說，特朗普政府正考慮制定更嚴格的半導體限制措施，並向主要盟友施壓，要求加強對中國晶片業限制。
-<br/>
-<br/>
-消息人士說，美國官員近期與日本、荷蘭官員會面，討論限制東京電子(Tokyo Electron)和ASML在中國維護半導體設備的能力。
-<br/>
-<br/>
-報道又說，會議討論考慮制裁特定的中國公司，亦有美國政府官員打算進一步限制Nvidia出口的晶片數量及種類。
-<br/>
-<br/>
-中方一直強調，美方將經貿科技問題政治化、泛安全化、工具化，不斷加碼對華晶片出口管制，脅迫別國打壓中國半導體產業，這種行徑阻礙全球半導體產業發展，最終將反噬自身，損人害己。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793059-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793059-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793059-20250225.htmTue, 25 Feb 2025 11:21:00 +0800尹錫悅彈劾案今日進行最後一次庭審辯論　或下月中有判決結果https://news.rthk.hk/rthk/ch/component/k2/1793058-20250225.htm<img alt="尹錫悅下午將就彈劾案出席最後一次庭審辯論。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793058\_1\_20250225111020.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:25:22 +0000webmaster@rthk.hk尹錫悅彈劾案今日進行最後一次庭審辯論　或下月中有判決結果https://news.rthk.hk/rthk/ch/component/k2/1793058-20250225.htm<img alt="尹錫悅下午將就彈劾案出席最後一次庭審辯論。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793058\_1\_20250225111020.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 南韓憲法法院今日下午將對總統尹錫悅彈劾案進行最後一次庭審辯論，預計可能下月中有判決結果。
@@ -1740,7 +1706,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htmWed, 26 Feb 2025 17:35:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793330-20250226.htmWed, 26 Feb 2025 17:35:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
 <br>
@@ -1767,4 +1734,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800哈馬斯周四移交4具以色列人質遺體　以色列同時將釋放600巴人https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htm<img alt="以色列有大批民眾在馬路送別遇難人質。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793357\_1\_20250226190126.jpg&amp;q=45" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+巴勒斯坦武裝組織哈馬斯表示，將於星期四移交4名以色列人質的遺體，以色列同時會釋放602名巴勒斯坦囚犯。
+<br>
+<br/>
+以色列原定上星期六釋放一批巴勒斯坦囚犯，但以哈馬斯多次舉行羞辱人質的儀式，並利用人質進行宣傳為由，決定無限期推遲釋放巴人囚犯的安排，在埃及斡旋下，以色列與哈馬斯星期三晚達成協議，推進互換被扣押人員。
+<br/>
+<br/>
+加沙停火協議第一階段將於星期六結束，根據協議，哈馬斯在第一階段將會以33名以色列人質，換取以色列釋放約1900名在囚巴人，至今有29名人質或人質的遺體移交給以色列。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htmWed, 26 Feb 2025 19:07:00 +0800

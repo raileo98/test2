@@ -1,42 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 10:57:30 +0000webmaster@rthk.hk財政預算案2025｜消息指提早公布凍薪冀公務員提早準備https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm<img alt="消息人士說，今次提早公布凍薪是希望公務員提早準備，減低不明朗因素。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793271\_2\_20250226144033.jpg&amp;q=35" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政預算案提出強化財政整合計劃，以應對財赤，當中包括行政，立法，司法機關，區議員及全體公務員，在2025/26年度一致凍薪。
-<br>
-<br/>
-政府消息人士表示，今次是首次在公務員薪酬趨勢調查有結果前，宣布凍薪，而有關調查在每年2月啟動，但考慮到再進行相關調查意義已不大，因此今年好大機會不會再做，當局亦不會揣測今年的調查結果。
-<br/>
-<br/>
-消息人士說，今次提早公布凍薪是希望公務員提早準備，減低不明朗因素。至於凍薪可以節省多少開支，消息人士指，由於不知道調查結果，所以難作估算，但去年加薪3%，開支就達到90億元，認為公眾可參考相關數字。
-<br/>
-<br/>
-另外，預算案亦提出加大「資源效率優化計劃」，公務員編制在2026/27及2027/28年度，每年減2%，到2027年4月，本屆政府將削減一萬個職位。
-<br/>
-<br/>
-消息人士表示，並無規定要削減哪一類公務員職位，各政策局可視乎運作需要作出決定，因此減少職位後，可以節省多少開支，仍有待估算，目前是言之尚早。至於增薪點制度將維持不變，政府亦不會就各部門，在為員工進行評估時，增加額外要求。
-<br/>
-<br/>
-至於會否削減公務員福利及津貼，消息人士指，這些屬合約要求，政府無計劃改變。另外，當局亦無意推出自願離職計劃，因參考2000年推出計劃時，未計及公務員退休金，政府的開支就達到40億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793271-20250226.htmWed, 26 Feb 2025 14:07:00 +0800財政預算案2025｜公務員和行政立法機關人員等凍薪https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm<img alt="財政預算案預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793272\_1\_20250226143400.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 11:25:23 +0000webmaster@rthk.hk財政預算案2025｜公務員和行政立法機關人員等凍薪https://news.rthk.hk/rthk/ch/component/k2/1793272-20250226.htm<img alt="財政預算案預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793272\_1\_20250226143400.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 新一份財政預算案提出，公務員編制在2026/27及2027/28年度，每年分別減百分之2，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
@@ -1068,12 +1031,6 @@ cnews@rthk.hk
 財政司司長陳茂波出席記者會時表示，過去幾年，本港股票市場進行不同改革，包括同股不同權、特專科技公司上市制度等，目標令金融市場能與時並進，將實體經濟發生的變化，吸納到本港市場，讓相關企業能來港上市，以提升市場吸引力，盤活市場流動性，相信股票印花稅收入自然會提升，金融市場漸趨暢旺，亦有助帶動其他經濟環節。
 <br>
 <br/>
-新一份財政預算案提到，政府即將發表第二份發展虛擬資產政策宣言。財經事務及庫務局局長許正宇指出，第一份宣言著重構造可持續的虛擬資產生態圈，包括提出監管虛擬資產交易所及推出相關ETF產品等措施，並予已落實。
-<br/>
-<br/>
-許正宇說，第二份政策宣言目標以更宏觀角度，進一步促進市場可持續發展，相信在當前不確定環境下，更需要一個穩定、可信、可持續的虛擬資產市場環境。
-<br/>
-<br/>
 陳茂波補充指，金管局與證監會推出金融科技監管沙盒，以盡早反饋業界，同時推動與深圳在金融科技方面聯合設立沙盒，以鼓勵跨境金融創新。
 </br>
 </div>
@@ -1184,6 +1141,12 @@ cnews@rthk.hk
 <br>
 <br/>
 財經事務及庫務局局長許正宇出席記者會時表示，科技企業來港申請上市的過程前，可能需要就較重大的監管問題進行諮詢，措施希望給予發行人靈活性，在遞交申請前能夠預先溝通，從監管角度，聚焦解決他們申請時可能遇到的問題，令上市申請更加順利。
+<br/>
+<br/>
+新一份財政預算案提到，政府即將發表第二份發展虛擬資產政策宣言。財經事務及庫務局局長許正宇指出，第一份宣言著重構造可持續的虛擬資產生態圈，包括提出監管虛擬資產交易所及推出相關ETF產品等措施，並予已落實。
+<br/>
+<br/>
+許正宇說，第二份政策宣言目標以更宏觀角度，進一步促進市場可持續發展，相信在當前不確定環境下，更需要一個穩定、可信、可持續的虛擬資產市場環境。
 </br>
 </div>
 <br/>
@@ -1616,7 +1579,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
 <br>
@@ -1643,7 +1607,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
 <br>
@@ -1667,7 +1632,8 @@ https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<br/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
 <div class="itemFullText">
 選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
 <br>
@@ -1747,4 +1713,34 @@ https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800財政預算案2025｜消息：無意重推俗稱肥雞餐公僕提前離職計劃https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm<br/>
+<div class="itemFullText">
+新一份預算案宣布，所有行政、立法、司法機關及區議會全體人員一致凍薪。政府消息人士回應為何問責官員只「凍薪不減薪」時解釋，考慮到過去兩年經濟持續增長，預期今年會持續增長勢頭，私人市場更出現有人工加，因此認為全體公務員、立法會及司法機關等「愛國者治港」整體人員一起凍薪的做法較為合適。
+<br>
+<br/>
+在強化財政整合計劃下，未來三年每年節省政府經常開支2%，合共削減585億元，預料現屆政府任內能削減約1萬個職位。消息人士形容，各政府部門每年減經常開支2%是硬指標，部門首長可因應自身情況調撥資源，減人手或其他開支的情況下，維持現有服務。但消息人士強調，無意重推俗稱「肥雞餐」的公務員提前離職計劃，以削減人手，因當年有關計劃用了40億，但離開政府的人都是就業市場上容易找到工作的優秀人才，政府不想再見到這些情況出現。
+<br/>
+<br/>
+預算案提出擴大發債規模，預計未來5年，每年發債1500億至1950億，消息人士指，發債不是用作經常開支，而是投資未來，部分是用於償還到期的短期債務再融資，其餘大部分用作北部都會區提速發展的工程開支。消息人士強調，政府債務與本地生產總值的比率維持在16.5 ％水平，比較大部份先進經濟體，香港的債務水平屬於非常隱健和可控。
+<br/>
+<br/>
+至於財赤下仍有退稅「派糖」，沒有完全取消，是考慮到在諮詢期間掌握到的民情，希望在力所能及的情況下，照顧中產人士的感受。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htmWed, 26 Feb 2025 19:16:00 +0800
