@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=rthk - 體育© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 18:23:49 +0000webmaster@rthk.hk啟德體育園後天演練6.3萬人參與　主場館關閉天幕測試外賓到訪https://news.rthk.hk/rthk/ch/component/k2/1791650-20250214.htm<img alt="周一鳴說，今次演練中，主場館會關閉天幕，會測試有要員或外賓到訪的場景。（廖漢榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791650\_1\_20250214170747.jpg&amp;q=55" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-啟德體育園將於周日再舉行涉及綜藝活動的大型演練，會是體育園3月1日正式開幕前最後一次演練。主場館等三個場館均會使用，將有63000人參與，當中約一半為公眾人士，其餘為公務員，是最多公眾人士參與的一次。
-<br>
-<br/>
-跨部門演練小組執行長、警務處副處長周一鳴說，今次演練中，主場館會關閉天幕，會測試有要員或外賓到訪的場景，因應參與者的年齡更多樣化，希望從中觀察他們使用場館的情況及行為表現，以優化進場及離場的安排。
-<br/>
-<br/>
-他表示，三個場館周日下午3時起開放入場，約5萬人會持票進入主場館，要經過安檢及驗票程序，至於到體藝館及青年運動場的人士不用安檢，現場屆時會播放影片，觀眾要在當日下午5時前就座，當日演練預計傍晚6時完結，當局會收集人群流向及交通數據再作分析。
-<br/>
-<br/>
-體育專員蔡健斌說，當日主場館將舉行綜藝活動，由於參與團體多元化，人數及團體數目較以往多，表演及幕後工作人員達600人，期望測試製作團隊在體育園的安排是否完善。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1791650-20250214.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1791650-20250214.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1791650-20250214.htmFri, 14 Feb 2025 16:58:00 +0800亞冬會今晚閉幕　港隊首次參與男子冰壺項目位居第4https://news.rthk.hk/rthk/ch/component/k2/1791653-20250214.htm<img alt="男子冰壺男子銅牌戰，中國香港隊選手甄浩天（左）、鄭政楠在比賽中擦冰。（新華社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791653\_1\_20250214171430.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=rthk - 體育© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 體育https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=6&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 18:41:56 +0000webmaster@rthk.hk亞冬會今晚閉幕　港隊首次參與男子冰壺項目位居第4https://news.rthk.hk/rthk/ch/component/k2/1791653-20250214.htm<img alt="男子冰壺男子銅牌戰，中國香港隊選手甄浩天（左）、鄭政楠在比賽中擦冰。（新華社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1791653\_1\_20250214171430.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 在哈爾濱舉行的亞洲冬季運動會今晚閉幕，閉幕式在哈爾濱國際會展體育中心舉行，國務院總理李強將會出席。
@@ -1812,4 +1781,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htmWed, 26 Feb 2025 07:13:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htmWed, 26 Feb 2025 07:13:00 +0800國際奧委會主席巴赫辭任　下月選出新主席https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm<img alt="國際奧委會主席巴赫辭任，新主席將於下月在希臘選出。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793392\_1\_20250227022532.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+國際奧委會接納主席巴赫辭任委員，今年6月23日生效，並由新主席接任。新主席會在下個月於希臘選出。
+<br>
+<br/>
+巴赫早前在巴黎的會議上表明不會尋求連任後，今個星期向執行委員會提出請辭。
+<br/>
+<br/>
+71歲的巴赫是前德國劍擊運動員，1991年獲選為國際奧委會委員，2013年當選主席，並在2021年連任，任期4年。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800

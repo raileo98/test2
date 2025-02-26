@@ -1,89 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 18:23:50 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱兩蚊兩折助控制計劃未來開支增幅https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793321\_1\_20250226171233.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-預算案提出調整2元乘車優惠計劃，設每月240程上限，10元以上車費改為全額車費的「兩折」。財政司司長陳茂波說「兩蚊兩折」方案有助控制有關計劃的未來開支增長幅度。
-<br>
-<br/>
-他表示，計劃的政策原意很好，讓長者更願意外出多走動，有一定社會效益，認為有關調整可兼顧政策原意，亦可控制項目開支長遠增長，當中已盡量求取平衡，希望大家明白理解，政府採取盡量寬鬆做法。
-<br/>
-<br/>
-財經事務及庫務局常任秘書長黎志華說需要考量長者出行實際情況，不要構成不必要滋擾。他舉例說調整計劃後，一日8次出行的上限好像很多，但並非每名長者都居於港鐵站附近，可以一程車到達目的地，例如前往醫院或要轉駁其他交通工具，因此政策需要有一定的靈活性。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793321-20250226.htmWed, 26 Feb 2025 16:49:00 +0800財政預算案2025｜許正宇：開通科企專線冀申請上市過程更順利https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm<img alt="許正宇表示，科技企業來港申請上市的過程前，可能需要就較重大的監管問題進行諮詢。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793322\_1\_20250226170746.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一份財政預算案提到，港交所正籌備開通「科企專線」，有傳媒關注與上市規則18C章容許特專科技公司上市的機制有何區別。
-<br>
-<br/>
-財經事務及庫務局局長許正宇出席記者會時表示，科技企業來港申請上市的過程前，可能需要就較重大的監管問題進行諮詢，措施希望給予發行人靈活性，在遞交申請前能夠預先溝通，從監管角度，聚焦解決他們申請時可能遇到的問題，令上市申請更加順利。
-<br/>
-<br/>
-新一份財政預算案提到，政府即將發表第二份發展虛擬資產政策宣言。財經事務及庫務局局長許正宇指出，第一份宣言著重構造可持續的虛擬資產生態圈，包括提出監管虛擬資產交易所及推出相關ETF產品等措施，並予已落實。
-<br/>
-<br/>
-許正宇說，第二份政策宣言目標以更宏觀角度，進一步促進市場可持續發展，相信在當前不確定環境下，更需要一個穩定、可信、可持續的虛擬資產市場環境。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htmWed, 26 Feb 2025 16:52:00 +0800財政預算案2025｜陳茂波稱有信心達到財政平衡目標https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm<img alt="陳茂波預計在發債後的借貸比率最高達16.5%，與全球比較仍是健康穩健水平。（游樹榮攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793323\_1\_20250226181628.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波表示，特區政府推出強化版的財政整合計劃，以節流為主，開源為輔，加上善用政府資源，適度增加收入，大力削減開支，控制編制增長，政府經營帳戶將逐步恢復平衡，並將錄得盈餘，當局對達到財政平衡的目標有信心。
-<br>
-<br/>
-至於非經營帳戶，陳茂波說，主要涉及工務工程開支，以投資未來，除了賣地收入外，當局會通過發債支持，預計在發債後的借貸比率最高達16.5%，與全球比較仍是健康穩健水平。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htmWed, 26 Feb 2025 16:54:00 +0800財政預算案2025｜明光社反對探討規範籃球博彩　憂影響青少年https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm<img alt="預算案表示將積極探討規範籃球博彩活動，明光社表明反對。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793325\_1\_20250226174342.jpg&amp;q=55" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 18:41:56 +0000webmaster@rthk.hk財政預算案2025｜明光社反對探討規範籃球博彩　憂影響青少年https://news.rthk.hk/rthk/ch/component/k2/1793325-20250226.htm<img alt="預算案表示將積極探討規範籃球博彩活動，明光社表明反對。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793325\_1\_20250226174342.jpg&amp;q=55" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波在預算案表示，將積極探討規範籃球博彩活動，並邀請馬會提交建議。關注團體明光社表明反對，認為是政府帶頭鼓勵市民參與籃球賭博，批評政府為減赤而不擇手段。
@@ -1712,4 +1628,85 @@ https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800以軍稱在黎巴嫩精準打擊一名真主黨重要成員https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm<img alt="以軍稱在黎巴嫩精準打擊一名真主黨重要成員" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793393\_1\_20250227022823.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+以色列軍方說，星期三在黎巴嫩卡斯爾地區發動空襲，對黎巴嫩真主黨一名「重要」成員進行「基於情報」的精準打擊。
+<br>
+<br/>
+聲明說，這名真主黨成員因多次違反以色列和黎巴嫩之間的停火協議而成為襲擊目標，他策劃武器走私行動時遭到襲擊。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htmThu, 27 Feb 2025 02:28:00 +0800美國參議院確認格里米出任美國貿易代表https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm<img alt="格里爾曾經在特朗普第一個任期內擔任時任美國貿易代表萊特希澤的幕僚長。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793394\_1\_20250227023800.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國國會參議院投票確認格里米出任美國貿易代表。
+<br>
+<br/>
+參議院以56票贊成、43票反對通過提名。5名民主黨人投了贊成票。
+<br/>
+<br/>
+格里爾是一名具有國際貿易法背景的律師，曾經在總統特朗普第一個任期內擔任時任美國貿易代表萊特希澤的幕僚長。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htmThu, 27 Feb 2025 02:38:00 +0800國際奧委會主席巴赫辭任　下月選出新主席https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm<img alt="國際奧委會主席巴赫辭任，新主席將於下月在希臘選出。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793392\_1\_20250227022532.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+國際奧委會接納主席巴赫辭任委員，今年6月23日生效，並由新主席接任。新主席會在下個月於希臘選出。
+<br>
+<br/>
+巴赫早前在巴黎的會議上表明不會尋求連任後，今個星期向執行委員會提出請辭。
+<br/>
+<br/>
+71歲的巴赫是前德國劍擊運動員，1991年獲選為國際奧委會委員，2013年當選主席，並在2021年連任，任期4年。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800

@@ -1,86 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 18:23:49 +0000webmaster@rthk.hk54名頂尖高爾夫球手下月「LIV Golf 香港站」競技https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm<img alt="「LIV Golf 2025香港站」將於粉嶺球場上演，是「香港盛匯超級三月」一個重頭體育盛事。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793115\_1\_20250225181355.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-54名世界頂尖高爾夫球手將於下月7日至9日在「LIV Golf 香港站」同場競技。知名韓裔 DJ 兼音樂製作人金敏姬將於下月8日的的第二輪比賽結束後，擔任表演嘉賓。
-<br>
-<br/>
-香港哥爾夫球會會長郭永亮表示，「LIV Golf 2025香港站」將於粉嶺球場上演，是「香港盛匯超級三月」一個重頭體育盛事，定能吸引世界各地遊客和熱捧嘉年華氣氛的年輕人來港參加，提振旅遊和相關行業。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htmTue, 25 Feb 2025 17:27:00 +0800張國鈞稱香港非常有潛力作為區域甚或國際體育爭議解決中心https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm<img alt="張國鈞表示，香港在「一國兩制」下享有獨特優勢，非常有潛力發展成為區域甚或國際體育爭議解決中心。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793121\_1\_20250225181616.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-由律政司副司長張國鈞領導的律政司體育爭議解決諮詢委員會與多位立法會議員會面，探討體育爭議解決在本港的發展路向，並就設立體育爭議解決先導計劃交換意見。
-<br>
-<br/>
-張國鈞表示，香港在「一國兩制」下享有獨特優勢，非常有潛力發展成為區域甚或國際體育爭議解決中心。他指出，體育爭議解決諮詢委員會正全面開展體育爭議解決先導計劃的籌備工作，積極與主要持份者接觸，並已於上星期與港協暨奧委員會代表會面交流。
-<br/>
-<br/>
-張國鈞又說，律政司下一步會物色合適的機構管理先導計劃和提供相關科技服務，並訂立一套模範體育爭議解決規則，期望能在下半年啓動先導計劃，以應對本地體育爭議的實際需要，為本港塑造新動能、新優勢。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htmTue, 25 Feb 2025 18:07:00 +0800美國21個州共38人感染李斯特菌　其中12人死亡https://news.rthk.hk/rthk/ch/component/k2/1793129-20250225.htm<img alt="美國21個州共38人感染李斯特菌　其中12人死亡" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793129\_1\_20250225191935.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-美國疾病控制及預防中心表示，全美多個州爆發與能量補充飲品相關的李斯特菌感染，至今已有21個州共38人感染，其中12人死亡。
-<br>
-<br/>
-中心發出公報說，大部分感染者是居住在長期護理機構的人或感染前曾住院接受治療的人。受影響人士由43歲至101歲，其中65歲以上長者受影響最嚴重。
-<br/>
-<br/>
-公報又說，疾控中心今年通過環境檢測和全基因組測序，確定感染源與長期護理機構等供應的冷凍盒裝能量補充飲品有關。涉事的飲品品牌已宣布，召回所有在保質期內的產品。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793129-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793129-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793129-20250225.htmTue, 25 Feb 2025 19:19:00 +0800尹錫悅彈劾案庭審最終陳述　兩度向國民道歉https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htm<img alt="尹錫悅彈劾案庭審公開辯論在南韓憲法法院舉行。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793139\_1\_20250225214609.jpg&amp;q=70" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 18:41:56 +0000webmaster@rthk.hk尹錫悅彈劾案庭審最終陳述　兩度向國民道歉https://news.rthk.hk/rthk/ch/component/k2/1793139-20250225.htm<img alt="尹錫悅彈劾案庭審公開辯論在南韓憲法法院舉行。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793139\_1\_20250225214609.jpg&amp;q=70" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 南韓總統尹錫悅在彈劾案最後一次庭審辯論發表最終陳述，指自己宣布緊急戒嚴是要向國民發出呼籲，表明國家處於亡國危機之中，希望國民面對現實，共同克服危機。
@@ -1792,4 +1711,85 @@ https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htmThu, 27 Feb 2025 02:09:00 +0800以軍稱在黎巴嫩精準打擊一名真主黨重要成員https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm<img alt="以軍稱在黎巴嫩精準打擊一名真主黨重要成員" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793393\_1\_20250227022823.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+以色列軍方說，星期三在黎巴嫩卡斯爾地區發動空襲，對黎巴嫩真主黨一名「重要」成員進行「基於情報」的精準打擊。
+<br>
+<br/>
+聲明說，這名真主黨成員因多次違反以色列和黎巴嫩之間的停火協議而成為襲擊目標，他策劃武器走私行動時遭到襲擊。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htmThu, 27 Feb 2025 02:28:00 +0800美國參議院確認格里米出任美國貿易代表https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm<img alt="格里爾曾經在特朗普第一個任期內擔任時任美國貿易代表萊特希澤的幕僚長。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793394\_1\_20250227023800.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國國會參議院投票確認格里米出任美國貿易代表。
+<br>
+<br/>
+參議院以56票贊成、43票反對通過提名。5名民主黨人投了贊成票。
+<br/>
+<br/>
+格里爾是一名具有國際貿易法背景的律師，曾經在總統特朗普第一個任期內擔任時任美國貿易代表萊特希澤的幕僚長。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htmThu, 27 Feb 2025 02:38:00 +0800國際奧委會主席巴赫辭任　下月選出新主席https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm<img alt="國際奧委會主席巴赫辭任，新主席將於下月在希臘選出。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793392\_1\_20250227022532.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+國際奧委會接納主席巴赫辭任委員，今年6月23日生效，並由新主席接任。新主席會在下個月於希臘選出。
+<br>
+<br/>
+巴赫早前在巴黎的會議上表明不會尋求連任後，今個星期向執行委員會提出請辭。
+<br/>
+<br/>
+71歲的巴赫是前德國劍擊運動員，1991年獲選為國際奧委會委員，2013年當選主席，並在2021年連任，任期4年。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htmThu, 27 Feb 2025 02:38:00 +0800
