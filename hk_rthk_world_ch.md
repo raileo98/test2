@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 16:32:21 +0000webmaster@rthk.hk香港迪士尼Pixar及Marvel主題區擴建工程今年內展開https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htm<img alt="莫偉庭說，賓客人均消費增加，遠超定價範圍，反映園方在定價及市場促銷方面的工作有效。（林紹鋒攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793099\_1\_20250225163018.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 16:42:16 +0000webmaster@rthk.hk香港迪士尼Pixar及Marvel主題區擴建工程今年內展開https://news.rthk.hk/rthk/ch/component/k2/1793099-20250225.htm<img alt="莫偉庭說，賓客人均消費增加，遠超定價範圍，反映園方在定價及市場促銷方面的工作有效。（林紹鋒攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793099\_1\_20250225163018.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 香港迪士尼樂園度假區宣布，將會自資擴建Pixar主題娛樂體驗，以及擴建Marvel主題區，相關工程今年內展開。
@@ -1759,6 +1759,9 @@ cnews@rthk.hk
 <br/>
 <br/>
 澤連斯基稱，烏美將首先簽署關於開發烏克蘭礦產資源的框架協議，接下來還將簽署聯合投資基金協議，兩國將共同持有該基金。
+<br/>
+<br/>
+路透社報道，協議沒有明確列出具體安全保障，但提到美國政府支持烏克蘭努力取得建立持久和平所需的安全保障。
 </br>
 </div>
 <br/>
