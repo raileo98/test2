@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:55:24 +0000webmaster@rthk.hk財政預算案2025｜華員會蔡冠龍支持凍薪　體現與民共渡時艱https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793298\_1\_20250226153316.jpg&amp;q=35" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:12:32 +0000webmaster@rthk.hk財政預算案2025｜華員會蔡冠龍支持凍薪　體現與民共渡時艱https://news.rthk.hk/rthk/ch/component/k2/1793298-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793298\_1\_20250226153316.jpg&amp;q=35" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 新一份財政預算案提出，2025/26年度，所有行政、立法、司法機關、區議會及全體公務員一致凍薪；公務員編制在2026/27及2027/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
@@ -1750,7 +1750,7 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htmThu, 27 Feb 2025 05:33:00 +0800道指跌188點　納指及標普500指數結束多日跌勢https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm<img alt="道瓊斯指數收報43433點，跌188點，跌幅0.43%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793404\_1\_20250227053133.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-美股個別發展，道指低收近190點，納指及標普500指數結束4個交易日跌勢，但升幅有限。美國總統特朗普重申4月對加拿大和墨西哥徵收關稅，又稱決定對歐盟徵收25%關稅。
+美股個別發展，道指低收近190點，納指及標普500指數結束4個交易日跌勢，但升幅有限。美國總統特朗普重申對加拿大和墨西哥徵收關稅，又稱決定對歐盟徵收25%關稅。
 <br>
 <br/>
 道瓊斯指數早段最多曾升近250點，升至43866點，之後倒跌，最多跌逾300點，收市跌188點，報43433點，跌幅0.43%。

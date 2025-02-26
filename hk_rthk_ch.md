@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 21:55:25 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<img alt="陳茂波相信，公務員會理解及支持凍薪的決定。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793342\_1\_20250226185047.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 22:12:33 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm<img alt="陳茂波相信，公務員會理解及支持凍薪的決定。（潘子穎攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793342\_1\_20250226185047.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 新一份財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。公務員編制在2026/27及27/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
@@ -1432,16 +1432,13 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htmThu, 27 Feb 2025 03:24:00 +0800特朗普：不會向烏克蘭提供安全保障或北約成員國資格https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm<img alt="特朗普主持首次內閣會議，談到烏克蘭問題。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793396\_1\_20250227032617.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-美國特朗普確認，將於星期五在華盛頓會見烏克蘭總統澤連斯基，又說美國不會向烏克蘭提供安全保障或北約成員國資格。
+美國特朗普確認，烏克蘭總統澤連斯基將於星期五訪問華盛頓，簽署礦產協議，又說美國不會向烏克蘭提供廣泛的安全保障或北約成員國資格。
 <br>
 <br/>
-特朗普星期三在首次內閣會議上表示，澤連斯基訪問華盛頓期間，將簽署礦產資源協議。特朗普形容這對烏克蘭來說也是一筆好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保證，認為歐洲應該承擔責任，因為歐洲是烏克蘭的鄰居，但美國會確保一切順利進行。
+特朗普星期三在首次內閣會議上形容協議對烏克蘭來講亦是好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保障，認為歐洲作為烏克蘭的鄰居，應該承擔責任。
 <br/>
 <br/>
-特朗普排除烏克蘭加入北約的可能性，稱「你可以忘掉北約了。我認為這可能是整個事情開始的原因。」
-<br/>
-<br/>
-特朗普表示，相信可以達成協議，將盡最大努力為俄烏雙方達成最好的協議，讓烏克蘭盡可能挽回損失。
+特朗普亦排除烏克蘭加入北約的可能性，說烏克蘭「可以忘記北約」。特朗普認為烏克蘭尋求加入北約可能是一切發生的原因。特朗普又說，將盡最大努力為俄烏雙方達成最好的協議，令烏克蘭盡可能挽回損失。
 <br/>
 <br/>
 特朗普又說，他的外交努力正在帶來俄羅斯總統普京的新妥協精神，指普京之前「想要整個烏克蘭」。特朗普稱普京是「非常聰明又非常狡猾的人」，認為如果他沒有當選，普京會繼續在烏克蘭推進。
@@ -1662,7 +1659,7 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htmThu, 27 Feb 2025 05:33:00 +0800道指跌188點　納指及標普500指數結束多日跌勢https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm<img alt="道瓊斯指數收報43433點，跌188點，跌幅0.43%。（新華社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793404\_1\_20250227053133.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-美股個別發展，道指低收近190點，納指及標普500指數結束4個交易日跌勢，但升幅有限。美國總統特朗普重申4月對加拿大和墨西哥徵收關稅，又稱決定對歐盟徵收25%關稅。
+美股個別發展，道指低收近190點，納指及標普500指數結束4個交易日跌勢，但升幅有限。美國總統特朗普重申對加拿大和墨西哥徵收關稅，又稱決定對歐盟徵收25%關稅。
 <br>
 <br/>
 道瓊斯指數早段最多曾升近250點，升至43866點，之後倒跌，最多跌逾300點，收市跌188點，報43433點，跌幅0.43%。

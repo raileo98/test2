@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 21:55:25 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 22:12:33 +0000webmaster@rthk.hk敘利亞全國對話會議呼籲加快組建臨時立法機構https://news.rthk.hk/rthk/ch/component/k2/1793162-20250226.htm<img alt="與會代表在大馬士革參加敘利亞全國對話會議。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793162\_1\_20250226034500.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 敘利亞全國對話會議閉幕，發表聲明強調維護敘利亞統一和領土主權，呼籲加快組建臨時立法委員會和發布臨時憲法宣言。
@@ -1568,16 +1568,13 @@ cnews@rthk.hk
 </p>https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htmThu, 27 Feb 2025 03:24:00 +0800特朗普：不會向烏克蘭提供安全保障或北約成員國資格https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm<img alt="特朗普主持首次內閣會議，談到烏克蘭問題。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793396\_1\_20250227032617.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
-美國特朗普確認，將於星期五在華盛頓會見烏克蘭總統澤連斯基，又說美國不會向烏克蘭提供安全保障或北約成員國資格。
+美國特朗普確認，烏克蘭總統澤連斯基將於星期五訪問華盛頓，簽署礦產協議，又說美國不會向烏克蘭提供廣泛的安全保障或北約成員國資格。
 <br>
 <br/>
-特朗普星期三在首次內閣會議上表示，澤連斯基訪問華盛頓期間，將簽署礦產資源協議。特朗普形容這對烏克蘭來說也是一筆好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保證，認為歐洲應該承擔責任，因為歐洲是烏克蘭的鄰居，但美國會確保一切順利進行。
+特朗普星期三在首次內閣會議上形容協議對烏克蘭來講亦是好的交易，因為美國將在烏克蘭存在，就像一種自動安全，沒有人會來搗亂。但他明確表示，美國不會提供更多的安全保障，認為歐洲作為烏克蘭的鄰居，應該承擔責任。
 <br/>
 <br/>
-特朗普排除烏克蘭加入北約的可能性，稱「你可以忘掉北約了。我認為這可能是整個事情開始的原因。」
-<br/>
-<br/>
-特朗普表示，相信可以達成協議，將盡最大努力為俄烏雙方達成最好的協議，讓烏克蘭盡可能挽回損失。
+特朗普亦排除烏克蘭加入北約的可能性，說烏克蘭「可以忘記北約」。特朗普認為烏克蘭尋求加入北約可能是一切發生的原因。特朗普又說，將盡最大努力為俄烏雙方達成最好的協議，令烏克蘭盡可能挽回損失。
 <br/>
 <br/>
 特朗普又說，他的外交努力正在帶來俄羅斯總統普京的新妥協精神，指普京之前「想要整個烏克蘭」。特朗普稱普京是「非常聰明又非常狡猾的人」，認為如果他沒有當選，普京會繼續在烏克蘭推進。

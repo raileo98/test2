@@ -1,96 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 21:55:25 +0000webmaster@rthk.hkNZ into Champions Trophy semis; hosts Pakistan outhttps://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm<img alt="New Zealand’s Rachin Ravindra celebrates after scoring a century against Bangladesh. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793008\_1\_20250225053556.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Trophy semi-finals with a five-wicket win over Bangladesh, as hosts Pakistan were sent crashing out of the tournament.
-<br>
-<br/>
-The result in Rawalpindi also ensured India's semi-final berth in the 50-over tournament as Bangladesh became the other team from Group A to be knocked out.
-<br/>
-<br/>
-Both New Zealand and India have two wins from two matches and will now meet in Dubai on Sunday to decide team one and two from the group.
-<br/>
-<br/>
-"Feels nice to qualify," New Zealand skipper Mitchell Santner said after the win. "Knew Bangladesh would be a challenge."
-<br/>
-<br/>
-Pakistan, who won the previous edition of the Champions Trophy in 2017, lost to New Zealand and then India in the first International Cricket Council (ICC) event they are hosting since the 1996 ODI World Cup.
-<br/>
-<br/>
-India refused to tour Pakistan due to political reasons and instead are playing all their matches in Dubai, which will host the final if the Asian giants go the distance.
-<br/>
-<br/>
-New Zealand have been the team to beat in this group after they humbled Pakistan by 60 runs in the tournament opener.
-<br/>
-<br/>
-Coming in as firm favourites in their second match, New Zealand elected to field first and spinner Michael Bracewell returned career-best ODI figures of 4-36 to restrict Bangladesh to 236-9.
-<br/>
-<br/>
-Chasing 237 for victory, New Zealand slipped to 15-2 and 72-3 before Ravindra and fellow left-hander Tom Latham, who made 55, added 129 for the fourth wicket.
-<br/>
-<br/>
-Both were dismissed before the end but New Zealand still achieved the target with 23 balls to spare.
-<br/>
-<br/>
-The Black Caps had a disastrous start when pace bowler Tasking Ahmed bowled first-match centurion Will Young for a duck.
-<br/>
-<br/>
-Bangladesh's new pace sensation Nahid Rana took down Kane Williamson caught behind for five with a delivery bowled at 148.8 kph.
-<br/>
-<br/>
-Ravindra, who returned to the team after recovering from a nasty blow to his forehead in a recent tri-series match against Pakistan, joined Devon Conway to rebuild the innings.
-<br/>
-<br/>
-Conway hit back with a flurry of boundaries and made 30 before Bangladesh checked the surge and Mustafizur Rahman hurried one on to the left-hander who chopped on to his stumps.
-<br/>
-<br/>
-Ravindra stood firm and with fellow left-hander Latham, another centurion in the opener against Pakistan, waded his way through the chase and after reaching his fifty bossed the bowlers.
-<br/>
-<br/>
-He raised his fourth ODI ton with a single off Rana and raised his bat to soak up the applause.
-<br/>
-<br/>
-"He's doing Rachin things I guess," Santner said of his batter who hit a hundred in his ODI World Cup debut in 2023.
-<br/>
-<br/>
-"He loves ICC events – looks like he never left the game," he added. "He wasn't as fluid as he'd have liked but when he gets going he's tough to stop. His partnerships were good too."
-<br/>
-<br/>
-Ravindra's knock was interrupted by an intruder who barged on to the field to hug the batter before being escorted out of the ground by security.
-<br/>
-<br/>
-The young boy, wearing a white shalwar kameez, was carrying a photo of a leader of one of Pakistan's radical religious parties.
-<br/>
-<br/>
-Ravindra finally fell, caught at long-on off leg-spinner Rishad Hossain, and wicketkeeper-batsman Latham's run out added some late drama. But Glenn Phillips, 21 not out, and Bracewell, who hit the winning boundary, sealed the chase.
-<br/>
-<br/>
-Player of the match Bracewell set up victory with key strikes that started with his second delivery to dismiss Tanzid Hasan out for 24 and end a strong start by Bangladesh.
-<br/>
-<br/>
-Skipper Najmul Hossain Shanto made 77 and Jaker Ali 45 in an attempt to put up a competitive total but Bracewell kept getting wickets.
-<br/>
-<br/>
-He was ably supported by the New Zealand quicks with rookie Will O'Rourke returning with two wickets. (AFP)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htmTue, 25 Feb 2025 05:35:00 +0800Wall Street holds steadier but still fallshttps://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm<img alt="US markets face uncertainty over growth, valuations, and geopolitics. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793018\_1\_20250225073058.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKWed, 26 Feb 2025 22:12:34 +0000webmaster@rthk.hkWall Street holds steadier but still fallshttps://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm<img alt="US markets face uncertainty over growth, valuations, and geopolitics. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793018\_1\_20250225073058.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 US stocks drifted lower on Monday to compound their sharp losses from last week .
@@ -2910,4 +2819,50 @@ https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htmThu, 27 Feb 2025 05:32:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htmThu, 27 Feb 2025 05:32:00 +0800Nasdaq rises while Dow falls on latest tariff talkshttps://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm<img alt="The Dow Jones Industrial Average finished down 0.4 percent at 43,433. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793409\_1\_20250227055740.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Gains in Nvidia ahead of earnings helped lift the Nasdaq on Wednesday while the Dow retreated on White House talk of more tariffs, this time on the European Union.
+<br>
+<br/>
+Nvidia jumped 3.7 percent ahead of its keenly anticipated earnings report, viewed as a key proxy for the artificial intelligence industry, which has under-performed other sectors so far in 2025.
+<br/>
+<br/>
+Stocks have been under pressure in recent days due to lackluster US economic data and worries about Donald Trump's policies. During a cabinet meeting, the US president said he expects 25 percent tariffs on the European Union.
+<br/>
+<br/>
+The Dow Jones Industrial Average finished down 0.4 percent at 43,433.
+<br/>
+<br/>
+The broad-based S&amp;P 500 was flat at 5,956, while the tech-rich Nasdaq Composite Index gained 0.3 percent to 19,075.
+<br/>
+<br/>
+"The market is a reflection of how people view the new administration and the uncertainty of its policies," said Art Hogan of B. Riley Wealth.
+<br/>
+<br/>
+Among individual companies, General Motors jumped 3.8 percent after unveiling a new US$6 billion share repurchase authorisation and lifting its quarterly divided by three cents a share.
+<br/>
+<br/>
+Eli Lilly gained 1.5 percent after announcing it will build four additional new manufacturing sites in the United States in a commitment aimed at influencing upcoming Trump administration decisions on trade and other issues.
+<br/>
+<br/>
+US shares of BP fell 1.7 percent as it announced a major retreat from renewable energy in a pivot back to petroleum investments. (AFP)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htmThu, 27 Feb 2025 05:57:00 +0800
