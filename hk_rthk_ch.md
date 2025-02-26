@@ -1,5 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 15:02:09 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 15:12:21 +0000webmaster@rthk.hk烏克蘭國會通過禁止戰時選舉議案　支持澤連斯基繼續履職https://news.rthk.hk/rthk/ch/component/k2/1793152-20250226.htm<img alt="俄烏戰事三周年，烏克蘭民眾到基輔獨立廣場悼念陣亡士兵。（法新社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793152\_1\_20250226001715.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭國會通過議案，強調在戰時狀態下，憲法不允許舉行選舉，並支持總統澤連斯基繼續履行職務。
@@ -5746,4 +5746,38 @@ https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htmWed, 26 Feb 2025 23:00:00 +08002025/26《財政預算案論壇》https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm<img alt="節目主持陳曉慶（左起）、團結香港基金副總裁葉文祺及會計界立法會議員黃俊碩。（黃凱宜攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793377\_1\_20250226221747.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波發表新一份《財政預算案》，本年度綜合赤字預計為872億元，政府提出「強化版」財政整合計劃。節流方面，下年度行政長官、政治委任官員、全體公務員、立法會議員、區議員等均要凍薪；兩元乘車優惠設每月240程上限，10元以上車費改為「兩折」計算。至於開源，下年度第三季起，飛機離境稅會由120元加至200元，又會研究向過境私家車徵收邊境建設費，以及檢討停車收費錶的收費、交通違例事項的定額罰款。為確保北部都會區等基建項目按時推展，政府計劃未來5個財政年度，每年發債1500億元至1950億元，並積極研究發長債。
+<br>
+<br/>
+會計界立法會議員黃俊碩出席本台節目《財政預算案論壇》時表示，公務員凍薪比減薪合適，如果減薪會對整體社會帶來負面影響，亦與政府「拼經濟」原則背道而馳。對於本屆政府任期內公務員編制將削減約一萬個職位，他說，隨著科技發展，人工智能可代替部份人手，編制有縮減空間，又認為陳茂波整體上在今次預算案推出的措施算是大刀闊斧。
+<br/>
+<br/>
+政府有意向過境私家車徵收200元邊境建設費，黃俊碩對此表示有保留，擔心會影響內地旅客坐私家車來港參與不同盛事活動，特別是經港珠澳大橋到亞博館或使用香港國際機場。
+<br/>
+<br/>
+出席同一節目的團結香港基金副總裁葉文祺表示，政府為兩元乘車優惠設限及推出「兩蚊兩折」每年只能節省6億8千萬元開支，相對800多億元財赤而言作用有限。他指出，不少60至64歲的人士仍未退休，政府應考慮政策原意，不再讓他們享有優惠，甚至恢復以往做法，只有65歲或以上人士受惠。
+<br/>
+<br/>
+對於政府有意檢討交通違例事項的定額罰款，葉文祺表示贊成，以目前違例泊車320元定額罰款為例，對上一次調整已是1994年，他認為罰款金額相對其他國家和地區屬於偏低，即使調升，以追回通脹都是合理。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htmWed, 26 Feb 2025 23:04:00 +0800
