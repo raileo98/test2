@@ -1,3 +1,25 @@
+## 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
+
+  
+
+新一年度財政預算案提出，將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，令樓價400萬元的住宅單位印花稅由原來6萬元降至100元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
 
@@ -62,6 +84,7 @@
 ## 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
 
+![有立法會議員呼籲政府積極開源，陳茂波表示不希望過分倚賴地價收入。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793447_1_20250227115653.jpg&q=85)
   
   
 
@@ -1336,29 +1359,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜上調飛機乘客離境稅　檢討交通違例定額罰款
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm)
-
-![每名飛機乘客離境稅將上調至200元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793344_1_20250226185127.jpg&q=75)
-  
-
-預算案提出多項措施增加收入，包括將每名飛機乘客離境稅上調至200元；檢討俗稱「牛肉乾」的交通違例事項定額罰款；並研究徵收陸路離境的私家車「邊境建設費」等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm>
 
 © rthk.hk
 

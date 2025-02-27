@@ -1,3 +1,25 @@
+## 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
+
+  
+
+新一年度財政預算案提出，將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，令樓價400萬元的住宅單位印花稅由原來6萬元降至100元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
 
@@ -85,6 +107,7 @@
 ## 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
 
+![有立法會議員呼籲政府積極開源，陳茂波表示不希望過分倚賴地價收入。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793447_1_20250227115653.jpg&q=85)
   
   
 
@@ -1251,7 +1274,7 @@
 
 ---
 
-## 海洋公園稱將善用大熊貓及盛事經濟機遇豐富香港旅遊體驗
+## 財政預算案2025｜海洋公園稱將善用大熊貓及盛事經濟帶來機遇
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
 
 ![海洋公園公司主席龐建貽表示，將繼續善用大熊貓及盛事經濟帶來的機遇，豐富香港的旅遊體驗。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793386_1_20250226234124.jpg&q=15)
@@ -1335,29 +1358,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm)
-
-![王毅在北京與新西蘭副總理兼外長彼得斯會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793383_1_20250226230025.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京與新西蘭副總理兼外長彼得斯會談。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm>
 
 © rthk.hk
 

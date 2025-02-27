@@ -1,3 +1,25 @@
+## 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
+
+  
+
+新一年度財政預算案提出，將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，令樓價400萬元的住宅單位印花稅由原來6萬元降至100元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
 
@@ -39,6 +61,7 @@
 ## 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
 
+![有立法會議員呼籲政府積極開源，陳茂波表示不希望過分倚賴地價收入。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793447_1_20250227115653.jpg&q=85)
   
   
 
@@ -331,7 +354,7 @@
 
 ---
 
-## 海洋公園稱將善用大熊貓及盛事經濟機遇豐富香港旅遊體驗
+## 財政預算案2025｜海洋公園稱將善用大熊貓及盛事經濟帶來機遇
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
 
 ![海洋公園公司主席龐建貽表示，將繼續善用大熊貓及盛事經濟帶來的機遇，豐富香港的旅遊體驗。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793386_1_20250226234124.jpg&q=15)
@@ -1337,29 +1360,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793318-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜消息指發債佔GDP比例仍處於可控水平
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm)
-
-![消息說，金管局會視乎市況考慮，決定發債年期，大部分會對機構投資者發行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793317_1_20250226170511.jpg&q=80)
-  
-
-政府消息人士表示，未來公務工程開支平均每年約1200億元，發債規模高於工程開支，由於要償還過往發行的債務。發債規模將於2027/28年度增至1950億元，同年度還債規模逾1340億元，兩者都見頂，隨後年度會回落。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm>
 
 © rthk.hk
 

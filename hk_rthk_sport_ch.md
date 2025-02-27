@@ -44,6 +44,29 @@
 
 ---
 
+## 財政預算案2025｜海洋公園稱將善用大熊貓及盛事經濟帶來機遇
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
+
+![海洋公園公司主席龐建貽表示，將繼續善用大熊貓及盛事經濟帶來的機遇，豐富香港的旅遊體驗。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793386_1_20250226234124.jpg&q=15)
+  
+
+海洋公園歡迎政府在《財政預算案》加大力度落實「無處不旅遊」理念以及《香港旅遊業發展藍圖2.0》。園方亦歡迎《財政預算案》支持開拓中東和東盟旅客客源，相信有關推廣將有助擴闊公園的海外市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 英超聯賽　車路士4:0修咸頓　水晶宮4:1阿士東維拉
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm)
 
@@ -1360,29 +1383,6 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1791688-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 啟德體育園推「離場易」網站　提供離場路線所需時間及人流資訊
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791661-20250214.htm](https://news.rthk.hk/rthk/ch/component/k2/1791661-20250214.htm)
-
-![「離場易」網站提供離場路線所需時間及人流密度資訊，協助觀眾選擇最適合的離場路線。（離場易網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791661_1_20250214173152.jpg&q=85)
-  
-
-為配合啟德體育園啟用，當局聯同港鐵及巴士營運商及啟德體育園公司等推出「離場易」網站，提供離場路線所需時間及人流密度資訊，協助觀眾選擇最適合的離場路線，以紓緩大型活動散場時的大量人流及公共交通壓力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1791661-20250214.htm>
 
 © rthk.hk
 
