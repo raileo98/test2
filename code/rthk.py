@@ -41,6 +41,7 @@ os.environ["NIQUESTS_STRICT_OCSP"] = "1"
 
 if os.environ.get("NIQUESTS_STRICT_OCSP") == "1":
     print("NIQUESTS_STRICT_OCSP is enabled")
+
 else:
     print("NIQUESTS_STRICT_OCSP is not enabled")
 
@@ -65,6 +66,7 @@ session = CachedSession(
     backend='redis',
     happy_eyeballs=True
 )
+
 adapter = niquests.adapters.HTTPAdapter(max_retries=retries)
 session.mount("https://", adapter=adapter)
 session.mount("http://", adapter=adapter)
@@ -81,6 +83,7 @@ userAgent = [
     'Mozilla/5.0 (Android 10; Mobile; rv:131.0) Gecko/131.0 Firefox/131.0',
     'Mozilla/5.0 (Android 10; Mobile; rv:132.0) Gecko/132.0 Firefox/132.0',
 ]
+
 session.headers['User-Agent'] = secrets.choice(userAgent)
 
 # ------------------------
@@ -125,12 +128,16 @@ def check():
             headersForCheck['User-Agent'] = secrets.choice(userAgent)
             print(f'headersForCheck: {headersForCheck}')
             response = session.get(url, timeout=2, headers=headersForCheck)
+            
             if response.ok:
                 print(f'使用代理獲取 {url} 成功: \n{ response.text.splitlines()[:10] }\n')
+            
             else:
                 print(f'使用代理獲取 {url} 失敗:\n{response.status_code}\n')
+        
         except Exception as e:
             print(f'使用代理獲取 {url} 出錯:\n{e}\n')
+        
         except:
             print(f'使用代理獲取 {url} 出現未知錯誤\n')
 
@@ -138,16 +145,21 @@ def check():
 def parse_pub_date(date_str):
     date_str = date_str.replace('HKT', '+0800')
     date_obj = datetime.strptime(date_str, '%Y-%m-%d %z %H:%M')
+    
     return date_obj.strftime('%a, %d %b %Y %H:%M:%S %z')
 
 
 def get_item_pub_date(item):
     pub_date = item.find('pubDate')
+    
     if pub_date:
         return pub_date.text.strip()
+    
     published = item.find('published')
+    
     if published:
         return published.text.strip()
+    
     return None
 
 categories_data = {
@@ -218,9 +230,11 @@ async def process_article(fg, category, article):
         articleTitle = article.select_one('.ns2-title').text.strip()
         articleLink = article.select_one('.ns2-title a')['href']
         articleLink = articleLink.replace('?spTabChangeable=0', '').strip()
+        
         print(f'{articleTitle} started!')
 
         article_response = await get_response(articleLink)
+        
         if not article_response.ok:
             print(f'{articleTitle} 處理失敗，將跳過此文章!')
             logging.error(f'{articleTitle} 處理失敗，HTTP 狀態碼: {article_response.status_code}')
@@ -234,57 +248,75 @@ async def process_article(fg, category, article):
         imgHtml = ''
         imgList = set()
         images = article_soup.select('.items_content .imgPhotoAfterLoad')
+        
         for image in images:
             imgUrl = modify_image_url('https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src']), 99)
             print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            
             imgList.add(imgUrl)
             imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
             print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            
             imgList.add(imgUrl)
             imgUrl = imgUrl.replace('_L_', '_')
             print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            
             imgList.add(imgUrl)
             latest_imgUrl = await optimize_image_quality(imgUrl)
             imgAlt = image.get('alt', '')
             imgAlt = html.escape(imgAlt.strip()).strip()
+            
             if latest_imgUrl:
                 imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                 imgList.add(latest_imgUrl)
+                
                 print(f'Final imgUrlWithQ: {latest_imgUrl}')
+            
             else:
                 imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                 imgList.add(imgUrl)
+                
                 print(f'Final imgUrl: {imgUrl}')
 
         if len(images) == 0:
             scripts = article_soup.find_all('script')
+            
             for script in scripts:
                 if 'videoThumbnail' in script.text:
                     match = re.search(r"videoThumbnail\s{0,1000}=\s{0,1000}'(.*)'", script.text)
+                    
                     if match:
                         video_thumbnail = match.group(1)
                         imgUrl = modify_image_url('https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(video_thumbnail), 99)
                         print(f"{articleLink} - {articleTitle}: {imgUrl}")
+                        
                         imgList.add(imgUrl)
                         imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
                         print(f"{articleLink} - {articleTitle}: {imgUrl}")
+                        
                         imgList.add(imgUrl)
                         imgUrl = imgUrl.replace('_L_', '_')
                         print(f"{articleLink} - {articleTitle}: {imgUrl}")
+                        
                         imgList.add(imgUrl)
                         # 根據圖片大小調整壓縮質量
                         latest_imgUrl = await optimize_image_quality(imgUrl)
                         # 用另一個選擇器獲取 alt（例如：.detailNewsSlideTitleText）
                         imgAlt = article_soup.select_one('.detailNewsSlideTitleText').get_text()
                         imgAlt = html.escape(imgAlt.strip()).strip()
+                        
                         if latest_imgUrl:
                             imgHtml += f'<img src="{latest_imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                             imgList.add(latest_imgUrl)
+                            
                             print(f'Final imgUrlWithQ: {latest_imgUrl}')
+                        
                         else:
                             imgHtml += f'<img src="{imgUrl}" referrerpolicy="no-referrer" alt="{imgAlt}" style="width:100%;height:auto">'
                             imgList.add(imgUrl)
+                            
                             print(f'Final imgUrl: {imgUrl}')
+                        
                         break
 
         # 緩存圖片
@@ -308,15 +340,18 @@ async def process_article(fg, category, article):
 
         # 同時利用 markdownify 將 HTML 轉 Markdown，並回傳文章資料（方便後續 .md 寫檔）
         md_content = md(feedDescription)
+        
         return {
             "title": articleTitle,
             "url": articleLink,
             "html": feedDescription,
             "markdown": md_content
         }
+        
     except Exception as e:
         print(f'{articleTitle} 處理出錯: {e}')
         logging.error(f'{articleTitle} 處理出錯: {e}')
+    
     except:
         exception_type, exception_value, _ = sys.exc_info()
         print(f'{articleTitle} 出現未知錯誤: {exception_type.__name__} - {exception_value}')
@@ -325,11 +360,14 @@ async def process_article(fg, category, article):
 async def cache_image(imageUrl):
     try:
         response = await get_response(imageUrl, timeout=2, mustFetch=False, method='HEAD', session=session)
+        
         if response.ok:
             if response.from_cache:
                 print(f'[INFO] 已緩存! 耗時: {response.elapsed.total_seconds()} - imageUrl: {imageUrl}')
+    
     except Exception as e:
         logging.error(f'[ERROR] 緩存 {imageUrl} - 出錯: {e}')
+    
     except:
         exception_type, exception_value, _ = sys.exc_info()
         logging.error(f'[ERROR] 緩存 {imageUrl} - 出現未知錯誤: {exception_type.__name__} - {exception_value}')
@@ -344,49 +382,68 @@ async def optimize_image_quality(imgUrl):
 
     while True:
         imgUrlWithQ = modify_image_url(imgUrl, q)
+        
         try:
             response = await get_response(imgUrlWithQ, method='HEAD', session=session)
+            
             if response.status_code >= 400 and response.status_code < 600:
                 if q > 1:
                     q = 1
                     logging.error(f'[ERROR] 將質量參數 q 設置為 1 - response.status_code: {response.status_code} - imageUrl: {imgUrl}')
+                
                 else:
                     logging.error(f'[ERROR] 無法獲取有效圖片，退出迴圈 - imageUrl: {imgUrl}')
+                    
                     break
+            
             elif response.ok:
                 latestAvailableQ = imgUrlWithQ
                 content_length = int(response.headers.get('Content-Length', 0))
                 upstream_response_length = int(response.headers.get('x-upstream-response-length', 0))
                 logging.info(f'[INFO] 獲取圖片大小成功 - imageUrl: {imgUrl} - content_length: {content_length} - upstream_response_length: {upstream_response_length} - 當前質量參數 q: {q}')
+                
                 if q == 99:
                     content_length_q99 = content_length
+                
                 if q == 1:
                     logging.error(f'[ERROR] 當前質量參數 q 為 1，退出迴圈 - imageUrl: {imgUrl}')
+                    
                     break
+                
                 if content_length > 1000 * 150 or content_length > upstream_response_length:
                     if q == 99:
                         q = 95
+                    
                     if q <= 95:
                         q = max(1, q - 5)
+                    
                     if content_length > upstream_response_length:
                         has_matched_condition = True
+                
                 elif content_length <= 1000 * 150:
                     logging.info(f'[INFO] 圖片大小小於 150 KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
+                    
                     break
+        
         except Exception as e:
             logging.error(f'[ERROR] 獲取圖片大小出錯 - imageUrl: {imgUrl} - 錯誤: {e}')
             q = 1
             latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
+            
             break
 
     if (upstream_response_length <= 1000 * 150 or (content_length_q99 is not None and content_length_q99 <= 1000 * 150)):
         if q == 99:
             q = 90
+        
         elif q <= 95:
             q = max(1, q - 10)
+        
         latest_imgUrl = modify_image_url(imgUrl, q)
+        
         print(f'圖像小於 150 KB，{imgUrl} --> {latest_imgUrl}')
+    
     return latest_imgUrl
 
 def modify_image_url(imageUrl, new_quality):
@@ -397,36 +454,48 @@ def modify_image_url(imageUrl, new_quality):
     new_url = urllib.parse.urlunparse(parsed_url._replace(query=new_query))
     new_url = new_url.replace('n=-1&h=1080', 'n=-1&we&h=1080')
     new_url = new_url.replace('&amp;', '&')
+    
     return new_url
 
 async def get_response(url, timeout=10, mustFetch=True, method='GET', session=session):
     global total_requests, cache_hits, verCount11, verCount20, verCount30
     total_requests += 1
+    
     while True:
         try:
             session.quic_cache_layer.add_domain(urllib.parse.urlparse(url).netloc)
             response = await asyncio.to_thread(session.request, method, url, timeout=timeout)
+            
             if response.from_cache:
                 cache_hits += 1
+            
             # 根據 HTTP 版本統計數量
             if not response.from_cache and response.raw.version:
                 if response.raw.version == 11:
                     verCount11 += 1
+                
                 if response.raw.version == 20:
                     verCount20 += 1
+                
                 if response.raw.version == 30:
                     verCount30 += 1
+            
             return response
+        
         except Exception as e:
             if str(e).strip() == 'Cannot select a disposable connection to ease the charge':
                 continue
+            
             else:
                 logging.error(f'[ERROR] 獲取響應失敗，即將重試! url: {url} - 錯誤: {e}')
+        
         except:
             exception_type, exception_value, _ = sys.exc_info()
             logging.error(f'[ERROR] 獲取響應出現未知錯誤，即將重試! url: {url} - 錯誤: {exception_type.__name__} - {exception_value}')
+        
         if mustFetch:
             continue
+        
         else:
             break
 
@@ -436,16 +505,20 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
 async def process_category(category, url):
     try:
         response = await get_response(url)
+        
         if response.ok:
             web_content = response.text.strip()
+        
         else:
             print(f'{category} 處理失敗，即將結束程序!')
             logging.error(f'{category} 處理失敗，HTTP 狀態碼: {response.status_code}')
             sys.exit(1)
+    
     except Exception as e:
         print(f'{category} 獲取響應出錯，即將結束程序!')
         logging.error(f'{category} 獲取響應出錯: {e}')
         sys.exit(1)
+    
     except:
         print(f'{category} 出現未知錯誤，即將結束程序!')
         logging.error(f'{category} 出現未知錯誤')
@@ -464,6 +537,7 @@ async def process_category(category, url):
 
     articles = soup.select('.ns2-page')
     articles_list = list(articles)
+    
     if len(articles_list) == 0:
         return
 
