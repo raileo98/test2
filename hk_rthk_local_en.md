@@ -1,9 +1,9 @@
-# 'Govt closely in touch with rating agencies'
+# 'SAR debts still at very manageable level'
 
-![Christopher Hui says the SAR's debts are at a very manageable level. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
+![Christopher Hui says the ratio of government debt to GDP is less than 17 percent. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
   
 
-The Secretary for Financial Services and the Treasury Christopher Hui said the government has maintained close contact with global credit rating agencies relating to the SAR's financial position, as he shrugged off concerns about the city's debt levels.
+The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt levels are still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
 
   
 

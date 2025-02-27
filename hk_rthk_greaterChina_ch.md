@@ -1,3 +1,24 @@
+# 特朗普：下周向墨西哥和加拿大徵25%關稅　中國關稅再加10%
+
+美國總統特朗普表示，毒品繼續經墨西哥和加拿大流入美國，決定如期在下星期二起，對這兩個國家加徵25%關稅。特朗普又表示，同日會再向中國徵收額外10%的關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm)
+
+---
+
 # 解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查
 
 ![解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793535_1_20250227200016.jpg&q=90)
@@ -1408,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm)
-
----
-
-# 外交部：美方脅迫別國打壓中國半導體產業　最終將損人害己
-
-![林劍說，中方已多次就美國惡意封鎖打壓中國的半導體產業表明嚴正立場。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793097_1_20250225154727.jpg&q=90)
-  
-
-美國特朗普政府據報正尋求加大對中國晶片產業的限制，並向主要盟友施壓，要求他們與美國保持一致，加強對中國晶片業的限制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm)
 
 ---

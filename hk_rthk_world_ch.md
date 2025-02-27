@@ -1,3 +1,24 @@
+# 特朗普：下周向墨西哥和加拿大徵25%關稅　中國關稅再加10%
+
+美國總統特朗普表示，毒品繼續經墨西哥和加拿大流入美國，決定如期在下星期二起，對這兩個國家加徵25%關稅。特朗普又表示，同日會再向中國徵收額外10%的關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm)
+
+---
+
 # 普京：俄美已準備好重新建立合作關係
 
 ![普京說，俄羅斯從未拒絕以和平方式解決烏克蘭危機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793541_1_20250227205952.jpg&q=90)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm)
-
----
-
-# 財政預算案2025｜向旅發局撥12.35億落實無處不旅遊理念
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793225_1_20250226122721.jpg&q=80)
-  
-
-財政司司長陳茂波宣布，為落實「無處不旅遊」的理念及《香港旅遊業發展藍圖2.0》，來年會向旅發局撥款12億3500萬元。旅發局會與更多國際品牌合作舉辦活動，說好香港旅遊故事。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm)
 
 ---
