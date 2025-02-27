@@ -1,3 +1,27 @@
+# 歐盟下月舉行特別峰會討論烏克蘭問題　澤連斯基獲邀出席
+
+![科斯塔說，歐盟及成員國願意為歐洲安全承擔更多責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793529_1_20250227184458.jpg&q=90)
+  
+
+歐盟將於下月6日舉行特別峰會，討論歐洲防務和烏克蘭問題，歐洲理事會主席科斯塔表示，已邀請烏克蘭總統澤連斯基前往布魯塞爾出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793529-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793529-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793529-20250227.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡：每月乘搭逾240程僅360人
 
 財政預算案調整「二元乘車優惠計劃」，每月限制240程，10元以上車費 「兩折」。勞工及福利局局長孫玉菡表示，限程安排寬鬆，根據統計，每月乘搭超過240程的受惠人士只有360人，相信新安排對99.99%的長者和殘疾人士均無影響。
