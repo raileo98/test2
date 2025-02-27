@@ -1,3 +1,59 @@
+# 財政預算案2025｜孫玉菡稱兩元兩折不遲於明年9月落實
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm)
+
+---
+
+# 財政預算案2025｜蔡若蓮稱諮詢教育界削開支不容許逐點措施問
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm)
+
+---
+
+# 財政預算案2025｜余偉文：積極探討發行更多較長年期債券空間
+
+![余偉文說，金管局未來將繼續致力協助政府落實債券發行計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793501_1_20250227171550.jpg&q=80)
+  
+
+金管局總裁余偉文表示，特區政府發行的債券屬高質素債務工具，一直深受市場歡迎。以2024至25年度為例，政府發行機構債券錄得約3至7倍認購。政府增加發債規模相信會被市場受落。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm)
+
+---
+
 # 黃栢鳴涉內幕交易被證監會檢控　獲准保釋下月再訊
 
 ![黃栢鳴暫時無須答辯，獲准以20萬元保釋，案件押後至下月27日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793498_1_20250227171250.jpg&q=80)
@@ -117,7 +173,7 @@
 
 # 財政預算案2025｜許正宇：一直與評級機構密切聯繫
 
-![許正宇指出，如果發債量超過原定規劃，就需經過立法會審批。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
   
 
 財經事務及庫務局局長許正宇出席財政預算案相關措施記者會時表示，政府一直有與評級機構進行密切聯繫，確保它們知道本港具體情況、發債計劃及財政管理邏輯。他重申，政府債務水平相對其他經濟體屬非常可控水平，債務只佔本地生產總值（GDP）不足17%，發債主要用於支持基礎建設以及工務工程，絕不會用作日常開支。
@@ -1360,77 +1416,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm)
-
----
-
-# 油價向下　美國成品油庫存意外增加
-
-![油價下跌，美國成品油庫存意外增加，加上俄烏或達成和平協議，都對油價構成壓力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793407_1_20250227053808.jpg&q=90)
-  
-
-原油期貨價格下跌。美國成品油庫存意外增加，或反映需求疲軟，加上俄羅斯和烏克蘭可能達成和平協議，繼續對油價構成壓力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm)
-
----
-
-# 英法德股市升0.72%至約1.7%
-
-![德國DAX指數收報22794點，升383點，升幅1.71%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793402_1_20250227051345.jpg&q=90)
-  
-
-歐洲3大指數上升，法德股市升逾1%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm)
-
----
-
-# 道指跌188點　納指及標普500指數結束多日跌勢
-
-![道瓊斯指數收報43433點，跌188點，跌幅0.43%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793404_1_20250227053133.jpg&q=80)
-  
-
-美股個別發展，道指低收近190點，納指及標普500指數結束4個交易日跌勢，但升幅有限。美國總統特朗普重申對加拿大和墨西哥徵收關稅，又稱決定對歐盟徵收25%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm)
 
 ---

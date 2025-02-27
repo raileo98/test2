@@ -1,4 +1,47 @@
+# 財政預算案2025｜蔡若蓮稱諮詢教育界削開支不容許逐點措施問
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm)
+
+---
+
+# 美聯社、路透社和彭博社不滿白宮對傳媒採訪實施新限制
+
+![特朗普星期三主持首次內閣會議。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793504_1_20250227171443.jpg&q=75)
+  
+
+美聯社、彭博社和路透社發表聯合聲明，不滿白宮對傳媒採訪實施新的限制措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793504-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793504-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793504-20250227.htm)
+
+---
+
 # 美國著名演員真赫曼與妻子被發現倒斃寓所
+
+![兩項奧斯卡得主，美國著名演員真赫曼死亡，終年95歲。(法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793503_1_20250227171457.jpg&q=90)
+  
 
 兩項奧斯卡得主，美國著名演員真赫曼死亡，終年95歲。
 
@@ -16,6 +59,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793503-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793503-20250227.htm)
+
+---
+
+# 財政預算案2025｜余偉文：積極探討發行更多較長年期債券空間
+
+![余偉文說，金管局未來將繼續致力協助政府落實債券發行計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793501_1_20250227171550.jpg&q=80)
+  
+
+金管局總裁余偉文表示，特區政府發行的債券屬高質素債務工具，一直深受市場歡迎。以2024至25年度為例，政府發行機構債券錄得約3至7倍認購。政府增加發債規模相信會被市場受落。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm)
 
 ---
 
@@ -183,7 +250,7 @@
 
 # 財政預算案2025｜許正宇：一直與評級機構密切聯繫
 
-![許正宇指出，如果發債量超過原定規劃，就需經過立法會審批。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
   
 
 財經事務及庫務局局長許正宇出席財政預算案相關措施記者會時表示，政府一直有與評級機構進行密切聯繫，確保它們知道本港具體情況、發債計劃及財政管理邏輯。他重申，政府債務水平相對其他經濟體屬非常可控水平，債務只佔本地生產總值（GDP）不足17%，發債主要用於支持基礎建設以及工務工程，絕不會用作日常開支。

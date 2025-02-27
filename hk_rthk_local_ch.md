@@ -1,3 +1,59 @@
+# 財政預算案2025｜孫玉菡稱兩元兩折不遲於明年9月落實
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm)
+
+---
+
+# 財政預算案2025｜蔡若蓮稱諮詢教育界削開支不容許逐點措施問
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793506-20250227.htm)
+
+---
+
+# 財政預算案2025｜余偉文：積極探討發行更多較長年期債券空間
+
+![余偉文說，金管局未來將繼續致力協助政府落實債券發行計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793501_1_20250227171550.jpg&q=80)
+  
+
+金管局總裁余偉文表示，特區政府發行的債券屬高質素債務工具，一直深受市場歡迎。以2024至25年度為例，政府發行機構債券錄得約3至7倍認購。政府增加發債規模相信會被市場受落。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793501-20250227.htm)
+
+---
+
 # 黃栢鳴涉內幕交易被證監會檢控　獲准保釋下月再訊
 
 ![黃栢鳴暫時無須答辯，獲准以20萬元保釋，案件押後至下月27日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793498_1_20250227171250.jpg&q=80)
@@ -93,7 +149,7 @@
 
 # 財政預算案2025｜許正宇：一直與評級機構密切聯繫
 
-![許正宇指出，如果發債量超過原定規劃，就需經過立法會審批。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
   
 
 財經事務及庫務局局長許正宇出席財政預算案相關措施記者會時表示，政府一直有與評級機構進行密切聯繫，確保它們知道本港具體情況、發債計劃及財政管理邏輯。他重申，政府債務水平相對其他經濟體屬非常可控水平，債務只佔本地生產總值（GDP）不足17%，發債主要用於支持基礎建設以及工務工程，絕不會用作日常開支。
@@ -1362,77 +1418,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm)
-
----
-
-# 財政預算案2025｜公務員凍薪編制削減　陳茂波指決定合適
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793337_1_20250226190153.jpg&q=85)
-  
-
-《財政預算案》公布，公務員編制將在2026/27及2027/28年度，每年分別減2%，預計到2027年4月1日，在本屆政府任期內將削減約1萬個職位；同時，提出在2025/26年度，所有行政、立法、司法機關及區議會全體人員一致凍薪，包括行政長官、政治委任官員及全體公務員等。另外，政府經常開支削減幅度由原來1%，到2025/26年度增至2%，並且延續措施兩年。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793337-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793337-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793337-20250226.htm)
-
----
-
-# 財政預算案2025｜下年度赤字料達670億元
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793354_1_20250226185915.jpg&q=85)
-  
-
-《財政預算案》提到，2024/25年度的修訂預算，綜合赤字是872億元。財政儲備在今年3月底，預計是6473億元。至於2025/26年度財政預算，年度赤字預計為670億元，財政儲備將下降至5803億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793354-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793354-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793354-20250226.htm)
-
----
-
-# 無業女子被捕涉行使偽鈔　用非洲國家舊外幣印港幣字樣
-
-![警方提醒市民在接收或找贖鈔票時，務必仔細檢查鈔票的防偽特徵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793355_1_20250226191427.jpg&q=25)
-  
-
-警方拘捕一名39歲無業女子，涉及3宗行使偽鈔案，她正被扣留調查，明日在九龍城裁判法院提堂。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm)
 
 ---

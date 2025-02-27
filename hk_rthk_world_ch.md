@@ -1,4 +1,31 @@
+# 美聯社、路透社和彭博社不滿白宮對傳媒採訪實施新限制
+
+![特朗普星期三主持首次內閣會議。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793504_1_20250227171443.jpg&q=75)
+  
+
+美聯社、彭博社和路透社發表聯合聲明，不滿白宮對傳媒採訪實施新的限制措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793504-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793504-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793504-20250227.htm)
+
+---
+
 # 美國著名演員真赫曼與妻子被發現倒斃寓所
+
+![兩項奧斯卡得主，美國著名演員真赫曼死亡，終年95歲。(法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793503_1_20250227171457.jpg&q=90)
+  
 
 兩項奧斯卡得主，美國著名演員真赫曼死亡，終年95歲。
 
@@ -1408,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm)
-
----
-
-# 財政預算案2025｜舉辦國際機器人大會　提升香港影響力
-
-![陳茂波提出舉辦國際機器人大會，藉此提升香港的影響力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793212_1_20250226114809.jpg&q=75)
-  
-
-財政預算案表示，港投公司將會舉辦首屆「國際機器人大會」，匯聚頂尖科企、學術機構和投資者，展示最新科研成果和應用場景，進一步提升香港在科技領域的國際影響力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm)
 
 ---
