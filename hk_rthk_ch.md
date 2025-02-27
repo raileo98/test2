@@ -1,3 +1,24 @@
+# 烏克蘭經濟部長或外長據報獲授權簽署與美國之間礦產協議
+
+烏克蘭報章報道，總理什梅加爾會授權第一副總理、經濟部長斯維里堅科或外交部長瑟比加，代表烏克蘭政府簽署關於設立烏克蘭重建投資基金規則與條件的協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm)
+
+---
+
 # 領導人厄賈蘭籲庫爾德工人黨解散及所有武裝團體放下武器
 
 目前在監獄的庫爾德工人黨領導人厄賈蘭在親筆信中，明確提出庫爾德工人黨應召開大會並宣布自行解散，呼籲所有武裝團體應放下武器。
@@ -1393,29 +1414,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm)
-
----
-
-# 全國兩會｜李家超與港區人大代表座談　陳曼琪稱提及婦女權益
-
-![陳曼琪表示，李家超主要聽取與會人士提出的建議，政府如何作出配合，讓人大代表更好履職。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793492_1_20250227163451.jpg&q=75)
-  
-
-行政長官李家超在政府總部與港區人大代表舉行座談會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
 
 ---
