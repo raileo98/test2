@@ -525,8 +525,8 @@ async def process_category(category, url):
     
     for article in md_articles:
         md_lines.append(f"# {article['title']}")
-        md_lines.append("\n" + article['markdown'] + "\n")
-        md_lines.append(f"原文連結：[{article['url']}]({article['url']})")
+        md_lines.append("\n" + article['markdown'].strip() + "\n")
+        md_lines.append(f"原文連結：[{article['url']}]({article['url']})\n")
         md_lines.append("---\n")
     
     md_str = "\n".join(md_lines)
