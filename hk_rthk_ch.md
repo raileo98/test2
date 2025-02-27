@@ -1,4 +1,46 @@
-# rthk Feed (Markdown Format)
+## 滬股半日跌0.4%　創業板指數跌逾1%
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm)
+
+![上證指數半日收報3366點，跌13點，創業板指數報2242點，跌幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793450_1_20250227113358.jpg&q=85)
+  
+
+內地股市反覆向下，創業板指數跌幅較大。算力相關股份、機械人概念股下跌，食品、旅遊、固態電池概念股上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
+## 南韓憲法法院裁定代總統拒絕任命憲院法官違法
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm)
+
+![法院指，崔相穆拒絕任命由在野黨推薦的法官馬恩赫，是侵犯南韓國會權利。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793449_1_20250227113355.jpg&q=90)
+  
+
+南韓憲法法院裁定，代總統崔相穆拒絕任命第9名憲法法院法官是違憲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 ---
 
@@ -1320,53 +1362,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 海洋公園與漁護署到珠海接收在走私過程被內地查獲及充公的大頭龜
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm)
-
-![大頭龜在《世界自然保護聯盟瀕危物種紅色名錄》中被列為「極危」。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793381_1_20250226225129.jpg&q=85)
-![海洋公園將為大頭龜提供最適切的專業照料。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793381_2_20250226230200.jpg&q=85)
-  
-
-海洋公園昨日聯同漁護署到珠海拱北接收一批去年10月在走私過程被內地海關查獲及充公的大頭龜，其中14 隻交由海洋公園照顧。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793381-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm)
-
-![發展局表示，會全方位協助各部門用好資源，管控工務工程項目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793380_1_20250226225014.jpg&q=85)
-  
-
-新一份財政預算案指出，香港要透過基本工程投資未來，提供土地和基建以支持香港經濟高質量發展，中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來五年平均每年約1200億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm>
 
 © rthk.hk
 

@@ -1,4 +1,23 @@
-# rthk - World Feed (Markdown Format)
+## 'Buffy the Vampire Slayer' star Trachtenberg dies
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
+
+![Actress Michelle Trachtenberg, who starred in the 90s show 'Buffy the Vampire Slayer', was found dead in her New York apartment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793451_1_20250227113737.jpg&q=90)
+  
+
+Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet the Spy” hit movie and went on to co-star in two buzzy millennial-era TV shows — “Buffy the Vampire Slayer” and “Gossip Girl” — has died. She was 39.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 ---
 
@@ -1351,29 +1370,6 @@ Musician A$AP Rocky was found not guilty of two counts of felony assault at the 
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## Russia, US to name Ukraine negotiators
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792190-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792190-20250219.htm)
-
-![Ukrainian President Volodymyr Zelensky slammed his nation's exclusion from the Riyadh gathering. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792190_1_20250219035354.jpg&q=90)
-  
-
-Russia and the United States agreed on Tuesday to establish teams to negotiate a path to ending the war in Ukraine after talks that drew a strong rebuke from Kyiv over its exclusion.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792190-20250219.htm>
 
 © rthk.hk
 

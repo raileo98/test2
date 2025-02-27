@@ -1,7 +1,3 @@
-# rthk - 本地 Feed (Markdown Format)
-
----
-
 ## 財政預算案2025｜陳茂波稱人工智能發展需配合基建與市場力量
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm)
 

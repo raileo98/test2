@@ -1,7 +1,3 @@
-# rthk - 體育 Feed (Markdown Format)
-
----
-
 ## 英超聯賽　利物浦主場2:0擊敗紐卡素　榜首優勢擴大至13分
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm)
 

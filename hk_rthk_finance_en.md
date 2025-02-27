@@ -1,7 +1,3 @@
-# rthk - Finance Feed (Markdown Format)
-
----
-
 ## Local stocks drop at open
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm)
 

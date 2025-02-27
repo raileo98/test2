@@ -1,4 +1,23 @@
-# rthk - English Feed (Markdown Format)
+## 'Buffy the Vampire Slayer' star Trachtenberg dies
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
+
+![Actress Michelle Trachtenberg, who starred in the 90s show 'Buffy the Vampire Slayer', was found dead in her New York apartment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793451_1_20250227113737.jpg&q=90)
+  
+
+Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet the Spy” hit movie and went on to co-star in two buzzy millennial-era TV shows — “Buffy the Vampire Slayer” and “Gossip Girl” — has died. She was 39.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 ---
 
@@ -1352,29 +1371,6 @@ Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly W
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## Galatasaray accuse Mourinho of racism after derby
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm)
-
-![Mourinho following Fenerbahce's Turkish Super League match against Galatasaray. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793050_1_20250225102216.jpg&q=90)
-  
-
-Galatasaray have accused Fenerbahce manager Jose Mourinho of making "racist statements" following a 0-0 draw between the bitter Istanbul rivals.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm>
 
 © rthk.hk
 

@@ -1,7 +1,3 @@
-# rthk - 國際 Feed (Markdown Format)
-
----
-
 ## 南韓憲法法院裁定代總統拒絕任命憲院法官違法
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm)
 

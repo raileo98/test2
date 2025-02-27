@@ -1,7 +1,3 @@
-# rthk - 大中華 Feed (Markdown Format)
-
----
-
 ## 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
 

@@ -1,4 +1,23 @@
-# rthk - 財經 Feed (Markdown Format)
+## 滬股半日跌0.4%　創業板指數跌逾1%
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm)
+
+![上證指數半日收報3366點，跌13點，創業板指數報2242點，跌幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793450_1_20250227113358.jpg&q=85)
+  
+
+內地股市反覆向下，創業板指數跌幅較大。算力相關股份、機械人概念股下跌，食品、旅遊、固態電池概念股上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 ---
 
@@ -1344,29 +1363,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜有長者稱調整2元乘車優惠合理　有人感失望
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm)
-
-![有長者擔心未來車費仍有機會上調。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793341_1_20250226185017.jpg&q=80)
-  
-
-預算案宣布調整2元乘車優惠，有長者認為做法合理，可以節省政府資源，亦有長者感失望，擔心未來車費仍有機會上調。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793341-20250226.htm>
 
 © rthk.hk
 
