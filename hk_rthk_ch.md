@@ -1,3 +1,27 @@
+# 王文濤：中美在經貿領域有分歧正常　應透過平等對話解決各自關切
+
+![王文濤說，中美在經貿領域存在分歧是正常，應透過平等對話磋商解決各自關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793552_1_20250227222918.jpg&q=90)
+  
+
+商務部部長王文濤去信美國新任貿易代表格里爾，就美國對中國輸美產品加徵關稅表達關切。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm)
+
+---
+
 # 大澳一個石灘發現中華白海豚屍體
 
 大澳發現中華白海豚屍體，為本年度第11宗鯨豚擱淺個案。香港海洋公園保育基金人員接報到場後，將屍體解剖，並將樣本帶回海洋公園作詳細分析。

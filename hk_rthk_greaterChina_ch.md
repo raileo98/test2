@@ -1,3 +1,27 @@
+# 王文濤：中美在經貿領域有分歧正常　應透過平等對話解決各自關切
+
+![王文濤說，中美在經貿領域存在分歧是正常，應透過平等對話磋商解決各自關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793552_1_20250227222918.jpg&q=90)
+  
+
+商務部部長王文濤去信美國新任貿易代表格里爾，就美國對中國輸美產品加徵關稅表達關切。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm)
+
+---
+
 # 特朗普：下周向墨西哥和加拿大徵25%關稅　中國關稅再加10%
 
 美國總統特朗普表示，毒品繼續經墨西哥和加拿大流入美國，決定如期在下星期二起，對這兩個國家加徵25%關稅。特朗普又表示，同日會再向中國徵收額外10%的關稅。
@@ -1405,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm)
-
----
-
-# 中方就歐盟和加拿大制裁中國企業提出嚴正交涉
-
-![外交部回應歐盟制裁中企，表示已向歐方提出嚴正交涉，敦促歐方停止抹黑推責。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793098_1_20250225155509.jpg&q=75)
-  
-
-中方就歐盟和加拿大因應俄烏戰事，制裁向俄羅斯提供軍民兩用物項支持的個人和實體，影響中國企業，向歐方及加方提出嚴正交涉，敦促歐方停止在沒有事實依據的情況下，對中方抹黑推責，停止損害中國企業的合法利益，敦促加方立即撤銷錯誤決定，將採取必要措施，堅決維護中國企業的合法權益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm)
 
 ---

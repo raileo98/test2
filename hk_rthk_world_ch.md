@@ -1,3 +1,27 @@
+# 王文濤：中美在經貿領域有分歧正常　應透過平等對話解決各自關切
+
+![王文濤說，中美在經貿領域存在分歧是正常，應透過平等對話磋商解決各自關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793552_1_20250227222918.jpg&q=90)
+  
+
+商務部部長王文濤去信美國新任貿易代表格里爾，就美國對中國輸美產品加徵關稅表達關切。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm)
+
+---
+
 # 特朗普：下周向墨西哥和加拿大徵25%關稅　中國關稅再加10%
 
 美國總統特朗普表示，毒品繼續經墨西哥和加拿大流入美國，決定如期在下星期二起，對這兩個國家加徵25%關稅。特朗普又表示，同日會再向中國徵收額外10%的關稅。
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm)
-
----
-
-# 商務部稱堅決反對加拿大以涉俄為由制裁中國企業
-
-![商務部說，中方將採取必要措施，堅決捍衛中國企業的合法權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793226_1_20250226120817.jpg&q=30)
-  
-
-商務部回應加拿大以涉俄為由制裁中國企業，發言人表示，加方制裁中國企業的單邊做法破壞國際經貿規則和秩序，損害全球產業鏈供應鏈安全穩定，中方對此強烈不滿，堅決反對，敦促加方立即停止錯誤做法。中方將採取必要措施，堅決捍衛中國企業的合法權益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm)
 
 ---

@@ -1,3 +1,27 @@
+# US slashes foreign development aid by more than 90pc
+
+![The Trump administration's review in part targeted multi-year foreign assistance contracts awarded by the US Agency for International Development (USAID). File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793539_1_20250227201224.jpg&q=85)
+  
+
+The United States has slashed its multi-year aid contracts by 92 percent, as it sought around US$60 billion in savings in development and overseas humanitarian programmes, the State Department said on Wednesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm)
+
+---
+
 # EU 'wasn't formed to screw anyone', says Polish PM
 
 ![Donald Tusk says the EU was formed to maintain peace and create free and fair trade, and "wasn’t formed to screw anyone". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793547_2_20250227221517.jpg&q=85)
@@ -1411,29 +1435,5 @@ Pope Francis's heart is holding up very well despite his pneumonia, a Vatican so
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm)
-
----
-
-# Trump says auto tariffs to be around 25pc
-
-![President Trump told reporters the specifics of tariffs on the automobile industry will come around April 2. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792352_1_20250219212742.jpg&q=90)
-  
-
-US President Donald Trump expanded his offensive against trading partners on Tuesday, threatening 25 percent tariffs on imported cars, and similar or higher duties on pharmaceuticals and semiconductors.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm)
 
 ---
