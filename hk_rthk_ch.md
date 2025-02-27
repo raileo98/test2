@@ -1,3 +1,27 @@
+# 新地中期盈利跌近18%　基礎盈利升17%
+
+![新地中期盈利按年跌近18%至75.2億元，中期息維持每股0.95元。基礎盈利升17%至104.6億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793500_1_20250227170746.jpg&q=80)
+  
+
+新地截至去年底中期盈利按年跌近18%至75.2億元，中期息維持每股0.95元。撇除投資物業公平值變動影響後，基礎盈利升17%至104.6億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793500-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793500-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793500-20250227.htm)
+
+---
+
 # 海關在將軍澳打擊廢料回收商涉「呃秤」
 
 海關在將軍澳打擊廢料回收商涉及「呃秤」行為。

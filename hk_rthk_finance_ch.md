@@ -1,3 +1,27 @@
+# 新地中期盈利跌近18%　基礎盈利升17%
+
+![新地中期盈利按年跌近18%至75.2億元，中期息維持每股0.95元。基礎盈利升17%至104.6億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793500_1_20250227170746.jpg&q=80)
+  
+
+新地截至去年底中期盈利按年跌近18%至75.2億元，中期息維持每股0.95元。撇除投資物業公平值變動影響後，基礎盈利升17%至104.6億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793500-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793500-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793500-20250227.htm)
+
+---
+
 # 財政預算案2025｜陳翊庭：「T+1」結算料今年底可兼容
 
 ![陳翊庭表示，香港作為國際市場，不能忽視市場趨勢，又相信實施「T+1」結算周期有助增加流動性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793527_1_20250227183555.jpg&q=90)
@@ -1405,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱節約開支需取消學生津貼
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793426_1_20250227100555.jpg&q=70)
-  
-
-預算案公布將將取消為中小學和幼稚園學生提供2500元學生津貼。有聽衆致電司長熱線電台聯播節目，表示做法有違政府鼓勵生育，綜援、生果金等出半糧，中產則沒有受惠。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm)
 
 ---
