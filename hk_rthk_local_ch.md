@@ -1,3 +1,22 @@
+## 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜陳茂波稱人工智能發展需配合基建與市場力量
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm)
 
@@ -1341,29 +1360,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793317-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜陳茂波認為增加飛機離境稅影響相對較輕微
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htm)
-
-![《財政預算案》提出多項開源措施，包括增加飛機離境稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793316_1_20250226170436.jpg&q=85)
-  
-
-《財政預算案》提出多項開源措施，包括增加飛機離境稅，下年度第三季起由120元加至200元；同時研究向過境私家車徵收邊境建設費。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htm>
 
 © rthk.hk
 

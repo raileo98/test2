@@ -1,3 +1,22 @@
+## 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 滬股半日跌0.4%　創業板指數跌逾1%
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm)
 
@@ -1339,29 +1358,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 美股初段上升
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm)
-
-![道瓊斯指數較早時報43635點，升14點，升幅0.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793382_1_20250226224616.jpg&q=90)
-  
-
-美股在開市初段上升。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm>
 
 © rthk.hk
 
