@@ -1,3 +1,26 @@
+## 港交所去年盈利升10%創新高　第2次中期息增至4.9元
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm)
+
+![港交所去年盈利130.5億元，按年升10%，再創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793454_1_20250227120727.jpg&q=90)
+  
+
+港交所去年盈利130.5億元，按年升10%。全年收入及盈利都再創新高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
 
@@ -1336,29 +1359,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜提向旅發局撥逾12.3億　落實無處不旅遊
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm)
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793347_1_20250226184903.jpg&q=80)
-  
-
-預算案提出向旅發局撥款超過12億3千萬元，落實「無處不旅遊」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm>
 
 © rthk.hk
 

@@ -1,3 +1,26 @@
+## 港交所去年盈利升10%創新高　第2次中期息增至4.9元
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm)
+
+![港交所去年盈利130.5億元，按年升10%，再創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793454_1_20250227120727.jpg&q=90)
+  
+
+港交所去年盈利130.5億元，按年升10%。全年收入及盈利都再創新高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
 
@@ -1335,29 +1358,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 2025/26《財政預算案論壇》
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm)
-
-![節目主持陳曉慶（左起）、團結香港基金副總裁葉文祺及會計界立法會議員黃俊碩。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793377_1_20250226221747.jpg&q=75)
-  
-
-財政司司長陳茂波發表新一份《財政預算案》，本年度綜合赤字預計為872億元，政府提出「強化版」財政整合計劃。節流方面，下年度行政長官、政治委任官員、全體公務員、立法會議員、區議員等均要凍薪；兩元乘車優惠設每月240程上限，10元以上車費改為「兩折」計算。至於開源，下年度第三季起，飛機離境稅會由120元加至200元，又會研究向過境私家車徵收邊境建設費，以及檢討停車收費錶的收費、交通違例事項的定額罰款。為確保北部都會區等基建項目按時推展，政府計劃未來5個財政年度，每年發債1500億元至1950億元，並積極研究發長債。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm>
 
 © rthk.hk
 
