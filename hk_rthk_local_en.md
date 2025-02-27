@@ -217,10 +217,10 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 
 # Man dies in Yuen Long Highway pile-up
 
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
+![A seven-vehicle collision occurred at around 7:30am near the Shap Pat Heung Interchange. Image: social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
   
 
-A man died and six others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
+A man died and seven others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
 
   
 

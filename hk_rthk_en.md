@@ -1,3 +1,27 @@
+# US slashes foreign development aid by more than 90pc
+
+![The Trump administration's review in part targeted multi-year foreign assistance contracts awarded by the US Agency for International Development (USAID). File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793539_1_20250227201224.jpg&q=85)
+  
+
+The United States has slashed its multi-year aid contracts by 92 percent, as it sought around US$60 billion in savings in development and overseas humanitarian programmes, the State Department said on Wednesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm)
+
+---
+
 # EU 'wasn't formed to screw anyone', says Polish PM
 
 ![Donald Tusk says the EU was formed to maintain peace and create free and fair trade, and "wasn’t formed to screw anyone". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793547_2_20250227221517.jpg&q=85)
@@ -385,10 +409,10 @@ Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet t
 
 # Man dies in Yuen Long Highway pile-up
 
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
+![A seven-vehicle collision occurred at around 7:30am near the Shap Pat Heung Interchange. Image: social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
   
 
-A man died and six others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
+A man died and seven others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
 
   
 
@@ -1413,29 +1437,5 @@ A fresh search for Malaysia Airlines flight MH370 has been launched more than a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm)
-
----
-
-# S Africa-Australia Champions Trophy game washed out
-
-![A persistent light drizzle scuppered any chance of play in Rawalpindi. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793136_1_20250225205129.jpg&q=80)
-  
-
-Rain washed out the Champions Trophy game between South Africa and two-time winner Australia on Tuesday without a ball being bowled.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm)
 
 ---
