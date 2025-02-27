@@ -432,7 +432,7 @@ async def get_response(url, timeout=10, mustFetch=True, method='GET', session=se
 
 # ------------------------
 # 非同步處理分類
-# 注意：本範例將會產生兩種文件：RSS XML (.rss.xml) 同 Markdown (.md)
+# 注意：本範例將會產生兩種文件：RSS XML (.xml) 同 Markdown (.md)
 async def process_category(category, url):
     try:
         response = await get_response(url)
@@ -470,9 +470,12 @@ async def process_category(category, url):
     # 每篇文章分別處理，並同時收集 Markdown 格式文章內容（方便匯出 .md 文件）
     md_articles = []
     tasks = []
+    
     for article in articles_list:
         tasks.append(asyncio.create_task(process_article(fg, category, article)))
+    
     results = await asyncio.gather(*tasks)
+    
     for item in results:
         if item is not None:
             md_articles.append(item)
@@ -480,27 +483,34 @@ async def process_category(category, url):
     # 產生 RSS XML 字串，同執行 HTML 清理等工作
     rss_str = fg.rss_str()
     soup_rss = BeautifulSoup(rss_str, 'lxml-xml')
+    
     for item in soup_rss.find_all('item'):
         if item.description is not None:
             document = lxmlhtml.fromstring(html.unescape(item.description.string.strip()))
             clean_html = cleaner.clean_html(document)
             clean_html_str = lxmlhtml.tostring(clean_html, pretty_print=True, encoding='unicode')
             item.description.string = CData(html.unescape(clean_html_str))
+    
     if soup_rss.find('url') is not None:
         soup_rss.find('url').string = CData(html.unescape(soup_rss.find('url').string.strip()))
     sorted_items = sorted(soup_rss.find_all('item'), key=lambda x: datetime.strptime(get_item_pub_date(x), '%a, %d %b %Y %H:%M:%S %z') if get_item_pub_date(x) else datetime.min, reverse=True)
+    
     for item in soup_rss.find_all('item'):
         item.extract()
+    
     for item in sorted_items:
         soup_rss.channel.append(item)
+    
     tag = soup_rss.find('lastBuildDate')
+    
     if tag:
         tag.decompose()
+    
     soup_rss = soup_rss.prettify().strip()
     soup_rss = soup_rss.replace('http://', 'https://')
     
     # 儲存 RSS XML
-    rss_filename = f'{category}.rss.xml'
+    rss_filename = f'{category}.xml'
     
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
         await file.write(soup_rss)
@@ -518,6 +528,7 @@ async def process_category(category, url):
         md_lines.append(f"原文連結：[{article['url']}]({article['url']})")
         md_lines.append("\n" + article['markdown'] + "\n")
         md_lines.append("---\n")
+    
     md_str = "\n".join(md_lines)
     
     async with aiofiles.open(md_filename, 'w', encoding='utf-8') as file:
