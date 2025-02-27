@@ -1,3 +1,45 @@
+# 國防部：削減核武庫和軍費開支美方應做到「美國優先」
+
+美國總統特朗普近日主動提及計劃同中俄討論削減核武問題，並稱將提議將三國的國防預算削減一半。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm)
+
+---
+
+# 外交部：美方對中俄關係挑撥離間完全是徒勞
+
+在北京，外交部發言人林劍指，中俄作為兩個大國，彼此的關係具有強大的內生動力，不受任何第三方影響。中俄兩國的發展戰略和外交政策是很長遠的，任憑國際風雲變幻，中俄關係都將從容前行。他指美方對中俄關係挑撥離間完全是徒勞的。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm)
+
+---
+
 # 福布斯：首50位香港富豪總財富按年升近2%
 
 ![福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793487_2_20250227155340.jpg&q=35)

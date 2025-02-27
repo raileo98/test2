@@ -1,3 +1,45 @@
+# 國防部：削減核武庫和軍費開支美方應做到「美國優先」
+
+美國總統特朗普近日主動提及計劃同中俄討論削減核武問題，並稱將提議將三國的國防預算削減一半。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm)
+
+---
+
+# 外交部：美方對中俄關係挑撥離間完全是徒勞
+
+在北京，外交部發言人林劍指，中俄作為兩個大國，彼此的關係具有強大的內生動力，不受任何第三方影響。中俄兩國的發展戰略和外交政策是很長遠的，任憑國際風雲變幻，中俄關係都將從容前行。他指美方對中俄關係挑撥離間完全是徒勞的。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm)
+
+---
+
 # 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
 
 對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
@@ -1384,53 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm)
-
----
-
-# 中方代表稱國際社會應弘揚人道博愛　避免人道主義問題政治化
-
-![陳旭說中方將繼續向人道機構提供力所能及的幫助。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793000_1_20250225012521.jpg&q=80)
-  
-
-中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭說，當前全球人道主義危機仍然嚴峻，如何推動國際人道法切實得到遵守是必須回答的時代之問，也是中方參與發起並推進國際人道法倡議的初衷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm)
-
----
-
-# 王毅稱中方踐行國際合作　與各方共創人權事業美好未來
-
-![王毅指百年變局加速演進，維護和平、促進發展、保護人權更加深入人心。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792999_1_20250225011539.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅表示，中國願與各國共同實現和平發展、互利合作、共同繁榮的世界現代化，中方將以人類前途為懷、以各國福祉為念，做國際合作的踐行者、文明互鑒的推動者、人類命運共同體的建設者，以更加積極有為的姿態參與國際人權合作，與各方共同開創全球人權事業美好的未來。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm)
 
 ---
