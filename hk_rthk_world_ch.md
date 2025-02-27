@@ -768,7 +768,7 @@
 
 # 王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧
 
-![王毅在北京與新西蘭副總理兼外長彼得斯會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793383_1_20250226230025.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793383_1_20250226230025.jpg&q=90)
   
 
 中共中央政治局委員、外長王毅在北京與新西蘭副總理兼外長彼得斯會談。

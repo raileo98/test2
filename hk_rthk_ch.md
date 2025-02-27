@@ -1,3 +1,24 @@
+# 海關在將軍澳打擊廢料回收商涉「呃秤」
+
+海關在將軍澳打擊廢料回收商涉及「呃秤」行為。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793528-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793528-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793528-20250227.htm)
+
+---
+
 # 財政預算案2025｜陳翊庭：「T+1」結算料今年底可兼容
 
 ![陳翊庭表示，香港作為國際市場，不能忽視市場趨勢，又相信實施「T+1」結算周期有助增加流動性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793527_1_20250227183555.jpg&q=90)
@@ -92,6 +113,9 @@
 ---
 
 # 財政預算案2025｜陳茂波：政府不再希望過分依賴地價收入
+
+![陳茂波認為要發展經濟，各方面收入更重要。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793525_1_20250227183912.jpg&q=85)
+  
 
 財政司司長陳茂波表示，政府不再希望過分依賴地價收入，認為要發展經濟，各方面收入更重要。
 
