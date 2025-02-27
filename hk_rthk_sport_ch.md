@@ -1,3 +1,24 @@
+# 全運會三項鐵人測試賽周末舉行　當局歡迎市民到場觀賞
+
+第十五屆全國運動會三項鐵人項目測試賽，將於周六和周日在中環海濱及維港舉行，當局歡迎市民到場觀賞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm)
+
+---
+
 # 啟德體育園開幕當日城巴5條特別路線前往九龍將軍澳屯門及港島
 
 ![城巴表示，當日將開辦5條特別路線，直達港九新界，為市民及旅客提供交通選項。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793485_1_20250227153829.jpg&q=80)
@@ -1420,29 +1441,5 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791765-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791765-20250215.htm)
-
----
-
-# 英超白禮頓3:0大勝車路士
-
-![三笘薰（左）替白禮頓先開紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791723_1_20250215070645.jpg&q=85)
-  
-
-英超白禮頓3:0大勝射門零中框的車路士，文迪射入兩球。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm)
 
 ---

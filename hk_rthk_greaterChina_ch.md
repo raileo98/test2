@@ -48,7 +48,7 @@
 
 # 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
 
-![李慧琼（右）說，同意未來溝通機制能進一步加強。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
   
 
 全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。

@@ -1,4 +1,70 @@
+# 全運會三項鐵人測試賽周末舉行　當局歡迎市民到場觀賞
+
+第十五屆全國運動會三項鐵人項目測試賽，將於周六和周日在中環海濱及維港舉行，當局歡迎市民到場觀賞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm)
+
+---
+
+# 財政預算案2025｜八達通爭取盡早完成調整系統設定
+
+預算案提出調整二元乘車優惠計至「二元、兩折」，八達通公司表示，將全力支持及配合，又指技術層面上，八達通卡在公共交通收費系統中具備充分的技術彈性，10元後的兩折優惠及乘車次數限制，均可通過系統設定進行調整，八達通將積極與政府及公共交通營運機構合作，按細節研究推行時間表並爭取盡早完成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793542-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793542-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793542-20250227.htm)
+
+---
+
+# 貿發局助理經理涉泄露招標機密資料助友人獲判項目遭起訴
+
+廉署昨日落案起訴一名貿發局助理經理公職人員行為失當，涉嫌向友人泄露招標機密資料，包括評核準則及其他投標者的標書內容，幫助對方獲判授一個網上商貿平台優化項目，涉款逾230萬元，她的友人則被控協助或教唆他人干犯公職人員行為失當罪，兩人已獲准保釋，明日在東區裁判法院答辯。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793540-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793540-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793540-20250227.htm)
+
+---
+
 # 海外國家麻疹個案呈升勢　衞防中心籲市民接種麻疹疫苗
+
+![中心說，鄰近國家包括越南及菲律賓，亦因為當地整體麻疹疫苗接種覆蓋率偏低，持續出現麻疹爆發。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793538_1_20250227203023.jpg&q=80)
+  
 
 衞生防護中心表示，近期部分海外國家的麻疹個案呈上升趨勢，其中美國得州最近爆發麻疹，自上月底錄得至少124宗個案，主要涉及未曾接種麻疹疫苗或疫苗接種史不詳的人，超過八成影響18歲以下兒童，包括一宗沒有接種麻疹疫苗的學齡兒童死亡個案。
 
@@ -20,6 +86,9 @@
 ---
 
 # 元朗致命交通意外　49歲輕型貨車司機死亡另有7人傷
+
+![元朗致命交通意外　49歲輕型貨車司機死亡另有7人傷](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793537_1_20250227202955.jpg&q=90)
+  
 
 元朗上午發生致命交通意外，一名49歲男子死亡。
 
@@ -66,6 +135,9 @@
 
 # 財政預算案2025｜孫玉菡：每月乘搭逾240程僅360人
 
+![財政預算案調整「二元乘車優惠計劃」，每月限制240程，10元以上車費 「兩折」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793534_1_20250227202723.jpg&q=85)
+  
+
 財政預算案調整「二元乘車優惠計劃」，每月限制240程，10元以上車費 「兩折」。勞工及福利局局長孫玉菡表示，限程安排寬鬆，根據統計，每月乘搭超過240程的受惠人士只有360人，相信新安排對99.99%的長者和殘疾人士均無影響。
 
   
@@ -86,6 +158,9 @@
 ---
 
 # 海關在將軍澳打擊廢料回收商涉「呃秤」
+
+![海關在將軍澳打擊廢料回收商涉及「呃秤」行為。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793528_1_20250227202927.jpg&q=75)
+  
 
 海關在將軍澳打擊廢料回收商涉及「呃秤」行為。
 
@@ -273,7 +348,7 @@
 
 # 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
 
-![李慧琼（右）說，同意未來溝通機制能進一步加強。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
   
 
 全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。
@@ -1345,77 +1420,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm)
-
----
-
-# 元朗公路元朗方向近十八鄉交匯處七車相撞
-
-![元朗公路往元朗方向近十八鄉交匯處發生七車相撞意外，涉及貨車和私家車。（網上圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793422_1_20250227100017.jpg&q=85)
-  
-
-元朗公路往元朗方向近十八鄉交匯處發生七車相撞意外，涉及貨車和私家車，其中一輛輕型貨車司機被困，其後被救出。另外一名私家車女乘客報稱心口痛，有傷者要送往博愛醫院治理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm)
-
----
-
-# 財政預算案2025｜陳茂波：調整2元乘車優惠簡單易明容易計數
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793421_1_20250227093723.jpg&q=85)
-  
-
-預算案公布調整二元乘車優惠計劃，受惠對象不變，新增每月240程限制，10元以上改為全額車費「兩折」。有聽衆致電司長熱線電台聯播節目，問及行程設限原因，有聽衆則表示，應該考慮全部行程兩折優惠。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793417_1_20250227094105.jpg&q=85)
-  
-
-財政預算案提出，政府預計2025/26起的5年間，每年發債1500億至1950億元。財政司司長陳茂波表示，發債得到的錢不是用作支付經常開支，而是用作投資基建，強調香港要掌握發展的機遇期，投資未來，而創科企業及傳統產業都需要大力做好，令本港加速發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm)
 
 ---

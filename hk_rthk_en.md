@@ -1,3 +1,27 @@
+# 'Govt needs time to get ready for HK$2 subsidy tweaks'
+
+![Chris Sun says only 360 people were found to have taken more than 240 trips a month under the HK$2 transport subsidy scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793531_1_20250227185519.jpg&q=90)
+  
+
+Labour and welfare chief Chris Sun on Thursday said it will take time for the authorities to prepare for changes to the HK$2 transport subsidy scheme, which will be implemented no later than September next year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm)
+
+---
+
 # 40 Chinese nationals repatriated from Thailand
 
 ![A group of Chinese nationals who was repatriated from Thailand reunites with their families. Photo: CCTV Weibo](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793533_1_20250227191335.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793108-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793108-20250225.htm)
-
----
-
-# Harbour crossing briefly shut after concrete hits car
-
-![The Hong Kong Island-bound fast lane of the Cross-Harbour Tunnel was partially shut for emergency repair works. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793103_1_20250225162200.jpg&q=40)
-  
-
-The Cross-Harbour Tunnel was forced to shut partially for more than an hour on Tuesday after a piece of concrete fell from the ceiling and hit a vehicle.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm)
 
 ---

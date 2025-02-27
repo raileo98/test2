@@ -1,3 +1,27 @@
+# 普京：俄美已準備好重新建立合作關係
+
+![普京說，俄羅斯從未拒絕以和平方式解決烏克蘭危機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793541_1_20250227205952.jpg&q=90)
+  
+
+俄羅斯和美國的代表在土耳其伊斯坦布爾舉行閉門會談，討論恢復兩國使館正常運作的問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793541-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793541-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793541-20250227.htm)
+
+---
+
 # 克宮：俄美有很大合作空間　已成俄方領土地區屬俄國不會討論交換
 
 ![佩斯科夫說，俄方注意到美國總統特朗普與他的前任拜登不同，願意傾聽他人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793530_1_20250227185203.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm)
-
----
-
-# 財政預算案2025｜助力C919打進國際市場　擴展培訓範疇
-
-![陳茂波表示，香港將助力C919打進國際市場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793222_1_20250226122400.jpg&q=85)
-  
-
-財政司司長陳茂波表示，今年1月，國家自主研發的C919飛機正式應用於香港與上海的定期航班，是內地以外地區的首次，標誌著國產飛機走向世界的一大突破。香港將助力C919打進國際市場，香港國際航空學院會把培訓課程擴展至涵蓋與C919飛機相關的範疇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm)
 
 ---

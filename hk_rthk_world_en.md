@@ -360,7 +360,7 @@ Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly W
 
 # Zelensky calls for lasting peace 'this year'
 
-![Ukrainian President Volodymyr Zelensky speaks at a press conference after the 'Support Ukraine' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793025_1_20250225082846.jpg&q=85)
+![Ukrainian President Volodymyr Zelensky speaks at a press conference after the 'Support Ukraine' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793025_1_20250225082846.jpg&q=1)
   
 
 Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace" this year as European leaders gathered for a summit in Kyiv on the third anniversary of the war in Ukraine.

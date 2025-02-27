@@ -1,3 +1,27 @@
+# 'Govt needs time to get ready for HK$2 subsidy tweaks'
+
+![Chris Sun says only 360 people were found to have taken more than 240 trips a month under the HK$2 transport subsidy scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793531_1_20250227185519.jpg&q=90)
+  
+
+Labour and welfare chief Chris Sun on Thursday said it will take time for the authorities to prepare for changes to the HK$2 transport subsidy scheme, which will be implemented no later than September next year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm)
+
+---
+
 # Lam Cheuk-ting, six others jailed over Yuen Long riot
 
 ![The District Court jailed former lawmaker Lam Cheuk-ting and six others for rioting in Yuen Long in 2019. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793502_1_20250227171029.jpg&q=40)
@@ -1413,29 +1437,5 @@ Lawmakers have mixed reactions towards the rumoured changes on the HK$2 fare con
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792736-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792736-20250222.htm)
-
----
-
-# Shenzhen Bay Port to close for cross-boundary marathon
-
-![Shenzhen Bay Port will be closed from 2am to 11am on Sunday for the cross-border marathon. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792734_1_20250222115359.jpg&q=80)
-  
-
-Shenzhen Bay Port will suspend its clearance services on Sunday for the cross-boundary marathon test event of the National Games.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792734-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792734-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792734-20250222.htm)
 
 ---
