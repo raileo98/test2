@@ -1,3 +1,27 @@
+# 美國1月二手樓臨時買賣合約指數創新低　因按揭利率及房價高企
+
+![全美不動產協會(NAR)公布，美國1月二手樓臨時買賣合約指數跌至70.6的紀錄低位，按月跌4.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793559_1_20250227232003.jpg&q=35)
+  
+
+美國1月二手樓臨時買賣合約指數創歷史新低，因按揭貸款利率和房價高企打擊購買力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793559-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793559-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793559-20250227.htm)
+
+---
+
 # 赤峰黃金周五起招股　集資最多近32.6億元
 
 ![赤峰黃金周五起公開招股，招股價介乎每股13.72至15.83元，每手為200股，入場費約3198元。（公司圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793558_1_20250227230400.jpg&q=90)
