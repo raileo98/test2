@@ -1,3 +1,24 @@
+# 特朗普白宮晤施紀賢　西翼外握手並向傳媒微笑
+
+美國總統特朗普在白宮會見到訪的英國首相施紀賢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm)
+
+---
+
 # 馬斯克稱將繼續發射星鏈衛星確保美國空中交管及境內航空安全
 
 美國富商馬斯克表示，將繼續發射旗下太空探索技術公司高速互聯網接入服務的星鏈衛星終端，確保美國空中交通管制通訊及美國境內航空旅行安全。
@@ -1387,29 +1408,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm)
-
----
-
-# 「城市景昔」擴展至大坑包括火龍徑蓮花宮西街浣紗街火龍文化館
-
-![旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設五個指定地點。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793494_1_20250227163515.jpg&q=90)
-  
-
-旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設5個指定地點，讓市民和旅客在香港更多地區，利用手機應用程式體驗香港古今。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm)
 
 ---

@@ -1,3 +1,24 @@
+# 特朗普白宮晤施紀賢　西翼外握手並向傳媒微笑
+
+美國總統特朗普在白宮會見到訪的英國首相施紀賢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm)
+
+---
+
 # 馬斯克稱將繼續發射星鏈衛星確保美國空中交管及境內航空安全
 
 美國富商馬斯克表示，將繼續發射旗下太空探索技術公司高速互聯網接入服務的星鏈衛星終端，確保美國空中交通管制通訊及美國境內航空旅行安全。
@@ -1393,29 +1414,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm)
-
----
-
-# 特朗普稱將推出金卡投資移民計劃　500萬美元可享永久居民待遇
-
-![特朗普說，富人可以透過購買新的「金卡」進入美國。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793296_1_20250226152828.jpg&q=85)
-  
-
-美國總統特朗普表示，將會推出新的「金卡」投資移民計劃，為外國人取得美國居住權並最終入籍，開闢新途徑。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793296-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793296-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793296-20250226.htm)
 
 ---
