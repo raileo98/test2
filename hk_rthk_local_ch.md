@@ -1,3 +1,27 @@
+# 福布斯：首50位香港富豪總財富按年升近2%
+
+![福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793487_2_20250227155340.jpg&q=35)
+  
+
+福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元，因房地產市場面臨困境，貿易局勢亦緊張，抵銷內地刺激措施帶動港股大幅上升的利好因素。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm)
+
+---
+
 # 元朗7.21案林卓廷暴動罪成判囚37個月
 
 ![林卓廷被判入獄37個月，其餘6人分別判入獄25至31個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793486_1_20250227154612.jpg&q=70)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm)
-
----
-
-# 財政預算案2025｜探討規範籃球博彩邀馬會交建議　明光社反對
-
-![陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793348_1_20250226185056.jpg&q=80)
-  
-
-財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm)
 
 ---

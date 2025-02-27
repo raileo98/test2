@@ -1,3 +1,48 @@
+# 福布斯：首50位香港富豪總財富按年升近2%
+
+![福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793487_2_20250227155340.jpg&q=35)
+  
+
+福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元，因房地產市場面臨困境，貿易局勢亦緊張，抵銷內地刺激措施帶動港股大幅上升的利好因素。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm)
+
+---
+
+# 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
+
+對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm)
+
+---
+
 # 元朗7.21案林卓廷暴動罪成判囚37個月
 
 ![林卓廷被判入獄37個月，其餘6人分別判入獄25至31個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793486_1_20250227154612.jpg&q=70)
@@ -115,9 +160,9 @@
 
 ---
 
-# 滬指收市靠穩
+# 滬指收市靠穩　創近兩個月高位
 
-![上證綜合指數收市報3388點，升7點，升幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793481_1_20250227151226.jpg&q=85)
+![上證綜合指數收市報3388點，升7點，升幅0.23%，創近兩個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793481_1_20250227151226.jpg&q=85)
   
 
 滬深股市收市個別發展，免税店、飲品製造、海南自貿區板塊升幅較大；國資雲、液冷服務器板塊跌幅居前。

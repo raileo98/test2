@@ -1,3 +1,24 @@
+# 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
+
+對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm)
+
+---
+
 # 國防部：下階段中美兩軍交流已有一些初步計劃和安排
 
 ![吳謙表示，中方希望美方與中方相向而行，加強溝通對話，妥處矛盾分歧。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793483_1_20250227152825.jpg&q=90)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm)
-
----
-
-# 澳門發生劇組拍攝意外12人受傷　警方調查涉事汽車失控原因
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792983_1_20250224192544.jpg&q=15)
-  
-
-澳門三巴仔橫街發生劇組拍攝意外，造成12人受傷，包括演員。澳門消防消息說，傷者由5歲至61歲，大部分以擦傷為主，全部送往鏡湖醫院治理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm)
 
 ---

@@ -1,3 +1,27 @@
+# HKEX posts record annual profit on rising turnover
+
+![Hong Kong Exchanges and Clearing (HKEX) posted a record profit for 2024. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793473_1_20250227143726.jpg&q=90)
+  
+
+Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchange, posted its best-ever annual profit, revenue, and income during 2024 - on the back of the rising market turnover and new listings especially during the fourth quarter of last year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm)
+
+---
+
 # Govt won't rely on land sales for revenue: FS
 
 ![Paul Chan said the government hopes that different sources of revenue, besides land sales, can become more important.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793467_1_20250227134032.jpg&q=85)
@@ -1413,29 +1437,5 @@ Unionists on Tuesday said the government should allocate more resources to impro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793074-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793074-20250225.htm)
-
----
-
-# Self-parking cars good for new drivers: motoring group
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793068_1_20250225121834.jpg&q=40)
-  
-
-A motoring group has welcomed a change in the law which will allow drivers to use technology to get their cars to park themselves.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793068-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793068-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793068-20250225.htm)
 
 ---

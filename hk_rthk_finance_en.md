@@ -1,3 +1,27 @@
+# HKEX posts record annual profit on rising turnover
+
+![Hong Kong Exchanges and Clearing (HKEX) posted a record profit for 2024. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793473_1_20250227143726.jpg&q=90)
+  
+
+Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchange, posted its best-ever annual profit, revenue, and income during 2024 - on the back of the rising market turnover and new listings especially during the fourth quarter of last year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm)
+
+---
+
 # Local stocks drop at open
 
 ![The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793437_1_20250227095324.jpg&q=25)
@@ -1411,29 +1435,5 @@ US President Donald Trump said on Sunday he will introduce new 25-percent tariff
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790961-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790961-20250210.htm)
-
----
-
-# China's CPI at five-month high
-
-![People walk in an alley near a popular shopping street in Beijing during the Spring Festival holiday. Officials say an increase in the consumer price index in January is due largely to the influence of the new year break. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790882_1_20250209120154.jpg&q=90)
-  
-
-China's consumer price index (CPI), a main gauge of inflation, accelerated to its fastest in five months, government data showed on Sunday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm)
 
 ---

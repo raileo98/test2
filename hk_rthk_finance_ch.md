@@ -1,3 +1,27 @@
+# 福布斯：首50位香港富豪總財富按年升近2%
+
+![福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793487_2_20250227155340.jpg&q=35)
+  
+
+福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元，因房地產市場面臨困境，貿易局勢亦緊張，抵銷內地刺激措施帶動港股大幅上升的利好因素。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm)
+
+---
+
 # 財政預算案2025｜孫東稱香港人工智能研發院最快明年開始運作
 
 ![孫東說，香港人工智能研發院最快明年開始運作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793484_1_20250227153725.jpg&q=85)
@@ -19,9 +43,9 @@
 
 ---
 
-# 滬指收市靠穩
+# 滬指收市靠穩　創近兩個月高位
 
-![上證綜合指數收市報3388點，升7點，升幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793481_1_20250227151226.jpg&q=85)
+![上證綜合指數收市報3388點，升7點，升幅0.23%，創近兩個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793481_1_20250227151226.jpg&q=85)
   
 
 滬深股市收市個別發展，免税店、飲品製造、海南自貿區板塊升幅較大；國資雲、液冷服務器板塊跌幅居前。
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃
-
-![楊何蓓茵說，很多公務員皆理解今次凍薪和削減編制的決定。（楊何蓓茵社交平台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793379_1_20250226224949.jpg&q=90)
-  
-
-公務員事務局局長楊何蓓茵就《財政預算案》與公務員事務相關的政策措施，向全體公務員發信。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm)
 
 ---
