@@ -2,6 +2,29 @@
 
 ---
 
+## 南韓憲法法院裁定代總統拒絕任命憲院法官違法
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm)
+
+![法院指，崔相穆拒絕任命由在野黨推薦的法官馬恩赫，是侵犯南韓國會權利。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793449_1_20250227113355.jpg&q=90)
+  
+
+南韓憲法法院裁定，代總統崔相穆拒絕任命第9名憲法法院法官是違憲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
 
@@ -1350,29 +1373,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793186-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 印尼馬魯古海發生6.1級地震
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793181-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793181-20250226.htm)
-
-![印尼馬魯古海發生6.1級地震](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793181_1_20250226075820.jpg&q=90)
-  
-
-中國地震台網正式測定，印尼馬魯古海今早6時55分發生6.1級地震，震源深度20公里，暫時未有傷亡或損毀報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793181-20250226.htm>
 
 © rthk.hk
 

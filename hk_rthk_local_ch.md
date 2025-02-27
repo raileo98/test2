@@ -2,6 +2,44 @@
 
 ---
 
+## 財政預算案2025｜陳茂波稱人工智能發展需配合基建與市場力量
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm)
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
+## 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+---
+
 ## 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
 
@@ -189,7 +227,7 @@
 ## 財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm)
 
-![陳茂波說，當局內部曾研究，加稅與交投量沒有直接推動高速增加的必然關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793424_1_20250227100448.jpg&q=50)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793424_1_20250227100448.jpg&q=50)
   
 
 財政司司長陳茂波出席電台聯播節目表示，金融市場要搞活股市，再降低股票印花稅不是主要手段。近期交投非常暢旺，印花稅都是維持原本水平。當局內部曾研究，加稅與交投量沒有直接推動高速增加的必然關係，吸引更多好公司上市更重要。
@@ -1330,52 +1368,6 @@
 
 原始網址 Original URL：
 <https://news.rthk.hk/rthk/ch/component/k2/1793316-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜港投公司發掘及匯聚更多前沿科企落戶香港
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793308-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793308-20250226.htm)
-
-![陳家齊稱前沿創科發展及更廣泛應用既是經濟增長重要動力，亦能為人工智能長遠發展帶來更大支持。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793308_1_20250226155909.jpg&q=75)
-  
-
-香港投資管理有限公司全力支持財政司司長發表的新一年度《財政預算案》，認為預算案闡明香港未來創科創投發展重點且給予大力支持，相信將有助進一步發揮本港優勢和增添經濟發展動能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793308-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 港股全日升753點　曾升逾900點　再創3年新高
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm)
-
-![恒生指數高見23973點，升約940點，收市報23787點，升753點，升幅近3.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793315_1_20250226162449.jpg&q=30)
-  
-
-港股尾市逼近24000點，恒生指數高見23973點，升約940點，最終收市報23787點，升753點，升幅近3.3%，再創3年新高。主板成交額3701億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793315-20250226.htm>
 
 © rthk.hk
 
