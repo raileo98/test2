@@ -1,3 +1,51 @@
+# 美股初段上升　市場關注美國關稅政策
+
+![道瓊斯指數較早時報43612點，升179點，升幅0.41%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793554_1_20250227224624.jpg&q=90)
+  
+
+美股在開市初段上升，市場關注美國總統特朗普的關稅政策，他表示下周二如期向墨西哥和加拿大加徵25%關稅，同日再向中國徵收額外10%的關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793554-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793554-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793554-20250227.htm)
+
+---
+
+# 美國上季GDP按季年率經修訂後增長2.3%　符合預期
+
+![經修訂後，美國去年第4季國內生產總值（GDP）按季年率為增長2.3%，符合市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793550_1_20250227221606.jpg&q=85)
+  
+
+美國商務部經濟分析局公布，經修訂後，美國去年第4季國內生產總值（GDP）按季年率為增長2.3%，符合市場預期。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793550-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793550-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793550-20250227.htm)
+
+---
+
 # 美國1月耐用品訂單按月增長3.1%　勝預期
 
 ![美國1月耐用品訂單按月增長3.1%，升幅高過市場預期的2%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793548_1_20250227220223.jpg&q=35)
@@ -46,7 +94,7 @@
 
 ---
 
-# 特朗普：下周向墨西哥和加拿大徵25%關稅　中國關稅再加10%
+# 特朗普：下周向墨西哥和加拿大加徵關稅　中國關稅再加一成
 
 ![特朗普表示，將會如期從下星期二起，對墨西哥和加拿大加徵關稅，同日亦會再向中國徵收額外一成關稅。（特朗普社交平台截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793549_1_20250227224405.jpg&q=90)
   
@@ -1384,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
-
----
-
-# 財政預算案2025｜兩大醫學院增60學額其中50個為第二學位
-
-![中大醫學院與港大醫學院表示課程安排將適時公布。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_3_20250227152035.jpg&q=80)
-  
-
-預算案提出，醫學生培訓學額將於2025/26學年增至650個。教育局向立法會提交文件顯示，港大及中大兩間醫學院將會合共增加60個學額，其中50個用作招收「第二學位」醫科生，其餘10個學額將分配予現有醫學課程。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm)
-
----
-
-# 日股半日升56點
-
-![日經指數報38198點，升56點，半日升幅0.15%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793442_1_20250227103415.jpg&q=85)
-  
-
-東京股市半日升逾50點。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm)
 
 ---

@@ -1,3 +1,24 @@
+# 特區政府譴責美國個別議員對香港作出毫無事實根據的攻擊
+
+特區政府強烈譴責美國國會參議院外交關係委員會個別議員，透過提交有關香港特區的所謂決議，對香港作出毫無事實根據的攻擊，以及抹黑《香港國安法》及《維護國家安全條例》，強烈反對這卑劣政治操作及肆意叫囂，又要求美方立即停止一切貶低香港國際聲譽，粗暴干涉純屬中國內政的香港事務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793555-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793555-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793555-20250227.htm)
+
+---
+
 # 大澳一個石灘發現中華白海豚屍體
 
 大澳發現中華白海豚屍體，為本年度第11宗鯨豚擱淺個案。香港海洋公園保育基金人員接報到場後，將屍體解剖，並將樣本帶回海洋公園作詳細分析。
@@ -1405,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱節約開支需取消學生津貼
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793426_1_20250227100555.jpg&q=70)
-  
-
-預算案公布將將取消為中小學和幼稚園學生提供2500元學生津貼。有聽衆致電司長熱線電台聯播節目，表示做法有違政府鼓勵生育，綜援、生果金等出半糧，中產則沒有受惠。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm)
 
 ---
