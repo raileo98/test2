@@ -1,3 +1,24 @@
+# 敘利亞庫爾德人部隊指揮官稱厄賈蘭的呼籲只為了庫爾德工人黨
+
+在敘利亞由庫爾德人領導的部隊指揮官阿卜迪，回應庫爾德工人黨領導人厄賈蘭提出庫爾德工人黨應解散，以及所有武裝團體應放下武器的呼籲，指出厄賈蘭在親筆信中強調地區和平與安全，並呼籲結束戰爭及停止衝突，在土耳其境內啟動和平政治，內容非常積極，
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm)
+
+---
+
 # 特朗普白宮晤施紀賢　西翼外握手並向傳媒微笑
 
 美國總統特朗普在白宮會見到訪的英國首相施紀賢。
@@ -1390,29 +1411,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm)
-
----
-
-# 財政預算案2025｜經民聯稱官員等帶頭減輕政府負擔屬應有之義
-
-![經民聯立法會議員林健鋒認為，本港面對赤字，官員、立法會和全體公務員帶頭減輕政府負擔，是應有之義，亦符合社會整體期望。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793301_1_20250226163637.jpg&q=90)
-  
-
-經民聯認為新一份財政預算案的措施，有助香港全速發展、改革創新和招商引財等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm)
 
 ---
