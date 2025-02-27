@@ -1,3 +1,93 @@
+# 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
+
+全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm)
+
+---
+
+# 黎智英承認在訪談節目中人身攻擊林鄭月娥
+
+壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立，被告黎智英繼續出庭自辯。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793517-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793517-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793517-20250227.htm)
+
+---
+
+# 財政預算案2025｜蔡若蓮稱要求大學一次退40億元非每年退還
+
+![蔡若蓮說，涉及的40億元佔所有院校有關儲備的三分一，會與院校商討退還安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793515_1_20250227181009.jpg&q=80)
+  
+
+教育局局長蔡若蓮表示，就教資會資助大學退還40億元儲備是來自「一般及發展基金」部分，各院校在這方面的儲備目前有110億元，強調當局是要求「一次性」退還40億元，並非要每年退還。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793515-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793515-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793515-20250227.htm)
+
+---
+
+# 全國兩會｜李家超與港區人大政協交流意見
+
+![李家超舉行座談會，與約30位港區全國人大代表會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793514_1_20250227180936.jpg&q=85)
+  
+
+行政長官李家超前日及今日舉行座談會，分別與約100位港區全國政協委員及約30位港區全國人大代表會面，在他們下月初到北京出席第十四屆全國人民代表大會第三次會議和中國人民政治協商會議第十四屆全國委員會第三次會議前交流意見。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm)
+
+---
+
 # 財政預算案2025｜港交所：「科企專線」讓企業放心來港上市
 
 新一年度財政預算案提到，港交所正籌備開通「科企專線」。港交所行政總裁陳翊庭表示，留意到現時投資者特別喜好科技企業，這類企業最近表現非常好，亦佔去年本港市場總融資額80%，近數年亦有很多新經濟公司在港上市。港交所自2018年陸續推出相關上市規則章節，包括18A及18C。
@@ -66,6 +156,9 @@
 
 # 法官指即使林卓廷沒暴力行為　但親臨元朗站使對峙局面惡化
 
+![林卓廷被判入獄37個月，其餘6人分別判入獄25至31個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793509_1_20250227180914.jpg&q=85)
+  
+
 立法會前議員林卓廷與6名男子於2019年7月21日在元朗參與暴動，在區域法院判刑。林卓廷被判入獄37個月，其餘6人分別判入獄25至31個月。
 
   
@@ -87,6 +180,14 @@
 
 # 財政預算案2025｜孫玉菡稱研加快實施兩元兩折不遲於明年9月
 
+![孫玉菡說，新安排須時調整市面17000部分佈在港鐵、巴士和小巴等不同交通工具的八達通機。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
+  
+
+財政預算案提出，調整二元乘車優惠計劃，新增每月240程的限制，10元以上車費 「兩折」，預計不遲於明年9月實施。
+
+  
+
+
 ---
 
 原始網址 Original URL：
@@ -102,6 +203,14 @@
 ---
 
 # 財政預算案2025｜蔡若蓮稱諮詢教育界削開支不容許逐點措施問
+
+![蔡若蓮稱諮詢教育界削開支不容許逐點措施問。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793506_1_20250227180816.jpg&q=80)
+  
+
+預算案提出，將於新學年起，取消為中小學及幼稚園學生提供2500元學生津貼。財政司司長陳茂波說，教育局有跟立法會一些教育界代表溝通。但教育界立法會議員朱國強表示，政府當局從未就取消有關津貼向他諮詢。教育局局長蔡若蓮回應，不會就預算案具體措施向個別議員透露。
+
+  
+
 
 ---
 
@@ -1312,101 +1421,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793365_1_20250226214510.jpg&q=75)
-  
-
-本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
-
----
-
-# 財政預算案2025｜證監會歡迎預算案提升香港競爭優勢各項措施
-
-![證監會稱財政司司長提出的措施將推動香港證券及衍生工具市場，鞏固香港資產及財富管理樞紐地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793362_1_20250226200018.jpg&q=90)
-  
-
-證監會歡迎財政預算案中為進一步提升香港作為國際金融中心競爭優勢提出各項措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm)
-
----
-
-# 財政預算案2025｜地建會歡迎預算案提出提振經濟及樓市措施
-
-![地產建設商會稱政府為土地房屋供應訂定長遠發展目標並適時調整，展現促進者靈活變通的思維。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793360_1_20250226194258.jpg&q=90)
-  
-
-地產建設商會歡迎財政預算案提出多項提振經濟及樓市措施，為香港經濟發展作出長遠及前瞻性規劃，可望振興香港經濟，鞏固財政資源，改善民生福祉。商會表示支持。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm)
-
----
-
-# 財政預算案2025｜范鴻齡感謝政府於財政壓力下仍增醫管局撥款
-
-![范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793359_1_20250226214748.jpg&q=80)
-  
-
-醫管局主席范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。醫管局在下年度的撥款為1002億元，包括990億元經常撥款，較本年度修訂預算增加3%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm)
 
 ---

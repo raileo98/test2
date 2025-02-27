@@ -1,3 +1,75 @@
+# 人民幣兌美元創逾1星期低位
+
+![人民幣收市報7.271兌1美元，較上日收市跌163點子，創逾1星期低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793511_1_20250227173841.jpg&q=30)
+  
+
+人民幣兌美元收市創逾1星期低位，報7.271兌1美元，較上日收市跌163點子。中間價連跌4日並再創逾1個月新低，與市場預測偏離擴至逾800點子，反映監管層仍堅定維穩。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793511-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793511-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793511-20250227.htm)
+
+---
+
+# 財政預算案2025｜蔡若蓮稱要求大學一次退40億元非每年退還
+
+![蔡若蓮說，涉及的40億元佔所有院校有關儲備的三分一，會與院校商討退還安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793515_1_20250227181009.jpg&q=80)
+  
+
+教育局局長蔡若蓮表示，就教資會資助大學退還40億元儲備是來自「一般及發展基金」部分，各院校在這方面的儲備目前有110億元，強調當局是要求「一次性」退還40億元，並非要每年退還。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793515-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793515-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793515-20250227.htm)
+
+---
+
+# 全國兩會｜李家超與港區人大政協交流意見
+
+![李家超舉行座談會，與約30位港區全國人大代表會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793514_1_20250227180936.jpg&q=85)
+  
+
+行政長官李家超前日及今日舉行座談會，分別與約100位港區全國政協委員及約30位港區全國人大代表會面，在他們下月初到北京出席第十四屆全國人民代表大會第三次會議和中國人民政治協商會議第十四屆全國委員會第三次會議前交流意見。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm)
+
+---
+
 # 財政預算案2025｜港交所：「科企專線」讓企業放心來港上市
 
 新一年度財政預算案提到，港交所正籌備開通「科企專線」。港交所行政總裁陳翊庭表示，留意到現時投資者特別喜好科技企業，這類企業最近表現非常好，亦佔去年本港市場總融資額80%，近數年亦有很多新經濟公司在港上市。港交所自2018年陸續推出相關上市規則章節，包括18A及18C。
@@ -66,6 +138,14 @@
 
 # 財政預算案2025｜孫玉菡稱研加快實施兩元兩折不遲於明年9月
 
+![孫玉菡說，新安排須時調整市面17000部分佈在港鐵、巴士和小巴等不同交通工具的八達通機。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
+  
+
+財政預算案提出，調整二元乘車優惠計劃，新增每月240程的限制，10元以上車費 「兩折」，預計不遲於明年9月實施。
+
+  
+
+
 ---
 
 原始網址 Original URL：
@@ -81,6 +161,14 @@
 ---
 
 # 財政預算案2025｜蔡若蓮稱諮詢教育界削開支不容許逐點措施問
+
+![蔡若蓮稱諮詢教育界削開支不容許逐點措施問。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793506_1_20250227180816.jpg&q=80)
+  
+
+預算案提出，將於新學年起，取消為中小學及幼稚園學生提供2500元學生津貼。財政司司長陳茂波說，教育局有跟立法會一些教育界代表溝通。但教育界立法會議員朱國強表示，政府當局從未就取消有關津貼向他諮詢。教育局局長蔡若蓮回應，不會就預算案具體措施向個別議員透露。
+
+  
+
 
 ---
 
@@ -1338,77 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm)
-
----
-
-# 日股初段靠穩
-
-![日經指數較早時報38168點，升25點。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793418_1_20250227081544.jpg&q=40)
-  
-
-東京股市初段靠穩。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793417_1_20250227094105.jpg&q=85)
-  
-
-財政預算案提出，政府預計2025/26起的5年間，每年發債1500億至1950億元。財政司司長陳茂波表示，發債得到的錢不是用作支付經常開支，而是用作投資基建，強調香港要掌握發展的機遇期，投資未來，而創科企業及傳統產業都需要大力做好，令本港加速發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm)
-
----
-
-# Nvidia首季度收入預測高於預期
-
-![Nvidia上季經調整每股盈利0.89美元，預計首季度收入430億美元，兩者都高於市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793412_1_20250227070025.jpg&q=90)
-  
-
-晶片製造商Nvidia上季盈利220.9億美元，按年升80%，按季升14%。經調整每股盈利0.89美元，高於預期。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm)
 
 ---

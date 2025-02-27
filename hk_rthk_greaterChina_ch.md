@@ -1,3 +1,48 @@
+# 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
+
+全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm)
+
+---
+
+# 全國兩會｜李家超與港區人大政協交流意見
+
+![李家超舉行座談會，與約30位港區全國人大代表會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793514_1_20250227180936.jpg&q=85)
+  
+
+行政長官李家超前日及今日舉行座談會，分別與約100位港區全國政協委員及約30位港區全國人大代表會面，在他們下月初到北京出席第十四屆全國人民代表大會第三次會議和中國人民政治協商會議第十四屆全國委員會第三次會議前交流意見。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm)
+
+---
+
 # 國防部：堅決反對美國任何形式的對台軍事聯繫
 
 有傳台灣當局計劃向美國購買70億至100億美元武器，在北京，國防部新聞發言人吳謙強調，台灣問題純屬中國內政，堅決反對美國任何形式的對台軍事聯繫。
@@ -1384,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm)
-
----
-
-# 丘應樺稱本港對外資具有吸引力是因為巿場自由公平
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793056_1_20250225112552.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺表示，截至去年底，本港有約一萬間來自香港以外的公司，按年增長一成，是有紀錄以來最多，有關數字是對香港的信任，將繼續令香港成為主要的投資地點。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm)
-
----
-
-# 知識產權局駁回惡意搶注DEEPSEEK等63件商標註册申請
-
-![國家知識產權局駁回惡意搶注「DEEPSEEK」等63件相關商標註册申請。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793048_1_20250225101622.jpg&q=90)
-  
-
-國家知識產權局駁回惡意搶注「DEEPSEEK」等63件相關商標註册申請。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm)
 
 ---

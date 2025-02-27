@@ -1,3 +1,51 @@
+# Lam Cheuk-ting, six others jailed over Yuen Long riot
+
+![The District Court jailed former lawmaker Lam Cheuk-ting and six others for rioting in Yuen Long in 2019. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793502_1_20250227171029.jpg&q=40)
+  
+
+Former lawmaker Lam Cheuk-ting and six others were on Thursday sentenced to between 25 and 37 months behind bars each, after earlier being found guilty of rioting in Yuen Long in 2019.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm)
+
+---
+
+# Never a good time to scrap student grant: minister
+
+![Christine Choi cites the current financial situation for scrapping the HK$2,500 student grant. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793521_1_20250227180846.jpg&q=80)
+  
+
+Education Secretary Christine Choi on Thursday said there is "never a good time" to scrap the HK$2,500 student grant but the current financial situation makes it necessary.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm)
+
+---
+
 # 'AI R&D institute could open as early as next year'
 
 ![Sun Dong says the planned Hong Kong AI Research and Development Institute could commence operation as early as next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793505_1_20250227171607.jpg&q=85)
@@ -1389,55 +1437,5 @@ Shenzhen Bay Port will suspend its clearance services on Sunday for the cross-bo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792734-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792734-20250222.htm)
-
----
-
-# Ticket scalping for Kai Tak opening being combated
-
-![Rosanna Law says the government is working with police to combat ticket scalping for the sports park opening. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792727_1_20250222101740.jpg&q=85)
-  
-
-Cultural and tourism minister Rosanna Law on Saturday said officials are working with police to combat ticket scalping for the Kai Tak Sports Park opening next month.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792727-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792727-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792727-20250222.htm)
-
----
-
-# Ne Zha 2 success 'lightning in a bottle': critic
-
-![Box office success Ne Zha 2 could inspire more filmmakers to experiment with new ideas, says a film critic. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792724_1_20250222092007.jpg&q=75)
-![Ne Zha 2 success 'lightning in a bottle': critic](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792724_2_20250222092007.jpg&q=60)
-![Ne Zha 2 success 'lightning in a bottle': critic](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792724_3_20250222092007.jpg&q=40)
-  
-
-The sensation caused by the mainland blockbuster Ne Zha 2 is very much a "lightning in a bottle-style success" which may not be easy to replicate, according to a local film critic.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm)
 
 ---

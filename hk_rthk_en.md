@@ -1,3 +1,51 @@
+# Lam Cheuk-ting, six others jailed over Yuen Long riot
+
+![The District Court jailed former lawmaker Lam Cheuk-ting and six others for rioting in Yuen Long in 2019. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793502_1_20250227171029.jpg&q=40)
+  
+
+Former lawmaker Lam Cheuk-ting and six others were on Thursday sentenced to between 25 and 37 months behind bars each, after earlier being found guilty of rioting in Yuen Long in 2019.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm)
+
+---
+
+# Never a good time to scrap student grant: minister
+
+![Christine Choi cites the current financial situation for scrapping the HK$2,500 student grant. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793521_1_20250227180846.jpg&q=80)
+  
+
+Education Secretary Christine Choi on Thursday said there is "never a good time" to scrap the HK$2,500 student grant but the current financial situation makes it necessary.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm)
+
+---
+
 # Oscar-winning actor Gene Hackman, wife found dead
 
 ![Oscar-winning US actor Gene Hackman and his wife Betsy Arakawa were found dead inside their home in New Mexico. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793513_1_20250227175330.jpg&q=90)
@@ -1389,53 +1437,5 @@ Four people, including two Chinese nationals, were killed and six injured after 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
-
----
-
-# HK Disneyland sees record profit, visitor numbers
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793096_1_20250225153745.jpg&q=80)
-  
-
-Hong Kong Disneyland on Tuesday said it enjoyed its strongest ever business performance in the last fiscal year, with a record net profit of more than HK$830 million and highest ever attendance figure of 7.7 million.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm)
-
----
-
-# S Korea's Yoon faces final impeachment hearing
-
-![Acting head of the Constitutional Court Moon Hyung-bae and other justices arrive at court for the final hearing over South Korea's impeached President Yoon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793089_1_20250225150908.jpg&q=85)
-  
-
-South Korea's ousted President Yoon Suk-yeol faced his final impeachment hearing on Tuesday before judges decide whether to formally remove him from office over his disastrous martial law declaration.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm)
 
 ---
