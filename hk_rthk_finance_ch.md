@@ -1,4 +1,25 @@
-# 財政預算案2025｜孫玉菡稱兩元兩折不遲於明年9月落實
+# 陳翊庭：新股超額認購數千倍「含金量」與以往不同
+
+港交所行政總裁陳翊庭表示，正處理100多宗上市申請，很多是內地已上市的A股公司來港H股上市，已公布或遞表的公司逾20家，她形容是頗為主流，目前上市規則亦頗照顧到它們需要。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793510-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793510-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793510-20250227.htm)
+
+---
+
+# 財政預算案2025｜孫玉菡稱研加快實施兩元兩折不遲於明年9月
 
 ---
 
@@ -59,7 +80,7 @@
 ![黃栢鳴暫時無須答辯，獲准以20萬元保釋，案件押後至下月27日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793498_1_20250227171250.jpg&q=80)
   
 
-證監會在東區裁判法院對商人黃栢鳴展開刑事法律程序，指黃栢鳴就傳遞娛樂、前稱天馬影視的股份進行內交易。黃栢鳴暫時無須答辯，獲准以20萬元保釋，案件押後至下月27日。
+證監會在東區裁判法院對商人黃栢鳴展開刑事法律程序，指黃栢鳴就傳遞娛樂、前稱天馬影視的股份進行內幕交易。黃栢鳴暫時無須答辯，獲准以20萬元保釋，案件押後至下月27日。
 
   
 
@@ -1392,29 +1413,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm)
-
----
-
-# 紐約期金上升0.4%　市場注視美國通脹數據
-
-![紐約期金收報每盎司2930.6美元，上升0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793408_1_20250227054435.jpg&q=90)
-  
-
-期金高收。市場關注將於本周公布的美國通脹數據，以及美國總統特朗普關稅計劃的進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm)
 
 ---

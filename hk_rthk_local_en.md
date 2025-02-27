@@ -1,3 +1,27 @@
+# 'AI R&D institute could open as early as next year'
+
+![Sun Dong says the planned Hong Kong AI Research and Development Institute could commence operation as early as next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793505_1_20250227171607.jpg&q=85)
+  
+
+Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a new Hong Kong AI Research and Development Institute could commence operation as early as next year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm)
+
+---
+
 # Govt won't rely on land sales for revenue: FS
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793467_1_20250227134032.jpg&q=85)
@@ -1415,29 +1439,5 @@ The sensation caused by the mainland blockbuster Ne Zha 2 is very much a "lightn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm)
-
----
-
-# Impact of Paul Y's liquidation 'manageable': govt
-
-![The High Court has appointed a provisional liquidator to handle Paul Y's debts and formulate a restructuring plan. Internet photo](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792682_1_20250221212806.jpg&q=90)
-  
-
-A long-standing construction firm, Paul Y. Engineering Group, on Friday had its provisional liquidation application approved by the court.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792682-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792682-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792682-20250221.htm)
 
 ---
