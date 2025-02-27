@@ -1,3 +1,24 @@
+# 財政預算案2025｜朱國強指政府從未就取消學生津貼諮詢其意見
+
+新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，財政司司長陳茂波表示，削減2%開支適用於各政策局及部門，具體做法由相關首長考慮情況後做決定，又說過程中教育局有與立法會內教育界一些代表溝通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793477-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793477-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793477-20250227.htm)
+
+---
+
 # 教資會評審小組確認教育大學運作切合使命與策略發展計劃
 
 大學教育資助委員會轄下質素保證局公布香港教育大學質素核證報告，評審小組確認教大各項運作及活動均清晰切合其使命和《策略發展計劃2016-2025》，指教大秉持「教育為本，超越教育」的理念，提供涵蓋多元學科的獨特師資教育。
@@ -1405,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793338-20250226.htm)
-
----
-
-# 財政預算案2025｜自由黨張宇人稱探討規範籃球博彩達多贏局面
-
-![張宇人（右二）相信探討規範籃球博彩有助增加政府收入及打擊非法賭博。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793334_1_20250226184800.jpg&q=85)
-  
-
-自由黨黨魁張宇人說，足球博彩稅過去多年累計為政府帶來大額收入，但未有鼓吹賭風，相信今次財政預算案提出探討規範籃球博彩，有助增加政府收入、打擊非法賭博，達致多贏局面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm)
 
 ---

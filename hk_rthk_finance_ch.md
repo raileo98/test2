@@ -1,3 +1,24 @@
+# 財政預算案2025｜朱國強指政府從未就取消學生津貼諮詢其意見
+
+新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，財政司司長陳茂波表示，削減2%開支適用於各政策局及部門，具體做法由相關首長考慮情況後做決定，又說過程中教育局有與立法會內教育界一些代表溝通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793477-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793477-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793477-20250227.htm)
+
+---
+
 # 韓股低收0.7%
 
 ![首爾綜合指數收市報2621點，跌19點，跌幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793474_1_20250227143943.jpg&q=85)
@@ -1406,29 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
-
----
-
-# 財政預算案2025｜公務員凍薪4月生效　不續進行今年薪趨調查
-
-![凍結全體公務員薪酬的安排將於4月1日生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793367_1_20250226214534.jpg&q=75)
-  
-
-財政司司長於《財政預算案》公布，在強化財政整合計劃下，政府提出下年度凍結包括全體公務員的所有行政機關人員薪酬。因此，政府決定不繼續進行2025年薪酬趨勢調查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm)
 
 ---
