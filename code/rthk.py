@@ -33,7 +33,6 @@ import sys
 from niquests.adapters import HTTPAdapter, Retry
 from lxml import html as lxmlhtml
 from lxml.html.clean import Cleaner
-from markdownify import markdownify as md
 
 verCount11 = 0
 verCount20 = 0
@@ -291,31 +290,21 @@ async def process_category(category, url):
 
     for item in sorted_items:
         soup_rss.channel.append(item)
-    
-    # 將 RSS 內容轉換為 Markdown 格式
-    markdown_str = md(rss_str)
 
-    # 將 RSS 輸出到 .rss.xml 文件
     rss_filename = f'{category}.xml'
-
+    
     # 找到<lastBuildDate>標籤並移除它們
     tag = soup_rss.find('lastBuildDate')
-
     if tag:
         tag.decompose()
-
+    
     soup_rss = soup_rss.prettify().strip()
     soup_rss = soup_rss.replace( 'http://', 'https://' )
-
+    
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
         await file.write(soup_rss)
 
-    # 將 Markdown 輸出到 .md 文件
-    md_filename = f'{category}.md'
-    async with aiofiles.open(md_filename, 'w', encoding='utf-8') as file:
-        await file.write(markdown_str)
-
-    print(f'{category} 處理完成! RSS 和 Markdown 文件已生成！')
+    print(f'{category} 處理完成!')
 
 async def process_article(fg, category, article):
     try:
