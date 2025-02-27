@@ -1,3 +1,27 @@
+# China faces additional levy, says Trump
+
+![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=65)
+  
+
+US President Donald Trump said on Thursday he would impose an added 10 percent tariff on Chinese imports while moving ahead with levies on Canada and Mexico next week, citing "unacceptable" fentanyl smuggling.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm)
+
+---
+
 # US slashes foreign development aid by more than 90pc
 
 ![The Trump administration's review in part targeted multi-year foreign assistance contracts awarded by the US Agency for International Development (USAID). File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793539_1_20250227201224.jpg&q=85)
@@ -1413,29 +1437,5 @@ A man on Tuesday was sentenced to 14 months in prison for trafficking in a dange
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm)
-
----
-
-# Search for MH370 resumes 11 years after disappearance
-
-![Pieces of wreckage thought to be from MH370 on display in Subang Jaya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793140_1_20250225214812.jpg&q=60)
-  
-
-A fresh search for Malaysia Airlines flight MH370 has been launched more than a decade after the plane went missing in one of aviation's greatest enduring mysteries.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm)
 
 ---

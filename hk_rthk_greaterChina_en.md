@@ -1,3 +1,27 @@
+# China faces additional levy, says Trump
+
+![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=65)
+  
+
+US President Donald Trump said on Thursday he would impose an added 10 percent tariff on Chinese imports while moving ahead with levies on Canada and Mexico next week, citing "unacceptable" fentanyl smuggling.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm)
+
+---
+
 # 40 Chinese nationals repatriated from Thailand
 
 ![A group of Chinese nationals who was repatriated from Thailand reunites with their families. Photo: CCTV Weibo](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793533_1_20250227191335.jpg&q=90)
@@ -1421,29 +1445,5 @@ China on Friday said it "regrets" Panama's decision to withdraw from the Belt an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm](https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm)
-
----
-
-# Winter Games carries Asia's common aspirations: Xi
-
-![President Xi Jinping says the 9th Asian Winter Games embodies Asia's shared aspirations for peace. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790685_1_20250207153402.jpg&q=85)
-  
-
-President Xi Jinping on Friday said the 9th Asian Winter Games embodies Asia’s shared aspirations for peace, prosperity and friendship.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm](https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm)
 
 ---

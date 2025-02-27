@@ -1,3 +1,51 @@
+# 學生能力國際評估計劃主測試將舉行　蔡若蓮冀學生為港增光
+
+![蔡若蓮指學校可通過研究深入了解影響學生學習的因素，以制定更有效的教育策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793556_1_20250227230019.jpg&q=90)
+  
+
+學生能力國際評估計劃2025（PISA）主測試將於今年5月底至7月初進行，預計香港有約230所學校，約8000名15歲學生參與。教育局局長蔡若蓮寄望學生能通過不同的體驗式學習活動，全力以赴，以優秀表現為港增光。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793556-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793556-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793556-20250227.htm)
+
+---
+
+# 特區政府譴責美國個別議員對香港作出毫無事實根據的攻擊
+
+![發言人要求美方立即停止一切貶低香港國際聲譽，粗暴干涉純屬中國內政的香港事務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793555_1_20250227225851.jpg&q=80)
+  
+
+特區政府強烈譴責美國國會參議院外交關係委員會個別議員，透過提交有關香港特區的所謂決議，對香港作出毫無事實根據的攻擊，以及抹黑《香港國安法》及《維護國家安全條例》，強烈反對這卑劣政治操作及肆意叫囂，又要求美方立即停止一切貶低香港國際聲譽，粗暴干涉純屬中國內政的香港事務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793555-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793555-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793555-20250227.htm)
+
+---
+
 # 美股初段上升　市場關注美國關稅政策
 
 ![道瓊斯指數較早時報43612點，升179點，升幅0.41%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793554_1_20250227224624.jpg&q=90)
@@ -95,6 +143,9 @@
 ---
 
 # 大澳一個石灘發現中華白海豚屍體
+
+![大澳發現中華白海豚屍體，為本年度第11宗鯨豚擱淺個案。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793551_1_20250227225657.jpg&q=15)
+  
 
 大澳發現中華白海豚屍體，為本年度第11宗鯨豚擱淺個案。香港海洋公園保育基金人員接報到場後，將屍體解剖，並將樣本帶回海洋公園作詳細分析。
 

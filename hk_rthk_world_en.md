@@ -1,3 +1,27 @@
+# China faces additional levy, says Trump
+
+![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=65)
+  
+
+US President Donald Trump said on Thursday he would impose an added 10 percent tariff on Chinese imports while moving ahead with levies on Canada and Mexico next week, citing "unacceptable" fentanyl smuggling.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm)
+
+---
+
 # US slashes foreign development aid by more than 90pc
 
 ![The Trump administration's review in part targeted multi-year foreign assistance contracts awarded by the US Agency for International Development (USAID). File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793539_1_20250227201224.jpg&q=85)
@@ -1411,29 +1435,5 @@ Residents in a central Manila neighbourhood lined up on Wednesday, as dengue cas
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm)
-
----
-
-# Pope Francis fights pneumonia in hospital
-
-![The pontiff was admitted to a Rome hospital with bronchitis last week after suffering breathing difficulties. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792351_1_20250219212218.jpg&q=90)
-  
-
-Pope Francis's heart is holding up very well despite his pneumonia, a Vatican source said on Wednesday, amid growing concerns over the hospitalised 88-year-old's condition.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm)
 
 ---
