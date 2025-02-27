@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 01:14:04 +0000webmaster@rthk.hk英法領袖：歡迎特朗普努力實現烏克蘭持久和平https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htm<img alt="唐寧街首相府說，英法領袖歡迎特朗普正在為實現烏克蘭的持久和平而努力。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793164\_1\_20250226041908.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-英國首相施紀賢與法國總統馬克龍通電話。唐寧街首相府說，兩人歡迎美國總統特朗普在努力實現烏克蘭持久和平方面發揮的領導作用。
-<br>
-<br/>
-施紀賢將於周四出訪美國，與特朗普會面。他表示，回國後將於周末主持會議，與其他國家領袖討論烏克蘭問題。
-<br/>
-<br/>
-他對記者表示，將接待一些國家，繼續討論作為盟友應該如何攜手前進。
-<br/>
-<br/>
-外電分析，施紀賢此行將在馬克龍周一訪美的基礎上進行，嘗試說服特朗普為烏克蘭提供安全保障，作為與俄羅斯達成停火協議的一部分。馬克龍當時警告，和平不能意味著烏克蘭「投降」。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793164-20250226.htmWed, 26 Feb 2025 04:19:00 +0800烏克蘭據報與美國達成礦產協議　最快或周五簽署https://news.rthk.hk/rthk/ch/component/k2/1793165-20250226.htm<img alt="烏克蘭總統澤連斯基日前在基輔與到訪的美國政府俄烏問題特使凱洛格會面。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793165\_1\_20250226051309.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=rthk - 國際© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 國際https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=4&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 02:17:49 +0000webmaster@rthk.hk烏克蘭據報與美國達成礦產協議　最快或周五簽署https://news.rthk.hk/rthk/ch/component/k2/1793165-20250226.htm<img alt="烏克蘭總統澤連斯基日前在基輔與到訪的美國政府俄烏問題特使凱洛格會面。（路透社資料圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793165\_1\_20250226051309.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 烏克蘭一名高級官員向法新社表示，烏克蘭已與美國就礦產協議的條款達成共識，總統澤連斯基最早可能在周五赴美簽署。
@@ -1755,4 +1724,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htmThu, 27 Feb 2025 08:49:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htmThu, 27 Feb 2025 08:49:00 +0800歐盟稱將對貿易壁壘作出堅決及迅速回應https://news.rthk.hk/rthk/ch/component/k2/1793435-20250227.htm<img alt="歐盟表示將對妨礙貿易自由和公平的不合理貿易壁壘，採取堅決及迅速的回應措施。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793435\_1\_20250227094245.jpg&amp;q=75" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+歐盟委員會發言人表示，歐盟將對妨礙貿易自由和公平的不合理貿易壁壘，採取堅決及迅速的回應措施。這名發言人強調，歐盟是全球規模最大的自由貿易市場，對美國具有重要價值。
+<br>
+<br/>
+美國總統特朗普說，已決定對歐盟徵收25%關稅，適用於汽車和其他各種商品，將很快宣布。
+<br/>
+<br/>
+特朗普說，歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」，美國和歐盟之間有大約「3000億美元」的貿易逆差，又指歐盟成立的目的是為了「搞垮」美國。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793435-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793435-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793435-20250227.htmThu, 27 Feb 2025 09:39:00 +0800

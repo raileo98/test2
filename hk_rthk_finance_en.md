@@ -1,54 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=rthk - Finance© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 01:14:06 +0000webmaster@rthk.hkTrump pauses de minimis repeal on Chinese importshttps://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm<img alt="President Trump's ban had created disruptions for customs inspectors, postal and delivery services and online retailers. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790798\_1\_20250208113211.jpg&amp;q=50" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-US President Donald Trump paused his administration's repeal of duty-free treatment of low-cost packages from China on Friday, giving the Commerce Department time to make the order workable, after the rapid change created disruptions for customs inspectors, postal and delivery services and online retailers.
-<br>
-<br/>
-The eventual cancellation of de minimis means the more than 1 billion small-value e-commerce packages arriving annually in the United States with goods coming directly from China must switch to an entry process that requires additional information and duties, adding time and cost.
-<br/>
-<br/>
-The stop and restart of the United States Postal Service acceptance of those packages this week set off a swarm of disruptions that backed up Customs clearance for packages, even those that had paid duties, at New York City's John F Kennedy International Airport.
-<br/>
-<br/>
-"Well that was a fun Tuesday through Friday, if you work in global e-commerce," said Derek Lossing, CEO of e-commerce and global supply chain firm Cirrus Global Advisors.
-<br/>
-<br/>
-The initial change, implemented with just over 48 hours' notice, caused the USPS to temporarily stop accepting packages from China earlier this week.
-<br/>
-<br/>
-Popular online retailers including Shein, Temu and Amazon.com's new Haul service send packages directly from Chinese factories to US shoppers and use de minimis to keep prices low.
-<br/>
-<br/>
-The Trump administration's revision to the order was signed on Wednesday and published on Friday, a White House spokesperson said.
-<br/>
-<br/>
-De minimis, a legal term referring to matters of little importance, refers to the US waiver of standard customs procedures and tariffs on items worth less than US$800 that are shipped to individuals from foreign countries.
-<br/>
-<br/>
-Temu and Shein combined ship around 9,000 metric tons of cargo worldwide every day, or approximately 88 full Boeing 777 freighters, said Niall van de Wouw, chief air freight officer at freight pricing platform Xeneta.
-<br/>
-<br/>
-"You cannot suddenly put up the shutters to this volume of air freight, so it is no surprise there has been a delay to the executive order on de minimis." (Reuters)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htmSat, 08 Feb 2025 11:32:00 +0800China's CPI at five-month highhttps://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm<img alt="People walk in an alley near a popular shopping street in Beijing during the Spring Festival holiday. Officials say an increase in the consumer price index in January is due largely to the influence of the new year break. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790882\_1\_20250209120154.jpg&amp;q=90" style="width:100%;height:auto"/>
+rthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=rthk - Finance© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Financehttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=12&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 02:17:49 +0000webmaster@rthk.hkChina's CPI at five-month highhttps://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm<img alt="People walk in an alley near a popular shopping street in Beijing during the Spring Festival holiday. Officials say an increase in the consumer price index in January is due largely to the influence of the new year break. Photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1790882\_1\_20250209120154.jpg&amp;q=90" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 China's consumer price index (CPI), a main gauge of inflation, accelerated to its fastest in five months, government data showed on Sunday.
@@ -2490,4 +2441,32 @@ https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htmThu, 27 Feb 2025 05:57:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htmThu, 27 Feb 2025 05:57:00 +0800Local stocks drop at openhttps://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm<img alt="The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793437\_1\_20250227095324.jpg&amp;q=25" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Hong Kong stocks on Thursday opened lower, after Wall Street stocks were mixed at the end of a choppy session on Wednesday as US President Donald Trump signaled plans for tariffs on the European Union.
+<br>
+<br/>
+The American Chamber of Commerce in South China (AmCham South China) released on Wednesday its 2025 Special Report on the State of Business in South China, which highlighted that the world's second-largest economy continues to be an attractive investment destination.
+<br/>
+<br/>
+The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htmThu, 27 Feb 2025 09:53:00 +0800

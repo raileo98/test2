@@ -1,54 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKThu, 27 Feb 2025 01:14:04 +0000webmaster@rthk.hk'Education spending cuts should be strategic'https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793046\_1\_20250225095556.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Hong Kong's education sector could face funding cuts as Financial Secretary Paul Chan prepares to deliver his budget speech on Wednesday amid a projected HK$100 billion deficit.
-<br>
-<br/>
-Victor Kwok, deputy research director at Our Hong Kong Foundation, said the education budget has ballooned from about HK$70 billion a decade ago to around HK$110 billion now.
-<br/>
-<br/>
-Kwok thinks the government should avoid blanket budget cuts that could harm daily operations and teaching quality.
-<br/>
-<br/>
-"Now you risk sacrificing some of the things that people have always been doing on a daily basis, because they will be scrambling to find resources and replacements for things that they have always been doing... education quality may be going down as a result of that cut," he said.
-<br/>
-<br/>
-The finance minister previously said universities had relatively large amounts of reserves, calling on everyone to play a part in tackling the budget shortfall.
-<br/>
-<br/>
-While universities have substantial reserves totalling almost HK$140 billion, Kwok cautioned against relying on these funds to offset budget cuts.
-<br/>
-<br/>
-"Ultimately, [a] reserve is a fixed amount and the spending is ongoing. You have to spend every year. So if you're saying, 'oh, they have HK$100 billion in reserves, so let's give them less, and they can spend their reserves first', but one day their reserves will dry up," he said.
-<br/>
-<br/>
-Instead, Kwok said officials could consider reducing spending on research and encourage universities to develop more sustainable funding models.
-<br/>
-<br/>
-"How do you encourage the university sector in Hong Kong to become more linked to the industry, such that it has more diversified funding resources, and not just solely depending on the government for funding... so that's one area that we can look at," he said.
-<br/>
-<br/>
-For primary and secondary schools, Kwok thinks the government should support merging smaller schools to improve teaching quality and make sure resources are well spent.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htmTue, 25 Feb 2025 09:55:00 +0800Hang Seng index opens 2.6pc lowerhttps://news.rthk.hk/rthk/en/component/k2/1793044-20250225.htm<img alt="The Hang Seng Index was down at the start of Tuesday's trading session. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793044\_1\_20250225100807.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKThu, 27 Feb 2025 02:17:49 +0000webmaster@rthk.hkHang Seng index opens 2.6pc lowerhttps://news.rthk.hk/rthk/en/component/k2/1793044-20250225.htm<img alt="The Hang Seng Index was down at the start of Tuesday's trading session. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793044\_1\_20250225100807.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Hong Kong's Hang Seng Index was down 2.6 percent at the open on Tuesday, at 22,716 points.
@@ -2866,7 +2817,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htmThu, 27 Feb 2025 08:16:00 +0800'More plans to develop sailing facilities needed'https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm<img alt="The head of Hong Kong's yacht club says the SAR and the surrounding area boast one of the best coastlines in the world. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793423\_1\_20250227084713.jpg&amp;q=80" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htmThu, 27 Feb 2025 08:16:00 +0800'More plans to develop sailing facilities needed'https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm<img alt="The head of Hong Kong's yacht club says the SAR and the surrounding area feature a beautiful coastline. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793423\_1\_20250227084713.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 The sailing industry on Thursday said they welcomed Financial Secretary Paul Chan’s plan to build a new waterfront landmark in Hung Hom, with a yacht club mooted there.
@@ -2909,7 +2860,7 @@ https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htmThu, 27 Feb 2025 08:47:00 +0800'99pc of people won't exceed new HK$2 scheme limits'https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm<img alt="Executive Councillor Lam Ching-choi says he doesn't think the tweaked HK$2 scheme will affect most people who are trying to visit their grandchildren, or going to work. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793427\_1\_20250227090706.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htmThu, 27 Feb 2025 08:47:00 +0800'99pc of people won't exceed new HK$2 scheme limits'https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm<img alt="The government proposes that the HK$2 scheme be capped at 240 trips per month. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793427\_1\_20250227090706.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 An Executive Councillor on Thursday said most of Hong Kong's senior citizens will not be affected by changes to the city's fare concessionary scheme for the over 60s.
@@ -2952,4 +2903,32 @@ https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htmThu, 27 Feb 2025 09:06:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htmThu, 27 Feb 2025 09:06:00 +0800Local stocks drop at openhttps://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm<img alt="The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793437\_1\_20250227095324.jpg&amp;q=25" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+Hong Kong stocks on Thursday opened lower, after Wall Street stocks were mixed at the end of a choppy session on Wednesday as US President Donald Trump signaled plans for tariffs on the European Union.
+<br>
+<br/>
+The American Chamber of Commerce in South China (AmCham South China) released on Wednesday its 2025 Special Report on the State of Business in South China, which highlighted that the world's second-largest economy continues to be an attractive investment destination.
+<br/>
+<br/>
+The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. (Agencies)
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htmThu, 27 Feb 2025 09:53:00 +0800
