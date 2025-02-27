@@ -1,4 +1,169 @@
+# 財政預算案2025｜陳翊庭：「T+1」結算料今年底可兼容
+
+![陳翊庭表示，香港作為國際市場，不能忽視市場趨勢，又相信實施「T+1」結算周期有助增加流動性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793527_1_20250227183555.jpg&q=90)
+  
+
+港交所行政總裁陳翊庭表示，將會就「T+1」結算周期推出諮詢文件，預料今年底可以技術上兼容。但她強調，並非已下定論，業界亦需要準備。她指出，美國去年已實行「T+1」，歐洲亦計劃2027年實施，強調香港作為國際市場，不能忽視市場趨勢，又相信實施有助增加流動性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793527-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793527-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793527-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：有信心市場能吸納政府債券
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793523_1_20250227183329.jpg&q=80)
+  
+
+《財政預算案》提出，在25/26年度起的五年間，每年發行債券合共約1500億至1950億元。財經事務及庫務局局長許正宇認為，很多機構例如長線的保險公司，都希望市場有多些更長期的港元債券產品，他有信心債券可被市場吸納。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793523-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793523-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793523-20250227.htm)
+
+---
+
+# 財政預算案2025｜陳茂波：有中產市民說最重要是搞好經濟
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793518_1_20250227183325.jpg&q=80)
+  
+
+財政司司長陳茂波出席《財政預算案》電台聯播節目時表示，面對財政赤字，政府仍想在力所能及範圍內對中產表示關心，所以支援措施只是減半，沒有取消；他又指，聽到有中產市民說，最重要是搞活經濟，讓他們容易找到好工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793518-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793518-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793518-20250227.htm)
+
+---
+
+# 財政預算案2025｜孫東：香港人工智能研發院最快明年投入運作
+
+創新科技及工業局局長孫東表示，香港人工智能研發院最快明年投入運作，以繼續推動科技進步，並在大範圍推廣應用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793526-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793526-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793526-20250227.htm)
+
+---
+
+# 財政預算案2025｜陳茂波：政府不再希望過分依賴地價收入
+
+財政司司長陳茂波表示，政府不再希望過分依賴地價收入，認為要發展經濟，各方面收入更重要。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793525-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793525-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793525-20250227.htm)
+
+---
+
+# 財政預算案2025｜蔡若蓮稱沒向議員透露《預算案》措施
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793522_1_20250227181911.jpg&q=80)
+  
+
+教育界立法會議員朱國強發聲明，表示當局並沒有就取消2500元學生津貼向他諮詢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793522-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793522-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793522-20250227.htm)
+
+---
+
+# 財政預算案2025｜陳茂波︰公開表明來年不賣住宅地不合適
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793520_1_20250227181757.jpg&q=80)
+  
+
+財政司司長陳茂波出席立法會財委會有關《財政預算案》的簡報會，有議員建議政府暫停推售住宅地，陳茂波說，要讓市場預期穩定的土地供應，未來一兩年停售並不合適。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793520-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793520-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793520-20250227.htm)
+
+---
+
 # 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
+
+![李慧琼（右）說，同意未來溝通機制能進一步加強。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
+  
 
 全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。
 
@@ -90,6 +255,9 @@
 
 # 財政預算案2025｜港交所：「科企專線」讓企業放心來港上市
 
+![陳翊庭說，「科企專線」為科技企業量身訂造，有專門人手負責「手把手」處理，讓它們放心來港上市。（網上直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793512_1_20250227183406.jpg&q=90)
+  
+
 新一年度財政預算案提到，港交所正籌備開通「科企專線」。港交所行政總裁陳翊庭表示，留意到現時投資者特別喜好科技企業，這類企業最近表現非常好，亦佔去年本港市場總融資額80%，近數年亦有很多新經濟公司在港上市。港交所自2018年陸續推出相關上市規則章節，包括18A及18C。
 
   
@@ -134,6 +302,9 @@
 ---
 
 # 陳翊庭：新股超額認購數千倍「含金量」與以往不同
+
+![陳翊庭期望，優化雙重主要上市及第二上市門檻，可以吸引到更多海外企業來港上市。（網上直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793510_1_20250227183447.jpg&q=90)
+  
 
 港交所行政總裁陳翊庭表示，正處理100多宗上市申請，很多是內地已上市的A股公司來港H股上市，已公布或遞表的公司逾20家，她形容是頗為主流，目前上市規則亦頗照顧到它們需要。
 
@@ -1253,173 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃
-
-![楊何蓓茵說，很多公務員皆理解今次凍薪和削減編制的決定。（楊何蓓茵社交平台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793379_1_20250226224949.jpg&q=90)
-  
-
-公務員事務局局長楊何蓓茵就《財政預算案》與公務員事務相關的政策措施，向全體公務員發信。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元
-
-![陳茂波出席電視論壇時說，有市民反映籃球博彩規範化助長賭風的影響有限，因此邀請馬會研究並向政府提交建議。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793378_1_20250226230058.jpg&q=75)
-  
-
-財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm)
-
----
-
-# 啟德體育園舉行倒數燈光展
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793376_1_20250226214728.jpg&q=75)
-  
-
-啟德體育園一連三晚舉行倒數燈光展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱以前規劃作商業地未來或可改住宅地
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793372_1_20250226214659.jpg&q=10)
-  
-
-預算案提出來年不會推售商業地，財政司司長陳茂波表示，疫情後辦公方式及商業模式均出現變化，市場上亦多了很多電商，反而形成一種契機，以前規劃用作商業用途的土地，未來或可改成住宅用地。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793369_1_20250226214615.jpg&q=80)
-  
-
-財政司司長陳茂波出席電視論壇時，被問到來年財政儲備達到5800多億，等於8個月的政府開支，如果再出現另一場疫症，是否有足夠抵禦能力，陳茂波說，現時財政儲備水平不錯，相信未來隨著經濟持續增長，經營帳目錄得盈餘，政府多善用市場資源投入長期基建項目，可以保持一定水平的財政儲備，相信有足夠實力應對任何突如來襲的情況。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793368_1_20250226214637.jpg&q=80)
-  
-
-預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
-
----
-
-# 財政預算案2025｜公務員凍薪4月生效　不續進行今年薪趨調查
-
-![凍結全體公務員薪酬的安排將於4月1日生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793367_1_20250226214534.jpg&q=75)
-  
-
-財政司司長於《財政預算案》公布，在強化財政整合計劃下，政府提出下年度凍結包括全體公務員的所有行政機關人員薪酬。因此，政府決定不繼續進行2025年薪酬趨勢調查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm)
 
 ---

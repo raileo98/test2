@@ -1,5 +1,8 @@
 # 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
 
+![李慧琼（右）說，同意未來溝通機制能進一步加強。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
+  
+
 全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。
 
   
@@ -354,7 +357,7 @@
 
 # 特朗普相信美中關係會是好的關係
 
-![美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
   
 
 美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。

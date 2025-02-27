@@ -1,3 +1,165 @@
+# 財政預算案2025｜陳翊庭：「T+1」結算料今年底可兼容
+
+![陳翊庭表示，香港作為國際市場，不能忽視市場趨勢，又相信實施「T+1」結算周期有助增加流動性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793527_1_20250227183555.jpg&q=90)
+  
+
+港交所行政總裁陳翊庭表示，將會就「T+1」結算周期推出諮詢文件，預料今年底可以技術上兼容。但她強調，並非已下定論，業界亦需要準備。她指出，美國去年已實行「T+1」，歐洲亦計劃2027年實施，強調香港作為國際市場，不能忽視市場趨勢，又相信實施有助增加流動性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793527-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793527-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793527-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：有信心市場能吸納政府債券
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793523_1_20250227183329.jpg&q=80)
+  
+
+《財政預算案》提出，在25/26年度起的五年間，每年發行債券合共約1500億至1950億元。財經事務及庫務局局長許正宇認為，很多機構例如長線的保險公司，都希望市場有多些更長期的港元債券產品，他有信心債券可被市場吸納。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793523-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793523-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793523-20250227.htm)
+
+---
+
+# 財政預算案2025｜陳茂波：有中產市民說最重要是搞好經濟
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793518_1_20250227183325.jpg&q=80)
+  
+
+財政司司長陳茂波出席《財政預算案》電台聯播節目時表示，面對財政赤字，政府仍想在力所能及範圍內對中產表示關心，所以支援措施只是減半，沒有取消；他又指，聽到有中產市民說，最重要是搞活經濟，讓他們容易找到好工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793518-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793518-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793518-20250227.htm)
+
+---
+
+# 財政預算案2025｜孫東：香港人工智能研發院最快明年投入運作
+
+創新科技及工業局局長孫東表示，香港人工智能研發院最快明年投入運作，以繼續推動科技進步，並在大範圍推廣應用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793526-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793526-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793526-20250227.htm)
+
+---
+
+# 財政預算案2025｜陳茂波：政府不再希望過分依賴地價收入
+
+財政司司長陳茂波表示，政府不再希望過分依賴地價收入，認為要發展經濟，各方面收入更重要。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793525-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793525-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793525-20250227.htm)
+
+---
+
+# 財政預算案2025｜蔡若蓮稱沒向議員透露《預算案》措施
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793522_1_20250227181911.jpg&q=80)
+  
+
+教育界立法會議員朱國強發聲明，表示當局並沒有就取消2500元學生津貼向他諮詢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793522-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793522-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793522-20250227.htm)
+
+---
+
+# 財政預算案2025｜陳茂波︰公開表明來年不賣住宅地不合適
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793520_1_20250227181757.jpg&q=80)
+  
+
+財政司司長陳茂波出席立法會財委會有關《財政預算案》的簡報會，有議員建議政府暫停推售住宅地，陳茂波說，要讓市場預期穩定的土地供應，未來一兩年停售並不合適。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793520-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793520-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793520-20250227.htm)
+
+---
+
 # 人民幣兌美元創逾1星期低位
 
 ![人民幣收市報7.271兌1美元，較上日收市跌163點子，創逾1星期低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793511_1_20250227173841.jpg&q=30)
@@ -23,6 +185,9 @@
 ---
 
 # 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
+
+![李慧琼（右）說，同意未來溝通機制能進一步加強。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
+  
 
 全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。
 
@@ -114,6 +279,9 @@
 
 # 財政預算案2025｜港交所：「科企專線」讓企業放心來港上市
 
+![陳翊庭說，「科企專線」為科技企業量身訂造，有專門人手負責「手把手」處理，讓它們放心來港上市。（網上直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793512_1_20250227183406.jpg&q=90)
+  
+
 新一年度財政預算案提到，港交所正籌備開通「科企專線」。港交所行政總裁陳翊庭表示，留意到現時投資者特別喜好科技企業，這類企業最近表現非常好，亦佔去年本港市場總融資額80%，近數年亦有很多新經濟公司在港上市。港交所自2018年陸續推出相關上市規則章節，包括18A及18C。
 
   
@@ -158,6 +326,9 @@
 ---
 
 # 陳翊庭：新股超額認購數千倍「含金量」與以往不同
+
+![陳翊庭期望，優化雙重主要上市及第二上市門檻，可以吸引到更多海外企業來港上市。（網上直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793510_1_20250227183447.jpg&q=90)
+  
 
 港交所行政總裁陳翊庭表示，正處理100多宗上市申請，很多是內地已上市的A股公司來港H股上市，已公布或遞表的公司逾20家，她形容是頗為主流，目前上市規則亦頗照顧到它們需要。
 
@@ -2358,7 +2529,7 @@
 
 # 特朗普相信美中關係會是好的關係
 
-![美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
   
 
 美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。

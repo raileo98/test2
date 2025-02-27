@@ -142,7 +142,7 @@ Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchang
 
 ---
 
-# Govt won't rely on land sales for revenue: FS
+# Govt won't rely on land sales for revenue: Paul Chan
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793467_1_20250227134032.jpg&q=85)
   
