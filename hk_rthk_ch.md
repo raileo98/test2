@@ -1,3 +1,51 @@
+# 恒指下午初段跌逾1%
+
+![恒指較早時報23482點，跌305點，跌幅1.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793465_1_20250227130340.jpg&q=15)
+  
+
+港股下午初段跌逾1%，恒指較早時報23482點，跌305點，跌幅1.28%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793465-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793465-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793465-20250227.htm)
+
+---
+
+# 美私人企業月球登陸器由SpaceＸ火箭發射升空　冀二次登月
+
+![著陸器搭乘太空探索科技公司SpaceX「獵鷹9」火箭升空。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793466_1_20250227130611.jpg&q=85)
+  
+
+美國私人公司直覺機器的月球登陸器「雅典娜」成功發射升空，期望實現第二次月球著陸。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793466-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793466-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793466-20250227.htm)
+
+---
+
 # 銀河娛樂去年多賺28%　派末期息0.5元
 
 ![銀河娛樂去年盈利87.6億元，按年升28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793459_1_20250227122804.jpg&q=80)
@@ -218,6 +266,9 @@
 
 ![陳茂波說，政府將全力推進北部都會區發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793452_1_20250227123123.jpg&q=70)
   
+
+在立法會財務委員會上，議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
+
   
 
 

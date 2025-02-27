@@ -1,3 +1,51 @@
+# HKU and CUHK to get 60 more medical traning places
+
+![CUHK says it will announce details for the “second degree entry track” in due course. Photo courtesy of CUHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793464_1_20250227125822.jpg&q=65)
+  
+
+The Education Bureau said that medical schools at Chinese University (CUHK) and the University of Hong Kong (HKU) would have 60 more training places in the next academic year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm)
+
+---
+
+# FS shoots down levy for all outbound travellers
+
+![A caller to a radio show suggested a levy on travellers leaving the city via land boundary control points. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793462_1_20250227123711.jpg&q=20)
+  
+
+Financial Secretary Paul Chan on Thursday said a proposed levy on private cars departing Hong Kong is aimed at clawing back government spending on cross-boundary facilities, while dismissing the idea of a fee for all outbound travellers over the potential impact on the public.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm)
+
+---
+
 # Abraham Ancer seeks another win at HK LIV Golf
 
 ![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
@@ -49,7 +97,7 @@ Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet t
 
 # Man dies in Yuen Long Highway pile-up
 
-![A seven-vehicle collision occurred at around 7:30am near the Shap Pat Heung Interchange. Image: social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
   
 
 A man died and six others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
@@ -1389,53 +1437,5 @@ Environment minister Tse Chin-wan on Tuesday said he believes a market-led appro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm)
-
----
-
-# Cancelled art fair was denied government funding
-
-![The event was scheduled to take place between March 26-30. Photo courtesy of Digital Art Fair.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793060_1_20250225111142.jpg&q=90)
-  
-
-The government has urged event organisers to make sure they have sufficient funding before selling tickets, after this year's Digital Art Fair was cancelled just weeks in advance.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm)
-
----
-
-# FEHD probes workers 'removing own display bills video'
-
-![Four workers are suspected of removing display bills posted by themselves in Nam Cheong Street. Photo: Roni Wong](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793057_1_20250225105426.jpg&q=90)
-  
-
-Officials said they are investigating suspicions that some street cleaners have been creating fake work for themselves by putting up posters on lampposts just so they can be seen removing them.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm)
 
 ---

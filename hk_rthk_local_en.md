@@ -1,3 +1,51 @@
+# HKU and CUHK to get 60 more medical traning places
+
+![CUHK says it will announce details for the “second degree entry track” in due course. Photo courtesy of CUHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793464_1_20250227125822.jpg&q=65)
+  
+
+The Education Bureau said that medical schools at Chinese University (CUHK) and the University of Hong Kong (HKU) would have 60 more training places in the next academic year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm)
+
+---
+
+# FS shoots down levy for all outbound travellers
+
+![A caller to a radio show suggested a levy on travellers leaving the city via land boundary control points. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793462_1_20250227123711.jpg&q=20)
+  
+
+Financial Secretary Paul Chan on Thursday said a proposed levy on private cars departing Hong Kong is aimed at clawing back government spending on cross-boundary facilities, while dismissing the idea of a fee for all outbound travellers over the potential impact on the public.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm)
+
+---
+
 # Abraham Ancer seeks another win at HK LIV Golf
 
 ![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
@@ -25,7 +73,7 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 
 # Man dies in Yuen Long Highway pile-up
 
-![A seven-vehicle collision occurred at around 7:30am near the Shap Pat Heung Interchange. Image: social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
   
 
 A man died and six others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
@@ -1391,53 +1439,5 @@ Hong Kong’s HK$2 subsidised bus, train, ferry, minibus and tram fares for the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792643-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792643-20250221.htm)
-
----
-
-# 'Get different jabs based on the travel destination'
-
-![The Society for Immunisations and Travel Medicine says people should have a health consultation four to six weeks before their departure. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792641_1_20250221171655.jpg&q=80)
-  
-
-The Society for Immunisations and Travel Medicine on Friday said Hong Kong people should take different jabs, in accordance with their travel destinations.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792641-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792641-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792641-20250221.htm)
-
----
-
-# Citybus unveils panda-themed open-top bus
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792632_1_20250221163843.jpg&q=40)
-  
-
-Tourists, bus enthusiasts and panda-lovers are being invited to take a ride on an open-top double-decker set to ply sightseeing routes in the city.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792632-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792632-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792632-20250221.htm)
 
 ---

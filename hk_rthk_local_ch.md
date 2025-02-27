@@ -1,3 +1,27 @@
+# 恒指下午初段跌逾1%
+
+![恒指較早時報23482點，跌305點，跌幅1.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793465_1_20250227130340.jpg&q=15)
+  
+
+港股下午初段跌逾1%，恒指較早時報23482點，跌305點，跌幅1.28%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793465-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793465-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793465-20250227.htm)
+
+---
+
 # 已購啟德體育園開幕禮門票人士陸續前往換領實體票
 
 ![已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793461_1_20250227130026.jpg&q=80)
@@ -122,6 +146,9 @@
 
 ![陳茂波說，政府將全力推進北部都會區發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793452_1_20250227123123.jpg&q=70)
   
+
+在立法會財務委員會上，議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
+
   
 
 
@@ -1411,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793323-20250226.htm)
-
----
-
-# 財政預算案2025｜許正宇：開通科企專線冀申請上市過程更順利
-
-![許正宇表示，科技企業來港申請上市的過程前，可能需要就較重大的監管問題進行諮詢。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793322_1_20250226170746.jpg&q=80)
-  
-
-新一份財政預算案提到，港交所正籌備開通「科企專線」，有傳媒關注與上市規則18C章容許特專科技公司上市的機制有何區別。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793322-20250226.htm)
 
 ---
