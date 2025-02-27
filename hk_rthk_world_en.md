@@ -1,3 +1,27 @@
+# EU 'wasn't formed to screw anyone', says Polish PM
+
+![Donald Tusk says the EU was formed to maintain peace and create free and fair trade, and "wasn’t formed to screw anyone". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793547_2_20250227221517.jpg&q=85)
+  
+
+The European Union on Thursday pushed back against allegations by US President Donald Trump that the 27-nation bloc was out to get the United States, and warned that it would fight any wholesale tariff of 25 percent on all EU products.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm)
+
+---
+
 # Oscar-winning actor Gene Hackman, wife found dead
 
 ![Oscar-winning US actor Gene Hackman and his wife Betsy Arakawa were found dead inside their home in New Mexico. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793513_1_20250227175330.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump expanded his offensive against trading partners on Tue
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm)
-
----
-
-# US envoy set for Kyiv talks after Trump rips Zelensky
-
-![Volodymyr Zelensky says Donald Trump is living in a Russian "disinformation space." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792336_1_20250219193300.jpg&q=90)
-  
-
-Donald Trump's special envoy was in Kyiv on Wednesday, saying he was there to "listen" to Kyiv's concerns, a day after the US president tore into his Ukrainian counterpart in a surprise press conference.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm)
 
 ---

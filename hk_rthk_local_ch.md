@@ -1,3 +1,24 @@
+# 大澳一個石灘發現中華白海豚屍體
+
+大澳發現中華白海豚屍體，為本年度第11宗鯨豚擱淺個案。香港海洋公園保育基金人員接報到場後，將屍體解剖，並將樣本帶回海洋公園作詳細分析。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793551-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793551-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793551-20250227.htm)
+
+---
+
 # 全運會三項鐵人測試賽周末舉行　當局歡迎市民到場觀賞
 
 ![公眾門票已透過中國香港三項鐵人總會派發，比賽當日也會預留少量門票，市民可於觀眾入口處領取門票進場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793543_1_20250227214540.jpg&q=85)
@@ -1408,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm)
-
----
-
-# 財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793424_1_20250227100448.jpg&q=50)
-  
-
-財政司司長陳茂波出席電台聯播節目表示，金融市場要搞活股市，再降低股票印花稅不是主要手段。近期交投非常暢旺，印花稅都是維持原本水平。當局內部曾研究，加稅與交投量沒有直接推動高速增加的必然關係，吸引更多好公司上市更重要。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm)
 
 ---

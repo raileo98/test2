@@ -1,3 +1,45 @@
+# 大澳一個石灘發現中華白海豚屍體
+
+大澳發現中華白海豚屍體，為本年度第11宗鯨豚擱淺個案。香港海洋公園保育基金人員接報到場後，將屍體解剖，並將樣本帶回海洋公園作詳細分析。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793551-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793551-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793551-20250227.htm)
+
+---
+
+# 特朗普：下周向墨西哥和加拿大徵25%關稅　中國關稅再加10%
+
+美國總統特朗普表示，毒品繼續經墨西哥和加拿大流入美國，決定如期在下星期二起，對這兩個國家加徵25%關稅。特朗普又表示，同日會再向中國徵收額外10%的關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm)
+
+---
+
 # 美國上周首次申領失業救濟人數增至24.2萬人　多過預期
 
 ![美國上星期首次申領失業救濟人數24.2萬人，按星期增加2.2萬人，多過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793546_1_20250227215312.jpg&q=75)
