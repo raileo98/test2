@@ -1,3 +1,24 @@
+# 財政預算案2025｜孫玉菡：每月乘搭逾240程僅360人
+
+財政預算案調整「二元乘車優惠計劃」，每月限制240程，10元以上車費 「兩折」。勞工及福利局局長孫玉菡表示，限程安排寬鬆，根據統計，每月乘搭超過240程的受惠人士只有360人，相信新安排對99.99%的長者和殘疾人士均無影響。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793534-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793534-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793534-20250227.htm)
+
+---
+
 # 玖龍紙業中期盈利升近61%　不派中期息
 
 ![玖龍紙業中期盈利近4.7億元人民幣，按年升近61%，不派中期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793532_1_20250227185750.jpg&q=90)
@@ -400,7 +421,7 @@
 
 ---
 
-# 證監會就提高主要指數衍生工具持倉限額諮詢市場
+# 證監會為提高主要指數衍生工具持倉限額諮詢市場
 
 ![證監會就提高主要指數衍生工具持倉限額建議展開諮詢，今日起至3月28日結束。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793508_1_20250227172822.jpg&q=85)
   
@@ -498,7 +519,7 @@
 
 # 財政預算案2025｜蔡若蓮稱諮詢教育界削開支不容許逐點措施問
 
-![蔡若蓮稱諮詢教育界削開支不容許逐點措施問。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793506_1_20250227180816.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793506_1_20250227180816.jpg&q=80)
   
 
 預算案提出，將於新學年起，取消為中小學及幼稚園學生提供2500元學生津貼。財政司司長陳茂波說，教育局有跟立法會一些教育界代表溝通。但教育界立法會議員朱國強表示，政府當局從未就取消有關津貼向他諮詢。教育局局長蔡若蓮回應，不會就預算案具體措施向個別議員透露。

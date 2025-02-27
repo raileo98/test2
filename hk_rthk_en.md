@@ -1,3 +1,27 @@
+# 40 Chinese nationals repatriated from Thailand
+
+![A group of Chinese nationals who was repatriated from Thailand reunites with their families. Photo: CCTV Weibo](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793533_1_20250227191335.jpg&q=90)
+  
+
+Forty Chinese nationals involved in illegal immigration were repatriated from Thailand on Thursday in a coordinated effort to combat cross-border crime and safeguard the legitimate rights of Chinese citizens, according to Ministry of Public Security.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm)
+
+---
+
 # Lam Cheuk-ting, six others jailed over Yuen Long riot
 
 ![The District Court jailed former lawmaker Lam Cheuk-ting and six others for rioting in Yuen Long in 2019. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793502_1_20250227171029.jpg&q=40)
@@ -1413,29 +1437,5 @@ The Cross-Harbour Tunnel was forced to shut partially for more than an hour on T
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm)
-
----
-
-# 4 dead, including 2 Chinese, in SKorea bridge collapse
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793100_1_20250225161221.jpg&q=65)
-  
-
-Four people, including two Chinese nationals, were killed and six injured after a bridge collapsed at an expressway construction site in South Korea on Tuesday, authorities said.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
 
 ---
