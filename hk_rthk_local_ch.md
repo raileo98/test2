@@ -1,3 +1,24 @@
+# 教資會評審小組確認教育大學運作切合使命與策略發展計劃
+
+大學教育資助委員會轄下質素保證局公布香港教育大學質素核證報告，評審小組確認教大各項運作及活動均清晰切合其使命和《策略發展計劃2016-2025》，指教大秉持「教育為本，超越教育」的理念，提供涵蓋多元學科的獨特師資教育。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793475-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793475-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793475-20250227.htm)
+
+---
+
 # 財政預算案2025｜陳茂波稱削減開支由政策局及部門首長決定
 
 新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，多名議員希望政府不要一刀切取消有關津貼。工聯會議員陸頌雄說，2500元學生津貼能讓家長獲得幸福感和獲得感，因為每年開學的開支很大，有關津貼屬於「及時雨」，不滿政府在沒有諮詢下取消，形容做法「一石擊起千重浪」，又質疑與鼓勵生育政策有牴觸。
@@ -1408,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm)
-
----
-
-# 財政預算案2025｜證券及期貨專業總會對未降股票印花稅感遺憾
-
-![證券及期貨專業總會對新一份財政預算案表示支持，但對於未有提及下調股票印花稅表示遺憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793326_1_20250226171047.jpg&q=1)
-  
-
-證券及期貨專業總會對新一份財政預算案表示支持，但對於未有提及下調股票印花稅表示遺憾。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793326-20250226.htm)
 
 ---

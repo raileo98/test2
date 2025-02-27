@@ -1,3 +1,24 @@
+# 教資會評審小組確認教育大學運作切合使命與策略發展計劃
+
+大學教育資助委員會轄下質素保證局公布香港教育大學質素核證報告，評審小組確認教大各項運作及活動均清晰切合其使命和《策略發展計劃2016-2025》，指教大秉持「教育為本，超越教育」的理念，提供涵蓋多元學科的獨特師資教育。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793475-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793475-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793475-20250227.htm)
+
+---
+
 # 韓股低收0.7%
 
 ![首爾綜合指數收市報2621點，跌19點，跌幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793474_1_20250227143943.jpg&q=85)
