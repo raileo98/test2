@@ -339,7 +339,7 @@ async def process_article(fg, category, article):
         memUsage()
 
         # 同時利用 markdownify 將 HTML 轉 Markdown，並回傳文章資料（方便後續 .md 寫檔）
-        md_content = md(feedDescription)
+        md_content = md(feedDescription.strip()).strip()
         
         return {
             "title": articleTitle,
@@ -599,7 +599,7 @@ async def process_category(category, url):
     
     for article in md_articles:
         md_lines.append(f"# {article['title']}")
-        md_lines.append("\n" + article['markdown'].strip() + "\n")
+        md_lines.append("\n" + article['markdown'] + "\n")
         md_lines.append(f"原文連結：[{article['url']}]({article['url']})\n")
         md_lines.append("---\n")
     
