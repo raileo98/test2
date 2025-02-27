@@ -1,4 +1,31 @@
+# 國防部：下階段中美兩軍交流已有一些初步計劃和安排
+
+![吳謙表示，中方希望美方與中方相向而行，加強溝通對話，妥處矛盾分歧。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793483_1_20250227152825.jpg&q=90)
+  
+
+在北京，國防部新聞發言人吳謙表示，關於中美兩軍關係，雙方通過軍事外交管道保持有效溝通。下階段兩軍交往，雙方已經有一些初步的計劃和安排，中方將適時發佈消息。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm)
+
+---
+
 # 全國兩會｜黃錦輝倡設「跨境投資聯合基金」專注科技創新產業
+
+![黃錦輝期望中央考慮推進國產人工智能DeepSeek進駐香港，促進在香港的廣泛應用。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793480_1_20250227152442.jpg&q=60)
+  
 
 全國政協會議即將在北京召開。全國政協委員、立法會議員黃錦輝表示，會提出成立專注於香港科技創新產業的「跨境投資聯合基金」。
 
@@ -20,6 +47,9 @@
 ---
 
 # 劉凱旋稱香港具備強大專業服務能力　為內企走出去提供全面支援
+
+![劉凱旋在主辦的研討會活動上致辭，宣傳香港的營商新機遇。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793478_1_20250227152339.jpg&q=75)
+  
 
 投資推廣署署長劉凱旋說，香港具備強大的專業服務能力，在法律，金融和人才方面，能為湖北企業「走出去」提供全面支援。
 
@@ -1405,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm)
-
----
-
-# 習近平與普京通電話　稱中俄關係不針對第三方亦不受第三方影響
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792979_1_20250224183925.jpg&q=90)
-  
-
-國家主席習近平下午應約與俄羅斯總統普京通電話。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm)
 
 ---

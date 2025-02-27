@@ -1,3 +1,27 @@
+# 國防部：下階段中美兩軍交流已有一些初步計劃和安排
+
+![吳謙表示，中方希望美方與中方相向而行，加強溝通對話，妥處矛盾分歧。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793483_1_20250227152825.jpg&q=90)
+  
+
+在北京，國防部新聞發言人吳謙表示，關於中美兩軍關係，雙方通過軍事外交管道保持有效溝通。下階段兩軍交往，雙方已經有一些初步的計劃和安排，中方將適時發佈消息。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm)
+
+---
+
 # 南韓指北韓向俄羅斯增派兵力
 
 ![北韓去年10月曾派出過萬名軍人往庫爾斯克，數千人傷亡。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793479_1_20250227150951.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793202-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793202-20250226.htm)
-
----
-
-# 泰國一架巴士行駛途中翻側　17死逾40傷
-
-![泰國一架巴士行駛途中翻側　17死逾40傷](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793199_2_20250226100556.jpg&q=90)
-  
-
-泰國巴真府發生嚴重車禍，一輛巴士在行駛途中翻側，造成17人死亡，40多人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm)
 
 ---
