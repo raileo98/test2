@@ -1,65 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 00:52:22 +0000webmaster@rthk.hk徐立之獲委任為籌備新醫學院工作組專家顧問https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm<img alt="政府委任徐立之為籌備新醫學院工作組專家顧問。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793306\_1\_20250226170023.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-政府委任徐立之為籌備新醫學院工作組專家顧問。
-<br>
-<br/>
-醫務衞生局局長盧寵茂說，徐立之是國際知名的分子人類遺傳學專家、現任香港珠海學院校務委員會主席和香港大學前任校長，在領導高等教育界及學術研究領域擁有豐富經驗。
-<br/>
-<br/>
-工作組下一階段的工作將按已制訂的準則，評核有意成立新醫學院的大學建議書，他深信徐立之定能為工作組新階段的工作，特別在考慮新醫學院的管治及科研發展策略方面，提供寶貴意見。
-<br/>
-<br/>
-工作組去年10月成立以來，已完成制定設立新醫學院的方向及準則，並在去年12月發信邀請有意成立新醫學院的本地大學，在今年3月17日或之前提交建議書。下一步會制訂評核建議書的具體準則，確保以透明和公平的方式，選定具條件和合資格的大學成立新醫學院，預期今年內完成評核，並向政府提出建議。
-<br/>
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htmWed, 26 Feb 2025 15:56:00 +0800財政預算案2025｜鄧家彪稱乘車優惠利大於弊　冀改動到此為止https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm<img alt="鄧家彪（右三）說，有關「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案，希望改動「到此為止」。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793310\_1\_20250226170236.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-工聯會立法會議員鄧家彪回應財政預算案中「二元優惠計劃」及「公共交通費用補貼計劃」的調整方案時表示，希望改動「到此為止」，不要再做一些「大刀闊斧」的處理。
-<br>
-<br/>
-他表示，長者兩元乘車優惠對於長者和社會整體的利益是利大於弊，認為關鍵的是除了每天上限8次之外，亦可在巴士公司設立分段收費，並在下車的位置設立一個拍卡機作配合，相信資源運用得會更到位。
-<br/>
-<br/>
-工聯會會長吳秋北表示，新一份財政預算案是透過穩固金融市場、擴大招商引資、強化國際樞紐功能的三大主軸，結合城市經濟和國家戰略對接，加速經濟轉型升級。報告亦強調守正創新，可以推動本地經濟轉型升級，強化作為國家參與全球的一個聯動、一個橋樑的角色。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793310-20250226.htmWed, 26 Feb 2025 16:04:00 +0800財政預算案2025｜籃球博彩稅料每年15億至20億元收入https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm<img alt="陳茂波說，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793311\_1\_20250226170301.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 01:14:03 +0000webmaster@rthk.hk財政預算案2025｜籃球博彩稅料每年15億至20億元收入https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm<img alt="陳茂波說，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793311\_1\_20250226170301.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政預算案提出政府將積極探討規範籃球博彩活動，並邀請馬會提交建議。
@@ -1766,4 +1706,61 @@ https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htmThu, 27 Feb 2025 08:48:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htmThu, 27 Feb 2025 08:48:00 +0800財政預算案2025｜陳茂波稱節約開支需取消學生津貼https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm<br/>
+<div class="itemFullText">
+預算案公布將將取消為中小學和幼稚園學生提供2500元學生津貼。有聽衆致電司長熱線電台聯播節目，表示做法有違政府鼓勵生育，綜援、生果金等出半糧，中產則沒有受惠。
+<br>
+<br/>
+財政司司長陳茂波回應表示，2500元學生津貼不需要任何資產審查，如果要節約開支，這是需要減縮的地方，有需要的人士在其他計劃可獲得照顧。
+<br/>
+<br/>
+他指出，當局有不同措施鼓勵市民生育，經濟一直復蘇，不同人有不同壓力，以往有不同支援措施，環境好時力度比較大，目前有赤字，因此在力所能及的範圍內表示關心。
+<br/>
+<br/>
+另外，有聽衆提出開徵陸路離境稅，陳茂波說，如果增加有關費用，影響面比較大，在機場收取有關費用，對飛機乘客只增加數十元，相對機票來說，是可以負擔得到。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htmThu, 27 Feb 2025 09:02:00 +0800財政預算案2025｜陳茂波稱公務員凍薪是考慮連續兩年經濟增長https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm<br/>
+<div class="itemFullText">
+財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。財政司司長陳茂波出席電台聯播節目，有在非政府機構工作的市民致電，指機構可能跟隨政府凍薪，因而減少消費，詢問陳茂波會否呼籲其他機構不要跟隨凍薪。陳茂波回應說，聽到社會有強烈聲音，要求公務員及問責官員的薪酬作出相應處理，經考慮後決定凍薪，而所有經公帑發放薪酬的機構亦一致，希望大家理解。
+<br>
+<br/>
+有63歲的市民致電表示，認同二元乘車優惠計劃可以微調，但反問為何公務員凍薪而增薪點制度不變，是否變相只是「止蝕」而長者要付出多些。陳茂波說，公務員凍薪是考慮連續兩年有經濟增長，私人市場有加薪，以及採取強化財政整合計劃等因素，而公務員的增薪點涉及每年的工作評核，會考慮工作表現。
+<br/>
+<br/>
+財政預算案亦提出積極探討規範籃球博彩活動，有聽眾致電節目問何時可以落實。陳茂波說，已邀請馬會提交建議，知道馬會正全速去做，當政府收到建議會即時處理，亦會有諮詢機制，社會可以討論及給予意見，他強調提出規範籃球博彩活動是希望以法律規管不合法賭博。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htmThu, 27 Feb 2025 09:09:00 +0800

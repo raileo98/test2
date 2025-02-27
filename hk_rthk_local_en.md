@@ -1,36 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 00:52:24 +0000webmaster@rthk.hkSchool bus driver dies in Ma On Shan crashhttps://news.rthk.hk/rthk/en/component/k2/1792591-20250221.htm<img alt="Police say the 78-year-old school bus driver died after reportedly crashing into a railing. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792591\_1\_20250221114604.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Police on Friday said they were investigating a traffic accident in Ma On Shan which left a school bus driver dead.
-<br>
-<br/>
-Officers said the 78-year-old man reportedly lost control of his vehicle and crashed into a railing when he was driving along Kam Ying Road towards Wu Kai Sha at around 6am.
-<br/>
-<br/>
-The force said the man showed no visible injuries but fell into a coma. He was pronounced dead at Prince of Wales Hospital.
-<br/>
-<br/>
-There were no students or other passengers on the school bus, police added.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792591-20250221.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792591-20250221.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792591-20250221.htmFri, 21 Feb 2025 11:56:00 +0800Lawmakers support tram fare increaseshttps://news.rthk.hk/rthk/en/component/k2/1792608-20250221.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792608\_1\_20250221133054.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 01:14:03 +0000webmaster@rthk.hkLawmakers support tram fare increaseshttps://news.rthk.hk/rthk/en/component/k2/1792608-20250221.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792608\_1\_20250221133054.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Many lawmakers on Friday voiced support for an increase in tram fares, with Hong Kong Tramways saying it needs the rises to stay afloat.
@@ -2827,4 +2796,47 @@ https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htmThu, 27 Feb 2025 08:47:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htmThu, 27 Feb 2025 08:47:00 +0800'99pc of people won't exceed new HK$2 scheme limits'https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm<img alt="Executive Councillor Lam Ching-choi says he doesn't think the tweaked HK$2 scheme will affect most people who are trying to visit their grandchildren, or going to work. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793427\_1\_20250227090706.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+An Executive Councillor on Thursday said most of Hong Kong's senior citizens will not be affected by changes to the city's fare concessionary scheme for the over 60s.
+<br>
+<br/>
+As announced in Wednesday's budget, instead of a flat fare of HK$2, eligible commuters will have to pay 20 percent of any standard fare exceeding HK$10.
+<br/>
+<br/>
+The scheme will also be capped at 240 trips per month, which works out at an average of roughly eight per day.
+<br/>
+<br/>
+Lam Ching-choi, who formerly chaired the Elderly Commission, was speaking to RTHK.
+<br/>
+<br/>
+“Only a small percentage of them, they might travel quite a lot because actually, we set the limit quite liberally, I don't think it will affect most individuals who are just trying to visit their grandchildren, or going to work" he said.
+<br/>
+<br/>
+"On average, I believe 99 percent of individuals won't exceed the limit", he added.
+<br/>
+<br/>
+Financial Secretary Paul Chan on Wednesday said this fine-tuned proposal preserves the government's policy intent while striking a balance between enhancing the sustainability of the scheme and minimising the impacts to beneficiaries.
+<br/>
+<br/>
+Government sources said the new arrangements are expected to come into force in September 2026.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htmThu, 27 Feb 2025 09:06:00 +0800

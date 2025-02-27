@@ -1,45 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKThu, 27 Feb 2025 00:52:23 +0000webmaster@rthk.hkZelensky calls for lasting peace 'this year'https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm<img alt="Ukrainian President Volodymyr Zelensky speaks at a press conference after the 'Support Ukraine' summit. Photo: Reuters" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793025\_1\_20250225082846.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace" this year as European leaders gathered for a summit in Kyiv on the third anniversary of the war in Ukraine.
-<br>
-<br/>
-"We have to win peace through strength and wisdom and unity," Zelensky told Ukraine's backers in Kyiv.
-<br/>
-<br/>
-He vowed at a press conference later that Russia "will not win".
-<br/>
-<br/>
-EU Commission chief Ursula von der Leyen also warned that despite opening talks with the United States on how to end the conflict, Vladimir Putin was not about to back down.
-<br/>
-<br/>
-"Putin is trying harder than ever to win this war on the ground. His goal remains Ukraine's capitulation," she said.
-<br/>
-<br/>
-Russia said it would halt the attack only if a deal could be reached that "suits" its interests, and accused Europe of wanting to prolong the fighting.
-<br/>
-<br/>
-Earlier on Monday, President Xi Jinping held a phone conversation with Putin and said China is happy to see efforts by Moscow and others to defuse the crisis in Ukraine, adding that China and Russia will support each other and achieve common development. (AFP)
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htmTue, 25 Feb 2025 09:03:00 +0800'Education spending cuts should be strategic'https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793046\_1\_20250225095556.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmrthk - English© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Englishhttps://news.rthk.hk/rthk/en/latest-news.htmzh-HKThu, 27 Feb 2025 01:14:04 +0000webmaster@rthk.hk'Education spending cuts should be strategic'https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793046\_1\_20250225095556.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Hong Kong's education sector could face funding cuts as Financial Secretary Paul Chan prepares to deliver his budget speech on Wednesday amid a projected HK$100 billion deficit.
@@ -2949,4 +2909,47 @@ https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htmThu, 27 Feb 2025 08:47:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htmThu, 27 Feb 2025 08:47:00 +0800'99pc of people won't exceed new HK$2 scheme limits'https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm<img alt="Executive Councillor Lam Ching-choi says he doesn't think the tweaked HK$2 scheme will affect most people who are trying to visit their grandchildren, or going to work. Photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793427\_1\_20250227090706.jpg&amp;q=85" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+An Executive Councillor on Thursday said most of Hong Kong's senior citizens will not be affected by changes to the city's fare concessionary scheme for the over 60s.
+<br>
+<br/>
+As announced in Wednesday's budget, instead of a flat fare of HK$2, eligible commuters will have to pay 20 percent of any standard fare exceeding HK$10.
+<br/>
+<br/>
+The scheme will also be capped at 240 trips per month, which works out at an average of roughly eight per day.
+<br/>
+<br/>
+Lam Ching-choi, who formerly chaired the Elderly Commission, was speaking to RTHK.
+<br/>
+<br/>
+“Only a small percentage of them, they might travel quite a lot because actually, we set the limit quite liberally, I don't think it will affect most individuals who are just trying to visit their grandchildren, or going to work" he said.
+<br/>
+<br/>
+"On average, I believe 99 percent of individuals won't exceed the limit", he added.
+<br/>
+<br/>
+Financial Secretary Paul Chan on Wednesday said this fine-tuned proposal preserves the government's policy intent while striking a balance between enhancing the sustainability of the scheme and minimising the impacts to beneficiaries.
+<br/>
+<br/>
+Government sources said the new arrangements are expected to come into force in September 2026.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htmThu, 27 Feb 2025 09:06:00 +0800
