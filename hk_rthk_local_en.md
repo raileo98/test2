@@ -1,3 +1,27 @@
+# Govt won't rely on land sales for revenue: FS
+
+![Paul Chan said the government hopes that different sources of revenue, besides land sales, can become more important.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793467_1_20250227134032.jpg&q=85)
+  
+
+Financial Secretary Paul Chan said on Thursday that the government no longer wants to rely heavily on land sales as a main source of revenue.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm)
+
+---
+
 # HKU and CUHK to get 60 more medical training places
 
 ![CUHK says it will announce details for the “second degree entry track” in due course. Photo courtesy of CUHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793464_1_20250227125822.jpg&q=65)
@@ -1415,29 +1439,5 @@ A long-standing construction firm, Paul Y. Engineering Group, on Friday had its 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792682-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792682-20250221.htm)
-
----
-
-# Journey cap, reduced discounts mulled for HK$2 scheme
-
-![The government is believed to be planning changes to the HK$2 subsidised fare scheme for the over 60s. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792643_1_20250221172650.jpg&q=90)
-  
-
-Hong Kong’s HK$2 subsidised bus, train, ferry, minibus and tram fares for the over 60s could be curbed, sources say, with expensive journeys costing more and a daily limit on how many discounted trips can be made.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792643-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792643-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792643-20250221.htm)
 
 ---

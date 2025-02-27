@@ -1,3 +1,51 @@
+# 韓股低收0.7%
+
+![首爾綜合指數收市報2621點，跌19點，跌幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793474_1_20250227143943.jpg&q=85)
+  
+
+南韓股市收市下跌，首爾綜合指數報2621點，跌19點，跌幅0.73%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793474-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793474-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793474-20250227.htm)
+
+---
+
+# 日股高收0.3%　結束兩日跌勢
+
+![日經平均指數收市報38256點，升113點，升幅0.3%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793472_1_20250227143608.jpg&q=85)
+  
+
+日本股市反覆向上，日經平均指數收市報38256點，升113點，升幅0.3%，結束連續兩日跌勢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793472-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793472-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793472-20250227.htm)
+
+---
+
 # 40名中國偷渡人員從泰國遣返回國
 
 ![被遣返人員在機場與家屬團聚。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793471_1_20250227141328.jpg&q=90)

@@ -1,3 +1,51 @@
+# 韓股低收0.7%
+
+![首爾綜合指數收市報2621點，跌19點，跌幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793474_1_20250227143943.jpg&q=85)
+  
+
+南韓股市收市下跌，首爾綜合指數報2621點，跌19點，跌幅0.73%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793474-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793474-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793474-20250227.htm)
+
+---
+
+# 日股高收0.3%　結束兩日跌勢
+
+![日經平均指數收市報38256點，升113點，升幅0.3%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793472_1_20250227143608.jpg&q=85)
+  
+
+日本股市反覆向上，日經平均指數收市報38256點，升113點，升幅0.3%，結束連續兩日跌勢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793472-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793472-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793472-20250227.htm)
+
+---
+
 # 財政預算案2025｜陳茂波稱削減開支由政策局及部門首長決定
 
 新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，多名議員希望政府不要一刀切取消有關津貼。工聯會議員陸頌雄說，2500元學生津貼能讓家長獲得幸福感和獲得感，因為每年開學的開支很大，有關津貼屬於「及時雨」，不滿政府在沒有諮詢下取消，形容做法「一石擊起千重浪」，又質疑與鼓勵生育政策有牴觸。
@@ -1382,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793365_1_20250226214510.jpg&q=75)
-  
-
-本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
-
----
-
-# 財政預算案2025｜證監會歡迎預算案提升香港競爭優勢各項措施
-
-![證監會稱財政司司長提出的措施將推動香港證券及衍生工具市場，鞏固香港資產及財富管理樞紐地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793362_1_20250226200018.jpg&q=90)
-  
-
-證監會歡迎財政預算案中為進一步提升香港作為國際金融中心競爭優勢提出各項措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm)
 
 ---
