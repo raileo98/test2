@@ -1,3 +1,27 @@
+# 特朗普指新對華關稅措施疊加月初關稅上　即累計徵收20%關稅
+
+![特朗普說將對從中國進口美國的商品，徵收額外10%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793571_1_20250228044815.jpg&q=85)
+  
+
+美國總統特朗普在社交平台表示，下星期二起會對從中國進口美國的商品，徵收額外10%關稅。他其後在白宮向傳媒說，相關關稅疊加在本月初對華徵收的10%關稅之上，即是累計徵收20%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm)
+
+---
+
 # 王文濤：中美在經貿領域有分歧正常　應透過平等對話解決各自關切
 
 ![王文濤說，中美在經貿領域存在分歧是正常，應透過平等對話磋商解決各自關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793552_1_20250227222918.jpg&q=90)
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm)
-
----
-
-# 全國兩會｜全國人大常委會第十四次會議在北京閉幕
-
-![全國人大常委會第十四次會議上午在北京人民大會堂閉幕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793101_1_20250225170038.jpg&q=65)
-  
-
-全國人大常委會第十四次會議上午在北京人民大會堂閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm)
 
 ---

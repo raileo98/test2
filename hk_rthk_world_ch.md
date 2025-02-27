@@ -1,3 +1,27 @@
+# 特朗普指新對華關稅措施疊加月初關稅上　即累計徵收20%關稅
+
+![特朗普說將對從中國進口美國的商品，徵收額外10%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793571_1_20250228044815.jpg&q=85)
+  
+
+美國總統特朗普在社交平台表示，下星期二起會對從中國進口美國的商品，徵收額外10%關稅。他其後在白宮向傳媒說，相關關稅疊加在本月初對華徵收的10%關稅之上，即是累計徵收20%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm)
+
+---
+
 # 敘利亞民主力量指揮官指厄賈蘭的呼籲與該武裝部隊無關
 
 ![阿卜迪指信件強調地區和平與安全，並呼籲結束戰爭及停止衝突，內容非常積極。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793569_1_20250228023010.jpg&q=90)
@@ -96,7 +120,7 @@
 
 # 領導人厄賈蘭籲庫爾德工人黨解散及所有武裝團體放下武器
 
-![厄賈蘭發表親筆信。圖為其支持者早前在土耳其舉行集會要求釋放他的情況。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793564_1_20250228022359.jpg&q=75)
+![厄賈蘭（相中人）發表親筆信。圖為其支持者早前在土耳其舉行集會要求釋放他的情況。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793564_1_20250228022359.jpg&q=75)
   
 
 目前在監獄的庫爾德工人黨領導人厄賈蘭在親筆信中，明確提出庫爾德工人黨應召開大會並宣布自行解散，呼籲所有武裝團體應放下武器。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm)
-
----
-
-# 梵蒂岡：教宗方濟各在醫院度過平靜一晚正在休息
-
-![方濟各仍在羅馬留醫，有信徒在醫院外擺放蠟燭祈禱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793302_1_20250226154919.jpg&q=90)
-  
-
-梵蒂岡最新表示，感染肺炎的教宗方濟各在醫院度過平靜一晚，並正在休息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793302-20250226.htm)
 
 ---
