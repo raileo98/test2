@@ -1,3 +1,27 @@
+# 40名中國偷渡人員從泰國遣返回國
+
+![被遣返人員在機場與家屬團聚。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793471_1_20250227141328.jpg&q=90)
+  
+
+40名中國偷渡人員從泰國遣返回國。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm)
+
+---
+
 # 全國兩會｜逾三千名中外記者報名採訪　新聞中心即日起啟用
 
 ![在北京梅地亞中心的全國兩會新聞中心今日正式啟用。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793457_1_20250227125952.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm)
-
----
-
-# 習近平同俄羅斯總統普京通電話
-
-![習近平同普京通電話。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792966_1_20250224184237.jpg&q=90)
-  
-
-國家主席習近平應約同俄羅斯總統普京通電話。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm)
 
 ---

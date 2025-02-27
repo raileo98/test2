@@ -1,3 +1,69 @@
+# 財政預算案2025｜陳茂波稱削減開支由政策局及部門首長決定
+
+新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，多名議員希望政府不要一刀切取消有關津貼。工聯會議員陸頌雄說，2500元學生津貼能讓家長獲得幸福感和獲得感，因為每年開學的開支很大，有關津貼屬於「及時雨」，不滿政府在沒有諮詢下取消，形容做法「一石擊起千重浪」，又質疑與鼓勵生育政策有牴觸。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793470-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793470-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793470-20250227.htm)
+
+---
+
+# 財政預算案2025｜陳茂波稱每次推地需審慎考慮市場情況
+
+預算案提出未來一年不推售商業地。在立法會財委會上，經民聯林健鋒關注政府賣地進度較慢，會否考慮恢復「勾地」制度或拆細地皮出售，甚至接受分期付款。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793469-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793469-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793469-20250227.htm)
+
+---
+
+# 台股低收約1.5%
+
+![台灣加權指數收市報23053點，跌349點，跌幅1.49%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793468_1_20250227135629.jpg&q=80)
+  
+
+台灣股市下跌，加權指數收市報23053點，跌349點，跌幅1.49%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793468-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793468-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793468-20250227.htm)
+
+---
+
 # 恒指下午初段跌逾1%
 
 ![恒指較早時報23482點，跌305點，跌幅1.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793465_1_20250227130340.jpg&q=15)
@@ -1364,78 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm)
-
----
-
-# 財政預算案2025｜地建會歡迎預算案提出提振經濟及樓市措施
-
-![地產建設商會稱政府為土地房屋供應訂定長遠發展目標並適時調整，展現促進者靈活變通的思維。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793360_1_20250226194258.jpg&q=90)
-  
-
-地產建設商會歡迎財政預算案提出多項提振經濟及樓市措施，為香港經濟發展作出長遠及前瞻性規劃，可望振興香港經濟，鞏固財政資源，改善民生福祉。商會表示支持。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm)
-
----
-
-# 財政預算案2025｜范鴻齡感謝政府於財政壓力下仍增醫管局撥款
-
-![范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793359_1_20250226214748.jpg&q=80)
-  
-
-醫管局主席范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。醫管局在下年度的撥款為1002億元，包括990億元經常撥款，較本年度修訂預算增加3%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm)
-
----
-
-# 財政預算案2025｜消息：無意重推俗稱肥雞餐公僕提前離職計劃
-
-![消息指政府無意重推俗稱「肥雞餐」的公務員提前離職計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793358_1_20250226194131.jpg&q=65)
-![政府問責官員與全體公務員一致凍薪。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793358_2_20250226194131.jpg&q=85)
-  
-
-新一份預算案宣布，所有行政、立法、司法機關及區議會全體人員一致凍薪。政府消息人士回應為何問責官員只「凍薪不減薪」時解釋，考慮到過去兩年經濟持續增長，預期今年會持續增長勢頭，私人市場更出現有人工加，因此認為全體公務員、立法會及司法機關等「愛國者治港」整體人員一起凍薪的做法較為合適。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm)
 
 ---

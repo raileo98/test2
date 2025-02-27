@@ -1,3 +1,27 @@
+# 40名中國偷渡人員從泰國遣返回國
+
+![被遣返人員在機場與家屬團聚。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793471_1_20250227141328.jpg&q=90)
+  
+
+40名中國偷渡人員從泰國遣返回國。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm)
+
+---
+
 # 美私人企業月球登陸器由SpaceＸ火箭發射升空　冀二次登月
 
 ![著陸器搭乘太空探索科技公司SpaceX「獵鷹9」火箭升空。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793466_1_20250227130611.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm)
-
----
-
-# 黃家榮稱迪士尼利潤用於擴建新景點帶來經濟效益大於派發股息
-
-![黃家榮認為，業績反映除了本地人，亦吸引到旅客入場，並願意作高消費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793193_1_20250226104558.jpg&q=65)
-  
-
-香港迪士尼上年度錄得破紀錄淨利潤8.38億元，入場人次770萬創新高。職業訓練局酒店及旅遊學院課程總監黃家榮形容成績亮麗，今次是香港迪士尼完全不受疫情影響的首個業績，可見除了維持到本地人入場，亦吸引到旅客入場，願意作高消費。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm)
 
 ---
