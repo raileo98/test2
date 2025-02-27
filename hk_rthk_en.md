@@ -1,3 +1,27 @@
+# Oscar-winning actor Gene Hackman, wife found dead
+
+![Oscar-winning US actor Gene Hackman and his wife Betsy Arakawa were found dead inside their home in New Mexico. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793513_1_20250227175330.jpg&q=90)
+  
+
+Oscar-winning actor Gene Hackman, his wife and their dog were found dead in their New Mexico home on Wednesday, authorities said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm)
+
+---
+
 # 'AI R&D institute could open as early as next year'
 
 ![Sun Dong says the planned Hong Kong AI Research and Development Institute could commence operation as early as next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793505_1_20250227171607.jpg&q=85)
@@ -1413,29 +1437,5 @@ South Korea's ousted President Yoon Suk-yeol faced his final impeachment hearing
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm)
-
----
-
-# Drug warehouse raid finds HK$430m of cocaine
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793077_1_20250225131959.jpg&q=80)
-  
-
-Police arrested two men following a raid on a drug warehouse, where officers seized approximately 520 kilogrammes of suspected cocaine, valued at over HK$430 million.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm)
 
 ---

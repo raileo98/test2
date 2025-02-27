@@ -3,7 +3,7 @@
 ![Oscar-winning US actor Gene Hackman and his wife Betsy Arakawa were found dead inside their home in New Mexico. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793513_1_20250227175330.jpg&q=90)
   
 
-Oscar-winning actor Gene Hackman, his wife and their dog were found dead in their New Mexico home Wednesday, authorities said.
+Oscar-winning actor Gene Hackman, his wife and their dog were found dead in their New Mexico home on Wednesday, authorities said.
 
   
 
