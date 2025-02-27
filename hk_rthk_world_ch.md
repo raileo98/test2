@@ -1,3 +1,27 @@
+# 克宮：俄美有很大合作空間　已成俄方領土地區屬俄國不會討論交換
+
+![佩斯科夫說，俄方注意到美國總統特朗普與他的前任拜登不同，願意傾聽他人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793530_1_20250227185203.jpg&q=90)
+  
+
+俄羅斯和美國的代表在土耳其伊斯坦布爾舉行閉門會談，討論恢復兩國使館正常運作的問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793530-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793530-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793530-20250227.htm)
+
+---
+
 # 歐盟下月舉行特別峰會討論烏克蘭問題　澤連斯基獲邀出席
 
 ![科斯塔說，歐盟及成員國願意為歐洲安全承擔更多責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793529_1_20250227184458.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm)
-
----
-
-# 財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點
-
-![政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793215_1_20250226114849.jpg&q=85)
-  
-
-財政司司長陳茂波表示，去年底成立的「發展低空經濟工作組」正審議首批監管沙盒試點項目的申請，即將宣布結果。政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm)
 
 ---

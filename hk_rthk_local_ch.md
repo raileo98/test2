@@ -1,3 +1,69 @@
+# 海外國家麻疹個案呈升勢　衞防中心籲市民接種麻疹疫苗
+
+衞生防護中心表示，近期部分海外國家的麻疹個案呈上升趨勢，其中美國得州最近爆發麻疹，自上月底錄得至少124宗個案，主要涉及未曾接種麻疹疫苗或疫苗接種史不詳的人，超過八成影響18歲以下兒童，包括一宗沒有接種麻疹疫苗的學齡兒童死亡個案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793538-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793538-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793538-20250227.htm)
+
+---
+
+# 元朗致命交通意外　49歲輕型貨車司機死亡另有7人傷
+
+元朗上午發生致命交通意外，一名49歲男子死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793537-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793537-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793537-20250227.htm)
+
+---
+
+# 37歲男子被猴子襲擊約4個月後死亡　本港首宗猴疱疹病毒
+
+![該名男子過往健康良好，去年2月底在金山郊野公園被野生猴子襲擊受傷，延至去年6月中不治。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793536_1_20250227200032.jpg&q=55)
+  
+
+一名37歲男子去年確診「人類感染B病毒」，又稱「猴疱疹病毒」，留醫大約4個月後不治，是本港首宗錄得的人類感染B病毒個案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793536-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793536-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793536-20250227.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡：每月乘搭逾240程僅360人
 
 財政預算案調整「二元乘車優惠計劃」，每月限制240程，10元以上車費 「兩折」。勞工及福利局局長孫玉菡表示，限程安排寬鬆，根據統計，每月乘搭超過240程的受惠人士只有360人，相信新安排對99.99%的長者和殘疾人士均無影響。
@@ -399,7 +465,7 @@
 
 # 財政預算案2025｜孫玉菡稱研加快實施兩元兩折不遲於明年9月
 
-![孫玉菡說，新安排須時調整市面17000部分佈在港鐵、巴士和小巴等不同交通工具的八達通機。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
   
 
 財政預算案提出，調整二元乘車優惠計劃，新增每月240程的限制，10元以上車費 「兩折」，預計不遲於明年9月實施。
@@ -1351,77 +1417,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm)
-
----
-
-# 財政預算案2025｜海洋公園稱將善用大熊貓及盛事經濟帶來機遇
-
-![海洋公園公司主席龐建貽表示，將繼續善用大熊貓及盛事經濟帶來的機遇，豐富香港的旅遊體驗。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793386_1_20250226234124.jpg&q=15)
-  
-
-海洋公園歡迎政府在《財政預算案》加大力度落實「無處不旅遊」理念以及《香港旅遊業發展藍圖2.0》。園方亦歡迎《財政預算案》支持開拓中東和東盟旅客客源，相信有關推廣將有助擴闊公園的海外市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
-
----
-
-# 機管局：正積極推動財政預算案中提及的機場城市發展計劃
-
-![機管局表示，正積極推動財政預算案中提及的機場城市發展計劃，並以全新品牌SKYTOPIA向國際商界推廣。（機管局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793385_1_20250226233506.jpg&q=80)
-  
-
-機管局表示，正積極推動財政預算案中提及的機場城市發展計劃，並以全新品牌SKYTOPIA向國際商界推廣。機管局的願景是把SKYTOPIA建設成吸引訪客，以至推動香港經濟的世界級領先地標。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793385-20250226.htm)
-
----
-
-# 2025/26《財政預算案論壇》
-
-![節目主持陳曉慶（左起）、團結香港基金副總裁葉文祺及會計界立法會議員黃俊碩。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793377_1_20250226221747.jpg&q=75)
-  
-
-財政司司長陳茂波發表新一份《財政預算案》，本年度綜合赤字預計為872億元，政府提出「強化版」財政整合計劃。節流方面，下年度行政長官、政治委任官員、全體公務員、立法會議員、區議員等均要凍薪；兩元乘車優惠設每月240程上限，10元以上車費改為「兩折」計算。至於開源，下年度第三季起，飛機離境稅會由120元加至200元，又會研究向過境私家車徵收邊境建設費，以及檢討停車收費錶的收費、交通違例事項的定額罰款。為確保北部都會區等基建項目按時推展，政府計劃未來5個財政年度，每年發債1500億元至1950億元，並積極研究發長債。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm)
 
 ---

@@ -330,7 +330,7 @@
 
 # 財政預算案2025｜孫玉菡稱研加快實施兩元兩折不遲於明年9月
 
-![孫玉菡說，新安排須時調整市面17000部分佈在港鐵、巴士和小巴等不同交通工具的八達通機。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
   
 
 財政預算案提出，調整二元乘車優惠計劃，新增每月240程的限制，10元以上車費 「兩折」，預計不遲於明年9月實施。

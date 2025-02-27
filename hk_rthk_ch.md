@@ -1,3 +1,117 @@
+# 海外國家麻疹個案呈升勢　衞防中心籲市民接種麻疹疫苗
+
+衞生防護中心表示，近期部分海外國家的麻疹個案呈上升趨勢，其中美國得州最近爆發麻疹，自上月底錄得至少124宗個案，主要涉及未曾接種麻疹疫苗或疫苗接種史不詳的人，超過八成影響18歲以下兒童，包括一宗沒有接種麻疹疫苗的學齡兒童死亡個案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793538-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793538-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793538-20250227.htm)
+
+---
+
+# 元朗致命交通意外　49歲輕型貨車司機死亡另有7人傷
+
+元朗上午發生致命交通意外，一名49歲男子死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793537-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793537-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793537-20250227.htm)
+
+---
+
+# 克宮：俄美有很大合作空間　已成俄方領土地區屬俄國不會討論交換
+
+![佩斯科夫說，俄方注意到美國總統特朗普與他的前任拜登不同，願意傾聽他人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793530_1_20250227185203.jpg&q=90)
+  
+
+俄羅斯和美國的代表在土耳其伊斯坦布爾舉行閉門會談，討論恢復兩國使館正常運作的問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793530-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793530-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793530-20250227.htm)
+
+---
+
+# 37歲男子被猴子襲擊約4個月後死亡　本港首宗猴疱疹病毒
+
+![該名男子過往健康良好，去年2月底在金山郊野公園被野生猴子襲擊受傷，延至去年6月中不治。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793536_1_20250227200032.jpg&q=55)
+  
+
+一名37歲男子去年確診「人類感染B病毒」，又稱「猴疱疹病毒」，留醫大約4個月後不治，是本港首宗錄得的人類感染B病毒個案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793536-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793536-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793536-20250227.htm)
+
+---
+
+# 解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查
+
+![解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793535_1_20250227200016.jpg&q=90)
+  
+
+解放軍南部戰區和中國海警，今日在黃岩島及周邊區域展開戰備警巡和執法巡查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm)
+
+---
+
 # 歐盟下月舉行特別峰會討論烏克蘭問題　澤連斯基獲邀出席
 
 ![科斯塔說，歐盟及成員國願意為歐洲安全承擔更多責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793529_1_20250227184458.jpg&q=90)
@@ -519,7 +633,7 @@
 
 # 財政預算案2025｜孫玉菡稱研加快實施兩元兩折不遲於明年9月
 
-![孫玉菡說，新安排須時調整市面17000部分佈在港鐵、巴士和小巴等不同交通工具的八達通機。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793507_1_20250227180856.jpg&q=85)
   
 
 財政預算案提出，調整二元乘車優惠計劃，新增每月240程的限制，10元以上車費 「兩折」，預計不遲於明年9月實施。

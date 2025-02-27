@@ -1,3 +1,27 @@
+# 解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查
+
+![解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793535_1_20250227200016.jpg&q=90)
+  
+
+解放軍南部戰區和中國海警，今日在黃岩島及周邊區域展開戰備警巡和執法巡查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm)
+
+---
+
 # 內地發布綠色金融高質量發展實施方案　要求銀保機構支持低碳轉型
 
 ![金管總局和人行發布綠色金融高質量發展實施方案，要求銀行保險機構聚焦傳統行業綠色低碳轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793516_1_20250227180512.jpg&q=55)
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm)
-
----
-
-# 南韓公路地盤橋樑倒塌4人死亡包括2名中國公民
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793092_1_20250225151456.jpg&q=5)
-  
-
-南韓京畿道安城市一條高速公路的地盤，有興建中的橋樑倒塌，造成4人死亡，6人受傷，其中2名死者和1名傷者是中國公民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm)
 
 ---
