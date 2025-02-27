@@ -1,3 +1,27 @@
+# 內地發布綠色金融高質量發展實施方案　要求銀保機構支持低碳轉型
+
+![金管總局和人行發布綠色金融高質量發展實施方案，要求銀行保險機構聚焦傳統行業綠色低碳轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793516_1_20250227180512.jpg&q=55)
+  
+
+金融監管總局和人民銀行發文，要求銀行保險機構大力發展綠色金融，支持產業結構優化升級、能源體系低碳轉型等，並支持碳市場建設。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm)
+
+---
+
 # 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
 
 ![李慧琼（右）說，同意未來溝通機制能進一步加強。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm)
-
----
-
-# 全國兩會｜李家超與港區全國政協委員舉行座談會
-
-![座談會下午在政府總部舉行。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793091_1_20250225160248.jpg&q=85)
-  
-
-行政長官李家超與港區全國政協委員舉行座談會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm)
 
 ---
