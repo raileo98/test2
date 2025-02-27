@@ -1,3 +1,27 @@
+# 玖龍紙業中期盈利升近61%　不派中期息
+
+![玖龍紙業中期盈利近4.7億元人民幣，按年升近61%，不派中期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793532_1_20250227185750.jpg&q=90)
+  
+
+玖龍紙業截至去年底中期盈利近4.7億元人民幣，按年升近61%，不派中期息。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793532-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793532-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793532-20250227.htm)
+
+---
+
 # 內地發布綠色金融高質量發展實施方案　要求銀保機構支持低碳轉型
 
 ![金管總局和人行發布綠色金融高質量發展實施方案，要求銀行保險機構聚焦傳統行業綠色低碳轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793516_1_20250227180512.jpg&q=55)
@@ -259,7 +283,7 @@
 
 ---
 
-# 陳翊庭：新股超額認購數千倍「含金量」與以往不同
+# 財政預算案2025｜陳翊庭：推改革冀更多海外企業來港上市
 
 ![陳翊庭期望，優化雙重主要上市及第二上市門檻，可以吸引到更多海外企業來港上市。（網上直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793510_1_20250227183447.jpg&q=90)
   
@@ -1405,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱公務員凍薪是考慮連續兩年經濟增長
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793429_1_20250227094132.jpg&q=60)
-  
-
-財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。財政司司長陳茂波出席電台聯播節目，有在非政府機構工作的市民致電，指機構可能跟隨政府凍薪，因而減少消費，詢問陳茂波會否呼籲其他機構不要跟隨凍薪。陳茂波回應說，聽到社會有強烈聲音，要求公務員及問責官員的薪酬作出相應處理，經考慮後決定凍薪，而所有經公帑發放薪酬的機構亦一致，希望大家理解。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm)
 
 ---
