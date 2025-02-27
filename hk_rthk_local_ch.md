@@ -1,3 +1,24 @@
+# 法官指即使林卓廷沒暴力行為　但親臨元朗站使對峙局面惡化
+
+立法會前議員林卓廷與6名男子於2019年7月21日在元朗參與暴動，在區域法院判刑。林卓廷被判入獄37個月，其餘6人分別判入獄25至31個月。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793509-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793509-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793509-20250227.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡稱兩元兩折不遲於明年9月落實
 
 ---
@@ -1394,29 +1415,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793345-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793345-20250226.htm)
-
----
-
-# 財政預算案2025｜五年間將每年發債約1500億至1950億
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793351_1_20250226190236.jpg&q=80)
-  
-
-財政司司長陳茂波預計2025/26起的五年間，政府每年發債券約1500億元至1950億元，以支持未來發展項目。他提到未來幾年北部都會區相關工程將陸續展開，加上其他與經濟民生相關的基建工程，政府的基本工程開支將進入高峰期。中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來平均每年約1200億元。為確保這些策略性基建工程項目按時推展，早日惠及經濟民生，會更靈活善用市場資源，也會通過發行政府債券融資，確保對香港未來發展至關重要的項目進度，不會因公共財政狀況而受到制約。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm)
 
 ---

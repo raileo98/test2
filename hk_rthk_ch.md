@@ -1,3 +1,40 @@
+# 法官指即使林卓廷沒暴力行為　但親臨元朗站使對峙局面惡化
+
+立法會前議員林卓廷與6名男子於2019年7月21日在元朗參與暴動，在區域法院判刑。林卓廷被判入獄37個月，其餘6人分別判入獄25至31個月。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793509-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793509-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793509-20250227.htm)
+
+---
+
+# 財政預算案2025｜孫玉菡稱兩元兩折不遲於明年9月落實
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793507-20250227.htm)
+
+---
+
 # 財政預算案2025｜蔡若蓮稱諮詢教育界削開支不容許逐點措施問
 
 ---
