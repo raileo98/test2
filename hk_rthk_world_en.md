@@ -1,5 +1,4 @@
-## 'Buffy the Vampire Slayer' star Trachtenberg dies
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
+# 'Buffy the Vampire Slayer' star Trachtenberg dies
 
 ![Actress Michelle Trachtenberg, who starred in the 90s show 'Buffy the Vampire Slayer', was found dead in her New York apartment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793451_1_20250227113737.jpg&q=90)
   
@@ -19,10 +18,10 @@ Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
 ---
 
-## EU was born to 'screw' US, Trump says
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm)
+# EU was born to 'screw' US, Trump says
 
 ![US President Donald Trump hosts his first cabinet meeting with Elon Musk in attendance, Washington DC. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793415_1_20250227075523.jpg&q=75)
   
@@ -42,10 +41,10 @@ President Donald Trump said on Wednesday that the European Union was born to "sc
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm)
 ---
 
-## Gaza as gold resort posted on Trump social media
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm)
+# Gaza as gold resort posted on Trump social media
 
 ![Palestinians sit next to a fire among the rubble of destroyed buildings, amid a ceasefire between Israel and Hamas, at Jabalia refugee camp, northern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793405_1_20250227053207.jpg&q=30)
   
@@ -65,10 +64,10 @@ US President Donald Trump's official social media accounts posted an apparently 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm)
 ---
 
-## Hamas to hand over four Israeli hostages' bodies
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm)
+# Hamas to hand over four Israeli hostages' bodies
 
 ![In Israel on Wednesday, thousands of mourners gathered for the funeral of Shiri Bibas and her sons, who died in captivity in Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793374_1_20250226212829.jpg&q=75)
   
@@ -88,10 +87,10 @@ Hamas will hand over the bodies of four Israeli hostages on Thursday in what it 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm)
 ---
 
-## Power mostly restored after blackout hits Chile
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm)
+# Power mostly restored after blackout hits Chile
 
 ![A drone shot shows a general view of Concepcion, during a major power outage that affected vast swathes of Chile. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793291_1_20250226151351.jpg&q=90)
   
@@ -111,10 +110,10 @@ Chilean authorities said they had restored power to most homes on Wednesday, hou
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm)
 ---
 
-## South Korea births rose last year on surge in marriage
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm)
+# South Korea births rose last year on surge in marriage
 
 ![South Korea's birthrate, the lowest in the world, rose in 2024 for the first time in nine years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793287_1_20250226145543.jpg&q=85)
   
@@ -134,10 +133,10 @@ The number of births in South Korea rose last year for the first time in roughly
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm)
 ---
 
-## 'Doctor of the poor' becomes Venezuela's first saint
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm)
+# 'Doctor of the poor' becomes Venezuela's first saint
 
 ![Jose Gregorio Hernandez was beatified – an earlier step towards sainthood – in 2021. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793161_1_20250226033237.jpg&q=90)
   
@@ -157,10 +156,10 @@ Venezuela will soon have its first saint, after ailing Pope Francis on Tuesday c
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm)
 ---
 
-## A third of Musk's Doge staff resign in protest
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm)
+# A third of Musk's Doge staff resign in protest
 
 ![Elon Musk's downsizing has led to the layoff of more than 20,000 workers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793173_1_20250226062227.jpg&q=85)
   
@@ -180,10 +179,10 @@ More than 20 civil service employees resigned on Tuesday from billionaire Trump 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm)
 ---
 
-## Macron to brief EU leaders on Trump Ukraine talks
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm)
+# Macron to brief EU leaders on Trump Ukraine talks
 
 ![The transatlantic rift over Ukraine was on display during French President Emmanuel Macron's talks with US President Donald Trump on Monday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793141_1_20250225215156.jpg&q=90)
   
@@ -203,10 +202,10 @@ French President Emmanuel Macron will brief fellow EU leaders on Wednesday on hi
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm)
 ---
 
-## UK PM pledges to spend 2.5% of GDP on defence by 2027
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm)
+# UK PM pledges to spend 2.5% of GDP on defence by 2027
 
 ![Keir Starmer tells MPs the increase will be funded by cutting overseas development aid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793142_1_20250225221040.jpg&q=90)
   
@@ -226,10 +225,10 @@ British Prime Minister Keir Starmer on Tuesday pledged to boost defence spending
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm)
 ---
 
-## Search for MH370 resumes 11 years after disappearance
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm)
+# Search for MH370 resumes 11 years after disappearance
 
 ![Pieces of wreckage thought to be from MH370 on display in Subang Jaya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793140_1_20250225214812.jpg&q=60)
   
@@ -249,10 +248,10 @@ A fresh search for Malaysia Airlines flight MH370 has been launched more than a 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm)
 ---
 
-## 4 dead, including 2 Chinese, in SKorea bridge collapse
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
+# 4 dead, including 2 Chinese, in SKorea bridge collapse
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793100_1_20250225161221.jpg&q=65)
   
@@ -272,10 +271,10 @@ Four people, including two Chinese nationals, were killed and six injured after 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
 ---
 
-## S Korea's Yoon faces final impeachment hearing
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm)
+# S Korea's Yoon faces final impeachment hearing
 
 ![Acting head of the Constitutional Court Moon Hyung-bae and other justices arrive at court for the final hearing over South Korea's impeached President Yoon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793089_1_20250225150908.jpg&q=85)
   
@@ -295,10 +294,10 @@ South Korea's ousted President Yoon Suk-yeol faced his final impeachment hearing
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm)
 ---
 
-## Roberta Flack of 'Killing Me Softly' fame dies aged 88
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm)
+# Roberta Flack of 'Killing Me Softly' fame dies aged 88
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793054_1_20250225104809.jpg&q=90)
   
@@ -318,10 +317,10 @@ Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly W
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm)
 ---
 
-## Zelensky calls for lasting peace 'this year'
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm)
+# Zelensky calls for lasting peace 'this year'
 
 ![Ukrainian President Volodymyr Zelensky speaks at a press conference after the 'Support Ukraine' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793025_1_20250225082846.jpg&q=85)
   
@@ -341,10 +340,10 @@ Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm)
 ---
 
-## Canada, Mexico tariffs are going forward: Trump
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm)
+# Canada, Mexico tariffs are going forward: Trump
 
 ![US President Donald Trump wants to impose 25 percent tariffs on Canada and Mexico as soon as March 4. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793020_1_20250225073658.jpg&q=85)
   
@@ -364,10 +363,10 @@ US President Donald Trump said on Monday that his tariffs on Canada and Mexico a
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm)
 ---
 
-## Explosives thrown at Russian consulate in France
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm)
+# Explosives thrown at Russian consulate in France
 
 ![Bomb-squad officers prepare a de-mining robot in front of the Russian consulate in Marseille, France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792988_1_20250224204408.jpg&q=90)
   
@@ -387,10 +386,10 @@ Three improvised explosive devices were thrown at the Russian consulate in the s
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm)
 ---
 
-## Xi praises efforts to defuse Ukraine crisis
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm)
+# Xi praises efforts to defuse Ukraine crisis
 
 ![President Xi Jinping says China and Russia are good neighbours and true friends supporting each other. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792982_1_20250224190145.jpg&q=90)
   
@@ -410,10 +409,10 @@ President Xi Jinping on Monday held a phone conversation with his Russian counte
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm)
 ---
 
-## Tens of thousands vow support for Lebanon's Hezbollah
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm)
+# Tens of thousands vow support for Lebanon's Hezbollah
 
 ![Masses of mourners attend the funeral of former Hezbollah leaders Hassan Nasrallah and Hashem Safieddine. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792878_1_20250224083246.jpg&q=1)
   
@@ -433,10 +432,10 @@ Tens of thousands of black-clad mourners vowed support for Hezbollah at the Beir
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm)
 ---
 
-## Zelensky says progress made on reaching deal with US
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm)
+# Zelensky says progress made on reaching deal with US
 
 ![Ukrainian president, Volodymyr Zelensky, had earlier declined a US draft agreement on exploitation of his country's valuable minerals. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792870_1_20250224063736.jpg&q=75)
   
@@ -456,10 +455,10 @@ A contentious Trump administration proposal to give the United States US$500 bil
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm)
 ---
 
-## Israel ready to resume Gaza war, PM warns
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792869-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792869-20250224.htm)
+# Israel ready to resume Gaza war, PM warns
 
 ![Following the latest hostage release, Israel has so far not returned 620 Palestinian prisoners under its part of the deal. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792869_1_20250224062918.jpg&q=25)
   
@@ -479,10 +478,10 @@ Israel said on Sunday it was delaying the release of hundreds of Palestinian pri
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792869-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792869-20250224.htm)
 ---
 
-## Conservatives win German vote, AfD makes record gains
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm)
+# Conservatives win German vote, AfD makes record gains
 
 ![Christian Democratic Union party leader Friedrich Merz speaks at party headquarters. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792868_1_20250224062241.jpg&q=75)
   
@@ -502,10 +501,10 @@ Germany's conservatives swept to victory in Sunday's elections, with their leade
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm)
 ---
 
-## Macron, Starmer pledge 'unflinching' Ukraine support
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm)
+# Macron, Starmer pledge 'unflinching' Ukraine support
 
 ![French President Emmanuel Macron (right) and British Prime Minister Keir Starmer are both due in Washington this week for talks with US President Donald Trump. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792855_1_20250223221557.jpg&q=90)
   
@@ -525,10 +524,10 @@ European Commission president Ursula von der Leyen said she held talks with the 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm)
 ---
 
-## In message, pope says 'confidently' continuing therapy
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm)
+# In message, pope says 'confidently' continuing therapy
 
 ![A general view of St Peter's Basilica as Pope Francis continues treatment in hospital in Rome. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792850_1_20250223193932.jpg&q=85)
   
@@ -548,10 +547,10 @@ Pope Francis expressed confidence in his treatment Sunday in a message published
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm)
 ---
 
-## Israel deploys tanks in occupied West Bank
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm)
+# Israel deploys tanks in occupied West Bank
 
 ![Palestinian families in the occupied West Bank react after Israel delayed the release of Palestinian prisoners. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792841_1_20250223175421.jpg&q=90)
   
@@ -571,10 +570,10 @@ Israel's defence minister on Sunday said the army had "evacuated" three refugee 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm)
 ---
 
-## Germans vote in high-stakes election
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm)
+# Germans vote in high-stakes election
 
 ![Friedrich Merz, the 69-year-old conservative leader, is in pole position to become Germany's next chancellor. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792836_1_20250223155012.jpg&q=90)
   
@@ -594,10 +593,10 @@ Germans are voting in a national election on Sunday that is expected to see Frie
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm)
 ---
 
-## Prisoner swap delayed over 'humiliating ceremonies'
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm)
+# Prisoner swap delayed over 'humiliating ceremonies'
 
 ![Omer Wenkert, a hostage held in Gaza since October 2023, is escorted by Hamas militants as he is released as part of the ceasefire deal between Hamas and Israel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792798_1_20250223082220.jpg&q=75)
   
@@ -617,10 +616,10 @@ Israeli Prime Minister Benjamin Netanyahu said early on Sunday that freeing Pale
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm)
 ---
 
-## UK to unveil sweeping sanctions against Russia
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm)
+# UK to unveil sweeping sanctions against Russia
 
 ![In his statement, British Foreign Secretary David Lammy reiterated UK's military backing and its pledge to be "ready and willing to provide UK troops as part of peacekeeping forces if necessary". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792796_1_20250223081441.jpg&q=90)
   
@@ -640,10 +639,10 @@ London will unveil a significant package of sanctions against Russia on Monday, 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm)
 ---
 
-## Trump revels in mass firings before adoring crowd
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792795-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792795-20250223.htm)
+# Trump revels in mass firings before adoring crowd
 
 ![President Trump addresses the Conservative Political Action Conference (CPAC) annual meeting in National Harbor, Maryland. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792795_1_20250223075752.jpg&q=80)
   
@@ -663,10 +662,10 @@ US President Donald Trump said on Saturday that “nobody's ever seen anything" 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792795-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792795-20250223.htm)
 ---
 
-## Knife attack in France is 'Islamist terrorism': Macron
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm)
+# Knife attack in France is 'Islamist terrorism': Macron
 
 ![French president Emmanuel Macron says the government is determined to continue doing "everything to eradicate terrorism on our soil." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792791_1_20250223045529.jpg&q=90)
   
@@ -686,10 +685,10 @@ One person died, and two police officers were seriously injured on Saturday in a
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm)
 ---
 
-## Two-state solution key to peace in Gaza: FM
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm)
+# Two-state solution key to peace in Gaza: FM
 
 ![Foreign Minister Wang Yi said any future arrangement must adhere to the principle of "Palestinians governing Palestine". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792785_1_20250223021444.jpg&q=90)
   
@@ -709,10 +708,10 @@ A lasting peace in the Israeli-Palestinian conflict can only be achieved through
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm)
 ---
 
-## Hamas releases six more Israeli hostages
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm)
+# Hamas releases six more Israeli hostages
 
 ![As on previous occasions the hostages were paraded on stage before being handed over to the Red Cross. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792777_1_20250222214137.jpg&q=85)
   
@@ -732,10 +731,10 @@ Hamas paraded five Israeli hostages, some looking dazed and others elated, befor
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm)
 ---
 
-## Syrian suspect in Berlin attack wanted 'to kill Jews'
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm)
+# Syrian suspect in Berlin attack wanted 'to kill Jews'
 
 ![Friday's stabbing at the Holocaust memorial left one man fighting for his life and six witnesses needing counselling. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792775_1_20250222204259.jpg&q=80)
   
@@ -755,10 +754,10 @@ A Syrian man arrested after a stabbing attack at Berlin's Holocaust memorial tha
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm)
 ---
 
-## Hospitalised pope to skip Angelus prayer again
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm)
+# Hospitalised pope to skip Angelus prayer again
 
 ![An update from the Vatican said Pope Francis had rested well. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792768_1_20250222190209.jpg&q=80)
   
@@ -778,10 +777,10 @@ Pope Francis will miss the Angelus prayer on Sunday for the second straight week
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm)
 ---
 
-## New remains returned by Hamas are of Shiri Bibas
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm)
+# New remains returned by Hamas are of Shiri Bibas
 
 ![The Bibas family became symbols of the hostage ordeal suffered by Israel. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792747_1_20250222150603.jpg&q=70)
   
@@ -801,10 +800,10 @@ Israel's Bibas family announced on Saturday that remains returned to Israel the 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm)
 ---
 
-## Trump fires top-ranked US military officer
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm)
+# Trump fires top-ranked US military officer
 
 ![US President Trump's dismissal of top military officer General Charles "CQ" Brown is the latest in a series of major changes to the Pentagon. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792735_1_20250222120534.jpg&q=80)
   
@@ -824,10 +823,10 @@ US President Donald Trump fired top US military officer General Charles "CQ" Bro
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm)
 ---
 
-## Scholz hits back at US over Ukraine, free speech
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792716-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792716-20250222.htm)
+# Scholz hits back at US over Ukraine, free speech
 
 ![Chancellor Olaf Scholz on stage at the SPD's election campaign finale in the Westfalenhallen, Germany. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792716_1_20250222072303.jpg&q=90)
   
@@ -847,10 +846,10 @@ Chancellor Olaf Scholz on Friday stressed his support for Ukraine's sovereignty 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792716-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792716-20250222.htm)
 ---
 
-## Apple halts data protection tool in UK
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792699-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792699-20250222.htm)
+# Apple halts data protection tool in UK
 
 ![The California-based multinational tech giant said it was "gravely disappointed" over the cessation of end-to-end encryption services. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792699_1_20250222025738.jpg&q=90)
   
@@ -870,10 +869,10 @@ Apple said on Friday it could no longer offer full end-to-end encryption for Bri
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792699-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792699-20250222.htm)
 ---
 
-## 'Historic' G20 foreign ministers meeting concludes
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm)
+# 'Historic' G20 foreign ministers meeting concludes
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792700_1_20250222031652.jpg&q=85)
   
@@ -893,10 +892,10 @@ South Africa on Friday concluded the G20 Foreign Ministers' Meeting, after a ran
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm)
 ---
 
-## US Senate passes slimmed-down budget blueprint
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792688-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792688-20250221.htm)
+# US Senate passes slimmed-down budget blueprint
 
 ![Donald Trump is still calling for the "big beautiful" bill that includes tax credits and other flagship measures, to be passed. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792688_1_20250221224727.jpg&q=90)
   
@@ -916,10 +915,10 @@ The US Senate passed a budget blueprint early on Friday that steamrolled past De
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792688-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792688-20250221.htm)
 ---
 
-## Beijing voices concerns in call with US treasury chief
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm)
+# Beijing voices concerns in call with US treasury chief
 
 ![Vice Premier He Lifeng spoke to US Treasury Secretary Scott Bessent via video call on Friday. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792684_1_20250221215124.jpg&q=85)
   
@@ -939,10 +938,10 @@ Vice Premier He Lifeng expressed concerns over US tariffs and trade restrictions
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm)
 ---
 
-## Pope reaches one-week mark in hospital for pneumonia
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm)
+# Pope reaches one-week mark in hospital for pneumonia
 
 ![A bird sits on the statue of the late Pope John Paul II outside Gemelli Hospital, where Pope Francis continues treatment for a respiratory tract infection. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792640_1_20250221171223.jpg&q=90)
   
@@ -962,10 +961,10 @@ Pope Francis spent another night without incident, the Vatican said on Friday, m
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm)
 ---
 
-## Israel slams Hamas for not returning body of hostage
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm)
+# Israel slams Hamas for not returning body of hostage
 
 ![Israel condemned Hamas over the return of the hostages' remains, accusing the militant group of swapping the body of hostage Shiri Bibas for a Palestinian woman. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792628_1_20250221161509.jpg&q=25)
   
@@ -985,10 +984,10 @@ Israeli Prime Minister Benjamin Netanyahu accused Hamas on Friday of committing 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm)
 ---
 
-## Window for peace opening for Ukraine war: Wang Yi
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm)
+# Window for peace opening for Ukraine war: Wang Yi
 
 ![Wang Yi says China supports all efforts to achieve peace in Ukraine conflict. File photo: XInhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792581_1_20250221104147.jpg&q=85)
   
@@ -1008,10 +1007,10 @@ Foreign Minister Wang Yi told his G20 counterparts on Thursday that a "window fo
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm)
 ---
 
-## Macron to tell Trump to not be 'weak with Putin'
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm)
+# Macron to tell Trump to not be 'weak with Putin'
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792540_1_20250221052514.jpg&q=90)
   
@@ -1031,10 +1030,10 @@ President Emmanuel Macron said on Thursday that France was entering a "new era" 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm)
 ---
 
-## Wang meets Lavrov to strengthen bilateral ties
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm)
+# Wang meets Lavrov to strengthen bilateral ties
 
 ![Foreign Minister Wang Yi (Right) says Beijing is willing to work with Russia to implement the consensus reached by the two heads of state and to further advance China-Russia relations. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792537_1_20250221034153.jpg&q=90)
   
@@ -1054,10 +1053,10 @@ Chinese Foreign Minister Wang Yi met with his Russian counterpart Sergei Lavrov 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm)
 ---
 
-## Spanish court convicts ex-football boss over kiss
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm)
+# Spanish court convicts ex-football boss over kiss
 
 ![Former Spanish soccer chief Luis Rubiales was convicted of sexual assault for kissing footballer Jenni Hermoso. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792520_1_20250220212652.jpg&q=80)
   
@@ -1077,10 +1076,10 @@ Spain's High Court has found former soccer federation boss Luis Rubiales guilty 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm)
 ---
 
-## Teen detained after two killed in Czech knife attack
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm)
+# Teen detained after two killed in Czech knife attack
 
 ![A police officer stands guard at the site where two women died in a knife attack in Hradec Kralove, Czech Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792502_1_20250220211355.jpg&q=90)
   
@@ -1100,10 +1099,10 @@ Two women died in a knife attack on Thursday at a shopping center in the Czech R
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm)
 ---
 
-## Ousted S Korean leader goes on trial
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm)
+# Ousted S Korean leader goes on trial
 
 ![Ousted premier Han Duck-soo told Seoul's Constitutional Court he had "expressed my opposition" to President Yoon's decision to suspend civilian rule. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792501_1_20250220184003.jpg&q=90)
   
@@ -1123,10 +1122,10 @@ South Korea's ousted premier said on Thursday that he had opposed suspended Pres
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm)
 ---
 
-## Hamas returns bodies of four Israeli hostages
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792473-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792473-20250220.htm)
+# Hamas returns bodies of four Israeli hostages
 
 ![Hamas militants carry a coffin with the remains of one of four deceased Israeli hostages who were handed over to the Red Cross for return to Israel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792473_1_20250220164412.jpg&q=75)
   
@@ -1146,10 +1145,10 @@ Hamas on Thursday released the bodies of four Israeli hostages, said to include 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792473-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792473-20250220.htm)
 ---
 
-## Trump says he expects Xi to visit US
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm)
+# Trump says he expects Xi to visit US
 
 ![Presidents Xi Jinping and Donald Trump meet on the sidelines of the G20 leaders summit in Osaka in 2019. Trump says he expects President Xi and other world leaders to visit his country. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792437_2_20250220131602.jpg&q=85)
   
@@ -1169,10 +1168,10 @@ US President Donald Trump said on Wednesday he expects President Xi Jinping to v
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm)
 ---
 
-## Myanmar returns first batch of Chinese scam workers
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm)
+# Myanmar returns first batch of Chinese scam workers
 
 ![Two double-decker coaches have delivered a first round of returning workers to the border post in the western Thai town of Mae Sot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792418_1_20250220113134.jpg&q=85)
   
@@ -1192,10 +1191,10 @@ Myanmar on Thursday handed over the first batch of hundreds of Chinese scam cent
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm)
 ---
 
-## US$30K offered to each Toronto plane crash passenger
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792413-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792413-20250220.htm)
+# US$30K offered to each Toronto plane crash passenger
 
 ![Delta said 21 passengers were injured in the accident. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792413_1_20250220105555.jpg&q=90)
   
@@ -1215,10 +1214,10 @@ US airline Delta on Wednesday said it will offer US$30,000, or HK$233,395, to ea
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792413-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792413-20250220.htm)
 ---
 
-## Trump brands Zelensky a 'dictator' in bitter clash
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792405-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792405-20250220.htm)
+# Trump brands Zelensky a 'dictator' in bitter clash
 
 ![Volodymyr Zelensky was elected in 2019 for a five-year term and has remained leader under martial law imposed as his country fights for its survival. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792405_1_20250220101705.jpg&q=90)
   
@@ -1238,10 +1237,10 @@ US President Donald Trump called Ukrainian leader Volodymyr Zelensky a "dictator
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792405-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792405-20250220.htm)
 ---
 
-## 'Constructive' talks after China blasts tariffs at WTO
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
+# 'Constructive' talks after China blasts tariffs at WTO
 
 ![The US, Nicaragua, Namibia, Malaysia, Trinidad and Tobago and Russia took part in the WTO discussions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792389_2_20250220104914.jpg&q=90)
   
@@ -1261,10 +1260,10 @@ The World Trade Organization (WTO) said on Wednesday that discussions on trade t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
 ---
 
-## Dead or alive: Mosquito bounty in Manila
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm)
+# Dead or alive: Mosquito bounty in Manila
 
 ![Enthusiasm is high among residents who carried pails, cups and other containers filled with dengue-spreading mosquitoes to exchange for cash. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792349_1_20250219211745.jpg&q=90)
   
@@ -1284,10 +1283,10 @@ Residents in a central Manila neighbourhood lined up on Wednesday, as dengue cas
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm)
 ---
 
-## Pope Francis fights pneumonia in hospital
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm)
+# Pope Francis fights pneumonia in hospital
 
 ![The pontiff was admitted to a Rome hospital with bronchitis last week after suffering breathing difficulties. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792351_1_20250219212218.jpg&q=90)
   
@@ -1307,10 +1306,10 @@ Pope Francis's heart is holding up very well despite his pneumonia, a Vatican so
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792351-20250219.htm)
 ---
 
-## Trump says auto tariffs to be around 25pc
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm)
+# Trump says auto tariffs to be around 25pc
 
 ![President Trump told reporters the specifics of tariffs on the automobile industry will come around April 2. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792352_1_20250219212742.jpg&q=90)
   
@@ -1330,10 +1329,10 @@ US President Donald Trump expanded his offensive against trading partners on Tue
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792352-20250219.htm)
 ---
 
-## US envoy set for Kyiv talks after Trump rips Zelensky
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm)
+# US envoy set for Kyiv talks after Trump rips Zelensky
 
 ![Volodymyr Zelensky says Donald Trump is living in a Russian "disinformation space." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792336_1_20250219193300.jpg&q=90)
   
@@ -1353,10 +1352,10 @@ Donald Trump's special envoy was in Kyiv on Wednesday, saying he was there to "l
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm)
 ---
 
-## Rapper A$AP Rocky found not guilty in assault trial
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm)
+# Rapper A$AP Rocky found not guilty in assault trial
 
 ![A$AP Rocky was found not guilty of felony assault at the conclusion of his trial in Los Angeles. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792231_1_20250219103411.jpg&q=90)
   
@@ -1376,4 +1375,5 @@ Musician A$AP Rocky was found not guilty of two counts of felony assault at the 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm)
 ---

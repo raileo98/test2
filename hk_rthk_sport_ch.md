@@ -1,5 +1,26 @@
-## 英超聯賽　利物浦主場2:0擊敗紐卡素　榜首優勢擴大至13分
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm)
+# 已購啟德體育園開幕禮門票人士陸續前往換領實體票
+
+  
+
+啟德體育園本周六晚上舉行開幕典禮，已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票，陸續有市民到場排隊換領。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm)
+---
+
+# 英超聯賽　利物浦主場2:0擊敗紐卡素　榜首優勢擴大至13分
 
 ![利物浦主場2:0擊敗紐卡素，麥卡里士打入球後與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793413_1_20250227071034.jpg&q=80)
   
@@ -19,10 +40,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm)
 ---
 
-## 國際奧委會主席巴赫辭任　下月選出新主席
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm)
+# 國際奧委會主席巴赫辭任　下月選出新主席
 
 ![國際奧委會主席巴赫辭任，新主席將於下月在希臘選出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793392_1_20250227022532.jpg&q=80)
   
@@ -42,10 +63,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm)
 ---
 
-## 財政預算案2025｜海洋公園稱將善用大熊貓及盛事經濟帶來機遇
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
+# 財政預算案2025｜海洋公園稱將善用大熊貓及盛事經濟帶來機遇
 
 ![海洋公園公司主席龐建貽表示，將繼續善用大熊貓及盛事經濟帶來的機遇，豐富香港的旅遊體驗。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793386_1_20250226234124.jpg&q=15)
   
@@ -65,10 +86,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
 ---
 
-## 英超聯賽　車路士4:0修咸頓　水晶宮4:1阿士東維拉
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm)
+# 英超聯賽　車路士4:0修咸頓　水晶宮4:1阿士東維拉
 
 ![車路士主場4:0大勝修咸頓。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793178_1_20250226071547.jpg&q=75)
   
@@ -88,10 +109,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm)
 ---
 
-## 啟德體育園周六開幕　明起一連三晚外牆上演LED燈光展
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm)
+# 啟德體育園周六開幕　明起一連三晚外牆上演LED燈光展
 
 ![啟德體育園將於本星期六開幕，當日傍晚6時半將舉行開幕典禮。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793120_1_20250225181658.jpg&q=15)
   
@@ -111,10 +132,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm)
 ---
 
-## 54名頂尖高爾夫球手下月「LIV Golf 香港站」競技
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm)
+# 54名頂尖高爾夫球手下月「LIV Golf 香港站」競技
 
 ![「LIV Golf 2025香港站」將於粉嶺球場上演，是「香港盛匯超級三月」一個重頭體育盛事。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793115_1_20250225181355.jpg&q=75)
   
@@ -134,10 +155,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm)
 ---
 
-## 涉高於原價放售啟德體育園開幕門票　三人被捕當中兩人根本無門票
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm)
+# 涉高於原價放售啟德體育園開幕門票　三人被捕當中兩人根本無門票
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793109_1_20250225170743.jpg&q=85)
   
@@ -157,10 +178,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm)
 ---
 
-## 涉售啟德體育園開幕禮門票　兩女一男涉企圖詐騙被捕
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793088-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793088-20250225.htm)
+# 涉售啟德體育園開幕禮門票　兩女一男涉企圖詐騙被捕
 
 ![警方拘捕兩女一男涉嫌企圖詐騙，涉及啟德體育園開幕禮門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793088_1_20250225153754.jpg&q=15)
   
@@ -180,10 +201,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793088-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793088-20250225.htm)
 ---
 
-## 意甲聯賽　羅馬主場4:0大勝蒙沙
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm)
+# 意甲聯賽　羅馬主場4:0大勝蒙沙
 
 ![羅馬主場4:0大勝蒙沙。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793016_1_20250225071452.jpg&q=90)
   
@@ -203,10 +224,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm)
 ---
 
-## 蕭澤頤：警隊必定做好準備　確保啟德體育園開幕安全有序進行
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm)
+# 蕭澤頤：警隊必定做好準備　確保啟德體育園開幕安全有序進行
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792965_1_20250224211617.jpg&q=90)
   
@@ -226,10 +247,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm)
 ---
 
-## 英超聯賽　利物浦作客2:0擊敗曼城　榜首優勢擴大到11分
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm)
+# 英超聯賽　利物浦作客2:0擊敗曼城　榜首優勢擴大到11分
 
 ![利物浦作客2:0擊敗曼城，沙拿一傳一射。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792872_1_20250224071432.jpg&q=90)
   
@@ -249,10 +270,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm)
 ---
 
-## 一連兩日全運會男子手球測試賽完結　楊德強指逾4300人次入場
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm)
+# 一連兩日全運會男子手球測試賽完結　楊德強指逾4300人次入場
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792844_1_20250223184356.jpg&q=80)
   
@@ -272,10 +293,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm)
 ---
 
-## 全運會馬拉松測試賽完成　楊德強：檢討正賽是否沿用賽道
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm)
+# 全運會馬拉松測試賽完成　楊德強：檢討正賽是否沿用賽道
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792843_1_20250223183033.jpg&q=65)
   
@@ -295,10 +316,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm)
 ---
 
-## 全運會男子手球測試賽　港隊不敵江蘇得亞軍
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792840-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792840-20250223.htm)
+# 全運會男子手球測試賽　港隊不敵江蘇得亞軍
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792840_1_20250223180304.jpg&q=65)
   
@@ -318,10 +339,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792840-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792840-20250223.htm)
 ---
 
-## 全運會男子手球測試賽啟德舉行　廣東挫澳門得季軍
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm)
+# 全運會男子手球測試賽啟德舉行　廣東挫澳門得季軍
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792837_1_20250223162637.jpg&q=65)
   
@@ -341,10 +362,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm)
 ---
 
-## 尹焯熙稱跑深圳灣大橋具紀念價值　司徒兆殷稱深圳路段需特別專心
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm)
+# 尹焯熙稱跑深圳灣大橋具紀念價值　司徒兆殷稱深圳路段需特別專心
 
 ![司徒兆殷（左）說，香港賽段沿途有很多市民打氣支持，表現較好；尹焯熙（右）指，深圳灣大橋風勢大，初段不少上落斜，感覺刺激。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792828_1_20250223140417.jpg&q=75)
   
@@ -364,10 +385,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm)
 ---
 
-## 為配合深港馬拉松暫停運作的深圳灣口岸上午11時恢復
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm)
+# 為配合深港馬拉松暫停運作的深圳灣口岸上午11時恢復
 
 ![有市民表示，知道封路及暫停運作安排，認為宣傳足夠。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792818_2_20250223140341.jpg&q=75)
 ![有市民認為，如果當局能早點提供恢復服務後的頭班車出發時間會更好。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792818_3_20250223140341.jpg&q=75)
@@ -388,10 +409,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm)
 ---
 
-## 楊德強：全運會馬拉松測試賽整體運作暢順　會檢討改善空間
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm)
+# 楊德強：全運會馬拉松測試賽整體運作暢順　會檢討改善空間
 
 ![楊德強說，整體運作暢順，會檢討改善空間。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792817_1_20250223124315.jpg&q=90)
 ![測試賽早上在深圳起步，跑手經深圳灣口岸進入香港賽道。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792817_2_20250223141815.jpg&q=85)
@@ -412,10 +433,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm)
 ---
 
-## 香港馬王「浪漫勇士」出戰沙特盃奪亞軍　獲獎金350萬美元
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm)
+# 香港馬王「浪漫勇士」出戰沙特盃奪亞軍　獲獎金350萬美元
 
 ![「青春永駐」跑至最後數步趕過「浪漫勇士」率先衝線。（香港賽馬會網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792805_1_20250223112636.jpg&q=85)
   
@@ -435,10 +456,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm)
 ---
 
-## 深港馬拉松女子組首批跑手於起步後約8分鐘跑進香港境內
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm)
+# 深港馬拉松女子組首批跑手於起步後約8分鐘跑進香港境內
 
 ![現場有全運會義工手持國旗和區旗，以及打氣板，叫著「運動員加油」的口號，為運動員打氣。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792799_3_20250223093234.jpg&q=35)
 ![女子組在早上7時正於深圳灣體育中心起步，大約8分鐘後首批跑手跑入香港境內。(鄧均尤攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792799_1_20250223083642.jpg&q=65)
@@ -461,10 +482,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm)
 ---
 
-## 深港馬拉松香港跑手冀爭取全運會參賽資格　測試賽助了解流程
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm)
+# 深港馬拉松香港跑手冀爭取全運會參賽資格　測試賽助了解流程
 
 ![跑手魏賡說，賽事路段初期需要上大橋，路面較起伏，但今日濕度低，適合長跑。(陳曉筠攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792797_1_20250223083013.jpg&q=90)
 ![男女子組別分別早上7時和7時半在深圳灣體育中心起步。(陳曉筠攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792797_2_20250223083013.jpg&q=45)
@@ -485,10 +506,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm)
 ---
 
-## 英超阿士東維拉2:1反勝車路士
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792789-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792789-20250223.htm)
+# 英超阿士東維拉2:1反勝車路士
 
 ![阿辛斯奧建兩功，助維拉取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792789_1_20250223042642.jpg&q=80)
   
@@ -508,10 +529,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792789-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792789-20250223.htm)
 ---
 
-## 英超阿仙奴0:1不敵韋斯咸　曼聯2:2逼和愛華頓
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm)
+# 英超阿仙奴0:1不敵韋斯咸　曼聯2:2逼和愛華頓
 
 ![兵工廠的路易斯史基利領紅，球隊無法平反敗局。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792783_1_20250223012412.jpg&q=85)
 ![曼聯球員圍著愛華頓的達高斯基理論。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792783_2_20250223012908.jpg&q=90)
@@ -532,10 +553,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm)
 ---
 
-## 啟德體藝館舉行全運會手球測試賽　港隊贏首場賽事隊長讚場地一流
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm)
+# 啟德體藝館舉行全運會手球測試賽　港隊贏首場賽事隊長讚場地一流
 
 ![隊長謝永輝指，啟德體藝館工作人員、場地配套及交通的安排一流。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792767_1_20250222185755.jpg&q=80)
   
@@ -555,10 +576,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm)
 ---
 
-## 全運會男子手球測試賽　有內地球員指啟德體藝館場地媲美歐洲
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm)
+# 全運會男子手球測試賽　有內地球員指啟德體藝館場地媲美歐洲
 
 ![有內地球員認為，場地專業可媲美歐洲場地。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792766_1_20250222192137.jpg&q=70)
   
@@ -578,10 +599,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm)
 ---
 
-## 亞錦賽港隊單車男子青年組及女子精英組團體追逐賽均奪銅牌
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm)
+# 亞錦賽港隊單車男子青年組及女子精英組團體追逐賽均奪銅牌
 
   
 
@@ -600,10 +621,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm)
 ---
 
-## 全運會手球男子測試賽舉行　有內地球員認為體藝館質素與海外一樣
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm)
+# 全運會手球男子測試賽舉行　有內地球員認為體藝館質素與海外一樣
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792756_1_20250222170315.jpg&q=5)
   
@@ -623,10 +644,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm)
 ---
 
-## 全運會手球男子測試賽今明啟德體藝館舉行
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm)
+# 全運會手球男子測試賽今明啟德體藝館舉行
 
 ![測試賽今明兩日在啟德體藝館舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792746_1_20250222150956.jpg&q=80)
   
@@ -646,10 +667,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm)
 ---
 
-## 馬刺中鋒雲班耶馬續接受深層靜脈血栓治療　隊友及對手齊祝福
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792717-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792717-20250222.htm)
+# 馬刺中鋒雲班耶馬續接受深層靜脈血栓治療　隊友及對手齊祝福
 
 ![雲班耶馬本賽季均貢獻24.3分、11個籃板、3.7次助攻，對馬刺十分重要。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792717_1_20250222073218.jpg&q=90)
   
@@ -669,10 +690,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792717-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792717-20250222.htm)
 ---
 
-## 啟德體育園開幕禮網上現逾千元「黃牛飛」　議員籲不要購買
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792686-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792686-20250221.htm)
+# 啟德體育園開幕禮網上現逾千元「黃牛飛」　議員籲不要購買
 
 ![本台發現，有內地網上交易平台，多名賣家以遠高於原價每張10元的價格放售開幕禮門票。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792686_1_20250221222030.jpg&q=85)
   
@@ -692,10 +713,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792686-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792686-20250221.htm)
 ---
 
-## 楊德強︰相信啟德體育園能吸引更多盛事來港
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792646-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792646-20250221.htm)
+# 楊德強︰相信啟德體育園能吸引更多盛事來港
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792646_1_20250221183835.jpg&q=85)
   
@@ -715,10 +736,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792646-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792646-20250221.htm)
 ---
 
-## 康體通本月26日晚上11時暫停服務7小時以進行設備提升工程
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792604-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792604-20250221.htm)
+# 康體通本月26日晚上11時暫停服務7小時以進行設備提升工程
 
 ![SmartPLAY康體通將於本月26日、下周三晚上11時至下周四上午6時暫停服務，以便進行設備提升工程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792604_1_20250221150651.jpg&q=75)
   
@@ -738,10 +759,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792604-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792604-20250221.htm)
 ---
 
-## 啟德體育園開幕禮公售門票開售約半小時售罄
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792578-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792578-20250221.htm)
+# 啟德體育園開幕禮公售門票開售約半小時售罄
 
 ![城市售票網主網頁亦顯示，門票已售罄。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792578_2_20250221110332.jpg&q=90)
 ![啟德體育園開幕禮公售門票，在城市售票網開售約半小時售罄。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792578_1_20250221104007.jpg&q=90)
@@ -762,10 +783,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792578-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792578-20250221.htm)
 ---
 
-## 楊德強：啟德體育園屬國際級場館　開幕條件成熟
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792568-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792568-20250221.htm)
+# 楊德強：啟德體育園屬國際級場館　開幕條件成熟
 
 ![姚錦成認為新場館達到世界級，能推動並加強青年運動員對代表香港的決心。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792568_2_20250221092246.jpg&q=90)
   
@@ -785,10 +806,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792568-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792568-20250221.htm)
 ---
 
-## 羅馬反勝波圖晉級歐霸盃十六強　阿積士加時射入十二碼險勝晉級
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792552-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792552-20250221.htm)
+# 羅馬反勝波圖晉級歐霸盃十六強　阿積士加時射入十二碼險勝晉級
 
 ![戴巴拿梅開二度，是羅馬晉級功臣之一。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792552_1_20250221072906.jpg&q=80)
 ![阿積士球員在賽後圍在一起慶祝晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792552_2_20250221072906.jpg&q=65)
@@ -809,10 +830,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792552-20250221.htm](https://news.rthk.hk/rthk/ch/component/k2/1792552-20250221.htm)
 ---
 
-## 啟德體育園下月1日開幕禮發售8500張門票　開幕禮剪輯轉播
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792500-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792500-20250220.htm)
+# 啟德體育園下月1日開幕禮發售8500張門票　開幕禮剪輯轉播
 
 ![啟德體育園開幕典禮下月1日傍晚6時半在啟德主場館舉行。（啟德體育園網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792500_1_20250220183830.jpg&q=20)
   
@@ -832,10 +853,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792500-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792500-20250220.htm)
 ---
 
-## 楊德強：啟德體育園演練為全運測試賽打好基礎
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792427-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792427-20250220.htm)
+# 楊德強：啟德體育園演練為全運測試賽打好基礎
 
 ![楊德強透露，3月初會在中環海濱舉行全運會三項鐵人項目測試賽，並加入新元素，包括設觀眾席及大屏幕等。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792427_1_20250220122709.jpg&q=70)
   
@@ -855,10 +876,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792427-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792427-20250220.htm)
 ---
 
-## 楊德強：啟德體育園周六首場全運測試賽　多次演練為賽事打好基礎
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792403-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792403-20250220.htm)
+# 楊德強：啟德體育園周六首場全運測試賽　多次演練為賽事打好基礎
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792403_1_20250220095408.jpg&q=90)
   
@@ -878,10 +899,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792403-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792403-20250220.htm)
 ---
 
-## 歐聯附加賽次回合　皇馬挫曼城　燕豪芬淘汰祖雲達斯晉級
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792383-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792383-20250220.htm)
+# 歐聯附加賽次回合　皇馬挫曼城　燕豪芬淘汰祖雲達斯晉級
 
 ![麥巴比「連中三元」，助皇馬大勝曼城3:1，兩回合計6:3晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792383_1_20250220071147.jpg&q=80)
   
@@ -901,10 +922,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792383-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792383-20250220.htm)
 ---
 
-## 英超利物浦2:2逼和阿士東維拉
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792381-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792381-20250220.htm)
+# 英超利物浦2:2逼和阿士東維拉
 
 ![利物浦2:2逼和阿士東維拉。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792381_1_20250220071244.jpg&q=50)
   
@@ -924,10 +945,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792381-20250220.htm](https://news.rthk.hk/rthk/ch/component/k2/1792381-20250220.htm)
 ---
 
-## 亞冠作客南韓蔚山賽前　山東泰山以球員身體不適為由退賽
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792355-20250219.htm](https://news.rthk.hk/rthk/ch/component/k2/1792355-20250219.htm)
+# 亞冠作客南韓蔚山賽前　山東泰山以球員身體不適為由退賽
 
 ![山東泰山對亞洲足協、蔚山HD、廣大球迷及社會各界深表歉意。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792355_1_20250219213933.jpg&q=90)
 ![亞洲足協指，由於山東泰山表示不參加有關比賽，被視為退出本屆亞冠精英聯賽。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792355_2_20250219213933.jpg&q=90)
@@ -948,10 +969,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792355-20250219.htm](https://news.rthk.hk/rthk/ch/component/k2/1792355-20250219.htm)
 ---
 
-## 全運會男子手球項目測試賽周六周日啟德體藝館舉行
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792304-20250219.htm](https://news.rthk.hk/rthk/ch/component/k2/1792304-20250219.htm)
+# 全運會男子手球項目測試賽周六周日啟德體藝館舉行
 
 ![第十五屆全國運動會手球（男子）項目測試賽周六及周日在啟德體育園的啟德體藝館舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792304_1_20250219174937.jpg&q=80)
   
@@ -971,10 +992,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792304-20250219.htm](https://news.rthk.hk/rthk/ch/component/k2/1792304-20250219.htm)
 ---
 
-## 歐聯附加賽次回合拜仁、飛燕諾、布魯日和賓菲加分別取勝晉級
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792201-20250219.htm](https://news.rthk.hk/rthk/ch/component/k2/1792201-20250219.htm)
+# 歐聯附加賽次回合拜仁、飛燕諾、布魯日和賓菲加分別取勝晉級
 
 ![拜仁慕尼黑的阿方素戴維斯補時4分鐘逼和些路迪1:1，兩回合計險勝3:2晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792201_1_20250219070242.jpg&q=45)
 ![飛燕諾淘汰AC米蘭晉級歐聯16強。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792201_2_20250219070242.jpg&q=90)
@@ -995,10 +1016,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792201-20250219.htm](https://news.rthk.hk/rthk/ch/component/k2/1792201-20250219.htm)
 ---
 
-## 世界桌球大獎賽下月啟德體育園舉行　卓林普及奧蘇利雲參與
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792161-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792161-20250218.htm)
+# 世界桌球大獎賽下月啟德體育園舉行　卓林普及奧蘇利雲參與
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792161_1_20250218214922.jpg&q=75)
   
@@ -1018,10 +1039,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792161-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792161-20250218.htm)
 ---
 
-## 「盛匯超級三月」啟德體育園開幕禮揭序幕
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792159-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792159-20250218.htm)
+# 「盛匯超級三月」啟德體育園開幕禮揭序幕
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792159_1_20250218184436.jpg&q=75)
   
@@ -1041,10 +1062,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792159-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792159-20250218.htm)
 ---
 
-## 張國鈞冀今年內開展體育爭議解決先導計劃
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792110-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792110-20250218.htm)
+# 張國鈞冀今年內開展體育爭議解決先導計劃
 
 ![張國鈞（左）與霍啟剛（左）及楊祖賜（右）會面，探討推動香港體育爭議解決的發展方向。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792110_1_20250218150749.jpg&q=75)
   
@@ -1064,10 +1085,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792110-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792110-20250218.htm)
 ---
 
-## 李家超：3月1日啟德體育園盛大開幕禮　文化體育旅遊重要時刻
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792062-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792062-20250218.htm)
+# 李家超：3月1日啟德體育園盛大開幕禮　文化體育旅遊重要時刻
 
 ![李家超表示，啟德體育園將舉行盛大開幕禮，形容是本港文化體育旅遊重要時刻。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792062_1_20250218101302.jpg&q=45)
   
@@ -1087,10 +1108,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792062-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792062-20250218.htm)
 ---
 
-## 西甲聯賽　巴塞羅那主場1:0小勝華歷簡奴升上榜首
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792040-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792040-20250218.htm)
+# 西甲聯賽　巴塞羅那主場1:0小勝華歷簡奴升上榜首
 
 ![羅拔利雲度夫斯基射入12碼後慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792040_1_20250218065449.jpg&q=75)
   
@@ -1110,10 +1131,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792040-20250218.htm](https://news.rthk.hk/rthk/ch/component/k2/1792040-20250218.htm)
 ---
 
-## 英超聯賽　熱刺主場1:0擊敗曼聯
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791910-20250217.htm](https://news.rthk.hk/rthk/ch/component/k2/1791910-20250217.htm)
+# 英超聯賽　熱刺主場1:0擊敗曼聯
 
 ![熱刺主場擊敗曼聯，占士麥迪臣攻入唯一入球。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791910_1_20250217071219.jpg&q=85)
   
@@ -1133,10 +1154,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791910-20250217.htm](https://news.rthk.hk/rthk/ch/component/k2/1791910-20250217.htm)
 ---
 
-## 英超利物浦2:1險勝狼隊
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791892-20250217.htm](https://news.rthk.hk/rthk/ch/component/k2/1791892-20250217.htm)
+# 英超利物浦2:1險勝狼隊
 
 ![沙拿今仗為利物浦射入十二碼。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791892_1_20250217013757.jpg&q=90)
   
@@ -1156,10 +1177,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791892-20250217.htm](https://news.rthk.hk/rthk/ch/component/k2/1791892-20250217.htm)
 ---
 
-## 蔡健斌：體育園已準備就緒　周一鳴：演練有逾一萬人用「離場易」
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791874-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791874-20250216.htm)
+# 蔡健斌：體育園已準備就緒　周一鳴：演練有逾一萬人用「離場易」
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791874_1_20250216203748.jpg&q=75)
   
@@ -1179,10 +1200,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791874-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791874-20250216.htm)
 ---
 
-## 陳國基：非常滿意啟德體育園演練　將加強宣傳使用「離場易」
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791871-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791871-20250216.htm)
+# 陳國基：非常滿意啟德體育園演練　將加強宣傳使用「離場易」
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791871_1_20250216183600.jpg&q=85)
   
@@ -1202,10 +1223,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791871-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791871-20250216.htm)
 ---
 
-## 英超阿仙奴兩球挫李斯特城　曼城4:0大破紐卡素
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791824-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791824-20250216.htm)
+# 英超阿仙奴兩球挫李斯特城　曼城4:0大破紐卡素
 
 ![阿仙奴憑後備入替的美連奴連入兩球，2:0擊敗李斯特城。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791824_1_20250216073047.jpg&q=90)
   
@@ -1225,10 +1246,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791824-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791824-20250216.htm)
 ---
 
-## 英超阿仙奴2:0挫李斯特城　曼城4:0大勝紐卡素
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791810-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791810-20250216.htm)
+# 英超阿仙奴2:0挫李斯特城　曼城4:0大勝紐卡素
 
 ![美連奴梅開二度，助兵工廠取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791810_1_20250216014551.jpg&q=90)
 ![曼城新兵馬莫殊連中三元。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791810_2_20250216014551.jpg&q=90)
@@ -1249,10 +1270,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791810-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791810-20250216.htm)
 ---
 
-## U20亞洲盃中國隊5:2大勝吉爾吉斯　提前晉級八強
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791806-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791806-20250216.htm)
+# U20亞洲盃中國隊5:2大勝吉爾吉斯　提前晉級八強
 
 ![國足小將5:2大勝吉爾吉斯，劉誠宇（中）慶祝入球。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791806_1_20250216001733.jpg&q=90)
   
@@ -1272,10 +1293,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791806-20250216.htm](https://news.rthk.hk/rthk/ch/component/k2/1791806-20250216.htm)
 ---
 
-## 李強考察黑龍江　強調要激發冰雪經濟活力打造經濟新增長點
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791796-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791796-20250215.htm)
+# 李強考察黑龍江　強調要激發冰雪經濟活力打造經濟新增長點
 
 ![李強昨日在哈爾濱出席亞冬會閉幕式。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791796_1_20250215203422.jpg&q=90)
   
@@ -1295,10 +1316,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791796-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791796-20250215.htm)
 ---
 
-## 亞洲公路單車錦標賽　港隊李思穎女子精英組個人公路賽摘銅
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791765-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791765-20250215.htm)
+# 亞洲公路單車錦標賽　港隊李思穎女子精英組個人公路賽摘銅
 
 ![港隊李思穎（右二）在女子精英組個人公路賽奪得銅牌。（中國香港單車總會提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791765_1_20250215160414.jpg&q=30)
   
@@ -1318,10 +1339,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791765-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791765-20250215.htm)
 ---
 
-## 英超白禮頓3:0大勝車路士
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm)
+# 英超白禮頓3:0大勝車路士
 
 ![三笘薰（左）替白禮頓先開紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791723_1_20250215070645.jpg&q=85)
   
@@ -1341,10 +1362,10 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm)
 ---
 
-## 李強出席亞冬會閉幕儀式　高志丹稱以體育促進和平團結包容
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791699-20250214.htm](https://news.rthk.hk/rthk/ch/component/k2/1791699-20250214.htm)
+# 李強出席亞冬會閉幕儀式　高志丹稱以體育促進和平團結包容
 
 ![李強出席第九屆亞洲冬季運動會閉幕式。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791699_1_20250214224312.jpg&q=90)
   
@@ -1364,29 +1385,5 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
----
-
-## 亞冬會閉幕　國家隊徐夢桃與中國香港代表團甄浩天分任持旗手
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791688-20250214.htm](https://news.rthk.hk/rthk/ch/component/k2/1791688-20250214.htm)
-
-![中國香港代表團由男子冰壺運動員甄浩天擔任持旗手。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791688_1_20250214205630.jpg&q=85)
-![本屆賽事共有來自34個亞洲國家和地區的1270多名運動員參加，是參賽國家和地區、以及運動員數量最多的一屆。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791688_2_20250214212215.jpg&q=15)
-![國家體育代表團由收穫兩金一銀的自由式滑雪運動員徐夢桃擔任持旗手。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791688_3_20250214212215.jpg&q=85)
-  
-
-第九屆亞洲冬季運動會閉幕式，晚上8時在黑龍江省哈爾濱市舉行，國務院總理李強、亞奧理事會第一副主席霍震霆等出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1791688-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791699-20250214.htm](https://news.rthk.hk/rthk/ch/component/k2/1791699-20250214.htm)
 ---

@@ -1,5 +1,115 @@
-## 港交所去年盈利升10%創新高　第2次中期息增至4.9元
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm)
+# 已購啟德體育園開幕禮門票人士陸續前往換領實體票
+
+  
+
+啟德體育園本周六晚上舉行開幕典禮，已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票，陸續有市民到場排隊換領。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm)
+---
+
+# 財政預算案2025｜陳茂波：考慮多個因素決定公務員凍薪
+
+  
+
+財政司司長陳茂波說，考慮經濟有增長及強化財政整合計劃等因素，決定公務員凍薪，又說如果重推公務員提前離職計劃的「肥雞餐」，要立即支付數十億元，負擔不少。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793460-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793460-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793460-20250227.htm)
+---
+
+# 財政預算案2025｜陳茂波形容陸路離境稅影響面太大可免則免
+
+  
+
+財政司司長陳茂波表示，向市民開徵陸路離境稅的建議影響面太大，形容可免則免。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793458-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793458-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793458-20250227.htm)
+---
+
+# 全國兩會｜逾三千名中外記者報名採訪　新聞中心即日起啟用
+
+  
+
+新華社報道，在全國兩會即將召開之際，在北京梅地亞中心的全國兩會新聞中心今日正式啟用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm)
+---
+
+# 港股半日跌252點　小米創新高後半日倒跌近8%
+
+![港股突破24000點關口，再創逾3年新高後回軟，恒生指數中午收市報23535點，跌252點，跌幅約1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793455_1_20250227120825.jpg&q=1)
+  
+
+港股突破24000點關口，再創逾3年新高後回軟。恒生指數早段曾升近290點，高見24076點，中午報23535點，跌252點，跌幅約1.1%，半日主板成交近2350億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793455-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793455-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793455-20250227.htm)
+---
+
+# 港交所去年盈利升10%創新高　第2次中期息增至4.9元
 
 ![港交所去年盈利130.5億元，按年升10%，再創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793454_1_20250227120727.jpg&q=90)
   
@@ -19,10 +129,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm)
 ---
 
-## 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
+# 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
 
   
 
@@ -41,11 +151,12 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
+# 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
 
+![陳茂波說，政府將全力推進北部都會區發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793452_1_20250227123123.jpg&q=70)
   
   
 
@@ -60,10 +171,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
 ---
 
-## 滬股半日跌0.4%　創業板指數跌逾1%
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm)
+# 滬股半日跌0.4%　創業板指數跌逾1%
 
 ![上證指數半日收報3366點，跌13點，創業板指數報2242點，跌幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793450_1_20250227113358.jpg&q=85)
   
@@ -83,12 +194,16 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱人工智能發展需配合基建與市場力量
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm)
+# 財政預算案2025｜陳茂波稱人工智能發展需配合基建與市場力量
 
+![陳茂波說，香港必須擁抱及用好人工智能發展。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793448_1_20250227123017.jpg&q=45)
   
+
+新一份財政預算案提出加速人工智能發展，並以人工智能加速賦能其他產業。
+
   
 
 
@@ -102,13 +217,16 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm)
 ---
 
-## 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
+# 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
 
 ![有立法會議員呼籲政府積極開源，陳茂波表示不希望過分倚賴地價收入。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793447_1_20250227115653.jpg&q=85)
   
+
+財政司司長陳茂波到立法會財委會簡報財政預算案內容。選委界議員周文港表示，土地及印花稅收入過往佔特區政府收入較大份額，但來年政府估算的目標比較保守，關注政府會否爭取增加有關收入，因為屬於香港難以取代的收入來源。
+
   
 
 
@@ -122,10 +240,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
 ---
 
-## 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
+# 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
 
   
 
@@ -144,10 +262,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
 ---
 
-## 財政預算案2025｜兩大醫學院增60學額其中50個為第二學位
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm)
+# 財政預算案2025｜兩大醫學院增60學額其中50個為第二學位
 
 ![中大醫學院將適時公布有關「第二學位」的收生及課程安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_1_20250227111543.jpg&q=80)
 ![港大及中大兩間醫學院將會合共增加60個學額，其中50個用作招收「第二學位」醫科生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_2_20250227111543.jpg&q=80)
@@ -168,10 +286,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm)
 ---
 
-## 日股半日升56點
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm)
+# 日股半日升56點
 
 ![日經指數報38198點，升56點，半日升幅0.15%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793442_1_20250227103415.jpg&q=85)
   
@@ -191,10 +309,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm)
 ---
 
-## 港股創3年新高後轉跌　中資電信及公用股偏軟
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm)
+# 港股創3年新高後轉跌　中資電信及公用股偏軟
 
 ![港股升穿24000點關口，恒生指數最多曾升近290點，觸及24076點，創3年新高，其後轉跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793441_1_20250227102940.jpg&q=10)
   
@@ -214,10 +332,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm)
 ---
 
-## 恒指升幅擴至逾200點　升穿24000點
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htm)
+# 恒指升幅擴至逾200點　升穿24000點
 
 ![恒指較早時報24013點，升225點，升近1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793436_1_20250227094914.jpg&q=75)
   
@@ -237,10 +355,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htm)
 ---
 
-## 滬深股市初段窄幅上落
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm)
+# 滬深股市初段窄幅上落
 
 ![上證指數較早時報3375點，跌4點，跌幅0.13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793434_1_20250227093706.jpg&q=85)
   
@@ -260,10 +378,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm)
 ---
 
-## 人行逆回購2150億元人民幣
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm)
+# 人行逆回購2150億元人民幣
 
 ![人行進行2150億元7日期逆回購操作，利率維持1.5厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793433_1_20250227093302.jpg&q=55)
   
@@ -283,10 +401,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm)
 ---
 
-## 恒指競價時段跌4點
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm)
+# 恒指競價時段跌4點
 
 ![恒指競價時段報23783點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793432_1_20250227092621.jpg&q=20)
   
@@ -306,10 +424,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm)
 ---
 
-## 人民幣兌美元中間價跌8點子
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793431-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793431-20250227.htm)
+# 人民幣兌美元中間價跌8點子
 
 ![人民幣中間價報7.174兌1美元，較上日中間價下調8點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793431_1_20250227091901.jpg&q=70)
   
@@ -329,10 +447,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793431-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793431-20250227.htm)
 ---
 
-## 受元朗公路交通意外影響　九巴及龍運途經路線班次或延誤
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm)
+# 受元朗公路交通意外影響　九巴及龍運途經路線班次或延誤
 
 ![九巴稱。途經現場的巴士路線班次或會有所延誤，部分將臨時改道行駛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793430_1_20250227100732.jpg&q=80)
   
@@ -352,10 +470,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱公務員凍薪是考慮連續兩年經濟增長
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm)
+# 財政預算案2025｜陳茂波稱公務員凍薪是考慮連續兩年經濟增長
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793429_1_20250227094132.jpg&q=60)
   
@@ -375,10 +493,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm)
 ---
 
-## 台股初段靠穩
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm)
+# 台股初段靠穩
 
 ![台灣加權指數較早時報23480點，升78點，升幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793428_1_20250227090705.jpg&q=85)
   
@@ -398,10 +516,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱節約開支需取消學生津貼
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm)
+# 財政預算案2025｜陳茂波稱節約開支需取消學生津貼
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793426_1_20250227100555.jpg&q=70)
   
@@ -421,10 +539,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm)
 ---
 
-## 《環看天下》：美歐就獲烏克蘭礦產各提協議　分析：美歐嫌隙加深
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm)
+# 《環看天下》：美歐就獲烏克蘭礦產各提協議　分析：美歐嫌隙加深
 
 ![俄烏新一輪衝突進入第三年。在德國柏林，大批民眾民眾舉行集會，拉起象徵烏克蘭國旗的大型旗幟，聲援基輔政府。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793425_1_20250227084903.jpg&q=90)
   
@@ -444,10 +562,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm)
 ---
 
-## 財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm)
+# 財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793424_1_20250227100448.jpg&q=50)
   
@@ -467,10 +585,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm)
 ---
 
-## 財政預算案2025｜陳茂波：調整2元乘車優惠簡單易明容易計數
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm)
+# 財政預算案2025｜陳茂波：調整2元乘車優惠簡單易明容易計數
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793421_1_20250227093723.jpg&q=85)
   
@@ -490,10 +608,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm)
 ---
 
-## 韓股初段跌約0.5%
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm)
+# 韓股初段跌約0.5%
 
 ![首爾綜合指數較早時報2628點，跌12點，跌幅0.47%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793420_1_20250227081729.jpg&q=90)
   
@@ -513,10 +631,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm)
 ---
 
-## 日股初段靠穩
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm)
+# 日股初段靠穩
 
 ![日經指數較早時報38168點，升25點。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793418_1_20250227081544.jpg&q=40)
   
@@ -536,10 +654,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm)
+# 財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793417_1_20250227094105.jpg&q=85)
   
@@ -559,10 +677,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm)
 ---
 
-## Nvidia首季度收入預測高於預期
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm)
+# Nvidia首季度收入預測高於預期
 
 ![Nvidia上季經調整每股盈利0.89美元，預計首季度收入430億美元，兩者都高於市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793412_1_20250227070025.jpg&q=90)
   
@@ -582,10 +700,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm)
 ---
 
-## 港股ADR較本港昨日收市價普遍向下
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm)
+# 港股ADR較本港昨日收市價普遍向下
 
 ![港股ADR普遍向下，阿里巴巴及京東都跌逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793411_1_20250227060859.jpg&q=90)
   
@@ -605,10 +723,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm)
 ---
 
-## 美元指數靠穩
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm)
+# 美元指數靠穩
 
 ![美元指數靠穩，較早時報106.49，升約0.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793410_1_20250227055950.jpg&q=70)
   
@@ -628,10 +746,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm)
 ---
 
-## 紐約期金上升0.4%　市場注視美國通脹數據
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm)
+# 紐約期金上升0.4%　市場注視美國通脹數據
 
 ![紐約期金收報每盎司2930.6美元，上升0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793408_1_20250227054435.jpg&q=90)
   
@@ -651,10 +769,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm)
 ---
 
-## 油價向下　美國成品油庫存意外增加
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm)
+# 油價向下　美國成品油庫存意外增加
 
 ![油價下跌，美國成品油庫存意外增加，加上俄烏或達成和平協議，都對油價構成壓力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793407_1_20250227053808.jpg&q=90)
   
@@ -674,10 +792,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm)
 ---
 
-## 英法德股市升0.72%至約1.7%
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm)
+# 英法德股市升0.72%至約1.7%
 
 ![德國DAX指數收報22794點，升383點，升幅1.71%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793402_1_20250227051345.jpg&q=90)
   
@@ -697,10 +815,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm)
 ---
 
-## 道指跌188點　納指及標普500指數結束多日跌勢
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm)
+# 道指跌188點　納指及標普500指數結束多日跌勢
 
 ![道瓊斯指數收報43433點，跌188點，跌幅0.43%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793404_1_20250227053133.jpg&q=80)
   
@@ -720,10 +838,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm)
 ---
 
-## 特朗普稱將對歐盟徵收25%關稅
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm)
+# 特朗普稱將對歐盟徵收25%關稅
 
 ![特朗普指歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793406_1_20250227053349.jpg&q=90)
   
@@ -743,10 +861,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm)
 ---
 
-## 特朗普相信美中關係會是好的關係
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
+# 特朗普相信美中關係會是好的關係
 
 ![美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
   
@@ -766,10 +884,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
 ---
 
-## 華府要求部門削減職位　特朗普：政府規模臃腫
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm)
+# 華府要求部門削減職位　特朗普：政府規模臃腫
 
 ![特朗普指現時政府規模臃腫而鬆散，很多職員無做好本份。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793395_1_20250227030200.jpg&q=85)
   
@@ -789,10 +907,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm)
 ---
 
-## 美國1月新屋銷售少過預期
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm)
+# 美國1月新屋銷售少過預期
 
 ![美國1月新屋銷售按月減少10.5%，以年率計有65.7萬間，少過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793384_1_20250226230918.jpg&q=85)
   
@@ -812,10 +930,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm)
 ---
 
-## 2025/26《財政預算案論壇》
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm)
+# 2025/26《財政預算案論壇》
 
 ![節目主持陳曉慶（左起）、團結香港基金副總裁葉文祺及會計界立法會議員黃俊碩。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793377_1_20250226221747.jpg&q=75)
   
@@ -835,10 +953,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm)
 ---
 
-## 美股初段上升
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm)
+# 美股初段上升
 
 ![道瓊斯指數較早時報43635點，升14點，升幅0.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793382_1_20250226224616.jpg&q=90)
   
@@ -858,10 +976,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm)
 ---
 
-## 財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm)
+# 財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本
 
 ![發展局表示，會全方位協助各部門用好資源，管控工務工程項目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793380_1_20250226225014.jpg&q=85)
   
@@ -881,10 +999,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm)
 ---
 
-## 財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm)
+# 財政預算案2025｜楊何蓓茵相信公務員理解整套財政整合計劃
 
 ![楊何蓓茵說，很多公務員皆理解今次凍薪和削減編制的決定。（楊何蓓茵社交平台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793379_1_20250226224949.jpg&q=90)
   
@@ -904,10 +1022,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm)
+# 財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元
 
 ![陳茂波出席電視論壇時說，有市民反映籃球博彩規範化助長賭風的影響有限，因此邀請馬會研究並向政府提交建議。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793378_1_20250226230058.jpg&q=75)
   
@@ -927,10 +1045,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm)
 ---
 
-## 勞氏公司上季業績勝預期　盤前股價升近4%
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm)
+# 勞氏公司上季業績勝預期　盤前股價升近4%
 
 ![勞氏公司(Lowe's)上季經調整每股盈利1.93美元，收入185.5億美元，兩者都好過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793375_1_20250226214010.jpg&q=90)
   
@@ -950,10 +1068,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm)
 ---
 
-## 啟德體育園舉行倒數燈光展
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm)
+# 啟德體育園舉行倒數燈光展
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793376_1_20250226214728.jpg&q=75)
   
@@ -973,10 +1091,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱以前規劃作商業地未來或可改住宅地
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm)
+# 財政預算案2025｜陳茂波稱以前規劃作商業地未來或可改住宅地
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793372_1_20250226214659.jpg&q=10)
   
@@ -996,10 +1114,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm)
 ---
 
-## 中金公司、中國銀河澄清合併傳聞：未得到任何書面或口頭信息
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm)
+# 中金公司、中國銀河澄清合併傳聞：未得到任何書面或口頭信息
 
 ![市傳中金公司和中國銀河進行合併，兩間公司分別澄清指，未得到任何來自政府部門、監管機構或公司股東就相關傳聞的書面或口頭信息。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793371_1_20250226211631.jpg&q=90)
   
@@ -1019,10 +1137,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm)
+# 財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793369_1_20250226214615.jpg&q=80)
   
@@ -1042,10 +1160,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
+# 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793368_1_20250226214637.jpg&q=80)
   
@@ -1065,10 +1183,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
 ---
 
-## 財政預算案2025｜公務員凍薪4月生效　不續進行今年薪趨調查
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm)
+# 財政預算案2025｜公務員凍薪4月生效　不續進行今年薪趨調查
 
 ![凍結全體公務員薪酬的安排將於4月1日生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793367_1_20250226214534.jpg&q=75)
   
@@ -1088,10 +1206,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793367-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
+# 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793365_1_20250226214510.jpg&q=75)
   
@@ -1111,10 +1229,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
 ---
 
-## 財政預算案2025｜證監會歡迎預算案提升香港競爭優勢各項措施
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm)
+# 財政預算案2025｜證監會歡迎預算案提升香港競爭優勢各項措施
 
 ![證監會稱財政司司長提出的措施將推動香港證券及衍生工具市場，鞏固香港資產及財富管理樞紐地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793362_1_20250226200018.jpg&q=90)
   
@@ -1134,10 +1252,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793362-20250226.htm)
 ---
 
-## 財政預算案2025｜地建會歡迎預算案提出提振經濟及樓市措施
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm)
+# 財政預算案2025｜地建會歡迎預算案提出提振經濟及樓市措施
 
 ![地產建設商會稱政府為土地房屋供應訂定長遠發展目標並適時調整，展現促進者靈活變通的思維。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793360_1_20250226194258.jpg&q=90)
   
@@ -1157,10 +1275,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793360-20250226.htm)
 ---
 
-## 財政預算案2025｜范鴻齡感謝政府於財政壓力下仍增醫管局撥款
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm)
+# 財政預算案2025｜范鴻齡感謝政府於財政壓力下仍增醫管局撥款
 
 ![范鴻齡感謝政府在面對公共財政壓力下，仍然增加醫管局的撥款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793359_1_20250226214748.jpg&q=80)
   
@@ -1180,10 +1298,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm)
 ---
 
-## 財政預算案2025｜消息：無意重推俗稱肥雞餐公僕提前離職計劃
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm)
+# 財政預算案2025｜消息：無意重推俗稱肥雞餐公僕提前離職計劃
 
 ![消息指政府無意重推俗稱「肥雞餐」的公務員提前離職計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793358_1_20250226194131.jpg&q=65)
 ![政府問責官員與全體公務員一致凍薪。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793358_2_20250226194131.jpg&q=85)
@@ -1204,10 +1322,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm)
 ---
 
-## 財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm)
+# 財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先
 
 ![財庫局局長許正宇將在本周稍後主持記者會，介紹《財政預算案》中有關金融發展各項政策措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793343_1_20250226182951.jpg&q=80)
   
@@ -1227,10 +1345,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm)
 ---
 
-## 財政預算案2025｜倡推進上市制度改革　優化互聯互通機制
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm)
+# 財政預算案2025｜倡推進上市制度改革　優化互聯互通機制
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793346_1_20250226185149.jpg&q=85)
   
@@ -1250,119 +1368,5 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
----
-
-## 財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm)
-
-![江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793352_1_20250226191242.jpg&q=85)
-  
-
-選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm)
-
-![政府來年將不會推售商業用地。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793350_1_20250226190943.jpg&q=15)
-  
-
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm)
-
-![政府本財政年度綜合赤字預計為872億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793349_1_20250226190753.jpg&q=60)
-  
-
-本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 信置中期業績少賺30%　派息維持15仙
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm)
-
-![信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793332_1_20250226174900.jpg&q=85)
-  
-
-信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
----
-
-## 財政預算案2025｜探討規範籃球博彩邀馬會交建議　明光社反對
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm)
-
-![陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793348_1_20250226185056.jpg&q=80)
-  
-
-財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm)
 ---

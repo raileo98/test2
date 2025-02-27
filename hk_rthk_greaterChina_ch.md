@@ -1,5 +1,26 @@
-## 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
+# 全國兩會｜逾三千名中外記者報名採訪　新聞中心即日起啟用
+
+  
+
+新華社報道，在全國兩會即將召開之際，在北京梅地亞中心的全國兩會新聞中心今日正式啟用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm)
+---
+
+# 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
 
   
 
@@ -18,10 +39,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
 ---
 
-## 中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm)
+# 中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳
 
 ![中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793401_1_20250227043410.jpg&q=90)
   
@@ -41,10 +62,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm)
 ---
 
-## 歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm)
+# 歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉
 
 ![中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（中國駐歐盟使團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793400_1_20250227042334.jpg&q=90)
   
@@ -64,10 +85,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm)
 ---
 
-## 特朗普相信美中關係會是好的關係
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
+# 特朗普相信美中關係會是好的關係
 
 ![美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
   
@@ -87,10 +108,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
 ---
 
-## 王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm)
+# 王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧
 
 ![王毅在北京與新西蘭副總理兼外長彼得斯會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793383_1_20250226230025.jpg&q=90)
   
@@ -110,10 +131,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
+# 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793368_1_20250226214637.jpg&q=80)
   
@@ -133,10 +154,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
+# 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793365_1_20250226214510.jpg&q=75)
   
@@ -156,10 +177,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm)
+# 財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益
 
 ![陳茂波稱北都前期投入多，較後年份收回收益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793313_1_20250226170620.jpg&q=75)
   
@@ -179,10 +200,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm)
 ---
 
-## 美國據報解凍對台軍援　中方嚴重關切
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm)
+# 美國據報解凍對台軍援　中方嚴重關切
 
 ![林劍敦促美方停止武裝台灣，停止破壞台海和平穩定。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793309_1_20250226160232.jpg&q=90)
   
@@ -202,10 +223,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm)
 ---
 
-## 中菲執法部門合作遣返近百名在菲從事離岸博彩中國公民
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm)
+# 中菲執法部門合作遣返近百名在菲從事離岸博彩中國公民
 
 ![中方敦促菲方早日徹底解決離岸博彩業相關頑疾。（中國駐菲律賓大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793253_1_20250226130151.jpg&q=90)
   
@@ -225,10 +246,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波冀用者自付原則收回離境設施部分開支
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm)
+# 財政預算案2025｜陳茂波冀用者自付原則收回離境設施部分開支
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793305_1_20250226163059.jpg&q=90)
   
@@ -248,10 +269,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm)
 ---
 
-## 財政預算案2025｜入境修訂規例已刊憲由今早11時起生效
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm)
+# 財政預算案2025｜入境修訂規例已刊憲由今早11時起生效
 
 ![各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793304_1_20250226165450.jpg&q=80)
   
@@ -271,10 +292,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm)
 ---
 
-## 財政預算案2025｜經民聯稱官員等帶頭減輕政府負擔屬應有之義
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm)
+# 財政預算案2025｜經民聯稱官員等帶頭減輕政府負擔屬應有之義
 
 ![經民聯立法會議員林健鋒認為，本港面對赤字，官員、立法會和全體公務員帶頭減輕政府負擔，是應有之義，亦符合社會整體期望。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793301_1_20250226163637.jpg&q=90)
   
@@ -294,10 +315,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm)
 ---
 
-## 財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm)
+# 財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略
 
 ![旅發局稱定必謹慎運用政府資源，精準制訂宣傳策略。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793294_1_20250226153056.jpg&q=70)
   
@@ -317,10 +338,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm)
 ---
 
-## 王滬寧：要堅定不移推進祖國統一大業
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm)
+# 王滬寧：要堅定不移推進祖國統一大業
 
 ![中共中央政治局常委、全國政協主席王滬寧出席會議並發表講話。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793285_1_20250226144807.jpg&q=90)
   
@@ -340,10 +361,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm)
 ---
 
-## 財政預算案2025｜陳茂波稱中期財政預測已反映強化整合措施
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm)
+# 財政預算案2025｜陳茂波稱中期財政預測已反映強化整合措施
 
 ![陳茂波說中期財政預測，主要從宏觀角度估算政府的收支和財政情況。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793268_1_20250226143229.jpg&q=90)
   
@@ -363,10 +384,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm)
 ---
 
-## 財政預算案2025｜李家超稱預算案為經濟發展塑造新動能新優勢
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm)
+# 財政預算案2025｜李家超稱預算案為經濟發展塑造新動能新優勢
 
 ![李家超指預算案提出多項措施，與施政報告的方向一致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793263_1_20250226142911.jpg&q=75)
   
@@ -386,10 +407,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm)
 ---
 
-## 財政預算案2025｜飛機乘客離境稅第三季起加至200元
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm)
+# 財政預算案2025｜飛機乘客離境稅第三季起加至200元
 
 ![由2025/26年度第三季起，飛機乘客離境稅由現時每位乘客120元增加至200元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793255_1_20250226141832.jpg&q=65)
   
@@ -409,10 +430,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm)
 ---
 
-## 財政預算案2025｜將積極探討規範籃球博彩活動
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm)
+# 財政預算案2025｜將積極探討規範籃球博彩活動
 
 ![陳茂波說政府將積極探討規範籃球博彩活動，並邀請香港賽馬會提交建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793239_1_20250226130235.jpg&q=85)
   
@@ -432,10 +453,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm)
 ---
 
-## 財政預算案2025｜新資本投資者入境計劃料帶來逾260億元
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm)
+# 財政預算案2025｜新資本投資者入境計劃料帶來逾260億元
 
 ![「新資本投資者入境計劃」累計接獲超過880宗申請，預計帶來超過260億元投資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793234_1_20250226124644.jpg&q=1)
   
@@ -455,10 +476,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm)
 ---
 
-## 商務部稱堅決反對加拿大以涉俄為由制裁中國企業
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm)
+# 商務部稱堅決反對加拿大以涉俄為由制裁中國企業
 
 ![商務部說，中方將採取必要措施，堅決捍衛中國企業的合法權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793226_1_20250226120817.jpg&q=30)
   
@@ -478,10 +499,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm)
 ---
 
-## 財政預算案2025｜向旅發局撥12.35億落實無處不旅遊理念
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm)
+# 財政預算案2025｜向旅發局撥12.35億落實無處不旅遊理念
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793225_1_20250226122721.jpg&q=80)
   
@@ -501,10 +522,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm)
 ---
 
-## 財政預算案2025｜助力C919打進國際市場　擴展培訓範疇
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm)
+# 財政預算案2025｜助力C919打進國際市場　擴展培訓範疇
 
 ![陳茂波表示，香港將助力C919打進國際市場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793222_1_20250226122400.jpg&q=85)
   
@@ -524,10 +545,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm)
 ---
 
-## 財政預算案2025｜年內展開港深西部鐵路勘查及北環線支線規劃
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm)
+# 財政預算案2025｜年內展開港深西部鐵路勘查及北環線支線規劃
 
 ![預算案提到，預計年內展開港深西部鐵路（洪水橋至前海）項目的勘查及設計研究，以及北環線支線的詳細規劃及設計。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793219_1_20250226122212.jpg&q=75)
   
@@ -547,10 +568,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm)
 ---
 
-## 財政預算案2025｜預留37億加快河套香港園區第一期基建設施
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm)
+# 財政預算案2025｜預留37億加快河套香港園區第一期基建設施
 
 ![陳茂波表示政府高度重視河套合作區的發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793216_1_20250226122104.jpg&q=35)
   
@@ -570,10 +591,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm)
 ---
 
-## 國台辦：希望台灣有關方面讓更多優秀大陸電影進入台灣影院
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm)
+# 國台辦：希望台灣有關方面讓更多優秀大陸電影進入台灣影院
 
 ![國台辦希望台灣有關方面傾聽民眾呼聲，讓更多優秀大陸電影進入台灣影院。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793214_1_20250226114023.jpg&q=80)
   
@@ -593,10 +614,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm)
 ---
 
-## 財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm)
+# 財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點
 
 ![政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793215_1_20250226114849.jpg&q=85)
   
@@ -616,10 +637,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm)
 ---
 
-## 財政預算案2025｜北都建大學城並推動生態旅遊
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm)
+# 財政預算案2025｜北都建大學城並推動生態旅遊
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793213_1_20250226123231.jpg&q=80)
   
@@ -639,10 +660,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm)
 ---
 
-## 財政預算案2025｜舉辦國際機器人大會　提升香港影響力
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm)
+# 財政預算案2025｜舉辦國際機器人大會　提升香港影響力
 
 ![陳茂波提出舉辦國際機器人大會，藉此提升香港的影響力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793212_1_20250226114809.jpg&q=75)
   
@@ -662,10 +683,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm)
 ---
 
-## 國台辦促美方糾正錯誤　停止向「台獨」分裂勢力發錯誤信號
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm)
+# 國台辦促美方糾正錯誤　停止向「台獨」分裂勢力發錯誤信號
 
 ![國台辦敦促美方糾正錯誤，停止發出任何縱容支持「台獨」分裂勢力的錯誤信號。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793208_1_20250226112628.jpg&q=85)
   
@@ -685,10 +706,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm)
 ---
 
-## 財政預算案2025｜引進辦下月公布新一批重點企業名單
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm)
+# 財政預算案2025｜引進辦下月公布新一批重點企業名單
 
 ![引進重點企業辦公室下月將公布新一批重點企業名單，涉及10多家企業。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793209_1_20250226114050.jpg&q=25)
   
@@ -708,10 +729,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm)
 ---
 
-## 國台辦批評日本妄圖製造「一中一台」　促慎重處理涉台問題
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm)
+# 國台辦批評日本妄圖製造「一中一台」　促慎重處理涉台問題
 
 ![朱鳳蓮強調，日本應恪守一個中國原則和中日四個政治文件精神，慎重處理涉台問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793203_1_20250226105924.jpg&q=70)
   
@@ -731,10 +752,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm)
 ---
 
-## 黃家榮稱迪士尼利潤用於擴建新景點帶來經濟效益大於派發股息
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm)
+# 黃家榮稱迪士尼利潤用於擴建新景點帶來經濟效益大於派發股息
 
 ![黃家榮認為，業績反映除了本地人，亦吸引到旅客入場，並願意作高消費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793193_1_20250226104558.jpg&q=65)
   
@@ -754,10 +775,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm)
 ---
 
-## 劇組拍攝汽車飄移發生意外　澳門文化局中止拍攝許可
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm)
+# 劇組拍攝汽車飄移發生意外　澳門文化局中止拍攝許可
 
 ![澳門文化局發出中止項目的拍攝許可通知，不排除續後會廢止有關拍攝許可通知。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793155_1_20250226015101.jpg&q=70)
   
@@ -777,10 +798,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm)
 ---
 
-## 李強：加力推進前沿新興領域科技創新　更好培育新質生產力
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm)
+# 李強：加力推進前沿新興領域科技創新　更好培育新質生產力
 
 ![李強指出，要加力推進前沿科技創新，以科技創新引領產業創新，更好培育新質生產力、推動高質量發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793153_1_20250226005330.jpg&q=90)
   
@@ -800,10 +821,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm)
 ---
 
-## 趙樂際：要穩中求進推動人大工作高質量發展
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm)
+# 趙樂際：要穩中求進推動人大工作高質量發展
 
 ![趙樂際：要穩中求進推動人大工作高質量發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793145_1_20250225224700.jpg&q=90)
   
@@ -823,10 +844,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm)
 ---
 
-## 湖南懷化客船與油污清理船相撞　2死十多人失蹤
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm)
+# 湖南懷化客船與油污清理船相撞　2死十多人失蹤
 
 ![湖南懷化客船與油污清理船相撞　2死十多人失蹤](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793132_1_20250225203340.jpg&q=90)
   
@@ -846,10 +867,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm)
 ---
 
-## 新一輪民青局內地專題實習提供110個名額涵蓋文物保育科研技術
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm)
+# 新一輪民青局內地專題實習提供110個名額涵蓋文物保育科研技術
 
 ![實習項目將於今年6月至8月期間展開，為期3至6個星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793122_1_20250225181734.jpg&q=90)
   
@@ -869,10 +890,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm)
 ---
 
-## 張國鈞稱香港非常有潛力作為區域甚或國際體育爭議解決中心
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm)
+# 張國鈞稱香港非常有潛力作為區域甚或國際體育爭議解決中心
 
 ![張國鈞表示，香港在「一國兩制」下享有獨特優勢，非常有潛力發展成為區域甚或國際體育爭議解決中心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793121_1_20250225181616.jpg&q=85)
   
@@ -892,10 +913,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm)
 ---
 
-## 中國南極考察隊在冰蓋已有鑽孔首次測井獲取參考數據
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm)
+# 中國南極考察隊在冰蓋已有鑽孔首次測井獲取參考數據
 
 ![中國第41次南極考察，雪龍二號在南極作業。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793111_1_20250225174104.jpg&q=90)
   
@@ -915,10 +936,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm)
 ---
 
-## 分析：地方政府收購存量土地促進市場平衡發展減輕發展商資金壓力
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm)
+# 分析：地方政府收購存量土地促進市場平衡發展減輕發展商資金壓力
 
 ![嚴躍進強調，今年房地產市場仍以穩為主，預料整體樓價跌幅將進一步收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793117_1_20250225174418.jpg&q=50)
   
@@ -938,10 +959,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm)
 ---
 
-## 商務部：中方敦促歐方停止抹黑推責　將採措施維護中企合法權益
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm)
+# 商務部：中方敦促歐方停止抹黑推責　將採措施維護中企合法權益
 
 ![商務部稱，歐方做法有違中歐領導人共識精神，對中歐經貿關係造成消極影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793112_1_20250225171058.jpg&q=30)
   
@@ -961,10 +982,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm)
 ---
 
-## 麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm)
+# 麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應
 
 ![麥萃才認為，如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793104_1_20250225170101.jpg&q=75)
   
@@ -984,10 +1005,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm)
 ---
 
-## 全國兩會｜全國人大常委會第十四次會議在北京閉幕
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm)
+# 全國兩會｜全國人大常委會第十四次會議在北京閉幕
 
 ![全國人大常委會第十四次會議上午在北京人民大會堂閉幕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793101_1_20250225170038.jpg&q=65)
   
@@ -1007,10 +1028,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm)
 ---
 
-## 中方就歐盟和加拿大制裁中國企業提出嚴正交涉
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm)
+# 中方就歐盟和加拿大制裁中國企業提出嚴正交涉
 
 ![外交部回應歐盟制裁中企，表示已向歐方提出嚴正交涉，敦促歐方停止抹黑推責。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793098_1_20250225155509.jpg&q=75)
   
@@ -1030,10 +1051,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm)
 ---
 
-## 外交部：美方脅迫別國打壓中國半導體產業　最終將損人害己
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm)
+# 外交部：美方脅迫別國打壓中國半導體產業　最終將損人害己
 
 ![林劍說，中方已多次就美國惡意封鎖打壓中國的半導體產業表明嚴正立場。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793097_1_20250225154727.jpg&q=90)
   
@@ -1053,10 +1074,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm)
 ---
 
-## 南韓公路地盤橋樑倒塌4人死亡包括2名中國公民
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm)
+# 南韓公路地盤橋樑倒塌4人死亡包括2名中國公民
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793092_1_20250225151456.jpg&q=5)
   
@@ -1076,10 +1097,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm)
 ---
 
-## 全國兩會｜李家超與港區全國政協委員舉行座談會
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm)
+# 全國兩會｜李家超與港區全國政協委員舉行座談會
 
 ![座談會下午在政府總部舉行。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793091_1_20250225160248.jpg&q=85)
   
@@ -1099,10 +1120,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm)
 ---
 
-## 丘應樺稱本港對外資具有吸引力是因為巿場自由公平
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm)
+# 丘應樺稱本港對外資具有吸引力是因為巿場自由公平
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793056_1_20250225112552.jpg&q=80)
   
@@ -1122,10 +1143,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm)
 ---
 
-## 知識產權局駁回惡意搶注DEEPSEEK等63件商標註册申請
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm)
+# 知識產權局駁回惡意搶注DEEPSEEK等63件商標註册申請
 
 ![國家知識產權局駁回惡意搶注「DEEPSEEK」等63件相關商標註册申請。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793048_1_20250225101622.jpg&q=90)
   
@@ -1145,10 +1166,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm)
 ---
 
-## 《環看天下》：國防部稱澳洲炒作中方艦艇演習　對此強烈不滿
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm)
+# 《環看天下》：國防部稱澳洲炒作中方艦艇演習　對此強烈不滿
 
 ![國防部說，中方艦艇編隊演訓海域，遠離澳洲海岸線，完全是公海海域。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793033_1_20250225091116.jpg&q=60)
   
@@ -1168,10 +1189,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm)
 ---
 
-## 聯大召開烏克蘭局勢緊急特別會議　中方冀各方達成有約束力協議
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm)
+# 聯大召開烏克蘭局勢緊急特別會議　中方冀各方達成有約束力協議
 
 ![傅聰表示，中方支持一切致力於和平的努力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793023_1_20250225084258.jpg&q=90)
   
@@ -1191,10 +1212,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm)
 ---
 
-## 中方代表稱國際社會應弘揚人道博愛　避免人道主義問題政治化
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm)
+# 中方代表稱國際社會應弘揚人道博愛　避免人道主義問題政治化
 
 ![陳旭說中方將繼續向人道機構提供力所能及的幫助。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793000_1_20250225012521.jpg&q=80)
   
@@ -1214,10 +1235,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm)
 ---
 
-## 王毅稱中方踐行國際合作　與各方共創人權事業美好未來
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm)
+# 王毅稱中方踐行國際合作　與各方共創人權事業美好未來
 
 ![王毅指百年變局加速演進，維護和平、促進發展、保護人權更加深入人心。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792999_1_20250225011539.jpg&q=90)
   
@@ -1237,10 +1258,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm)
 ---
 
-## 澳門發生劇組拍攝意外12人受傷　警方調查涉事汽車失控原因
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm)
+# 澳門發生劇組拍攝意外12人受傷　警方調查涉事汽車失控原因
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792983_1_20250224192544.jpg&q=15)
   
@@ -1260,10 +1281,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm)
 ---
 
-## 習近平與普京通電話　稱中俄關係不針對第三方亦不受第三方影響
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm)
+# 習近平與普京通電話　稱中俄關係不針對第三方亦不受第三方影響
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792979_1_20250224183925.jpg&q=90)
   
@@ -1283,10 +1304,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm)
 ---
 
-## 吳清：資本市場要積極融入科技創新新型舉國體制
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm)
+# 吳清：資本市場要積極融入科技創新新型舉國體制
 
 ![中國證監會主席吳清表示，要抓住科技創新「牛鼻子」，資本市場要積極融入科技創新新型舉國體制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792977_1_20250224181931.jpg&q=70)
   
@@ -1306,10 +1327,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm)
 ---
 
-## 全國兩會｜人大常委會會議聽取民營經濟促進法草案修改匯報
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm)
+# 全國兩會｜人大常委會會議聽取民營經濟促進法草案修改匯報
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792969_1_20250224182439.jpg&q=85)
   
@@ -1329,10 +1350,10 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm)
 ---
 
-## 習近平同俄羅斯總統普京通電話
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm)
+# 習近平同俄羅斯總統普京通電話
 
 ![習近平同普京通電話。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792966_1_20250224184237.jpg&q=90)
   
@@ -1352,27 +1373,5 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
----
-
-## 阿里巨額投入AI基建　新華社稱創民企相關領域最大規模投資之一
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792951-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792951-20250224.htm)
-
-![新華社報道阿里未來三年投入逾3800億元人民幣投資AI基建。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792951_1_20250224163358.jpg&q=60)
-  
-
-阿里巴巴集團首席執行官吳泳銘表示，阿里將加速雲和AI硬件基礎設施建設，助推全行業生態發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792951-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm)
 ---
