@@ -1,30 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 02:17:50 +0000webmaster@rthk.hk人民幣兌美元收市升逾90點子https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm<img alt="人民幣收市報7.2547兌1美元，較上日收市升94點子。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793328\_1\_20250226172003.jpg&amp;q=35" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-美元偏弱，人民幣兌美元收市上升，報7.2547兌1美元，較上日收市升94點子。中間價再創逾1個月低位，報7.1732兌1美元，與市場預測偏離近800點子。
-<br>
-<br/>
-市場人士表示，關稅不確定性重新成為市場焦點，美國經濟數據表現可能加劇未來政策走向不明朗，美元走勢或較反覆，人民幣將跟隨，有待外部因素明朗化。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793328-20250226.htmWed, 26 Feb 2025 17:28:00 +0800財政預算案2025｜自由黨張宇人稱探討規範籃球博彩達多贏局面https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm<img alt="張宇人（右二）相信探討規範籃球博彩有助增加政府收入及打擊非法賭博。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793334\_1\_20250226184800.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 02:34:26 +0000webmaster@rthk.hk財政預算案2025｜自由黨張宇人稱探討規範籃球博彩達多贏局面https://news.rthk.hk/rthk/ch/component/k2/1793334-20250226.htm<img alt="張宇人（右二）相信探討規範籃球博彩有助增加政府收入及打擊非法賭博。（陳曉筠攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793334\_1\_20250226184800.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 自由黨黨魁張宇人說，足球博彩稅過去多年累計為政府帶來大額收入，但未有鼓吹賭風，相信今次財政預算案提出探討規範籃球博彩，有助增加政府收入、打擊非法賭博，達致多贏局面。
@@ -1689,4 +1664,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htmThu, 27 Feb 2025 09:49:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htmThu, 27 Feb 2025 09:49:00 +0800港股創3年新高後轉跌　中資電信及公用股偏軟https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm<img alt="港股升穿24000點關口，恒生指數最多曾升近290點，觸及24076點，創3年新高，其後轉跌。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793441\_1\_20250227102940.jpg&amp;q=10" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股升穿24000點關口，恒生指數最多曾升近290點，觸及24076點，創3年新高，其後轉跌，較早時報23764點，跌23點，跌幅0.1%。
+<br>
+<br/>
+科技指數報5946點，跌7點，跌幅0.12%。
+<br/>
+<br/>
+中資電信、內險、內銀、公用股偏軟，消費、汽車股上升。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htmThu, 27 Feb 2025 10:30:00 +0800

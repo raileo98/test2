@@ -1,33 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKThu, 27 Feb 2025 02:17:49 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793368\_1\_20250226214637.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
-<br>
-<br/>
-陳茂波在財政預算案電視論壇上表示，政府增加收入的同時，要盡量減少對一般市民的影響，現時大部分到内地的市民都不是自駕，認為影響範圍比較窄。
-<br/>
-<br/>
-至於預算案提出增加違例泊車等罰款，預料數年內提出具體建議及落實推行。被問到為何不即時調整，陳茂波表示做法主要為了更好地管理交通效率，運輸及物流局會展開全面深入研究，檢視有哪些罰款需要調整。被問到有否考慮增加停車位，陳茂波說當局有增加，但由於香港地少人多，希望把車輛的增長維持在可控水平。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htmWed, 26 Feb 2025 20:55:00 +0800財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793369\_1\_20250226214615.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKThu, 27 Feb 2025 02:34:25 +0000webmaster@rthk.hk財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793369\_1\_20250226214615.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波出席電視論壇時，被問到來年財政儲備達到5800多億，等於8個月的政府開支，如果再出現另一場疫症，是否有足夠抵禦能力，陳茂波說，現時財政儲備水平不錯，相信未來隨著經濟持續增長，經營帳目錄得盈餘，政府多善用市場資源投入長期基建項目，可以保持一定水平的財政儲備，相信有足夠實力應對任何突如來襲的情況。
@@ -1715,4 +1687,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htmThu, 27 Feb 2025 09:57:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htmThu, 27 Feb 2025 09:57:00 +0800港股創3年新高後轉跌　中資電信及公用股偏軟https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm<img alt="港股升穿24000點關口，恒生指數最多曾升近290點，觸及24076點，創3年新高，其後轉跌。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793441\_1\_20250227102940.jpg&amp;q=10" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股升穿24000點關口，恒生指數最多曾升近290點，觸及24076點，創3年新高，其後轉跌，較早時報23764點，跌23點，跌幅0.1%。
+<br>
+<br/>
+科技指數報5946點，跌7點，跌幅0.12%。
+<br/>
+<br/>
+中資電信、內險、內銀、公用股偏軟，消費、汽車股上升。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htmThu, 27 Feb 2025 10:30:00 +0800

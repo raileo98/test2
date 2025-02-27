@@ -1,78 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 02:17:50 +0000webmaster@rthk.hk【預算案一文看清】嚴控政府開支https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm<img alt="【預算案一文看清】嚴控政府開支" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793307\_1\_20250226182327.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-<b>
-財政預算案2025嚴控政府開支
-</b>
-<br>
-<br/>
-2024/25年度綜合赤字預計為872億元
-<br/>
-<br/>
-政府財政儲備6473億元
-<br/>
-<br/>
-未來5個財政年度擬每年發債1500億至1950億元
-<br/>
-<br/>
-<b>
-著力節流
-</b>
-<br/>
-<br/>
--推「強化版」財政整合計劃，至2027/28年度累計減經常開支7%
-<br/>
-<br/>
--行政長官、問責官員、全體公務員、立法會議員等2025/26年度凍薪
-<br/>
-<br/>
--公務員編制2026年度起連續兩年減2%
-<br/>
-<br/>
--本屆政府任期內削減約1萬個職位
-<br/>
-<br/>
-<b>
-致力開源
-</b>
-<br/>
-<br/>
--2025/26年度第三季起飛機離境稅加至200元
-<br/>
-<br/>
--研推陸路邊境建設費，若每輛私家車收200元，每年收入達10億元
-<br/>
-<br/>
--研規範籃球博彩活動
-<br/>
-<br/>
--檢討電動車牌費、咪錶收費
-<br/>
-<br/>
--檢討「牛肉乾」定額罰款
-<br/>
-<br/>
--檢討各政府隧道及主幹道收費
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htmWed, 26 Feb 2025 16:11:00 +0800財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm<img alt="陳茂波稱北都前期投入多，較後年份收回收益。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793313\_1\_20250226170620.jpg&amp;q=75" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 02:34:25 +0000webmaster@rthk.hk財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm<img alt="陳茂波稱北都前期投入多，較後年份收回收益。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793313\_1\_20250226170620.jpg&amp;q=75" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政司司長陳茂波表示，特區政府一直發短期債，因為短期債息口較便宜，加上特區政府財政狀況強，如要發債，隨時可發行並被市場吸納。他指出，針對北部都會區項目，前期投入會較多，收益在較後年份收回，當局會積極研究發長期債券。
@@ -1736,4 +1663,32 @@ https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htmThu, 27 Feb 2025 09:57:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htmThu, 27 Feb 2025 09:57:00 +0800港股創3年新高後轉跌　中資電信及公用股偏軟https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm<img alt="港股升穿24000點關口，恒生指數最多曾升近290點，觸及24076點，創3年新高，其後轉跌。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793441\_1\_20250227102940.jpg&amp;q=10" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+港股升穿24000點關口，恒生指數最多曾升近290點，觸及24076點，創3年新高，其後轉跌，較早時報23764點，跌23點，跌幅0.1%。
+<br>
+<br/>
+科技指數報5946點，跌7點，跌幅0.12%。
+<br/>
+<br/>
+中資電信、內險、內銀、公用股偏軟，消費、汽車股上升。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htmThu, 27 Feb 2025 10:30:00 +0800
