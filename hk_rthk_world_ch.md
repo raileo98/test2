@@ -1,3 +1,27 @@
+# 南韓指北韓向俄羅斯增派兵力
+
+![北韓去年10月曾派出過萬名軍人往庫爾斯克，數千人傷亡。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793479_1_20250227150951.jpg&q=90)
+  
+
+南韓國家情報院說，北韓向俄羅斯增派兵力，正了解派兵規模。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793479-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793479-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793479-20250227.htm)
+
+---
+
 # 40名中國偷渡人員從泰國遣返回國
 
 ![被遣返人員在機場與家屬團聚。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793471_1_20250227141328.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793199-20250226.htm)
-
----
-
-# 美國客機芝加哥降落時險與進入跑道商務機相撞
-
-![涉事西南航空客機為波音737-800型客機。圖為同型號的客機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793197_1_20250226095224.jpg&q=80)
-  
-
-美國聯邦航空管理局表示，美國西南航空一架客機在芝加哥中途國際機場降落時，因一架商務客機未經授權進入跑道而被迫暫停降落，兩機差點相撞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793197-20250226.htm)
 
 ---

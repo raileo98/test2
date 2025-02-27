@@ -48,7 +48,7 @@ The Education Bureau said that medical schools at Chinese University (CUHK) and 
 
 # FS shoots down levy for all outbound travellers
 
-![A caller to a radio show suggested a levy on travellers leaving the city via land boundary control points. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793462_2_20250227135507.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793462_2_20250227135507.jpg&q=80)
   
 
 Financial Secretary Paul Chan on Thursday said a proposed levy on private cars departing Hong Kong is aimed at clawing back government spending on cross-boundary facilities, while dismissing the idea of a fee for all outbound travellers over the potential impact on the public.

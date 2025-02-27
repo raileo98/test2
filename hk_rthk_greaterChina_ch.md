@@ -1,3 +1,45 @@
+# 全國兩會｜黃錦輝倡設「跨境投資聯合基金」專注科技創新產業
+
+全國政協會議即將在北京召開。全國政協委員、立法會議員黃錦輝表示，會提出成立專注於香港科技創新產業的「跨境投資聯合基金」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm)
+
+---
+
+# 劉凱旋稱香港具備強大專業服務能力　為內企走出去提供全面支援
+
+投資推廣署署長劉凱旋說，香港具備強大的專業服務能力，在法律，金融和人才方面，能為湖北企業「走出去」提供全面支援。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm)
+
+---
+
 # 40名中國偷渡人員從泰國遣返回國
 
 ![被遣返人員在機場與家屬團聚。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793471_1_20250227141328.jpg&q=90)
@@ -1387,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm)
-
----
-
-# 吳清：資本市場要積極融入科技創新新型舉國體制
-
-![中國證監會主席吳清表示，要抓住科技創新「牛鼻子」，資本市場要積極融入科技創新新型舉國體制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792977_1_20250224181931.jpg&q=70)
-  
-
-中國證監會主席吳清表示，要抓住科技創新「牛鼻子」，資本市場要積極融入科技創新新型舉國體制，集短錢變長錢，集小錢變大錢，化儲蓄為資本，風險共擔和收益共享。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm)
-
----
-
-# 全國兩會｜人大常委會會議聽取民營經濟促進法草案修改匯報
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792969_1_20250224182439.jpg&q=85)
-  
-
-在北京，十四屆全國人大常委會第十四次會議舉行第一次全體會議，聽取關於民營經濟促進法草案修改情況的匯報。草案二審稿進一步體現黨中央關於構建高水平社會主義市場經濟體制、優化民營經濟發展環境等要求。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm)
 
 ---

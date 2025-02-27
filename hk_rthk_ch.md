@@ -1,3 +1,138 @@
+# 西貢方逸華牙科診所將局部維修　牙科街症服務名額不受影響
+
+衞生署表示，西貢方逸華牙科診所周六起進行局部維修，為期兩個月、至4月30日。期間，牙科街症服務名額不會受影響。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793482-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793482-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793482-20250227.htm)
+
+---
+
+# 滬指收市靠穩
+
+![上證綜合指數收市報3388點，升7點，升幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793481_1_20250227151226.jpg&q=85)
+  
+
+滬深股市收市個別發展，免税店、飲品製造、海南自貿區板塊升幅較大；國資雲、液冷服務器板塊跌幅居前。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793481-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793481-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793481-20250227.htm)
+
+---
+
+# 全國兩會｜黃錦輝倡設「跨境投資聯合基金」專注科技創新產業
+
+全國政協會議即將在北京召開。全國政協委員、立法會議員黃錦輝表示，會提出成立專注於香港科技創新產業的「跨境投資聯合基金」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm)
+
+---
+
+# 據報平治計劃裁減內地15%員工　金融和銷售部門受影響
+
+![彭博報道指，平治及在華子公司正計劃在內地裁減達15%員工，主要集中在金融和銷售部門。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793476_1_20250227145955.jpg&q=85)
+  
+
+外電報道，德國汽車製造商平治（Benz）及在華子公司，正計劃在內地裁減達15%員工，主要集中在金融和銷售部門。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793476-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793476-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793476-20250227.htm)
+
+---
+
+# 南韓指北韓向俄羅斯增派兵力
+
+![北韓去年10月曾派出過萬名軍人往庫爾斯克，數千人傷亡。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793479_1_20250227150951.jpg&q=90)
+  
+
+南韓國家情報院說，北韓向俄羅斯增派兵力，正了解派兵規模。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793479-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793479-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793479-20250227.htm)
+
+---
+
+# 劉凱旋稱香港具備強大專業服務能力　為內企走出去提供全面支援
+
+投資推廣署署長劉凱旋說，香港具備強大的專業服務能力，在法律，金融和人才方面，能為湖北企業「走出去」提供全面支援。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm)
+
+---
+
 # 財政預算案2025｜朱國強指政府從未就取消學生津貼諮詢其意見
 
 新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，財政司司長陳茂波表示，削減2%開支適用於各政策局及部門，具體做法由相關首長考慮情況後做決定，又說過程中教育局有與立法會內教育界一些代表溝通。
@@ -20,6 +155,9 @@
 ---
 
 # 教資會評審小組確認教育大學運作切合使命與策略發展計劃
+
+![報告指出，教大高層人員獲指派恰當的角色和職責，進一步鞏固學術質素保證框架。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793475_1_20250227152129.jpg&q=35)
+  
 
 大學教育資助委員會轄下質素保證局公布香港教育大學質素核證報告，評審小組確認教大各項運作及活動均清晰切合其使命和《策略發展計劃2016-2025》，指教大秉持「教育為本，超越教育」的理念，提供涵蓋多元學科的獨特師資教育。
 
@@ -114,6 +252,9 @@
 
 # 財政預算案2025｜陳茂波稱削減開支由政策局及部門首長決定
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793470_1_20250227151022.jpg&q=75)
+  
+
 新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，多名議員希望政府不要一刀切取消有關津貼。工聯會議員陸頌雄說，2500元學生津貼能讓家長獲得幸福感和獲得感，因為每年開學的開支很大，有關津貼屬於「及時雨」，不滿政府在沒有諮詢下取消，形容做法「一石擊起千重浪」，又質疑與鼓勵生育政策有牴觸。
 
   
@@ -134,6 +275,9 @@
 ---
 
 # 財政預算案2025｜陳茂波稱每次推地需審慎考慮市場情況
+
+![陳茂波說，過去曾因土地不足，令房屋供應緊張、樓價飛升，因此「一定要有土地在手」。（港台圖片 ）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793469_1_20250227151938.jpg&q=35)
+  
 
 預算案提出未來一年不推售商業地。在立法會財委會上，經民聯林健鋒關注政府賣地進度較慢，會否考慮恢復「勾地」制度或拆細地皮出售，甚至接受分期付款。
 
@@ -588,8 +732,7 @@
 
 # 財政預算案2025｜兩大醫學院增60學額其中50個為第二學位
 
-![中大醫學院將適時公布有關「第二學位」的收生及課程安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_1_20250227111543.jpg&q=80)
-![港大及中大兩間醫學院將會合共增加60個學額，其中50個用作招收「第二學位」醫科生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_2_20250227111543.jpg&q=80)
+![中大醫學院與港大醫學院表示課程安排將適時公布。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_3_20250227152035.jpg&q=80)
   
 
 預算案提出，醫學生培訓學額將於2025/26學年增至650個。教育局向立法會提交文件顯示，港大及中大兩間醫學院將會合共增加60個學額，其中50個用作招收「第二學位」醫科生，其餘10個學額將分配予現有醫學課程。

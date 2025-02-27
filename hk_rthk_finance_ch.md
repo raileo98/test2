@@ -1,3 +1,93 @@
+# 滬指收市靠穩
+
+![上證綜合指數收市報3388點，升7點，升幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793481_1_20250227151226.jpg&q=85)
+  
+
+滬深股市收市個別發展，免税店、飲品製造、海南自貿區板塊升幅較大；國資雲、液冷服務器板塊跌幅居前。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793481-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793481-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793481-20250227.htm)
+
+---
+
+# 全國兩會｜黃錦輝倡設「跨境投資聯合基金」專注科技創新產業
+
+全國政協會議即將在北京召開。全國政協委員、立法會議員黃錦輝表示，會提出成立專注於香港科技創新產業的「跨境投資聯合基金」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm)
+
+---
+
+# 據報平治計劃裁減內地15%員工　金融和銷售部門受影響
+
+![彭博報道指，平治及在華子公司正計劃在內地裁減達15%員工，主要集中在金融和銷售部門。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793476_1_20250227145955.jpg&q=85)
+  
+
+外電報道，德國汽車製造商平治（Benz）及在華子公司，正計劃在內地裁減達15%員工，主要集中在金融和銷售部門。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793476-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793476-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793476-20250227.htm)
+
+---
+
+# 劉凱旋稱香港具備強大專業服務能力　為內企走出去提供全面支援
+
+投資推廣署署長劉凱旋說，香港具備強大的專業服務能力，在法律，金融和人才方面，能為湖北企業「走出去」提供全面支援。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm)
+
+---
+
 # 財政預算案2025｜朱國強指政府從未就取消學生津貼諮詢其意見
 
 新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，財政司司長陳茂波表示，削減2%開支適用於各政策局及部門，具體做法由相關首長考慮情況後做決定，又說過程中教育局有與立法會內教育界一些代表溝通。
@@ -69,6 +159,9 @@
 
 # 財政預算案2025｜陳茂波稱削減開支由政策局及部門首長決定
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793470_1_20250227151022.jpg&q=75)
+  
+
 新一份財政預算案提出2025/26學年起，取消為中小學和幼稚園學生提供2500元學生津貼。在立法會財委會會議上，多名議員希望政府不要一刀切取消有關津貼。工聯會議員陸頌雄說，2500元學生津貼能讓家長獲得幸福感和獲得感，因為每年開學的開支很大，有關津貼屬於「及時雨」，不滿政府在沒有諮詢下取消，形容做法「一石擊起千重浪」，又質疑與鼓勵生育政策有牴觸。
 
   
@@ -89,6 +182,9 @@
 ---
 
 # 財政預算案2025｜陳茂波稱每次推地需審慎考慮市場情況
+
+![陳茂波說，過去曾因土地不足，令房屋供應緊張、樓價飛升，因此「一定要有土地在手」。（港台圖片 ）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793469_1_20250227151938.jpg&q=35)
+  
 
 預算案提出未來一年不推售商業地。在立法會財委會上，經民聯林健鋒關注政府賣地進度較慢，會否考慮恢復「勾地」制度或拆細地皮出售，甚至接受分期付款。
 
@@ -471,8 +567,7 @@
 
 # 財政預算案2025｜兩大醫學院增60學額其中50個為第二學位
 
-![中大醫學院將適時公布有關「第二學位」的收生及課程安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_1_20250227111543.jpg&q=80)
-![港大及中大兩間醫學院將會合共增加60個學額，其中50個用作招收「第二學位」醫科生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_2_20250227111543.jpg&q=80)
+![中大醫學院與港大醫學院表示課程安排將適時公布。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793445_3_20250227152035.jpg&q=80)
   
 
 預算案提出，醫學生培訓學額將於2025/26學年增至650個。教育局向立法會提交文件顯示，港大及中大兩間醫學院將會合共增加60個學額，其中50個用作招收「第二學位」醫科生，其餘10個學額將分配予現有醫學課程。
@@ -1331,101 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱以前規劃作商業地未來或可改住宅地
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793372_1_20250226214659.jpg&q=10)
-  
-
-預算案提出來年不會推售商業地，財政司司長陳茂波表示，疫情後辦公方式及商業模式均出現變化，市場上亦多了很多電商，反而形成一種契機，以前規劃用作商業用途的土地，未來或可改成住宅用地。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793372-20250226.htm)
-
----
-
-# 中金公司、中國銀河澄清合併傳聞：未得到任何書面或口頭信息
-
-![市傳中金公司和中國銀河進行合併，兩間公司分別澄清指，未得到任何來自政府部門、監管機構或公司股東就相關傳聞的書面或口頭信息。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793371_1_20250226211631.jpg&q=90)
-  
-
-對於市傳中金公司和中國銀河進行合併，兩間公司分別澄清指，未得到任何來自政府部門、監管機構或公司股東就相關傳聞的書面或口頭信息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793371-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波：財政儲備不錯　有實力應對突發情況
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793369_1_20250226214615.jpg&q=80)
-  
-
-財政司司長陳茂波出席電視論壇時，被問到來年財政儲備達到5800多億，等於8個月的政府開支，如果再出現另一場疫症，是否有足夠抵禦能力，陳茂波說，現時財政儲備水平不錯，相信未來隨著經濟持續增長，經營帳目錄得盈餘，政府多善用市場資源投入長期基建項目，可以保持一定水平的財政儲備，相信有足夠實力應對任何突如來襲的情況。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793369-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793368_1_20250226214637.jpg&q=80)
-  
-
-預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
 
 ---
