@@ -1,4 +1,28 @@
+# 敘利亞庫爾德人部隊指揮官稱厄賈蘭的呼籲只為了庫爾德工人黨
+
+在敘利亞由庫爾德人領導的部隊指揮官阿卜迪，回應庫爾德工人黨領導人厄賈蘭提出庫爾德工人黨應解散，以及所有武裝團體應放下武器的呼籲，指出厄賈蘭在親筆信中強調地區和平與安全，並呼籲結束戰爭及停止衝突，在土耳其境內啟動和平政治，內容非常積極，
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm)
+
+---
+
 # 特朗普白宮晤施紀賢　西翼外握手並向傳媒微笑
+
+![特朗普（左）在白宮西翼門外迎接施紀賢（右）。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793568_1_20250228021408.jpg&q=90)
+  
 
 美國總統特朗普在白宮會見到訪的英國首相施紀賢。
 
@@ -105,6 +129,9 @@
 
 # 阿富汗多地大雨及落雹引發洪水及山泥傾瀉釀多人死傷
 
+![受強降雨影響，阿富汗坎達哈省遭遇洪災。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793562_1_20250228021757.jpg&q=40)
+  
+
 阿富汗多地近日出現強降雨天氣，引發洪水及山泥傾瀉等自然災害，當局指洪災和落雹災情已導致當地最少39人死亡。
 
   
@@ -125,6 +152,9 @@
 ---
 
 # 猴痘疫情續構成國際關注的突發公共衞生事件
+
+![譚德塞在國際衞生條例緊急委員會開會後，接受委員會建議宣布有關決定。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793561_1_20250228021207.jpg&q=90)
+  
 
 世界衞生組織總幹事譚德塞說，猴痘疫情仍然構成國際關注的突發公共衞生事件。
 
@@ -1387,26 +1417,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm)
-
----
-
-# 國防部：堅決反對美國任何形式的對台軍事聯繫
-
-有傳台灣當局計劃向美國購買70億至100億美元武器，在北京，國防部新聞發言人吳謙強調，台灣問題純屬中國內政，堅決反對美國任何形式的對台軍事聯繫。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm)
 
 ---
