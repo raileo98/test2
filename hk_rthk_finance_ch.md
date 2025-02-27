@@ -1,5 +1,10 @@
 # 財政預算案2025｜孫東稱香港人工智能研發院最快明年開始運作
 
+![孫東說，香港人工智能研發院最快明年開始運作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793484_1_20250227153725.jpg&q=85)
+  
+  
+
+
 ---
 
 原始網址 Original URL：
