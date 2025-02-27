@@ -1,3 +1,24 @@
+# 領導人厄賈蘭籲庫爾德工人黨解散及所有武裝團體放下武器
+
+目前在監獄的庫爾德工人黨領導人厄賈蘭在親筆信中，明確提出庫爾德工人黨應召開大會並宣布自行解散，呼籲所有武裝團體應放下武器。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm)
+
+---
+
 # 聯合國指蘇丹因武裝衝突面臨嚴重人道主義危機促國際社會採取行動
 
 聯合國人權事務高級專員圖爾克警告，蘇丹面臨嚴重人道主義危機，局勢危急，迫切需要國際社會採取行動。
@@ -1396,29 +1417,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
-
----
-
-# 財政預算案2025｜許正宇：一直與評級機構密切聯繫
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
-  
-
-財經事務及庫務局局長許正宇出席財政預算案相關措施記者會時表示，政府一直有與評級機構進行密切聯繫，確保它們知道本港具體情況、發債計劃及財政管理邏輯。他重申，政府債務水平相對其他經濟體屬非常可控水平，債務只佔本地生產總值（GDP）不足17%，發債主要用於支持基礎建設以及工務工程，絕不會用作日常開支。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm)
 
 ---

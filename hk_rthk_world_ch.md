@@ -1,3 +1,24 @@
+# 領導人厄賈蘭籲庫爾德工人黨解散及所有武裝團體放下武器
+
+目前在監獄的庫爾德工人黨領導人厄賈蘭在親筆信中，明確提出庫爾德工人黨應召開大會並宣布自行解散，呼籲所有武裝團體應放下武器。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm)
+
+---
+
 # 聯合國指蘇丹因武裝衝突面臨嚴重人道主義危機促國際社會採取行動
 
 聯合國人權事務高級專員圖爾克警告，蘇丹面臨嚴重人道主義危機，局勢危急，迫切需要國際社會採取行動。
@@ -1402,29 +1423,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793288-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793288-20250226.htm)
-
----
-
-# 財政預算案2025｜李家超稱預算案為經濟發展塑造新動能新優勢
-
-![李家超指預算案提出多項措施，與施政報告的方向一致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793263_1_20250226142911.jpg&q=75)
-  
-
-行政長官李家超表示，新一份財政預算案就香港經濟發展和公共財政整合，提出一系列實際和有效措施，鞏固政府的財政實力，並為香港的經濟發展塑造新動能和新優勢。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm)
 
 ---
