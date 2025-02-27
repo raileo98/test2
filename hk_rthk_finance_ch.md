@@ -1,227 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:57:49 +0000webmaster@rthk.hk財政預算案2025｜籃球博彩稅料每年15億至20億元收入https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm<img alt="陳茂波說，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793311\_1\_20250226170301.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政預算案提出政府將積極探討規範籃球博彩活動，並邀請馬會提交建議。
-<br>
-<br/>
-財政司司長陳茂波在記者會被問到有無制定籃球博彩合法化的時間表，以及長遠會否考慮開徵銷售稅或其他稅項。陳茂波回應說，留意到現時有不少關於籃球賭博的非法投注活動，如果引入籃球博彩稅，粗略估計每年可為政府帶來15億至20億港元收入。
-<br/>
-<br/>
-對於是否引入新稅項，陳茂波說，原則是引入任何稅務措施時，必須考慮香港在吸引投資和人才方面的競爭力，並要盡量減少對市民的影響，強調目前無意引入任何形式的商品服務稅或銷售稅。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793311-20250226.htmWed, 26 Feb 2025 16:07:00 +0800財政預算案2025｜陳克勤相信凍薪已平衡公務員士氣及社會要求https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htm<img alt="陳克勤相信政府決定凍薪已平衡公務員士氣和社會要求等各項因素。（鄧鈞尤攝）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793312\_1\_20250226170325.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政預算案提出行政、立法、司法機關、區議員及全體公務員，在2025/26年度一致凍薪。
-<br>
-<br/>
-民建聯主席陳克勤相信，政府決定凍薪已平衡公務員士氣和社會要求等各項因素，以往凍薪安排主要應用於公務員或政治任命官員，今次涵蓋區議會和立法機關等，體現不同方面對財赤均有承擔。
-<br/>
-<br/>
-削減人手方面，陳克勤說，需要交由政策局局長或常任秘書長考慮可以精簡的人手崗位，認為政府很多諮詢架構秘書處有不少公務員提供支援，如果可以重組相關架構，即時可節省人手提供其他公共服務。
-<br/>
-<br/>
-對於預算案提出調整「二元優惠計劃」，議員李世榮說，理解措施有助節省開支，紓緩政府財政壓力，但需要乘搭長途車的偏遠地區居民或受影響，他們原本車費較貴，新方案下只能享兩折優惠，加重出行交通費負擔，建議公共交通營辦商承擔一定責任，為他們增加「免費乘車日」等優惠。
-<br/>
-<br/>
-議員葛珮帆說，樂見預算案大篇幅在創新科技投入資源，涵蓋智慧城市和低空經濟，認為是投資「未來」和「現在」。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793312-20250226.htmWed, 26 Feb 2025 16:09:00 +0800【預算案一文看清】民生相關措施https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htm<img alt="【預算案一文看清】民生相關措施" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793299\_1\_20250226164025.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-<b>
-財政預算案民生相關措施
-</b>
-<br>
-<br/>
-<b>
-寬減稅務
-</b>
-<br/>
-<br/>
--寬減2024/25課稅年度100%薪俸稅和個人入息課稅，上限1500元
-<br/>
-<br/>
--寬減2024/25課稅年度100%利得稅，上限1500元
-<br/>
-<br/>
--寬減2025/26年度首季住宅及非住宅物業差餉，每戶上限500元
-<br/>
-<br/>
--綜援、生果金、長者生活津貼、傷殘津貼等，額外發放半個月金額
-<br/>
-<br/>
--價值400萬元以下物業，印花稅劃一100元，即日生效
-<br/>
-<br/>
-<br/>
-<b>
-削減補貼
-</b>
-<br/>
-<br/>
--2元乘車優惠每月限坐240程，10元以上車費變「兩折」
-<br/>
-<br/>
--公共交通費用補貼計劃6月起領取門檻提高至每月開支500元
-<br/>
-<br/>
--下學年起取消中小幼學生2500元津貼
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793299-20250226.htmWed, 26 Feb 2025 16:10:00 +0800【預算案一文看清】嚴控政府開支https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm<img alt="【預算案一文看清】嚴控政府開支" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793307\_1\_20250226182327.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-<b>
-財政預算案2025嚴控政府開支
-</b>
-<br>
-<br/>
-2024/25年度綜合赤字預計為872億元
-<br/>
-<br/>
-政府財政儲備6473億元
-<br/>
-<br/>
-未來5個財政年度擬每年發債1500億至1950億元
-<br/>
-<br/>
-<b>
-著力節流
-</b>
-<br/>
-<br/>
--推「強化版」財政整合計劃，至2027/28年度累計減經常開支7%
-<br/>
-<br/>
--行政長官、問責官員、全體公務員、立法會議員等2025/26年度凍薪
-<br/>
-<br/>
--公務員編制2026年度起連續兩年減2%
-<br/>
-<br/>
--本屆政府任期內削減約1萬個職位
-<br/>
-<br/>
-<b>
-致力開源
-</b>
-<br/>
-<br/>
--2025/26年度第三季起飛機離境稅加至200元
-<br/>
-<br/>
--研推陸路邊境建設費，若每輛私家車收200元，每年收入達10億元
-<br/>
-<br/>
--研規範籃球博彩活動
-<br/>
-<br/>
--檢討電動車牌費、咪錶收費
-<br/>
-<br/>
--檢討「牛肉乾」定額罰款
-<br/>
-<br/>
--檢討各政府隧道及主幹道收費
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793307-20250226.htmWed, 26 Feb 2025 16:11:00 +0800財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm<img alt="陳茂波稱北都前期投入多，較後年份收回收益。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793313\_1\_20250226170620.jpg&amp;q=75" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波表示，特區政府一直發短期債，因為短期債息口較便宜，加上特區政府財政狀況強，如要發債，隨時可發行並被市場吸納。他指出，針對北部都會區項目，前期投入會較多，收益在較後年份收回，當局會積極研究發長期債券。
-<br>
-<br/>
-預算案預測，政府經營帳目在2025/26年度大致達致平衡，2026/27年度恢復盈餘。陳茂波表示，即使經濟周期波動，但本港的薪俸稅及利得稅收入相當平衡，本港經濟韌性強，而政府推動財政整合計劃，削減開支並嚴控政府人手編制增長，因此在收入增加及開支增幅放慢時，可讓經營帳目較早達致平衡。
-<br/>
-<br/>
-陳茂波又表示，因加快推動北都發展，需要長期資金，當局日後除了有賣地收入支持，亦會通過發債支持現金流的差異。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htmWed, 26 Feb 2025 16:16:00 +0800財政預算案2025｜消息稱數年內就調整交通牌費及罰款提出建議https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htm<img alt="財政將檢視停車收費錶、交通違例定額罰款、隧道收費等。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793314\_1\_20250226170350.jpg&amp;q=80" style="width:100%;height:auto"/>
+rthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=rthk - 財經© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 財經https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=5&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 00:52:22 +0000webmaster@rthk.hk財政預算案2025｜消息稱數年內就調整交通牌費及罰款提出建議https://news.rthk.hk/rthk/ch/component/k2/1793314-20250226.htm<img alt="財政將檢視停車收費錶、交通違例定額罰款、隧道收費等。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793314\_1\_20250226170350.jpg&amp;q=80" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 財政預算案提出，檢視電動私家車牌照費、停車收費錶、交通違例定額罰款、隧道及主幹道收費。政府消息人士指，這些收費已多年沒有調整，是時候檢視，例如違例泊車定額罰款上一次調整是1994年。
@@ -874,60 +652,7 @@ https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-<br>
-<br/>
-政府又預計下年度地價收入預算為210億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
-<br>
-<br/>
-財政儲備在下財政年度結束時，將跌至5803億元，相當於8個月政府開支。
-<br/>
-<br/>
-政府預計2025/26起的5年間，每年發債1500億至1950億元，支持未來發展項目，並考慮為北都項目發長期債券。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htmWed, 26 Feb 2025 18:42:00 +0800信置中期業績少賺30%　派息維持15仙https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm<img alt="信置中期盈利按年跌30%，撇除投資物業公平值變動影響後，基礎盈利跌近24%。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793332\_1\_20250226174900.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 信置截至去年底中期盈利按年跌30%至18.2億元，中期息維持每股0.15元。撇除投資物業公平值變動影響後，基礎盈利跌近24%至22.4億元。
@@ -958,7 +683,60 @@ https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793332-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm<img alt="政府本財政年度綜合赤字預計為872億元。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793349\_1\_20250226190753.jpg&amp;q=60" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
+<br>
+<br/>
+財政儲備在下財政年度結束時，將跌至5803億元，相當於8個月政府開支。
+<br/>
+<br/>
+政府預計2025/26起的5年間，每年發債1500億至1950億元，支持未來發展項目，並考慮為北都項目發長期債券。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
+<br>
+<br/>
+政府又預計下年度地價收入預算為210億元。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
@@ -1821,4 +1599,127 @@ https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htmThu, 27 Feb 2025 07:23:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htmThu, 27 Feb 2025 07:23:00 +0800財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm<br/>
+<div class="itemFullText">
+財政預算案提出，政府預計2025/26起的5年間，每年發債1500億至1950億元。財政司司長陳茂波表示，發債得到的錢不是用作支付經常開支，而是用作投資基建，強調香港要掌握發展的機遇期，投資未來，而創科企業及傳統產業都需要大力做好，令本港加速發展。
+<br>
+<br/>
+在財政預算案中，區分經營帳目及非經營帳目，陳茂波出席電台聯播節目時說，經營帳目是支付日常開支，因此要力求平衡及要有盈餘；至於非經營帳目，主要是用作投資未來，由於未來幾年本港加大經濟容量，因此這方面在未來幾年會有些赤字，但赤字會收窄，相信稍後時間可以恢復平衡。
+<br/>
+<br/>
+他又說，有與各評級機構溝通，對方重視本港有無掌握好未來發展機會，以及是否有計劃令赤字收窄，並逐步將財政回復平衡。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htmThu, 27 Feb 2025 08:15:00 +0800日股初段靠穩https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm<img alt="日經指數較早時報38168點，升25點。（日本交易所JPX圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793418\_1\_20250227081544.jpg&amp;q=40" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+東京股市初段靠穩。
+<br>
+<br/>
+日經指數較早時報38168點，升25點。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htmThu, 27 Feb 2025 08:19:00 +0800韓股初段跌約0.5%https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm<img alt="首爾綜合指數較早時報2628點，跌12點，跌幅0.47%。（KRX圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793420\_1\_20250227081729.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+南韓股市初段下跌。
+<br>
+<br/>
+首爾綜合指數較早時報2628點，跌12點，跌幅0.47%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htmThu, 27 Feb 2025 08:19:00 +0800財政預算案2025｜陳茂波：調整2元乘車優惠簡單易明容易計數https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm<br/>
+<div class="itemFullText">
+預算案公布調整二元乘車優惠計劃，受惠對象不變，新增每月240程限制，10元以上改為全額車費「兩折」。有聽衆致電司長熱線電台聯播節目，問及行程設限原因，有聽衆則表示，應該考慮全部行程兩折優惠。
+<br>
+<br/>
+財政司司長陳茂波表示，有關計劃得到社會廣泛認同，幫助長者多點外出走動，形容非常深入民心，因此要維持，同時加入每月240程的限制，以控制未來開支增幅，到2027/28年度全面實施後，可以省錢，認為是比較合適的做法。而10元以下車費維持2元，簡單易明，比較方便，政府計算補貼亦比較容易。
+<br/>
+<br/>
+至於每月240程有甚麼考慮，陳茂波表示，過去數字顯示使用的人士未必很多，亦要盡可能寬鬆及兼顧需要，因為部分人住得比較遠，60歲仍很年輕，尚在工作，亦有長者要外出探病或照顧孫兒。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htmThu, 27 Feb 2025 08:28:00 +0800財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm<br/>
+<div class="itemFullText">
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htmThu, 27 Feb 2025 08:48:00 +0800

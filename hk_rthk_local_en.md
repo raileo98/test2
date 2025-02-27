@@ -1,45 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:57:48 +0000webmaster@rthk.hkPost-production suits Kai Tak opening better: govthttps://news.rthk.hk/rthk/en/component/k2/1792587-20250221.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792587\_1\_20250221113347.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-Secretary for Culture, Sports and Tourism Rosanna Law on Friday said a recording of the opening ceremony for Kai Tak Sports Park will be aired after editing in order to provide the best viewer experience.
-<br>
-<br/>
-The opening show will be held at 6.30pm on March 1. It will be shown by four TV channels at 9.30pm.
-<br/>
-<br/>
-On an RTHK radio programme, Law stressed that the arrangement is not due to technical constraints, but is to coordinate the transition between different scenes.
-<br/>
-<br/>
-"We hope to air the programme in one go, so viewers can enjoy a packed programme. After having many considerations, we think going for post-production is better," she said.
-<br/>
-<br/>
-Asked about claims that post-production demonstrates a lack of professionalism, the minister said there are many ways to show how magnificent and beautiful the sports park is.
-<br/>
-<br/>
-"We have a strong performance line-up, and they have various collaborations and crossovers," she said.
-<br/>
-<br/>
-Law added that apart from the line-up already announced, including Hong Kong singers Joey Yung and MC Cheung, and fencing star Vivian Kong, special guests may also feature in the ceremony.
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/en/component/k2/1792587-20250221.htm" rel="nofollow">
-https://news.rthk.hk/rthk/en/component/k2/1792587-20250221.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1792587-20250221.htmFri, 21 Feb 2025 11:39:00 +0800School bus driver dies in Ma On Shan crashhttps://news.rthk.hk/rthk/en/component/k2/1792591-20250221.htm<img alt="Police say the 78-year-old school bus driver died after reportedly crashing into a railing. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792591\_1\_20250221114604.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=rthk - Local© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - Localhttps://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=en-GB&cat=8&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 00:52:24 +0000webmaster@rthk.hkSchool bus driver dies in Ma On Shan crashhttps://news.rthk.hk/rthk/en/component/k2/1792591-20250221.htm<img alt="Police say the 78-year-old school bus driver died after reportedly crashing into a railing. File photo: RTHK" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1792591\_1\_20250221114604.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 Police on Friday said they were investigating a traffic accident in Ma On Shan which left a school bus driver dead.
@@ -2824,4 +2784,47 @@ https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htmWed, 26 Feb 2025 21:52:00 +0800
+</p>https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htmWed, 26 Feb 2025 21:52:00 +0800'More plans to develop sailing facilities needed'https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm<img alt="The head of Hong Kong's yacht club says the SAR and the surrounding area boast one of the best coastlines in the world. File photo: AFP" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793423\_1\_20250227084713.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+The sailing industry on Thursday said they welcomed Financial Secretary Paul Chan’s plan to build a new waterfront landmark in Hung Hom, with a yacht club mooted there.
+<br>
+<br/>
+Delivering his budget speech the day before, Chan said the MTR Corporation has been asked to conduct a study to develop an area south of Hung Hom Station, as well as nearby pier sites.
+<br/>
+<br/>
+"This is definitely good news to promote yachting and yachting tourism in Hong Kong," the Commodore of the Royal Hong Kong Yacht Club Adrian Pang told RTHK’s Hong Kong Today programme.
+<br/>
+<br/>
+Pang said that currently, Hong Kong lacks berths and moorings for boats that want to visit the SAR, adding that authorities can do more to provide land for yachting.
+<br/>
+<br/>
+He also pointed out the city’s geography means there is a lot of potential in developing the sailing industry.
+<br/>
+<br/>
+"If you look at Hong Kong, we are unique in a sense that if you look at the Greater Bay Area, we have the most beautiful coastline, we have all the ecoparks."
+<br/>
+<br/>
+Authorities want the Hung Hom landmark to also include "iconic commercial and residential developments, retail, dining and entertainment facilities".
+<br/>
+<br/>
+"I welcome the government to do more studies and hopefully we can develop more sites," Pang added.
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htmThu, 27 Feb 2025 08:47:00 +0800

@@ -1,214 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKWed, 26 Feb 2025 23:57:49 +0000webmaster@rthk.hk財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm<img alt="政府來年將不會推售商業用地。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793350\_1\_20250226190943.jpg&amp;q=15" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-<br>
-<br/>
-政府又預計下年度地價收入預算為210億元。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htmWed, 26 Feb 2025 18:46:00 +0800財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm<img alt="江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793352\_1\_20250226191242.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
-<br>
-<br/>
-江玉歡又期望政府就跨境鐵路項目提前規劃和進行全面影響評估，不應單考慮區域融合的積極影響，應正視可能帶來的挑戰。
-<br/>
-<br/>
-社福界立法會議員狄志遠表示，財政預算案展現政府改革的決心，但照顧基層方面存在不足，應平衡開源節流和民生需要。他又說現時長者輪候院舍需時以年計，照顧者缺乏支援，如再削減社福開支將直接影響基層市民生活質素。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htmWed, 26 Feb 2025 18:50:00 +0800財政預算案2025｜倡推進上市制度改革　優化互聯互通機制https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793346\_1\_20250226185149.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-為鞏固香港作為國際金融中心的地位，《財政預算案》提出多項推動金融發展措施，包括推進上市制度改革，審視上市要求和上市後持續責任檢視上市規例和安排，改善審批流程等。
-<br>
-<br/>
-政府亦會繼續與內地優化互聯互通機制，包括在香港推出離岸國債期貨；人民銀行與金管局亦正積極落實兩地快速支付系統的互聯，預計最快年中推出兩地居民全天候即時小額跨境匯款服務。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htmWed, 26 Feb 2025 18:51:00 +0800財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm<img alt="財庫局局長許正宇將在本周稍後主持記者會，介紹《財政預算案》中有關金融發展各項政策措施。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793343\_1\_20250226182951.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財經事務及庫務局表示，財政司司長陳茂波今日發表2025至26年度《財政預算案》。金融是推動實體經濟發展重要支柱，財庫局將透過5大範疇策略部署，在「一國兩制」獨特優勢下，全方位鞏固香港國際金融中心地位，確保在全球金融市場中保持領先。
-<br>
-<br/>
-財庫局在社交媒體上表示，5大範疇包括股市及新股市場蓬勃發展、財富管理與資產管理卓越成就、金融科技與創新驅動、互聯互通與國際合作深化，以及制度改革持續推進。
-<br/>
-<br/>
-財經事務及庫務局局長許正宇將在本周稍後，主持記者會向公眾介紹《財政預算案》中有關金融發展各項政策措施。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htmWed, 26 Feb 2025 18:53:00 +0800無業女子被捕涉行使偽鈔　用非洲國家舊外幣印港幣字樣https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm<img alt="警方提醒市民在接收或找贖鈔票時，務必仔細檢查鈔票的防偽特徵。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793355\_1\_20250226191427.jpg&amp;q=25" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-警方拘捕一名39歲無業女子，涉及3宗行使偽鈔案，她正被扣留調查，明日在九龍城裁判法院提堂。
-<br>
-<br/>
-3宗案件發生在上月底至周日，位於油麻地及尖沙咀的不同超級市場，收到來自客人的港幣500元懷疑偽鈔。警方調查發現，疑犯以500元大額偽鈔，在商店購買價值較少的商品，從而騙取商品及現金找贖。涉案的三張偽鈔中，有兩張是以真鈔作為藍本打印，另一張是以真鈔但價值低的非洲國家舊外幣，在上面直接打印「港幣$500」等字樣。
-<br/>
-<br/>
-警方提醒市民在接收或找贖鈔票時，務必仔細檢查鈔票的防偽特徵，又指騙徒常利用人多繁忙的時段，趁店員不注意的時候使用偽鈔，市民應加倍留神。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htmWed, 26 Feb 2025 18:54:00 +0800財政預算案2025｜下年度赤字料達670億元https://news.rthk.hk/rthk/ch/component/k2/1793354-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793354\_1\_20250226185915.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-《財政預算案》提到，2024/25年度的修訂預算，綜合赤字是872億元。財政儲備在今年3月底，預計是6473億元。至於2025/26年度財政預算，年度赤字預計為670億元，財政儲備將下降至5803億元。
-<br>
-<br/>
-另外，財政司司長陳茂波預測，香港經濟在今年會繼續溫和增長，全年實質增長介乎2%至3%。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793354-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793354-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793354-20250226.htmWed, 26 Feb 2025 18:59:00 +0800財政預算案2025｜公務員凍薪編制削減　陳茂波指決定合適https://news.rthk.hk/rthk/ch/component/k2/1793337-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793337\_1\_20250226190153.jpg&amp;q=85" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-《財政預算案》公布，公務員編制將在2026/27及2027/28年度，每年分別減2%，預計到2027年4月1日，在本屆政府任期內將削減約1萬個職位；同時，提出在2025/26年度，所有行政、立法、司法機關及區議會全體人員一致凍薪，包括行政長官、政治委任官員及全體公務員等。另外，政府經常開支削減幅度由原來1%，到2025/26年度增至2%，並且延續措施兩年。
-<br>
-<br/>
-財政司司長陳茂波表示，凍薪決定得到公務員支持、理解。他表示，綜合考慮過本港經濟增長勢頭，及政府推出加強版「財政整合計劃」等因素，認為凍薪決定合適。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793337-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793337-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793337-20250226.htmWed, 26 Feb 2025 19:01:00 +0800財政預算案2025｜五年間將每年發債約1500億至1950億https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793351\_1\_20250226190236.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波預計2025/26起的五年間，政府每年發債券約1500億元至1950億元，以支持未來發展項目。他提到未來幾年北部都會區相關工程將陸續展開，加上其他與經濟民生相關的基建工程，政府的基本工程開支將進入高峰期。中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來平均每年約1200億元。為確保這些策略性基建工程項目按時推展，早日惠及經濟民生，會更靈活善用市場資源，也會通過發行政府債券融資，確保對香港未來發展至關重要的項目進度，不會因公共財政狀況而受到制約。
-<br>
-<br/>
-陳茂波強調政府發債所得資金是用在基建投資，不會用於支付政府經常開支，是一直嚴守的財政紀律。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793351-20250226.htmWed, 26 Feb 2025 19:02:00 +0800哈馬斯周四移交4具以色列人質遺體　以色列同時將釋放600巴人https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htm<img alt="以色列有大批民眾在馬路送別遇難人質。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793357\_1\_20250226190126.jpg&amp;q=45" style="width:100%;height:auto"/>
+rthkhttps://news.rthk.hk/rthk/ch/latest-news.htmrthk© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthkhttps://news.rthk.hk/rthk/ch/latest-news.htmzh-HKThu, 27 Feb 2025 00:52:23 +0000webmaster@rthk.hk哈馬斯周四移交4具以色列人質遺體　以色列同時將釋放600巴人https://news.rthk.hk/rthk/ch/component/k2/1793357-20250226.htm<img alt="以色列有大批民眾在馬路送別遇難人質。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793357\_1\_20250226190126.jpg&amp;q=45" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 巴勒斯坦武裝組織哈馬斯表示，將於星期四移交4名以色列人質的遺體，以色列同時會釋放602名巴勒斯坦囚犯。
@@ -1745,4 +1536,204 @@ https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htmThu, 27 Feb 2025 07:23:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htmThu, 27 Feb 2025 07:23:00 +0800哈馬斯向以色列移交4名被扣押人員遺體https://news.rthk.hk/rthk/ch/component/k2/1793416-20250227.htm<img alt="載有巴勒斯坦被扣押人員的巴士抵達約旦河西岸。（路透社）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793416\_1\_20250227083611.jpg&amp;q=80" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+以色列傳媒報道，巴勒斯坦武裝組織哈馬斯已向紅十字國際委員會移交4名以色列被扣押人員的遺體，以色列將釋放超過600名被關押的巴勒斯坦人。
+<br>
+<br/>
+報道說，紅十字國際委員會在加沙南部的凱雷姆沙洛姆口岸將遺體轉交給以軍。同時，一輛載有巴勒斯坦被扣押人員的巴士駛離約旦河西岸的監獄。
+<br/>
+<br/>
+新華社引述以方安全官員表示，今次獲釋的巴勒斯坦囚犯，其中約一半在遺體移交給以方時獲釋，另一半將在以方完成確認遺體身份後獲釋。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793416-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793416-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793416-20250227.htmThu, 27 Feb 2025 08:14:00 +0800財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm<br/>
+<div class="itemFullText">
+財政預算案提出，政府預計2025/26起的5年間，每年發債1500億至1950億元。財政司司長陳茂波表示，發債得到的錢不是用作支付經常開支，而是用作投資基建，強調香港要掌握發展的機遇期，投資未來，而創科企業及傳統產業都需要大力做好，令本港加速發展。
+<br>
+<br/>
+在財政預算案中，區分經營帳目及非經營帳目，陳茂波出席電台聯播節目時說，經營帳目是支付日常開支，因此要力求平衡及要有盈餘；至於非經營帳目，主要是用作投資未來，由於未來幾年本港加大經濟容量，因此這方面在未來幾年會有些赤字，但赤字會收窄，相信稍後時間可以恢復平衡。
+<br/>
+<br/>
+他又說，有與各評級機構溝通，對方重視本港有無掌握好未來發展機會，以及是否有計劃令赤字收窄，並逐步將財政回復平衡。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htmThu, 27 Feb 2025 08:15:00 +0800日股初段靠穩https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm<img alt="日經指數較早時報38168點，升25點。（日本交易所JPX圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793418\_1\_20250227081544.jpg&amp;q=40" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+東京股市初段靠穩。
+<br>
+<br/>
+日經指數較早時報38168點，升25點。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htmThu, 27 Feb 2025 08:19:00 +0800韓股初段跌約0.5%https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm<img alt="首爾綜合指數較早時報2628點，跌12點，跌幅0.47%。（KRX圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793420\_1\_20250227081729.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+南韓股市初段下跌。
+<br>
+<br/>
+首爾綜合指數較早時報2628點，跌12點，跌幅0.47%。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htmThu, 27 Feb 2025 08:19:00 +0800財政預算案2025｜陳茂波：調整2元乘車優惠簡單易明容易計數https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm<br/>
+<div class="itemFullText">
+預算案公布調整二元乘車優惠計劃，受惠對象不變，新增每月240程限制，10元以上改為全額車費「兩折」。有聽衆致電司長熱線電台聯播節目，問及行程設限原因，有聽衆則表示，應該考慮全部行程兩折優惠。
+<br>
+<br/>
+財政司司長陳茂波表示，有關計劃得到社會廣泛認同，幫助長者多點外出走動，形容非常深入民心，因此要維持，同時加入每月240程的限制，以控制未來開支增幅，到2027/28年度全面實施後，可以省錢，認為是比較合適的做法。而10元以下車費維持2元，簡單易明，比較方便，政府計算補貼亦比較容易。
+<br/>
+<br/>
+至於每月240程有甚麼考慮，陳茂波表示，過去數字顯示使用的人士未必很多，亦要盡可能寬鬆及兼顧需要，因為部分人住得比較遠，60歲仍很年輕，尚在工作，亦有長者要外出探病或照顧孫兒。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htmThu, 27 Feb 2025 08:28:00 +0800元朗公路元朗方向近十八鄉交匯處七車相撞https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm<br/>
+<div class="itemFullText">
+元朗公路往元朗方向近十八鄉交匯處發生七車相撞意外，涉及貨車和私家車，其中一輛輕型貨車司機被困，其後被救出。另外一名私家車女乘客報稱心口痛，有傷者要送往博愛醫院治理。
+<br>
+<br/>
+元朗公路近十八鄉交匯處部分行車線一度需要封閉。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htmThu, 27 Feb 2025 08:29:00 +0800財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm<br/>
+<div class="itemFullText">
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htmThu, 27 Feb 2025 08:48:00 +0800《環看天下》：美歐就獲烏克蘭礦產各提協議　分析：美歐嫌隙加深https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm<img alt="俄烏新一輪衝突進入第三年。在德國柏林，大批民眾民眾舉行集會，拉起象徵烏克蘭國旗的大型旗幟，聲援基輔政府。(路透社)" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793425\_1\_20250227084903.jpg&amp;q=90" style="width:100%;height:auto"/>
+<br/>
+<div class="itemFullText">
+美國總統特朗普表示，美國和烏克蘭之間的礦產協議即將達成，據報烏克蘭總統澤連斯基最快星期五，可能前往華盛頓簽署協議。歐盟亦提出有關烏克蘭礦產資源的協議，但否認是要同美國競爭。
+<br>
+<br/>
+有分析認為，歐盟同美國近期在處理烏克蘭問題上，分歧明顯進一步加深，不排除雙方近年持續緊密的關係，隨著特朗普第二次入主白宮後，再次受到動搖。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htmThu, 27 Feb 2025 08:49:00 +0800

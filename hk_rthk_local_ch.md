@@ -1,120 +1,5 @@
 xml version='1.0' encoding='UTF-8'?
-rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKWed, 26 Feb 2025 23:57:48 +0000webmaster@rthk.hk財政預算案2025｜消息：「兩蚊兩折」優惠預計明年9月實施https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm<img alt="消息指，有關「兩蚊兩折」優惠，由於要與八達通公司商討系統設計等細節，預計在明年9月才會實施。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793300\_1\_20250226165356.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政預算案公布「二元優惠計劃」調整方案，政府消息人士表示，估計實施後，在2027/28財政年度，將可節省約6億8千萬元，而「兩蚊兩折」優惠，由於要與八達通公司商討系統設計等細節，預計在明年9月實施。
-<br>
-<br/>
-消息人士又說，成人票價10元或以下的路線，佔公共交通路線接近6成，有相當部份受惠者仍舊只須支付2元車費。
-<br/>
-<br/>
-至於「公共交通費用補貼計劃」，消息人士指，領取門檻提升至500元後，平均每個月受惠人數將減少10萬人，預計2025/26財政年度，政府將減少5億4千萬開支。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793300-20250226.htmWed, 26 Feb 2025 15:41:00 +0800財政預算案2025｜經民聯稱官員等帶頭減輕政府負擔屬應有之義https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm<img alt="經民聯立法會議員林健鋒認為，本港面對赤字，官員、立法會和全體公務員帶頭減輕政府負擔，是應有之義，亦符合社會整體期望。" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793301\_1\_20250226163637.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-經民聯認為新一份財政預算案的措施，有助香港全速發展、改革創新和招商引財等。
-<br>
-<br/>
-對於政府提出所有行政、立法、司法機關和區議員及全體公務員凍薪，身兼行會成員的經民聯立法會議員林健鋒認為，本港面對赤字，官員、立法會和全體公務員帶頭減輕政府負擔，是應有之義，亦符合社會整體期望。
-<br/>
-<br/>
-至於問責官員、行會和立法會議員共同凍薪，都是向公眾展示大家有所承擔，他呼籲其他政府資助機構和法定公共機構都跟隨政府做法，不要政府減，他們不減。
-<br/>
-<br/>
-對於公務員編制將縮減一萬個職位，林健鋒認為政府稍微保守，他以新加坡為例，人口與香港相若，但對方的公務員編制遠低於香港，他認為縮減名額有再調整的空間，政府亦應該定期檢討編制，並借鑒商界營商思維，定期評估各部門的工作效率和成果。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htmWed, 26 Feb 2025 15:45:00 +0800財政預算案2025｜入境修訂規例已刊憲由今早11時起生效https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm<img alt="各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793304\_1\_20250226165450.jpg&amp;q=80" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-新一份財政預算案公布，各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費，以反映成本及體現「用者自付」原則。政府為實施有關收費，《2025年入境（修訂）規例》已刊憲，並由今早11時起生效。
-<br>
-<br/>
-由生效時間起，主申請人及其受養人在指明入境計劃下提出每宗入境、改變逗留條件或延長逗留限期申請，均須繳交600元申請費，獲批申請的簽證費用，則由原來劃一收費230元，按簽證/入境證逗留期限長短上調至600元或1300元。
-<br/>
-<br/>
-入境處處長已根據經修訂的《入境規例》，指明收費適用於多項入境計劃，包括高端人才通行證計劃；一般就業政策；輸入內地人才計劃；優秀人才入境計劃；非本地畢業生留港/回港就業安排；輸入中國籍香港永久性居民第二代計劃；新資本投資者入境計劃；資本投資者入境計劃；科技人才入境計劃；及職專畢業生留港計劃。
-<br/>
-<br/>
-除指明計劃外，現時適用於其他類別的簽證/入境證的費用維持不變
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htmWed, 26 Feb 2025 15:52:00 +0800財政預算案2025｜陳茂波冀用者自付原則收回離境設施部分開支https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm<img alt="" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793305\_1\_20250226163059.jpg&amp;q=90" style="width:100%;height:auto"/>
-<br/>
-<div class="itemFullText">
-財政司司長陳茂波表示，政府財政要節流開源，節流方面要考慮和顧及本港競爭力，因本港招商引才，在開新種稅或加稅率時要小心考慮，避免影響競爭力，同時要盡可能減少對市民影響，但過程中有時難以避免，預算案提出研究向由陸路邊境管制站離境的私家車徵收邊境建設費，希望能朝著用者自付原則收回部分開支，有關建議會由相關政策局研究。
-<br>
-<br/>
-陳茂波在記者會被問到預算案對中產人士的影響，他說考慮到政府財政，希望公眾諒解推出的紓緩措施基本上是以往的一半，已在力所能及的範圍內，盡可能推行。
-</br>
-</div>
-<br/>
-<hr/>
-<p>
-原始網址 Original URL：
-<a href="https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm" rel="nofollow">
-https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm
-</a>
-</p>
-<p>
-© rthk.hk
-</p>
-<p>
-電子郵件 Email:
-<a href="mailto:cnews@rthk.hk" rel="nofollow">
-cnews@rthk.hk
-</a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htmWed, 26 Feb 2025 15:55:00 +0800徐立之獲委任為籌備新醫學院工作組專家顧問https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm<img alt="政府委任徐立之為籌備新醫學院工作組專家顧問。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793306\_1\_20250226170023.jpg&amp;q=85" style="width:100%;height:auto"/>
+rthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=rthk - 本地© 香港電台 RTHKhttp://www.rssboard.org/rss-specificationpython-feedgenhttps://wsrv.nl/?n=-1&url=https://news.rthk.hk/rthk/templates/st\_tyneo/favicon\_144x144.pngrthk - 本地https://news.rthk.hk/rthk/webpageCache/services/loadModNewsShowSp2List.php?lang=zh-TW&cat=3&newsCount=60&dayShiftMode=1&archive\_date=zh-HKThu, 27 Feb 2025 00:52:22 +0000webmaster@rthk.hk徐立之獲委任為籌備新醫學院工作組專家顧問https://news.rthk.hk/rthk/ch/component/k2/1793306-20250226.htm<img alt="政府委任徐立之為籌備新醫學院工作組專家顧問。（港台圖片）" referrerpolicy="no-referrer" src="https://wsrv.nl/?n=-1&amp;we&amp;h=1080&amp;output=webp&amp;trim=1&amp;url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile\_1793306\_1\_20250226170023.jpg&amp;q=85" style="width:100%;height:auto"/>
 <br/>
 <div class="itemFullText">
 政府委任徐立之為籌備新醫學院工作組專家顧問。
@@ -1784,4 +1669,101 @@ https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm
 <a href="mailto:cnews@rthk.hk" rel="nofollow">
 cnews@rthk.hk
 </a>
-</p>https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htmWed, 26 Feb 2025 23:41:00 +0800
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htmWed, 26 Feb 2025 23:41:00 +0800財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm<br/>
+<div class="itemFullText">
+財政預算案提出，政府預計2025/26起的5年間，每年發債1500億至1950億元。財政司司長陳茂波表示，發債得到的錢不是用作支付經常開支，而是用作投資基建，強調香港要掌握發展的機遇期，投資未來，而創科企業及傳統產業都需要大力做好，令本港加速發展。
+<br>
+<br/>
+在財政預算案中，區分經營帳目及非經營帳目，陳茂波出席電台聯播節目時說，經營帳目是支付日常開支，因此要力求平衡及要有盈餘；至於非經營帳目，主要是用作投資未來，由於未來幾年本港加大經濟容量，因此這方面在未來幾年會有些赤字，但赤字會收窄，相信稍後時間可以恢復平衡。
+<br/>
+<br/>
+他又說，有與各評級機構溝通，對方重視本港有無掌握好未來發展機會，以及是否有計劃令赤字收窄，並逐步將財政回復平衡。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htmThu, 27 Feb 2025 08:15:00 +0800財政預算案2025｜陳茂波：調整2元乘車優惠簡單易明容易計數https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm<br/>
+<div class="itemFullText">
+預算案公布調整二元乘車優惠計劃，受惠對象不變，新增每月240程限制，10元以上改為全額車費「兩折」。有聽衆致電司長熱線電台聯播節目，問及行程設限原因，有聽衆則表示，應該考慮全部行程兩折優惠。
+<br>
+<br/>
+財政司司長陳茂波表示，有關計劃得到社會廣泛認同，幫助長者多點外出走動，形容非常深入民心，因此要維持，同時加入每月240程的限制，以控制未來開支增幅，到2027/28年度全面實施後，可以省錢，認為是比較合適的做法。而10元以下車費維持2元，簡單易明，比較方便，政府計算補貼亦比較容易。
+<br/>
+<br/>
+至於每月240程有甚麼考慮，陳茂波表示，過去數字顯示使用的人士未必很多，亦要盡可能寬鬆及兼顧需要，因為部分人住得比較遠，60歲仍很年輕，尚在工作，亦有長者要外出探病或照顧孫兒。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htmThu, 27 Feb 2025 08:28:00 +0800元朗公路元朗方向近十八鄉交匯處七車相撞https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm<br/>
+<div class="itemFullText">
+元朗公路往元朗方向近十八鄉交匯處發生七車相撞意外，涉及貨車和私家車，其中一輛輕型貨車司機被困，其後被救出。另外一名私家車女乘客報稱心口痛，有傷者要送往博愛醫院治理。
+<br>
+<br/>
+元朗公路近十八鄉交匯處部分行車線一度需要封閉。
+</br>
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htmThu, 27 Feb 2025 08:29:00 +0800財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm<br/>
+<div class="itemFullText">
+</div>
+<br/>
+<hr/>
+<p>
+原始網址 Original URL：
+<a href="https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm" rel="nofollow">
+https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm
+</a>
+</p>
+<p>
+© rthk.hk
+</p>
+<p>
+電子郵件 Email:
+<a href="mailto:cnews@rthk.hk" rel="nofollow">
+cnews@rthk.hk
+</a>
+</p>https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htmThu, 27 Feb 2025 08:48:00 +0800
