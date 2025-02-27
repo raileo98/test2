@@ -1,4 +1,31 @@
+# 美俄代表土耳其會晤　美方稱很快會知道俄羅斯是否願意真誠接觸
+
+![相信載有俄羅斯代表團成員的車輛，駛入美國駐伊斯坦布爾總領事官邸。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793496_1_20250227164707.jpg&q=25)
+  
+
+俄羅斯代表團到美國駐土耳其伊斯坦布爾總領事官邸，與美方舉行會談，討論有關兩國使館工作的問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm)
+
+---
+
 # 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
+
+![商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793488_1_20250227164810.jpg&q=90)
+  
 
 對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
 
@@ -1408,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm)
-
----
-
-# 財政預算案2025｜引進辦下月公布新一批重點企業名單
-
-![引進重點企業辦公室下月將公布新一批重點企業名單，涉及10多家企業。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793209_1_20250226114050.jpg&q=25)
-  
-
-財政司司長陳茂波發表新一年度財政預算案。他表示，近期多個經濟環節持續改善，政府拼經濟、搶企業、搶人才的努力已取得一定成果表示。引進重點企業辦公室下月將公布新一批重點企業名單，涉及10多家企業。連同早前引進的重點企業，未來數年會在香港合共投資近500億元，創造超過2萬個就業機會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm)
 
 ---

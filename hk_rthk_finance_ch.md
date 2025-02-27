@@ -1,3 +1,40 @@
+# 黃栢鳴涉內幕交易被證監會檢控　獲准保釋下月再訊
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：金融發展既要重量亦要重質
+
+財經事務及庫務局局長許正宇表示，為確保市場穩定和效率，制度改革從未停步，港交所正逐步升級交易後系統，於年底前兼容T+1結算周期，亦會在年內就改善交易單位制度提出建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm)
+
+---
+
 # 「城市景昔」擴展至大坑包括火龍徑蓮花宮西街浣紗街火龍文化館
 
 ![旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設五個指定地點。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793494_1_20250227163515.jpg&q=90)
@@ -119,6 +156,9 @@
 ---
 
 # 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
+
+![商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793488_1_20250227164810.jpg&q=90)
+  
 
 對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
 
@@ -1384,53 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm)
-
----
-
-# 特朗普稱將對歐盟徵收25%關稅
-
-![特朗普指歐盟「佔美國便宜」，以各種理由「拒絕接受美國的汽車和農產品」。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793406_1_20250227053349.jpg&q=90)
-  
-
-美國總統特朗普說，已決定對歐盟徵收25%關稅，適用於汽車和其他各種商品，將很快宣布。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm)
-
----
-
-# 特朗普相信美中關係會是好的關係
-
-![美國總統特朗普相信美中關係會是好的關係，期望中國企業到美國投資。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
-  
-
-美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
 
 ---

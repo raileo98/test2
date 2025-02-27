@@ -1,3 +1,85 @@
+# 黃栢鳴涉內幕交易被證監會檢控　獲准保釋下月再訊
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：金融發展既要重量亦要重質
+
+財經事務及庫務局局長許正宇表示，為確保市場穩定和效率，制度改革從未停步，港交所正逐步升級交易後系統，於年底前兼容T+1結算周期，亦會在年內就改善交易單位制度提出建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm)
+
+---
+
+# 美俄代表土耳其會晤　美方稱很快會知道俄羅斯是否願意真誠接觸
+
+![相信載有俄羅斯代表團成員的車輛，駛入美國駐伊斯坦布爾總領事官邸。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793496_1_20250227164707.jpg&q=25)
+  
+
+俄羅斯代表團到美國駐土耳其伊斯坦布爾總領事官邸，與美方舉行會談，討論有關兩國使館工作的問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793496-20250227.htm)
+
+---
+
+# 國防部：堅決反對美國任何形式的對台軍事聯繫
+
+有傳台灣當局計劃向美國購買70億至100億美元武器，在北京，國防部新聞發言人吳謙強調，台灣問題純屬中國內政，堅決反對美國任何形式的對台軍事聯繫。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm)
+
+---
+
 # 「城市景昔」擴展至大坑包括火龍徑蓮花宮西街浣紗街火龍文化館
 
 ![旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設五個指定地點。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793494_1_20250227163515.jpg&q=90)
@@ -96,6 +178,9 @@
 
 # 國防部：削減核武庫和軍費開支美方應做到「美國優先」
 
+![吳謙說，美國作為擁有最大核武庫的國家，應切實履行核裁軍特殊、優先責任，進一步大幅、實質削減其核武庫。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793490_1_20250227163607.jpg&q=90)
+  
+
 美國總統特朗普近日主動提及計劃同中俄討論削減核武問題，並稱將提議將三國的國防預算削減一半。
 
   
@@ -116,6 +201,9 @@
 ---
 
 # 外交部：美方對中俄關係挑撥離間完全是徒勞
+
+![林劍指美方對中俄關係挑撥離間完全是徒勞的。（外交部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793489_1_20250227163716.jpg&q=90)
+  
 
 在北京，外交部發言人林劍指，中俄作為兩個大國，彼此的關係具有強大的內生動力，不受任何第三方影響。中俄兩國的發展戰略和外交政策是很長遠的，任憑國際風雲變幻，中俄關係都將從容前行。他指美方對中俄關係挑撥離間完全是徒勞的。
 
@@ -161,6 +249,9 @@
 ---
 
 # 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
+
+![商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793488_1_20250227164810.jpg&q=90)
+  
 
 對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
 

@@ -1,3 +1,40 @@
+# 黃栢鳴涉內幕交易被證監會檢控　獲准保釋下月再訊
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793498-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：金融發展既要重量亦要重質
+
+財經事務及庫務局局長許正宇表示，為確保市場穩定和效率，制度改革從未停步，港交所正逐步升級交易後系統，於年底前兼容T+1結算周期，亦會在年內就改善交易單位制度提出建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793497-20250227.htm)
+
+---
+
 # 「城市景昔」擴展至大坑包括火龍徑蓮花宮西街浣紗街火龍文化館
 
 ![旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設五個指定地點。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793494_1_20250227163515.jpg&q=90)
@@ -1389,53 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793355-20250226.htm)
-
----
-
-# 財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先
-
-![財庫局局長許正宇將在本周稍後主持記者會，介紹《財政預算案》中有關金融發展各項政策措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793343_1_20250226182951.jpg&q=80)
-  
-
-財經事務及庫務局表示，財政司司長陳茂波今日發表2025至26年度《財政預算案》。金融是推動實體經濟發展重要支柱，財庫局將透過5大範疇策略部署，在「一國兩制」獨特優勢下，全方位鞏固香港國際金融中心地位，確保在全球金融市場中保持領先。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm)
-
----
-
-# 財政預算案2025｜倡推進上市制度改革　優化互聯互通機制
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793346_1_20250226185149.jpg&q=85)
-  
-
-為鞏固香港作為國際金融中心的地位，《財政預算案》提出多項推動金融發展措施，包括推進上市制度改革，審視上市要求和上市後持續責任檢視上市規例和安排，改善審批流程等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm)
 
 ---
