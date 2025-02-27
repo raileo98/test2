@@ -1,3 +1,51 @@
+# 美國1月二手樓臨時買賣合約指數創新低　因按揭利率及房價高企
+
+![全美不動產協會(NAR)公布，美國1月二手樓臨時買賣合約指數跌至70.6的紀錄低位，按月跌4.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793559_1_20250227232003.jpg&q=35)
+  
+
+美國1月二手樓臨時買賣合約指數創歷史新低，因按揭貸款利率和房價高企打擊購買力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793559-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793559-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793559-20250227.htm)
+
+---
+
+# 赤峰黃金周五起招股　集資最多近32.6億元
+
+![赤峰黃金周五起公開招股，招股價介乎每股13.72至15.83元，每手為200股，入場費約3198元。（公司圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793558_1_20250227230400.jpg&q=90)
+  
+
+內地最大民營黃金生產商赤峰黃金周五起公開招股，集資最多近32.6億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793558-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793558-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793558-20250227.htm)
+
+---
+
 # 美股初段上升　市場關注美國關稅政策
 
 ![道瓊斯指數較早時報43612點，升179點，升幅0.41%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793554_1_20250227224624.jpg&q=90)
@@ -1384,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm)
-
----
-
-# 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
-
-![有立法會議員呼籲政府積極開源，陳茂波表示不希望過分倚賴地價收入。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793447_1_20250227115653.jpg&q=85)
-  
-
-財政司司長陳茂波到立法會財委會簡報財政預算案內容。選委界議員周文港表示，土地及印花稅收入過往佔特區政府收入較大份額，但來年政府估算的目標比較保守，關注政府會否爭取增加有關收入，因為屬於香港難以取代的收入來源。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
-
----
-
-# 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793446_1_20250227123241.jpg&q=80)
-  
-
-世界數字科學院將在香港數碼港籌建「亞太研究院」，聚焦亞太地區的AI治理及相關標準制定。創新科技及工業局局長孫東在成立儀式暨國際人工智能論壇致辭表示，人工智慧是全球科學、經濟和社會發展的關鍵引擎，特區政府高度重視，並投入大量資源推動AI發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
 
 ---

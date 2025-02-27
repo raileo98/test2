@@ -1,3 +1,27 @@
+# 赤峰黃金周五起招股　集資最多近32.6億元
+
+![赤峰黃金周五起公開招股，招股價介乎每股13.72至15.83元，每手為200股，入場費約3198元。（公司圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793558_1_20250227230400.jpg&q=90)
+  
+
+內地最大民營黃金生產商赤峰黃金周五起公開招股，集資最多近32.6億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793558-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793558-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793558-20250227.htm)
+
+---
+
 # 學生能力國際評估計劃主測試將舉行　蔡若蓮冀學生為港增光
 
 ![蔡若蓮指學校可通過研究深入了解影響學生學習的因素，以制定更有效的教育策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793556_1_20250227230019.jpg&q=90)
