@@ -1,3 +1,27 @@
+# Hong Kong stocks close lower
+
+![The Hang Seng Index finished down 0.3 percent at 23,718. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793499_1_20250227170354.jpg&q=60)
+  
+
+Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.3 percent at 23,718.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm)
+
+---
+
 # HKEX posts record annual profit on rising turnover
 
 ![Hong Kong Exchanges and Clearing (HKEX) posted a record profit for 2024. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793473_1_20250227143726.jpg&q=90)
@@ -1411,29 +1435,5 @@ Traders in China's export manufacturing hub of Yiwu shrugged off US President Do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm)
-
----
-
-# Trump to announce new steel, aluminium tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790961_1_20250210084828.jpg&q=55)
-  
-
-US President Donald Trump said on Sunday he will introduce new 25-percent tariffs on all steel and aluminum imports into the United States, on top of existing metals duties, in another major escalation of his trade policy overhaul.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790961-20250210.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790961-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790961-20250210.htm)
 
 ---

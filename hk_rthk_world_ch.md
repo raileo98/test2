@@ -1,3 +1,24 @@
+# 美國著名演員真赫曼與妻子被發現倒斃寓所
+
+兩項奧斯卡得主，美國著名演員真赫曼死亡，終年95歲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793503-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793503-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793503-20250227.htm)
+
+---
+
 # 美俄代表土耳其會晤　美方稱很快會知道俄羅斯是否願意真誠接觸
 
 ![相信載有俄羅斯代表團成員的車輛，駛入美國駐伊斯坦布爾總領事官邸。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793496_1_20250227164707.jpg&q=25)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm)
-
----
-
-# 國台辦促美方糾正錯誤　停止向「台獨」分裂勢力發錯誤信號
-
-![國台辦敦促美方糾正錯誤，停止發出任何縱容支持「台獨」分裂勢力的錯誤信號。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793208_1_20250226112628.jpg&q=85)
-  
-
-在北京，國台辦回應美國國務院官網近日修改「美台關係」內容，刪除不支持「台獨」表述，發言人朱鳳蓮指出，有關舉動是美方在台灣問題上立場的嚴重倒退，嚴重違反一個中國原則和中美三個聯合公報，粗暴干涉中國內政，向「台獨」分裂勢力發出嚴重錯誤信號，只會損害台海和平穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm)
 
 ---
