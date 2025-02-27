@@ -24,7 +24,7 @@
 
 # 已購啟德體育園開幕禮門票人士陸續前往換領實體票
 
-![已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793461_1_20250227130026.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793461_1_20250227130026.jpg&q=80)
   
 
 啟德體育園本周六晚上舉行開幕典禮，已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票，陸續有市民到場排隊換領。
