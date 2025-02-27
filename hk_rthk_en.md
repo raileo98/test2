@@ -265,10 +265,10 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
 
 # EU was born to 'screw' US, Trump says
 
-![US President Donald Trump hosts his first cabinet meeting with Elon Musk in attendance, Washington DC. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793415_1_20250227075523.jpg&q=75)
+![US President Donald Trump hosts his first cabinet meeting with Elon Musk in attendance. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793415_1_20250227075523.jpg&q=75)
   
 
-President Donald Trump said on Wednesday that the European Union was born to "screw" the United States, laying bare his hostility to the longtime US partner as he detailed new tariffs.
+US President Donald Trump said on Wednesday that the European Union was born to "screw" the United States, laying bare his hostility to the longtime US partner as he detailed new tariffs.
 
   
 
