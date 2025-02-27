@@ -501,23 +501,28 @@ async def process_category(category, url):
     
     # 儲存 RSS XML
     rss_filename = f'{category}.rss.xml'
+    
     async with aiofiles.open(rss_filename, 'w', encoding='utf-8') as file:
         await file.write(soup_rss)
+    
     print(f'{category} RSS 已輸出至 {rss_filename}')
 
     # 將 Markdown 格式文章內容統整，並儲存 Markdown 文件
     md_filename = f'{category}.md'
     md_lines = []
-    md_lines.append(f"# {categories_data[category]['title']} Feed (Markdown Format)")
-    md_lines.append("\n---\n")
+    # md_lines.append(f"# {categories_data[category]['title']} Feed (Markdown Format)")
+    # md_lines.append("\n---\n")
+    
     for article in md_articles:
         md_lines.append(f"## {article['title']}")
         md_lines.append(f"原文連結：[{article['url']}]({article['url']})")
         md_lines.append("\n" + article['markdown'] + "\n")
         md_lines.append("---\n")
     md_str = "\n".join(md_lines)
+    
     async with aiofiles.open(md_filename, 'w', encoding='utf-8') as file:
         await file.write(md_str)
+    
     print(f'{category} Markdown 已輸出至 {md_filename}')
 
 # ------------------------
