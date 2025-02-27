@@ -1,3 +1,27 @@
+# 特區政府強烈譴責及反對美國議員對香港作出毫無事實根據攻擊
+
+![發言人說特區政府會一如既往堅定不移、全面準確實施香港國安法及維護國家安全條例。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793560_1_20250228001842.jpg&q=75)
+  
+
+特區政府強烈譴責美國國會參議院外交關係委員會個別議員，透過提交有關香港特區的所謂決議，對香港作出毫無事實根據的攻擊，以及抹黑香港國安法及維護國家安全條例。特區政府就此等卑劣的政治操作及肆意叫囂，予以強烈譴責及反對，並要求美方立即停止一切貶低香港國際聲譽，粗暴干涉純屬中國內政的香港事務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm)
+
+---
+
 # 學生能力國際評估計劃主測試將舉行　蔡若蓮冀學生為港增光
 
 ![蔡若蓮指學校可通過研究深入了解影響學生學習的因素，以制定更有效的教育策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793556_1_20250227230019.jpg&q=90)
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm)
-
----
-
-# 受元朗公路交通意外影響　九巴及龍運途經路線班次或延誤
-
-![九巴稱。途經現場的巴士路線班次或會有所延誤，部分將臨時改道行駛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793430_1_20250227100732.jpg&q=80)
-  
-
-九巴表示，受元朗公路近十八鄉交匯處交通意外影響，附近一帶交通嚴重擠塞，九巴及龍運途經該處的巴士路線班次或會有所延誤，部分路線將臨時改道行駛。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm)
 
 ---

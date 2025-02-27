@@ -1,3 +1,27 @@
+# 特區政府強烈譴責及反對美國議員對香港作出毫無事實根據攻擊
+
+![發言人說特區政府會一如既往堅定不移、全面準確實施香港國安法及維護國家安全條例。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793560_1_20250228001842.jpg&q=75)
+  
+
+特區政府強烈譴責美國國會參議院外交關係委員會個別議員，透過提交有關香港特區的所謂決議，對香港作出毫無事實根據的攻擊，以及抹黑香港國安法及維護國家安全條例。特區政府就此等卑劣的政治操作及肆意叫囂，予以強烈譴責及反對，並要求美方立即停止一切貶低香港國際聲譽，粗暴干涉純屬中國內政的香港事務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm)
+
+---
+
 # 美國1月二手樓臨時買賣合約指數創新低　因按揭利率及房價高企
 
 ![全美不動產協會(NAR)公布，美國1月二手樓臨時買賣合約指數跌至70.6的紀錄低位，按月跌4.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793559_1_20250227232003.jpg&q=35)
@@ -1405,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm)
-
----
-
-# 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
-
-![商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793488_1_20250227164810.jpg&q=90)
-  
-
-對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm)
 
 ---

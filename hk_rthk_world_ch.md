@@ -1,3 +1,27 @@
+# 特區政府強烈譴責及反對美國議員對香港作出毫無事實根據攻擊
+
+![發言人說特區政府會一如既往堅定不移、全面準確實施香港國安法及維護國家安全條例。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793560_1_20250228001842.jpg&q=75)
+  
+
+特區政府強烈譴責美國國會參議院外交關係委員會個別議員，透過提交有關香港特區的所謂決議，對香港作出毫無事實根據的攻擊，以及抹黑香港國安法及維護國家安全條例。特區政府就此等卑劣的政治操作及肆意叫囂，予以強烈譴責及反對，並要求美方立即停止一切貶低香港國際聲譽，粗暴干涉純屬中國內政的香港事務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm)
+
+---
+
 # 王文濤：中美在經貿領域有分歧正常　應透過平等對話解決各自關切
 
 ![王文濤說，中美在經貿領域存在分歧是正常，應透過平等對話磋商解決各自關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793552_1_20250227222918.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm)
-
----
-
-# 財政預算案2025｜新資本投資者入境計劃料帶來逾260億元
-
-![「新資本投資者入境計劃」累計接獲超過880宗申請，預計帶來超過260億元投資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793234_1_20250226124644.jpg&q=1)
-  
-
-財政司司長陳茂波表示，「新資本投資者入境計劃」累計接獲超過880宗申請，預計帶來超過260億元投資，當局即將推出一系列優化措施，為計劃提供更大彈性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm)
 
 ---
