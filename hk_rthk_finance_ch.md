@@ -1,3 +1,49 @@
+# 銀河娛樂去年多賺28%　派末期息0.5元
+
+![銀河娛樂去年盈利87.6億元，按年升28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793459_1_20250227122804.jpg&q=80)
+  
+
+銀河娛樂去年盈利87.6億元，按年升約28%。派末期息每股0.5元；全年派息1元，按年升2.3倍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793459-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793459-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793459-20250227.htm)
+---
+
+# 港交所：滬深港通日均成交金額創新高
+
+![港股去年日均成交金額1318億元，按年增26%。滬深港通日均成交金額創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793463_1_20250227123813.jpg&q=90)
+  
+
+港交所去年盈利130.5億元，按年增長約10%；收入及其他收益223.74億元，升9%，兩者均創新高。集團宣派第二次中期股息每股4.9元，全年共派息9.26元， 分別按年增長25%和10%，派息比率維持90%水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793463-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793463-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793463-20250227.htm)
+---
+
 # 已購啟德體育園開幕禮門票人士陸續前往換領實體票
 
   
@@ -22,6 +68,7 @@
 
 # 財政預算案2025｜陳茂波：考慮多個因素決定公務員凍薪
 
+![陳茂波說，考慮經濟有增長及強化財政整合計劃等因素，決定公務員凍薪。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793460_1_20250227123947.jpg&q=85)
   
 
 財政司司長陳茂波說，考慮經濟有增長及強化財政整合計劃等因素，決定公務員凍薪，又說如果重推公務員提前離職計劃的「肥雞餐」，要立即支付數十億元，負擔不少。
@@ -44,6 +91,7 @@
 
 # 財政預算案2025｜陳茂波形容陸路離境稅影響面太大可免則免
 
+![陳茂波表示，向市民開徵陸路離境稅的建議影響面太大，形容可免則免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793458_1_20250227123557.jpg&q=65)
   
 
 財政司司長陳茂波表示，向市民開徵陸路離境稅的建議影響面太大，形容可免則免。
@@ -134,6 +182,7 @@
 
 # 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
 
+![美聯物業估計物業稅措施將推動300萬至400萬元物業交投增加至約1萬宗，有助推動「換樓鏈」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793453_1_20250227124101.jpg&q=50)
   
 
 新一年度財政預算案提出，將徵收100元印花稅的物業價值上限由300萬元提高至400萬元，令樓價400萬元的住宅單位印花稅由原來6萬元降至100元。
@@ -1324,50 +1373,4 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm)
----
-
-# 財政預算案2025｜財庫局透過5大範疇策略確保香港全球領先
-
-![財庫局局長許正宇將在本周稍後主持記者會，介紹《財政預算案》中有關金融發展各項政策措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793343_1_20250226182951.jpg&q=80)
-  
-
-財經事務及庫務局表示，財政司司長陳茂波今日發表2025至26年度《財政預算案》。金融是推動實體經濟發展重要支柱，財庫局將透過5大範疇策略部署，在「一國兩制」獨特優勢下，全方位鞏固香港國際金融中心地位，確保在全球金融市場中保持領先。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793343-20250226.htm)
----
-
-# 財政預算案2025｜倡推進上市制度改革　優化互聯互通機制
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793346_1_20250226185149.jpg&q=85)
-  
-
-為鞏固香港作為國際金融中心的地位，《財政預算案》提出多項推動金融發展措施，包括推進上市制度改革，審視上市要求和上市後持續責任檢視上市規例和安排，改善審批流程等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm)
 ---

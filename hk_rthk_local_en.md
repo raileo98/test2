@@ -1,3 +1,27 @@
+# Abraham Ancer seeks another win at HK LIV Golf
+
+![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
+![Bryson DeChambeau hits his shot on the first round at the Hong Kong Golf Club in 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_2_20250227120945.jpg&q=55)
+  
+
+Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, eager to relive the unforgettable moments from last year’s tournament.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
+---
+
 # Man dies in Yuen Long Highway pile-up
 
 ![A seven-vehicle collision occurred at around 7:30am near the Shap Pat Heung Interchange. Image: social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
@@ -1356,27 +1380,4 @@ Tourists, bus enthusiasts and panda-lovers are being invited to take a ride on a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792632-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792632-20250221.htm)
----
-
-# HKU head hopes funding cuts will be moderate
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792620_1_20250221151336.jpg&q=90)
-  
-
-The vice-chancellor of the University of Hong Kong (HKU) on Friday said the institution would shoulder the financial challenges with the SAR amid a potential funding cut to the education sector.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792620-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792620-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792620-20250221.htm)
 ---

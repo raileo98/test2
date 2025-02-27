@@ -1,3 +1,27 @@
+# Abraham Ancer seeks another win at HK LIV Golf
+
+![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
+![Bryson DeChambeau hits his shot on the first round at the Hong Kong Golf Club in 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_2_20250227120945.jpg&q=55)
+  
+
+Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, eager to relive the unforgettable moments from last year’s tournament.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
+---
+
 # 'Buffy the Vampire Slayer' star Trachtenberg dies
 
 ![Actress Michelle Trachtenberg, who starred in the 90s show 'Buffy the Vampire Slayer', was found dead in her New York apartment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793451_1_20250227113737.jpg&q=90)
@@ -1354,27 +1378,4 @@ Officials said they are investigating suspicions that some street cleaners have 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm)
----
-
-# Roberta Flack of 'Killing Me Softly' fame dies aged 88
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793054_1_20250225104809.jpg&q=90)
-  
-
-Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly With His Song" and one of the most recognisable voices of the 1970s, died on Monday at age 88.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm)
 ---

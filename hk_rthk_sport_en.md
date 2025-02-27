@@ -1,3 +1,27 @@
+# Abraham Ancer seeks another win at HK LIV Golf
+
+![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
+![Bryson DeChambeau hits his shot on the first round at the Hong Kong Golf Club in 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_2_20250227120945.jpg&q=55)
+  
+
+Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, eager to relive the unforgettable moments from last year’s tournament.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
+---
+
 # Afghanistan knock England out of Champions Trophy
 
 ![Afghanistan's Azmatullah Omarzai, left, celebrates with teammate Ibrahim Zadran after the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793419_1_20250227081610.jpg&q=85)
@@ -1361,27 +1385,4 @@ Team China on Monday scooped up six gold medals on day three of the Harbin Asian
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm)
----
-
-# Four Turkmenistan ice hockey players suspended: SF&OC
-
-![Kenneth Fok said he welcomes the suspension decision by the international ice hockey governing body. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791029_1_20250210161705.jpg&q=85)
-  
-
-The chef de mission of the Hong Kong, China delegation to the Harbin Asian Winter Games, Kenneth Fok, on Monday said the international governing body for ice hockey has suspended four Turkmenistan players involved in an altercation with SAR players.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791029-20250210.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791029-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791029-20250210.htm)
 ---
