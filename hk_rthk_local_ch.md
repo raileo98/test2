@@ -1,3 +1,27 @@
+# 證監會就提高主要指數衍生工具持倉限額諮詢市場
+
+![證監會就提高主要指數衍生工具持倉限額建議展開諮詢，今日起至3月28日結束。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793508_1_20250227172822.jpg&q=85)
+  
+
+證監會就提高以香港3大股票指數為基礎的交易所買賣衍生工具持倉限額諮詢市場，今日起至3月28日結束。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793508-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793508-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793508-20250227.htm)
+
+---
+
 # 陳翊庭：新股超額認購數千倍「含金量」與以往不同
 
 港交所行政總裁陳翊庭表示，正處理100多宗上市申請，很多是內地已上市的A股公司來港H股上市，已公布或遞表的公司逾20家，她形容是頗為主流，目前上市規則亦頗照顧到它們需要。
@@ -1388,29 +1412,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm)
-
----
-
-# 財政預算案2025｜學生津貼下年度起取消　削大學撥款
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793356_1_20250226191534.jpg&q=85)
-  
-
-《財政預算案》提及，教育局將於下年度起，取消向中小學及幼稚園學生發放2500元學生津貼。政府消息人士指，取消津貼是為配合今屆政府精準扶貧策略。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793356-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793356-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793356-20250226.htm)
 
 ---
