@@ -1,3 +1,45 @@
+# 聯合國指蘇丹因武裝衝突面臨嚴重人道主義危機促國際社會採取行動
+
+聯合國人權事務高級專員圖爾克警告，蘇丹面臨嚴重人道主義危機，局勢危急，迫切需要國際社會採取行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm)
+
+---
+
+# 阿富汗多地大雨及落雹引發洪水及山泥傾瀉釀多人死傷
+
+阿富汗多地近日出現強降雨天氣，引發洪水及山泥傾瀉等自然災害，當局指洪災和落雹災情已導致當地最少39人死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm)
+
+---
+
 # 猴痘疫情續構成國際關注的突發公共衞生事件
 
 世界衞生組織總幹事譚德塞說，猴痘疫情仍然構成國際關注的突發公共衞生事件。
@@ -1378,53 +1420,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm)
-
----
-
-# 國防部：削減核武庫和軍費開支美方應做到「美國優先」
-
-![吳謙說，美國作為擁有最大核武庫的國家，應切實履行核裁軍特殊、優先責任，進一步大幅、實質削減其核武庫。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793490_1_20250227163607.jpg&q=90)
-  
-
-美國總統特朗普近日主動提及計劃同中俄討論削減核武問題，並稱將提議將三國的國防預算削減一半。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm)
-
----
-
-# 外交部：美方對中俄關係挑撥離間完全是徒勞
-
-![林劍指美方對中俄關係挑撥離間完全是徒勞的。（外交部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793489_1_20250227163716.jpg&q=90)
-  
-
-在北京，外交部發言人林劍指，中俄作為兩個大國，彼此的關係具有強大的內生動力，不受任何第三方影響。中俄兩國的發展戰略和外交政策是很長遠的，任憑國際風雲變幻，中俄關係都將從容前行。他指美方對中俄關係挑撥離間完全是徒勞的。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm)
 
 ---

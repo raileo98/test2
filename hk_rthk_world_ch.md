@@ -1,3 +1,45 @@
+# 聯合國指蘇丹因武裝衝突面臨嚴重人道主義危機促國際社會採取行動
+
+聯合國人權事務高級專員圖爾克警告，蘇丹面臨嚴重人道主義危機，局勢危急，迫切需要國際社會採取行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm)
+
+---
+
+# 阿富汗多地大雨及落雹引發洪水及山泥傾瀉釀多人死傷
+
+阿富汗多地近日出現強降雨天氣，引發洪水及山泥傾瀉等自然災害，當局指洪災和落雹災情已導致當地最少39人死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm)
+
+---
+
 # 猴痘疫情續構成國際關注的突發公共衞生事件
 
 世界衞生組織總幹事譚德塞說，猴痘疫情仍然構成國際關注的突發公共衞生事件。
@@ -1384,53 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm)
-
----
-
-# 財政預算案2025｜飛機乘客離境稅第三季起加至200元
-
-![由2025/26年度第三季起，飛機乘客離境稅由現時每位乘客120元增加至200元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793255_1_20250226141832.jpg&q=65)
-  
-
-財政司司長陳茂波表示，過去一段時間，部分政府收費未有按機制調整，以致未能充分反映成本及體現「用者自付」原則，將推出一系列措施，包括由2025/26年度第三季起，將飛機乘客離境稅，由現時每位乘客120元增加至200元，預計每年可增加約16億元收入，他估計對飛機乘客影響輕微。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm)
-
----
-
-# 英國巴斯籌備作家簡奧斯汀誕辰250周年慶祝活動
-
-![英國巴斯籌備作家簡奧斯汀誕辰250周年慶祝活動](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793228_1_20250226121027.jpg&q=90)
-  
-
-英國城市巴斯籌備作家簡奧斯汀（Jane Austen）誕辰250周年慶祝活動，預計在9月為期10天的正式慶祝活動期間，將吸引全球大批簡奧斯汀書迷，前往巴斯參加。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793228-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793228-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793228-20250226.htm)
 
 ---
