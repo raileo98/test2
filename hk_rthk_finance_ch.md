@@ -1,3 +1,93 @@
+# 「城市景昔」擴展至大坑包括火龍徑蓮花宮西街浣紗街火龍文化館
+
+旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設5個指定地點，讓市民和旅客在香港更多地區，利用手機應用程式體驗香港古今。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm)
+
+---
+
+# 恒指一度升穿24000點　收市倒跌69點　成交再破4000億
+
+![恒指收市報23718點，跌69點，跌幅近0.3%，主板成交額近4065億元，較上日升近10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793493_1_20250227162333.jpg&q=30)
+  
+
+在期指結算日，港股未能企穩於24000點以上，恒生指數早段高見24076點，升近290點，再創逾3年新高，午後初段一度倒跌近350點，其後反覆偏軟，最終收市報23718點，跌69點，跌幅近0.3%，主板成交額近4065億元，較上日升近10%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm)
+
+---
+
+# 全國兩會｜李家超與港區人大代表座談　陳曼琪稱提及婦女權益
+
+行政長官李家超在政府總部與港區人大代表舉行座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：一直與評級機構密切聯繫
+
+![許正宇指出，如果發債量超過原定規劃，就需經過立法會審批。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
+  
+
+財經事務及庫務局局長許正宇出席財政預算案相關措施記者會時表示，政府一直有與評級機構進行密切聯繫，確保它們知道本港具體情況、發債計劃及財政管理邏輯。他重申，政府債務水平相對其他經濟體屬非常可控水平，債務只佔本地生產總值（GDP）不足17%，發債主要用於支持基礎建設以及工務工程，絕不會用作日常開支。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm)
+
+---
+
 # 福布斯：首50位香港富豪總財富按年升近2%
 
 ![福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793487_2_20250227155340.jpg&q=35)
@@ -22,10 +112,34 @@
 
 ---
 
+# 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
+
+對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm)
+
+---
+
 # 財政預算案2025｜孫東稱香港人工智能研發院最快明年開始運作
 
 ![孫東說，香港人工智能研發院最快明年開始運作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793484_1_20250227153725.jpg&q=85)
   
+
+財政預算案預留10億元設立人工智能研發院，創新科技及工業局局長孫東表示，計劃年中獲立法會財委會批准撥款，最快明年開始運作，他說這個研究院並非從無到有，香港生成式人工智能研發中心在過去一年半亦做了不錯的工作，未來會考慮將兩個機構進一步整合。
+
   
 
 
@@ -552,7 +666,7 @@
 ![陳茂波說，政府將全力推進北部都會區發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793452_1_20250227123123.jpg&q=70)
   
 
-在立法會財務委員會上，議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
+在立法會財務委員會上，新民黨議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
 
   
 
@@ -1312,125 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
-
----
-
-# 華府要求部門削減職位　特朗普：政府規模臃腫
-
-![特朗普指現時政府規模臃腫而鬆散，很多職員無做好本份。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793395_1_20250227030200.jpg&q=85)
-  
-
-美國政府要求各部門制定削減職位等減低開支的計劃。總統特朗普在第一次內閣會議上表示，必須縮小政府的規模，他形容現時政府規模臃腫而鬆散，指很多職員無做好本份。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm)
-
----
-
-# 美國1月新屋銷售少過預期
-
-![美國1月新屋銷售按月減少10.5%，以年率計有65.7萬間，少過市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793384_1_20250226230918.jpg&q=85)
-  
-
-美國商務部公布，美國1月新屋銷售按月減少10.5%，以年率計有65.7萬間，少過市場預期的68萬間。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793384-20250226.htm)
-
----
-
-# 2025/26《財政預算案論壇》
-
-![節目主持陳曉慶（左起）、團結香港基金副總裁葉文祺及會計界立法會議員黃俊碩。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793377_1_20250226221747.jpg&q=75)
-  
-
-財政司司長陳茂波發表新一份《財政預算案》，本年度綜合赤字預計為872億元，政府提出「強化版」財政整合計劃。節流方面，下年度行政長官、政治委任官員、全體公務員、立法會議員、區議員等均要凍薪；兩元乘車優惠設每月240程上限，10元以上車費改為「兩折」計算。至於開源，下年度第三季起，飛機離境稅會由120元加至200元，又會研究向過境私家車徵收邊境建設費，以及檢討停車收費錶的收費、交通違例事項的定額罰款。為確保北部都會區等基建項目按時推展，政府計劃未來5個財政年度，每年發債1500億元至1950億元，並積極研究發長債。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793377-20250226.htm)
-
----
-
-# 美股初段上升
-
-![道瓊斯指數較早時報43635點，升14點，升幅0.03%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793382_1_20250226224616.jpg&q=90)
-  
-
-美股在開市初段上升。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793382-20250226.htm)
-
----
-
-# 財政預算案2025｜發展局致力精簡工程審批統籌減低建造成本
-
-![發展局表示，會全方位協助各部門用好資源，管控工務工程項目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793380_1_20250226225014.jpg&q=85)
-  
-
-新一份財政預算案指出，香港要透過基本工程投資未來，提供土地和基建以支持香港經濟高質量發展，中期財政預測的基本工程開支，由去年預計平均每年約900億元，增加至未來五年平均每年約1200億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793380-20250226.htm)
 
 ---

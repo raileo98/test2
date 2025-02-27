@@ -1,3 +1,24 @@
+# 全國兩會｜李家超與港區人大代表座談　陳曼琪稱提及婦女權益
+
+行政長官李家超在政府總部與港區人大代表舉行座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
+
+---
+
 # 國防部：削減核武庫和軍費開支美方應做到「美國優先」
 
 美國總統特朗普近日主動提及計劃同中俄討論削減核武問題，並稱將提議將三國的國防預算削減一半。
@@ -1402,29 +1423,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm)
-
----
-
-# 聯大召開烏克蘭局勢緊急特別會議　中方冀各方達成有約束力協議
-
-![傅聰表示，中方支持一切致力於和平的努力。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793023_1_20250225084258.jpg&q=90)
-  
-
-聯合國大會召開烏克蘭局勢緊急特別會議，中國常駐聯合國代表傅聰表示，中方支持一切致力於和平的努力，包括美俄達成的關於啟動和談的共識，期待各當事方和利益攸關方都能參與到和談進程中來，找到照顧彼此關切、公正、持久的解決方案，達成有約束力、所有當事方都接受的和平協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm)
 
 ---

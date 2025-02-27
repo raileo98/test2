@@ -1,3 +1,69 @@
+# 「城市景昔」擴展至大坑包括火龍徑蓮花宮西街浣紗街火龍文化館
+
+旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設5個指定地點，讓市民和旅客在香港更多地區，利用手機應用程式體驗香港古今。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm)
+
+---
+
+# 全國兩會｜李家超與港區人大代表座談　陳曼琪稱提及婦女權益
+
+行政長官李家超在政府總部與港區人大代表舉行座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：一直與評級機構密切聯繫
+
+![許正宇指出，如果發債量超過原定規劃，就需經過立法會審批。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
+  
+
+財經事務及庫務局局長許正宇出席財政預算案相關措施記者會時表示，政府一直有與評級機構進行密切聯繫，確保它們知道本港具體情況、發債計劃及財政管理邏輯。他重申，政府債務水平相對其他經濟體屬非常可控水平，債務只佔本地生產總值（GDP）不足17%，發債主要用於支持基礎建設以及工務工程，絕不會用作日常開支。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm)
+
+---
+
 # 福布斯：首50位香港富豪總財富按年升近2%
 
 ![福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793487_2_20250227155340.jpg&q=35)
@@ -74,6 +140,9 @@
 
 ![孫東說，香港人工智能研發院最快明年開始運作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793484_1_20250227153725.jpg&q=85)
   
+
+財政預算案預留10億元設立人工智能研發院，創新科技及工業局局長孫東表示，計劃年中獲立法會財委會批准撥款，最快明年開始運作，他說這個研究院並非從無到有，香港生成式人工智能研發中心在過去一年半亦做了不錯的工作，未來會考慮將兩個機構進一步整合。
+
   
 
 
@@ -408,7 +477,7 @@
 ![陳茂波說，政府將全力推進北部都會區發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793452_1_20250227123123.jpg&q=70)
   
 
-在立法會財務委員會上，議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
+在立法會財務委員會上，新民黨議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
 
   
 
@@ -1362,77 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793346-20250226.htm)
-
----
-
-# 財政預算案2025｜江玉歡稱政府推動轉型　狄志遠關注基層照顧
-
-![江玉歡表示財政預算案展現政府產業轉型的信心；狄志遠表示財政預算案展現政府改革的決心。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793352_1_20250226191242.jpg&q=85)
-  
-
-選委界立法會議員江玉歡表示，財政預算案展現政府在推動產業結構轉型的信心，並嘗試取得收支平衡，但如果過於追求帳面平衡就容易陷入節流傷民的陷阱，她認為讓經濟增長能惠及萬家，香港才會真正走出結構性困局。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793352-20250226.htm)
-
----
-
-# 財政預算案2025｜來年賣地表包括8幅住宅地　不推售商業地
-
-![政府來年將不會推售商業用地。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793350_1_20250226190943.jpg&q=15)
-  
-
-財政司司長陳茂波在財政預算案宣布，考慮到寫字樓空置率近年處於高水平，以及未來幾年的供應仍相對充足，政府來年將不會推售商業用地，而來年賣地表將包括8幅住宅用地，加上鐵路物業發展等，預計全年潛在土地供應可供興建約13700個單位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793350-20250226.htm)
-
----
-
-# 財政預算案2025｜料28/29年度恢復盈餘　考慮北都發長債
-
-![政府本財政年度綜合赤字預計為872億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793349_1_20250226190753.jpg&q=60)
-  
-
-本財政年度綜合赤字預計為872億元，預計到2028/29年度才恢復盈餘。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793349-20250226.htm)
 
 ---

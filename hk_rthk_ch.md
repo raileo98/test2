@@ -1,3 +1,93 @@
+# 「城市景昔」擴展至大坑包括火龍徑蓮花宮西街浣紗街火龍文化館
+
+旅遊事務署將「城市景昔」旅遊項目擴展至大坑，增設5個指定地點，讓市民和旅客在香港更多地區，利用手機應用程式體驗香港古今。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm)
+
+---
+
+# 恒指一度升穿24000點　收市倒跌69點　成交再破4000億
+
+![恒指收市報23718點，跌69點，跌幅近0.3%，主板成交額近4065億元，較上日升近10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793493_1_20250227162333.jpg&q=30)
+  
+
+在期指結算日，港股未能企穩於24000點以上，恒生指數早段高見24076點，升近290點，再創逾3年新高，午後初段一度倒跌近350點，其後反覆偏軟，最終收市報23718點，跌69點，跌幅近0.3%，主板成交額近4065億元，較上日升近10%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm)
+
+---
+
+# 全國兩會｜李家超與港區人大代表座談　陳曼琪稱提及婦女權益
+
+行政長官李家超在政府總部與港區人大代表舉行座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
+
+---
+
+# 財政預算案2025｜許正宇：一直與評級機構密切聯繫
+
+![許正宇指出，如果發債量超過原定規劃，就需經過立法會審批。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793491_1_20250227162219.jpg&q=85)
+  
+
+財經事務及庫務局局長許正宇出席財政預算案相關措施記者會時表示，政府一直有與評級機構進行密切聯繫，確保它們知道本港具體情況、發債計劃及財政管理邏輯。他重申，政府債務水平相對其他經濟體屬非常可控水平，債務只佔本地生產總值（GDP）不足17%，發債主要用於支持基礎建設以及工務工程，絕不會用作日常開支。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793491-20250227.htm)
+
+---
+
 # 國防部：削減核武庫和軍費開支美方應做到「美國優先」
 
 美國總統特朗普近日主動提及計劃同中俄討論削減核武問題，並稱將提議將三國的國防預算削減一半。
@@ -137,6 +227,9 @@
 
 ![孫東說，香港人工智能研發院最快明年開始運作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793484_1_20250227153725.jpg&q=85)
   
+
+財政預算案預留10億元設立人工智能研發院，創新科技及工業局局長孫東表示，計劃年中獲立法會財委會批准撥款，最快明年開始運作，他說這個研究院並非從無到有，香港生成式人工智能研發中心在過去一年半亦做了不錯的工作，未來會考慮將兩個機構進一步整合。
+
   
 
 
@@ -783,7 +876,7 @@
 ![陳茂波說，政府將全力推進北部都會區發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793452_1_20250227123123.jpg&q=70)
   
 
-在立法會財務委員會上，議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
+在立法會財務委員會上，新民黨議員李梓敬關注財政預算案並無提及「明日大嶼」，有關計劃是否「胎死腹中」，涉及的前期費用能否剎停。
 
   
 
