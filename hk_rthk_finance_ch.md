@@ -1,3 +1,19 @@
+# 財政預算案2025｜孫東稱香港人工智能研發院最快明年開始運作
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm)
+
+---
+
 # 滬指收市靠穩
 
 ![上證綜合指數收市報3388點，升7點，升幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793481_1_20250227151226.jpg&q=85)
@@ -262,6 +278,30 @@
 
 ---
 
+# 美私人企業月球登陸器由SpaceＸ火箭發射升空　冀二次登月
+
+![著陸器搭乘太空探索科技公司SpaceX「獵鷹9」火箭升空。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793466_1_20250227130611.jpg&q=85)
+  
+
+美國私人公司直覺機器的月球登陸器「雅典娜」成功發射升空，期望實現第二次月球著陸。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793466-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793466-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793466-20250227.htm)
+
+---
+
 # 銀河娛樂去年多賺28%　派末期息0.5元
 
 ![銀河娛樂去年盈利87.6億元，按年升28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793459_1_20250227122804.jpg&q=80)
@@ -307,6 +347,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793463-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793463-20250227.htm)
+
+---
+
+# 已購啟德體育園開幕禮門票人士陸續前往換領實體票
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793461_1_20250227130026.jpg&q=80)
+  
+
+啟德體育園本周六晚上舉行開幕典禮，已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票，陸續有市民到場排隊換領。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm)
 
 ---
 
@@ -1363,77 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793379-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波料籃球博彩每年稅收達15至20億元
-
-![陳茂波出席電視論壇時說，有市民反映籃球博彩規範化助長賭風的影響有限，因此邀請馬會研究並向政府提交建議。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793378_1_20250226230058.jpg&q=75)
-  
-
-財政司司長陳茂波宣布，積極探討規範籃球博彩活動，邀請馬會提交建議，估計如果實施籃球博彩，當局每年稅務收入將達到15億至20億元。馬會說，規範籃球博彩是打擊非法籃球賭博重要措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793378-20250226.htm)
-
----
-
-# 勞氏公司上季業績勝預期　盤前股價升近4%
-
-![勞氏公司(Lowe's)上季經調整每股盈利1.93美元，收入185.5億美元，兩者都好過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793375_1_20250226214010.jpg&q=90)
-  
-
-美國家居裝修零售公司勞氏公司(Lowe's)公布，截至1月底止，上季盈利升10%至近11.3億美元，經調整每股盈利1.93美元，好過市場預期的1.84美元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793375-20250226.htm)
-
----
-
-# 啟德體育園舉行倒數燈光展
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793376_1_20250226214728.jpg&q=75)
-  
-
-啟德體育園一連三晚舉行倒數燈光展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793376-20250226.htm)
 
 ---

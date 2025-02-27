@@ -1,3 +1,24 @@
+# 啟德體育園開幕當日城巴5條特別路線前往九龍將軍澳屯門及港島
+
+啟德體育園本周六晚上舉行開幕典禮，城巴表示，當日將開辦5條特別路線，直達港九新界，為市民及旅客提供交通選項。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm)
+
+---
+
 # 已購啟德體育園開幕禮門票人士陸續前往換領實體票
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793461_1_20250227130026.jpg&q=80)
@@ -1420,29 +1441,5 @@ NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm](https://news.rthk.hk/rthk/ch/component/k2/1791723-20250215.htm)
-
----
-
-# 李強出席亞冬會閉幕儀式　高志丹稱以體育促進和平團結包容
-
-![李強出席第九屆亞洲冬季運動會閉幕式。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791699_1_20250214224312.jpg&q=90)
-  
-
-第九屆亞洲冬季運動會閉幕式，晚上在黑龍江省哈爾濱市舉行，國務院總理李強、亞奧理事會第一副主席霍震霆等出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1791699-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1791699-20250214.htm](https://news.rthk.hk/rthk/ch/component/k2/1791699-20250214.htm)
 
 ---

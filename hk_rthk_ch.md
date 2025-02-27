@@ -1,3 +1,56 @@
+# 元朗7.21案林卓廷暴動罪成判囚37個月
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793486-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793486-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793486-20250227.htm)
+
+---
+
+# 啟德體育園開幕當日城巴5條特別路線前往九龍將軍澳屯門及港島
+
+啟德體育園本周六晚上舉行開幕典禮，城巴表示，當日將開辦5條特別路線，直達港九新界，為市民及旅客提供交通選項。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm)
+
+---
+
+# 財政預算案2025｜孫東稱香港人工智能研發院最快明年開始運作
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm)
+
+---
+
 # 國防部：下階段中美兩軍交流已有一些初步計劃和安排
 
 ![吳謙表示，中方希望美方與中方相向而行，加強溝通對話，妥處矛盾分歧。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793483_1_20250227152825.jpg&q=90)

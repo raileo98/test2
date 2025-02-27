@@ -1,3 +1,56 @@
+# 元朗7.21案林卓廷暴動罪成判囚37個月
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793486-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793486-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793486-20250227.htm)
+
+---
+
+# 啟德體育園開幕當日城巴5條特別路線前往九龍將軍澳屯門及港島
+
+啟德體育園本周六晚上舉行開幕典禮，城巴表示，當日將開辦5條特別路線，直達港九新界，為市民及旅客提供交通選項。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm)
+
+---
+
+# 財政預算案2025｜孫東稱香港人工智能研發院最快明年開始運作
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793484-20250227.htm)
+
+---
+
 # 西貢方逸華牙科診所將局部維修　牙科街症服務名額不受影響
 
 ![西貢方逸華牙科診所周六起進行局部維修，為期兩個月、至4月30日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793482_1_20250227152516.jpg&q=80)
@@ -1365,77 +1418,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793348-20250226.htm)
-
----
-
-# 財政預算案2025｜提向旅發局撥逾12.3億　落實無處不旅遊
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793347_1_20250226184903.jpg&q=80)
-  
-
-預算案提出向旅發局撥款超過12億3千萬元，落實「無處不旅遊」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793347-20250226.htm)
-
----
-
-# 財政預算案2025｜上調飛機乘客離境稅　檢討交通違例定額罰款
-
-![每名飛機乘客離境稅將上調至200元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793344_1_20250226185127.jpg&q=75)
-  
-
-預算案提出多項措施增加收入，包括將每名飛機乘客離境稅上調至200元；檢討俗稱「牛肉乾」的交通違例事項定額罰款；並研究徵收陸路離境的私家車「邊境建設費」等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793344-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱相信公務員會理解及支持凍薪決定
-
-![陳茂波相信，公務員會理解及支持凍薪的決定。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793342_1_20250226185047.jpg&q=85)
-  
-
-新一份財政預算案提出，2025/26年度行政、立法、司法機關等全體人員凍薪。公務員編制在2026/27及27/28年度，每年分別減2%，預計至2027年4月1日，在本屆政府任期內將削減約1萬個職位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793342-20250226.htm)
 
 ---
