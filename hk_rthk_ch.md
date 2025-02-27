@@ -1,3 +1,24 @@
+# 馬斯克稱將繼續發射星鏈衛星確保美國空中交管及境內航空安全
+
+美國富商馬斯克表示，將繼續發射旗下太空探索技術公司高速互聯網接入服務的星鏈衛星終端，確保美國空中交通管制通訊及美國境內航空旅行安全。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm)
+
+---
+
 # 烏克蘭經濟部長或外長據報獲授權簽署與美國之間礦產協議
 
 烏克蘭報章報道，總理什梅加爾會授權第一副總理、經濟部長斯維里堅科或外交部長瑟比加，代表烏克蘭政府簽署關於設立烏克蘭重建投資基金規則與條件的協議。
@@ -1390,29 +1411,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793494-20250227.htm)
-
----
-
-# 恒指一度升穿24000點　收市倒跌69點　成交再破4000億
-
-![恒指收市報23718點，跌69點，跌幅近0.3%，主板成交額近4065億元，較上日升近10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793493_1_20250227162333.jpg&q=30)
-  
-
-在期指結算日，港股未能企穩於24000點以上，恒生指數早段高見24076點，升近290點，再創逾3年新高，午後初段一度倒跌近350點，其後反覆偏軟，最終收市報23718點，跌69點，跌幅近0.3%，主板成交額近4065億元，較上日升近10%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793493-20250227.htm)
 
 ---
