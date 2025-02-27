@@ -1,3 +1,27 @@
+# 'Govt closely in touch with rating agencies'
+
+![Christopher Hui says the SAR's debts are at a very manageable level. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
+  
+
+The Secretary for Financial Services and the Treasury Christopher Hui said the government has maintained close contact with global credit rating agencies relating to the SAR's financial position, as he shrugged off concerns about the city's debt levels.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
+
+---
+
 # Hong Kong stocks close lower
 
 ![The Hang Seng Index finished down 0.3 percent at 23,718. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793499_1_20250227170354.jpg&q=60)
@@ -1411,29 +1435,5 @@ Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 1
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791036-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791036-20250210.htm)
-
----
-
-# Chinese businesses shrug off Trump tariffs
-
-![Yiwu city is the world's largest wholesale hub for small manufactured items. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790966_1_20250210090937.jpg&q=90)
-  
-
-Traders in China's export manufacturing hub of Yiwu shrugged off US President Donald Trump's tariffs and moves against China on Sunday, with some saying they made preparations to soften the blow.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm)
 
 ---

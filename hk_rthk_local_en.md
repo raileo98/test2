@@ -1,3 +1,27 @@
+# 'Govt closely in touch with rating agencies'
+
+![Christopher Hui says the SAR's debts are at a very manageable level. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
+  
+
+The Secretary for Financial Services and the Treasury Christopher Hui said the government has maintained close contact with global credit rating agencies relating to the SAR's financial position, as he shrugged off concerns about the city's debt levels.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
+
+---
+
 # 'Govt needs time to get ready for HK$2 subsidy tweaks'
 
 ![Chris Sun says only 360 people were found to have taken more than 240 trips a month under the HK$2 transport subsidy scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793531_1_20250227185519.jpg&q=90)
@@ -1413,29 +1437,5 @@ The SAR's deputies to the National People's Congress from the DAB party said on 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792755-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792755-20250222.htm)
-
----
-
-# Mixed reactions over rumoured changes to HK$2 scheme
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792736_1_20250222123127.jpg&q=80)
-  
-
-Lawmakers have mixed reactions towards the rumoured changes on the HK$2 fare concessionary scheme for the elderly.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792736-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792736-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792736-20250222.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 美國上周首次申領失業救濟人數增至24.2萬人　多過預期
+
+![美國上星期首次申領失業救濟人數24.2萬人，按星期增加2.2萬人，多過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793546_1_20250227215312.jpg&q=75)
+  
+
+美國勞工部公布，美國上星期首次申領失業救濟人數24.2萬人，按星期增加2.2萬人，多過市場預期的22.1萬人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793546-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793546-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793546-20250227.htm)
+
+---
+
+# 小米料今年研發投入300億元人民幣
+
+![小米集團預計，2025年研發投入達300億元人民幣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793544_1_20250227213527.jpg&q=90)
+  
+
+小米集團預計，2025年研發投入達300億元人民幣。2021年至2025年5年間，研發投入預計達1050億元人民幣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793544-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793544-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793544-20250227.htm)
+
+---
+
 # 財政預算案2025｜八達通爭取盡早完成調整系統設定
 
 ![八達通公司表示，將全力支持及配合做出調整。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793542_1_20250227214613.jpg&q=80)
@@ -143,6 +191,9 @@
 ---
 
 # 財政預算案2025｜孫東：香港人工智能研發院最快明年投入運作
+
+![孫東表示，香港人工智能研發院最快明年投入運作，以繼續推動科技進步，並在大範圍推廣應用。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793526_1_20250227214806.jpg&q=85)
+  
 
 創新科技及工業局局長孫東表示，香港人工智能研發院最快明年投入運作，以繼續推動科技進步，並在大範圍推廣應用。
 
@@ -1381,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm)
-
----
-
-# 人行逆回購2150億元人民幣
-
-![人行進行2150億元7日期逆回購操作，利率維持1.5厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793433_1_20250227093302.jpg&q=55)
-  
-
-人民銀行公開市場進行2150億元人民幣7日期逆回購操作，利率維持1.5厘不變，對沖單日到期量，淨投放900億元，連續兩日淨投放。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm)
-
----
-
-# 恒指競價時段跌4點
-
-![恒指競價時段報23783點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793432_1_20250227092621.jpg&q=20)
-  
-
-恒指窄幅低開，競價時段報23783點，跌4點。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm)
 
 ---

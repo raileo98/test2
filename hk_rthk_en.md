@@ -1,3 +1,51 @@
+# Legendary Irish trio to retire at end of Six Nations
+
+![Last year's Six Nations title-winning skipper Peter O'Mahony is as famous for his gardening skills as his rugby prowess. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793545_1_20250227214946.jpg&q=85)
+  
+
+Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six Nations title-winning skipper Peter O'Mahony and fellow Test centurion Conor Murray will retire from international rugby at the end of the Six Nations, they announced on Thursday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm)
+
+---
+
+# 'Govt closely in touch with rating agencies'
+
+![Christopher Hui says the SAR's debts are at a very manageable level. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
+  
+
+The Secretary for Financial Services and the Treasury Christopher Hui said the government has maintained close contact with global credit rating agencies relating to the SAR's financial position, as he shrugged off concerns about the city's debt levels.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
+
+---
+
 # 'Govt needs time to get ready for HK$2 subsidy tweaks'
 
 ![Chris Sun says only 360 people were found to have taken more than 240 trips a month under the HK$2 transport subsidy scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793531_1_20250227185519.jpg&q=90)
@@ -1389,53 +1437,5 @@ Police have arrested three people for allegedly claiming they had spare tickets 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793116-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793116-20250225.htm)
-
----
-
-# HK's exports growth slows notably in January
-
-![Hong Kong's exports growth significantly slowed down in January, rising just 0.1 percent year-on-year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793113_2_20250225172653.jpg&q=70)
-  
-
-Hong Kong's exports growth slowed significantly last month, while imports picked up, according to official figures.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793113-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793113-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793113-20250225.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 1.3 percent at 23,034. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793108_1_20250225165301.jpg&q=75)
-  
-
-Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down 1.3 percent at 23,034.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793108-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793108-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793108-20250225.htm)
 
 ---

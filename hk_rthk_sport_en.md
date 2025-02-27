@@ -1,3 +1,27 @@
+# Legendary Irish trio to retire at end of Six Nations
+
+![Last year's Six Nations title-winning skipper Peter O'Mahony is as famous for his gardening skills as his rugby prowess. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793545_1_20250227214946.jpg&q=85)
+  
+
+Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six Nations title-winning skipper Peter O'Mahony and fellow Test centurion Conor Murray will retire from international rugby at the end of the Six Nations, they announced on Thursday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm)
+
+---
+
 # Abraham Ancer seeks another win at HK LIV Golf
 
 ![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
@@ -1420,29 +1444,5 @@ The Hong Kong, China men's ice hockey team on Monday night was defeated by Kyrgy
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791087-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791087-20250211.htm)
-
----
-
-# China grab six more golds at Asian Winter Games
-
-![Speed skater Gao Tingyu from China added to his trophycase with a gold in the 500 metre sprint. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791038_1_20250210165726.jpg&q=90)
-  
-
-Team China on Monday scooped up six gold medals on day three of the Harbin Asian Winter Games, with three of the top prizes coming in speed skating.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm)
 
 ---

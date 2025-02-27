@@ -1,3 +1,51 @@
+# 美國上周首次申領失業救濟人數增至24.2萬人　多過預期
+
+![美國上星期首次申領失業救濟人數24.2萬人，按星期增加2.2萬人，多過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793546_1_20250227215312.jpg&q=75)
+  
+
+美國勞工部公布，美國上星期首次申領失業救濟人數24.2萬人，按星期增加2.2萬人，多過市場預期的22.1萬人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793546-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793546-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793546-20250227.htm)
+
+---
+
+# 小米料今年研發投入300億元人民幣
+
+![小米集團預計，2025年研發投入達300億元人民幣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793544_1_20250227213527.jpg&q=90)
+  
+
+小米集團預計，2025年研發投入達300億元人民幣。2021年至2025年5年間，研發投入預計達1050億元人民幣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793544-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793544-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793544-20250227.htm)
+
+---
+
 # 全運會三項鐵人測試賽周末舉行　當局歡迎市民到場觀賞
 
 ![公眾門票已透過中國香港三項鐵人總會派發，比賽當日也會預留少量門票，市民可於觀眾入口處領取門票進場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793543_1_20250227214540.jpg&q=85)
@@ -431,6 +479,9 @@
 ---
 
 # 財政預算案2025｜孫東：香港人工智能研發院最快明年投入運作
+
+![孫東表示，香港人工智能研發院最快明年投入運作，以繼續推動科技進步，並在大範圍推廣應用。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793526_1_20250227214806.jpg&q=85)
+  
 
 創新科技及工業局局長孫東表示，香港人工智能研發院最快明年投入運作，以繼續推動科技進步，並在大範圍推廣應用。
 
