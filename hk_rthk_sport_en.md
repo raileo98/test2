@@ -20,6 +20,7 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
+
 ---
 
 # Afghanistan knock England out of Champions Trophy
@@ -43,6 +44,7 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm)
+
 ---
 
 # Liverpool beat Newcastle to extend lead; Arsenal held
@@ -67,6 +69,7 @@ Liverpool moved a giant step closer to the Premier League title with a ruthless 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm)
+
 ---
 
 # Liverpool's Slot gets two-match ban over derby chaos
@@ -90,6 +93,7 @@ Liverpool manager Arne Slot will not be on the touchline for Wednesday's home ma
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm)
+
 ---
 
 # Atlético hold Barca in eight-goal Copa del Rey clash
@@ -113,6 +117,7 @@ Atlético Madrid conceded a two-goal lead then fought back from two down in a wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm)
+
 ---
 
 # Chelsea thrash Southampton; Villa beaten by Palace
@@ -136,6 +141,7 @@ Chelsea moved into the Premier League's top four with a 4-0 demolition of haples
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm)
+
 ---
 
 # S Africa-Australia Champions Trophy game washed out
@@ -159,6 +165,7 @@ Rain washed out the Champions Trophy game between South Africa and two-time winn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm)
+
 ---
 
 # Galatasaray accuse Mourinho of racism after derby
@@ -182,6 +189,7 @@ Galatasaray have accused Fenerbahce manager Jose Mourinho of making "racist stat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm)
+
 ---
 
 # Injured champion Martin to miss MotoGP season opener
@@ -205,6 +213,7 @@ World MotoGP champion Jorge Martin will miss the first race of the season this w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm)
+
 ---
 
 # NZ into Champions Trophy semis; hosts Pakistan out
@@ -228,6 +237,7 @@ Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Troph
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm)
+
 ---
 
 # Central and Wan Chai road closures for triathlon test
@@ -251,6 +261,7 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
+
 ---
 
 # Liverpool beat City, extend Premier League lead to 11
@@ -274,6 +285,7 @@ Liverpool took a giant stride towards the Premier League title as a 2-0 win over
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm)
+
 ---
 
 # Hong Kong runners-up in handball test event
@@ -297,6 +309,7 @@ Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm)
+
 ---
 
 # Romantic Warrior claims second in close Saudi Cup race
@@ -320,6 +333,7 @@ Hong Kong racing royalty Romantic Warrior has come up just short in the world's 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm)
+
 ---
 
 # Doncic dominates as Lakers rout Nuggets
@@ -343,6 +357,7 @@ Luka Doncic delivered a dominant 32-point performance as the Los Angeles Lakers 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm)
+
 ---
 
 # Handball players happy with Kai Tak test event
@@ -366,6 +381,7 @@ Athletes participating in a handball test event for the National Games on Saturd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm)
+
 ---
 
 # Cavs crush Knicks in battle of NBA East, Thunder roll
@@ -390,6 +406,7 @@ The Cleveland Cavaliers boosted their NBA-best record with a 142-105 romp past t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm)
+
 ---
 
 # Liverpool to play PSG in Champions League last 16
@@ -413,6 +430,7 @@ Liverpool will take on Paris Saint-Germain in one of the standout ties in the la
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm)
+
 ---
 
 # Canada beats USA to win Four Nations Face-Off final
@@ -436,6 +454,7 @@ In an ice hockey grudge match of border rivals fuelled by political tensions, "5
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm)
+
 ---
 
 # Roma reach Europa League last 16; Ajax scrape through
@@ -460,6 +479,7 @@ Paulo Dybala scored twice as Roma beat Porto to clinch a place in the last 16 of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792560-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792560-20250221.htm)
+
 ---
 
 # Alcaraz knocked out by Lehecka in Qatar Open quarters
@@ -483,6 +503,7 @@ World number three Carlos Alcaraz was sent crashing out of the Qatar Open in the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792554-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792554-20250221.htm)
+
 ---
 
 # Wembanyama to miss rest of NBA regular season
@@ -506,6 +527,7 @@ San Antonio Spurs star Victor Wembanyama is expected to miss the rest of the NBA
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm)
+
 ---
 
 # Spanish court convicts ex-football boss over kiss
@@ -529,6 +551,7 @@ Spain's High Court has found former soccer federation boss Luis Rubiales guilty 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm)
+
 ---
 
 # Handball National Games trials to be held this weekend
@@ -552,6 +575,7 @@ The Hong Kong official who heads an office coordinating the upcoming National Ga
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792464-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792464-20250220.htm)
+
 ---
 
 # Mbappé hat-trick dumps City out of Champions League
@@ -575,6 +599,7 @@ Kylian Mbappé struck a brilliant hat-trick for Champions League holders Real Ma
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792384-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792384-20250220.htm)
+
 ---
 
 # Liverpool's title charge dented by Aston Villa draw
@@ -598,6 +623,7 @@ Liverpool's Premier League title charge was slowed by Aston Villa after a pulsat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm)
+
 ---
 
 # Man Utd spent £14.5mn on sackings including Ten Hag
@@ -621,6 +647,7 @@ Manchester United paid a total of £14.5 million (US$18.3 million) to sack manag
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm)
+
 ---
 
 # WTA to ban man after Raducanu 'security incident'
@@ -644,6 +671,7 @@ Emma Raducanu was targeted by "a man who exhibited fixated behaviour" during the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm)
+
 ---
 
 # Bayern score late, see off Celtic in Champions League
@@ -667,6 +695,7 @@ Bayern Munich secured their place in the last 16 of the Champions League with a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm)
+
 ---
 
 # Berrettini ends Djokovic comeback at Qatar Open
@@ -690,6 +719,7 @@ Novak Djokovic's comeback came to a crashing halt as he lost 7-6 (7/4), 6-2 to M
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792193-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792193-20250219.htm)
+
 ---
 
 # Trump, O'Sullivan ready for HK Grand Prix
@@ -713,6 +743,7 @@ Snooker legends Judd Trump and Ronnie O'Sullivan said they are very excited to p
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm)
+
 ---
 
 # Djokovic calls for revamp of tennis anti-doping system
@@ -736,6 +767,7 @@ Novak Djokovic has urged tennis authorities to overhaul the sport's anti-doping 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792046-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792046-20250218.htm)
+
 ---
 
 # Team Shaq wins NBA All-Star revamp as James sits out
@@ -759,6 +791,7 @@ Shaq's OGs won the first All-Star mini-tournament in NBA history, getting 15 poi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791953-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791953-20250217.htm)
+
 ---
 
 # 18-year-old Fonseca captures Argentina Open crown
@@ -782,6 +815,7 @@ Brazilian teenager Joao Fonseca became the 10th youngest champion in ATP Tour hi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791911-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791911-20250217.htm)
+
 ---
 
 # Liverpool edge past Wolves; Tottenham sink Man Utd
@@ -806,6 +840,7 @@ Liverpool moved seven points clear at the top of the Premier League as Luis Día
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791904-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791904-20250217.htm)
+
 ---
 
 # Americans and Canadians in ice hockey punch fest
@@ -829,6 +864,7 @@ Three fights in the first nine seconds and a chorus of deafening boos for the US
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791853-20250216.htm](https://news.rthk.hk/rthk/en/component/k2/1791853-20250216.htm)
+
 ---
 
 # Arsenal beat Leicester; Bournemouth jump to fourth
@@ -852,6 +888,7 @@ Arsenal brushed off their shortage of specialist strikers on Saturday as midfiel
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791802-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791802-20250215.htm)
+
 ---
 
 # Tennis world number one Sinner gets 3-month doping ban
@@ -875,6 +912,7 @@ Jannik Sinner has accepted a three-month ban from tennis after the world number 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791789-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791789-20250215.htm)
+
 ---
 
 # Under-fire Guardiola mocks Liverpool
@@ -898,6 +936,7 @@ Pep Guardiola has taunted Premier League leaders Liverpool over their failure to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791728-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791728-20250215.htm)
+
 ---
 
 # Team China top medals table at Asian Winter Games
@@ -924,6 +963,7 @@ Team China dominated the medals table at the Harbin Asian Winter Games which clo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm)
+
 ---
 
 # SAR's men's curlers miss out on bronze in Harbin
@@ -947,6 +987,7 @@ Hong Kong, China's men's curlers on Friday fell short of a podium finish at the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791597-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791597-20250214.htm)
+
 ---
 
 # Fenerbahce, Real Sociedad earn wins in Europa League
@@ -970,6 +1011,7 @@ Jose Mourinho's Fenerbahce won 3-0 at home to Anderlecht in the first leg of the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791564-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791564-20250214.htm)
+
 ---
 
 # SAR men's curling team to fight for bronze in Harbin
@@ -993,6 +1035,7 @@ Hope remains for the Hong Kong, China men's curling team, which is aiming to win
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791534-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791534-20250213.htm)
+
 ---
 
 # Shenzhen Bay Port to close for cross-border marathon
@@ -1016,6 +1059,7 @@ Shenzhen Bay Port will be closed from 2am to 11am on February 23rd for a cross-b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm)
+
 ---
 
 # SAR men's curling team make semifinals in Harbin
@@ -1039,6 +1083,7 @@ Hong Kong, China is one step closer to potentially securing its first medal at t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791496-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791496-20250213.htm)
+
 ---
 
 # HK ice hockey group files complaint over altercation
@@ -1062,6 +1107,7 @@ The Hong Kong, China Ice Hockey Association has filed a complaint to the Interna
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791470-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791470-20250213.htm)
+
 ---
 
 # Bayern sink Celtic 2-1 in Champions League play-off
@@ -1085,6 +1131,7 @@ Harry Kane was on target as Bayern Munich beat Celtic 2-1 in Glasgow in the firs
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791418-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791418-20250213.htm)
+
 ---
 
 # Everton strike late to hold Liverpool in thriller
@@ -1108,6 +1155,7 @@ James Tarkowski struck in the 98th minute to salvage a 2-2 draw for Everton agai
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791408-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791408-20250213.htm)
+
 ---
 
 # Arsenal's Havertz out for season with torn hamstring
@@ -1131,6 +1179,7 @@ Arsenal's bid to win the Premier League could suffer a major setback following r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791406-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791406-20250213.htm)
+
 ---
 
 # 'SAR men's ice hockey team did great in Harbin'
@@ -1154,6 +1203,7 @@ The Hong Kong, China Ice Hockey Association on Wednesday said the men's team put
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791342-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791342-20250212.htm)
+
 ---
 
 # Hong Kong, China qualified in men's curling playoffs
@@ -1177,6 +1227,7 @@ Team Hong Kong, China secured a spot in the play-offs for the men's curling comp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm)
+
 ---
 
 # Real Madrid secure 3-2 Champions League win over City
@@ -1200,6 +1251,7 @@ Jude Bellingham scored the winner in stoppage time as Real Madrid twice came fro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791253-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791253-20250212.htm)
+
 ---
 
 # South China crowned HK basketball champs
@@ -1223,6 +1275,7 @@ South China on Tuesday won the local top division basketball championship in dra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791230-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791230-20250211.htm)
+
 ---
 
 # HK men's ice hockey team crash out of Harbin Games
@@ -1246,6 +1299,7 @@ The eventful journey of the Hong Kong, China men's ice hockey team at the Harbin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791204-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791204-20250211.htm)
+
 ---
 
 # Top golfers ready for LIV tournament in HK
@@ -1269,6 +1323,7 @@ LIV golf is returning to Hong Kong in March, after the SAR hosted the tournament
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791190-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791190-20250211.htm)
+
 ---
 
 # China adds six golds at Harbin Asian Winter Games
@@ -1293,6 +1348,7 @@ Team China continued their dominance at the Harbin Asian Winter Games by snatchi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm)
+
 ---
 
 # Rubiales takes stand at forced kiss trial
@@ -1316,6 +1372,7 @@ Spain's former football federation chief Luis Rubiales gives his highly-anticipa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791122-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791122-20250211.htm)
+
 ---
 
 # Palace sink Doncaster, book clash with rivals Millwall
@@ -1339,6 +1396,7 @@ Crystal Palace booked an FA Cup fifth round clash with south London rivals Millw
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791105-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791105-20250211.htm)
+
 ---
 
 # SAR ice hockey team falls to Kyrgyzstan at Games
@@ -1362,6 +1420,7 @@ The Hong Kong, China men's ice hockey team on Monday night was defeated by Kyrgy
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791087-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791087-20250211.htm)
+
 ---
 
 # China grab six more golds at Asian Winter Games
@@ -1385,4 +1444,5 @@ Team China on Monday scooped up six gold medals on day three of the Harbin Asian
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm)
+
 ---

@@ -19,6 +19,7 @@ Hong Kong stocks on Thursday opened lower, after Wall Street stocks were mixed a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm)
+
 ---
 
 # Nasdaq rises while Dow falls on latest tariff talks
@@ -42,6 +43,7 @@ Gains in Nvidia ahead of earnings helped lift the Nasdaq on Wednesday while the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm)
+
 ---
 
 # Commercial land sale pause draws mixed views
@@ -65,6 +67,7 @@ The government’s move to pause the sale of commercial land in the upcoming fis
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm)
+
 ---
 
 # Hong Kong stocks close higher
@@ -88,6 +91,7 @@ Hong Kong stocks rallied on Wednesday, with the benchmark Hang Seng Index soarin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm)
+
 ---
 
 # Paul Chan delivers 2025-26 budget
@@ -111,6 +115,7 @@ Financial Secretary Paul Chan on Wednesday delivered his 2025-26 budget to the L
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm)
+
 ---
 
 # Hong Kong stocks claw back some losses
@@ -134,6 +139,7 @@ The Hang Seng Index gained 204.32 points, or 0.89 percent, to open at 23,238 poi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm)
+
 ---
 
 # 'Disney's good performance is welcome news'
@@ -157,6 +163,7 @@ A hospitality expert on Wednesday said Hong Kong Disneylands’s performance is 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm)
+
 ---
 
 # Wall Street falls amid pessimistic consumer sentiment
@@ -180,6 +187,7 @@ Some of Wall Street’s brightest stars lost more of their shine on Tuesday afte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm)
+
 ---
 
 # HK's exports growth slows notably in January
@@ -203,6 +211,7 @@ Hong Kong's exports growth slowed significantly last month, while imports picked
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793113-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793113-20250225.htm)
+
 ---
 
 # Hong Kong stocks close lower
@@ -226,6 +235,7 @@ Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793108-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793108-20250225.htm)
+
 ---
 
 # Hang Seng index opens 2.6pc lower
@@ -249,6 +259,7 @@ Hong Kong's Hang Seng Index was down 2.6 percent at the open on Tuesday, at 22,7
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793044-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793044-20250225.htm)
+
 ---
 
 # Canada, Mexico tariffs are going forward: Trump
@@ -272,6 +283,7 @@ US President Donald Trump said on Monday that his tariffs on Canada and Mexico a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm)
+
 ---
 
 # Wall Street holds steadier but still falls
@@ -295,6 +307,7 @@ US stocks drifted lower on Monday to compound their sharp losses from last week 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm)
+
 ---
 
 # Hong Kong stocks close lower
@@ -318,6 +331,7 @@ Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm)
+
 ---
 
 # CLP's annual profit increases by 75 percent
@@ -341,6 +355,7 @@ CLP Holdings on Monday said its annual profit increased by about 75 percent to H
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792948-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792948-20250224.htm)
+
 ---
 
 # Alibaba announces investment in AI, cloud computing
@@ -364,6 +379,7 @@ Chinese tech giant Alibaba said on Monday it will invest more than 380 billion y
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm)
+
 ---
 
 # HK stocks open marginally lower
@@ -387,6 +403,7 @@ Hong Kong's Hang Seng Index fell 5.78 points, or 0.02 percent, to open at 23,472
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792891-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792891-20250224.htm)
+
 ---
 
 # Fiscal consolidation to bring HK out of the 'blue': FS
@@ -410,6 +427,7 @@ Financial Secretary Paul Chan has said Wednesday's budget will detail the govern
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm)
+
 ---
 
 # US stocks tumble on fears of slowdown
@@ -433,6 +451,7 @@ Wall Street stocks tumbled on Friday, concluding the week on a sour note as a bi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792715-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792715-20250222.htm)
+
 ---
 
 # Hong Kong stocks surge to three-year high
@@ -456,6 +475,7 @@ Shares in Alibaba soared more than 14 percent on Friday, extending a blistering 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792653-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792653-20250221.htm)
+
 ---
 
 # Hong Kong stocks up 3 percent
@@ -479,6 +499,7 @@ Hong Kong stocks soared more than three percent on Friday afternoon, boosted by 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792606-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792606-20250221.htm)
+
 ---
 
 # Premier Li stresses measures to boost consumption
@@ -502,6 +523,7 @@ Premier Li Qiang has emphasised boosting consumption and improving people's live
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm)
+
 ---
 
 # US stocks fall on lacklustre Walmart outlook
@@ -525,6 +547,7 @@ Wall Street stocks dropped on Thursday following disappointing results from Walm
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792541-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792541-20250221.htm)
+
 ---
 
 # Slight uptick in HK bad loans seen in 2024: BEA
@@ -548,6 +571,7 @@ The Bank of East Asia (BEA) on Thursday said it has been closely monitoring risk
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792489-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792489-20250220.htm)
+
 ---
 
 # Hong Kong stocks close lower
@@ -571,6 +595,7 @@ Hong Kong stocks ended lower on Thursday, with the benchmark Hang Seng Index dow
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792477-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792477-20250220.htm)
+
 ---
 
 # Hang Seng Index opens lower
@@ -594,6 +619,7 @@ Hong Kong shares opened lower on Thursday.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792404-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792404-20250220.htm)
+
 ---
 
 # 'Constructive' talks after China blasts tariffs at WTO
@@ -617,6 +643,7 @@ The World Trade Organization (WTO) said on Wednesday that discussions on trade t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
+
 ---
 
 # S&P 500 adds to its record as US stocks drift higher
@@ -640,6 +667,7 @@ The S&P 500 added to its record as US stock indexes drifted through a quiet Wedn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792388-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792388-20250220.htm)
+
 ---
 
 # HSBC to shed more jobs to cut costs
@@ -663,6 +691,7 @@ Banking giant HSBC on Wednesday revealed that Hong Kong employees whose roles ar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792325-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792325-20250219.htm)
+
 ---
 
 # Hong Kong stocks close lower
@@ -686,6 +715,7 @@ Hong Kong stocks ended lower on Wednesday, with the benchmark Hang Seng Index do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792306-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792306-20250219.htm)
+
 ---
 
 # HSBC beats forecasts as profits rise 6 pct in 2024
@@ -709,6 +739,7 @@ HSBC posted an annual profit on Wednesday that beat estimates, helped by increas
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792282-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792282-20250219.htm)
+
 ---
 
 # HK shares open lower
@@ -732,6 +763,7 @@ Local shares opened lower on Wednesday led by drops in tech shares.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792227-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792227-20250219.htm)
+
 ---
 
 # China condemns US 'tariff shocks' at WTO
@@ -755,6 +787,7 @@ The sweeping tariffs threatened or imposed by US President Donald Trump risk tri
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm)
+
 ---
 
 # Jobless rate steady at 3.1pct
@@ -778,6 +811,7 @@ Hong Kong's unemployment rate remained at 3.1 percent in the November-January pe
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792137-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792137-20250218.htm)
+
 ---
 
 # Hong Kong stocks close higher
@@ -801,6 +835,7 @@ Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792131-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792131-20250218.htm)
+
 ---
 
 # Australia cuts rates for first time since 2020
@@ -824,6 +859,7 @@ Australia's central bank cut interest rates on Tuesday for the first time since 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792089-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792089-20250218.htm)
+
 ---
 
 # Hang Seng Index surges past 23,000
@@ -847,6 +883,7 @@ Hong Kong stocks soared past 23,000 in Tuesday morning trade, as investors cheer
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792073-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792073-20250218.htm)
+
 ---
 
 # Argentina's president denies role in 'cryptogate' scam
@@ -870,6 +907,7 @@ Argentine President Javier Milei on Monday denied promoting a cryptocurrency tha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792070-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792070-20250218.htm)
+
 ---
 
 # Local stocks finish lower
@@ -893,6 +931,7 @@ Hong Kong's stock market ended slightly lower on Monday with the benchmark Hang 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791988-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791988-20250217.htm)
+
 ---
 
 # DeepSeek removed from SKorean app stores
@@ -916,6 +955,7 @@ Chinese AI app DeepSeek will not be available to download in South Korea pending
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791978-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791978-20250217.htm)
+
 ---
 
 # President Xi attends gathering on private enterprises
@@ -939,6 +979,7 @@ President Xi Jinping on Monday called for efforts to promote the healthy and hig
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm)
+
 ---
 
 # OpenAI board rejects Elon Musk-led buyout offer
@@ -962,6 +1003,7 @@ OpenAI's board chairman on Friday said it has unanimously rejected an Elon Musk-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791762-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791762-20250215.htm)
+
 ---
 
 # US markets close mixed on tariff news, retail data
@@ -985,6 +1027,7 @@ Gains in tech stocks boosted the Nasdaq Composite on Friday, but other major ind
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791725-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791725-20250215.htm)
+
 ---
 
 # HK stocks end more than 3pct higher
@@ -1008,6 +1051,7 @@ Hong Kong stocks surged more than three percent on Friday, in line with a global
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791651-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791651-20250214.htm)
+
 ---
 
 # Baidu to make latest Ernie AI model open-source
@@ -1031,6 +1075,7 @@ Search engine giant Baidu said on Friday it would make its next-generation artif
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm)
+
 ---
 
 # Tech stocks help lift US markets
@@ -1054,6 +1099,7 @@ US markets ended higher on Thursday, powered by gains in tech related stocks, wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791555-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791555-20250214.htm)
+
 ---
 
 # China steel warns of 'adverse impact' of US tariffs
@@ -1077,6 +1123,7 @@ A group representing China's steel industry has warned that a new 25 percent tar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm)
+
 ---
 
 # Hong Kong stocks close down
@@ -1100,6 +1147,7 @@ Hong Kong stocks ended lower on Thursday, with the benchmark Hang Seng Index dow
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791497-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791497-20250213.htm)
+
 ---
 
 # Honda-Nissan merger talks called off
@@ -1123,6 +1171,7 @@ Japanese auto giants Honda and Nissan on Thursday confirmed they had scrapped me
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791472-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791472-20250213.htm)
+
 ---
 
 # Dow, S&P 500 fall on higher US inflation data
@@ -1146,6 +1195,7 @@ Wall Street stocks mostly fell on Wednesday following US inflation data that fur
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791411-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791411-20250213.htm)
+
 ---
 
 # Hong Kong stocks close higher
@@ -1169,6 +1219,7 @@ Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index u
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791347-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791347-20250212.htm)
+
 ---
 
 # US stocks mixed as US Fed signals no immediate change
@@ -1192,6 +1243,7 @@ Wall Street stocks finished mixed on Tuesday following a choppy session as marke
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791250-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791250-20250212.htm)
+
 ---
 
 # 'US steel tariffs may have limited impact on China'
@@ -1215,6 +1267,7 @@ An analyst on Tuesday said while United States president Donald Trump's steel an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm)
+
 ---
 
 # Hong Kong stocks close lower
@@ -1238,6 +1291,7 @@ Hong Kong stocks ended lower on Tuesday with the benchmark Hang Seng Index down 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791188-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791188-20250211.htm)
+
 ---
 
 # 'Tax cuts needed to help individuals and businesses'
@@ -1261,6 +1315,7 @@ Hong Kong should provide more tax concessions to individuals and businesses in t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791171-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791171-20250211.htm)
+
 ---
 
 # US slaps 25 percent tariffs on steel, aluminum
@@ -1284,6 +1339,7 @@ US President Donald Trump substantially raised tariffs on steel and aluminium im
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791115-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791115-20250211.htm)
+
 ---
 
 # Hong Kong stocks close higher
@@ -1307,6 +1363,7 @@ Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 1
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791036-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791036-20250210.htm)
+
 ---
 
 # Chinese businesses shrug off Trump tariffs
@@ -1330,6 +1387,7 @@ Traders in China's export manufacturing hub of Yiwu shrugged off US President Do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm)
+
 ---
 
 # Trump to announce new steel, aluminium tariffs
@@ -1353,6 +1411,7 @@ US President Donald Trump said on Sunday he will introduce new 25-percent tariff
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790961-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790961-20250210.htm)
+
 ---
 
 # China's CPI at five-month high
@@ -1376,4 +1435,5 @@ China's consumer price index (CPI), a main gauge of inflation, accelerated to it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm)
+
 ---

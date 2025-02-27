@@ -1,7 +1,5 @@
 # 全國兩會｜逾三千名中外記者報名採訪　新聞中心即日起啟用
 
-  
-
 新華社報道，在全國兩會即將召開之際，在北京梅地亞中心的全國兩會新聞中心今日正式啟用。
 
   
@@ -18,6 +16,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm)
+
 ---
 
 # 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
@@ -41,6 +40,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
+
 ---
 
 # 中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳
@@ -64,6 +64,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm)
+
 ---
 
 # 歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉
@@ -87,6 +88,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm)
+
 ---
 
 # 特朗普相信美中關係會是好的關係
@@ -110,6 +112,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
+
 ---
 
 # 王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧
@@ -133,6 +136,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
@@ -156,6 +160,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
@@ -179,6 +184,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益
@@ -202,6 +208,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm)
+
 ---
 
 # 美國據報解凍對台軍援　中方嚴重關切
@@ -225,6 +232,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm)
+
 ---
 
 # 中菲執法部門合作遣返近百名在菲從事離岸博彩中國公民
@@ -248,6 +256,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波冀用者自付原則收回離境設施部分開支
@@ -271,6 +280,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm)
+
 ---
 
 # 財政預算案2025｜入境修訂規例已刊憲由今早11時起生效
@@ -294,6 +304,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm)
+
 ---
 
 # 財政預算案2025｜經民聯稱官員等帶頭減輕政府負擔屬應有之義
@@ -317,6 +328,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm)
+
 ---
 
 # 財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略
@@ -340,6 +352,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm)
+
 ---
 
 # 王滬寧：要堅定不移推進祖國統一大業
@@ -363,6 +376,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱中期財政預測已反映強化整合措施
@@ -386,6 +400,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm)
+
 ---
 
 # 財政預算案2025｜李家超稱預算案為經濟發展塑造新動能新優勢
@@ -409,6 +424,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm)
+
 ---
 
 # 財政預算案2025｜飛機乘客離境稅第三季起加至200元
@@ -432,6 +448,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm)
+
 ---
 
 # 財政預算案2025｜將積極探討規範籃球博彩活動
@@ -455,6 +472,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm)
+
 ---
 
 # 財政預算案2025｜新資本投資者入境計劃料帶來逾260億元
@@ -478,6 +496,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm)
+
 ---
 
 # 商務部稱堅決反對加拿大以涉俄為由制裁中國企業
@@ -501,6 +520,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm)
+
 ---
 
 # 財政預算案2025｜向旅發局撥12.35億落實無處不旅遊理念
@@ -524,6 +544,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm)
+
 ---
 
 # 財政預算案2025｜助力C919打進國際市場　擴展培訓範疇
@@ -547,6 +568,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm)
+
 ---
 
 # 財政預算案2025｜年內展開港深西部鐵路勘查及北環線支線規劃
@@ -570,6 +592,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm)
+
 ---
 
 # 財政預算案2025｜預留37億加快河套香港園區第一期基建設施
@@ -593,6 +616,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm)
+
 ---
 
 # 國台辦：希望台灣有關方面讓更多優秀大陸電影進入台灣影院
@@ -616,6 +640,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm)
+
 ---
 
 # 財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點
@@ -639,6 +664,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm)
+
 ---
 
 # 財政預算案2025｜北都建大學城並推動生態旅遊
@@ -662,6 +688,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm)
+
 ---
 
 # 財政預算案2025｜舉辦國際機器人大會　提升香港影響力
@@ -685,6 +712,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm)
+
 ---
 
 # 國台辦促美方糾正錯誤　停止向「台獨」分裂勢力發錯誤信號
@@ -708,6 +736,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm)
+
 ---
 
 # 財政預算案2025｜引進辦下月公布新一批重點企業名單
@@ -731,6 +760,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm)
+
 ---
 
 # 國台辦批評日本妄圖製造「一中一台」　促慎重處理涉台問題
@@ -754,6 +784,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm)
+
 ---
 
 # 黃家榮稱迪士尼利潤用於擴建新景點帶來經濟效益大於派發股息
@@ -777,6 +808,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm)
+
 ---
 
 # 劇組拍攝汽車飄移發生意外　澳門文化局中止拍攝許可
@@ -800,6 +832,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm)
+
 ---
 
 # 李強：加力推進前沿新興領域科技創新　更好培育新質生產力
@@ -823,6 +856,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm)
+
 ---
 
 # 趙樂際：要穩中求進推動人大工作高質量發展
@@ -846,6 +880,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm)
+
 ---
 
 # 湖南懷化客船與油污清理船相撞　2死十多人失蹤
@@ -869,6 +904,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm)
+
 ---
 
 # 新一輪民青局內地專題實習提供110個名額涵蓋文物保育科研技術
@@ -892,6 +928,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm)
+
 ---
 
 # 張國鈞稱香港非常有潛力作為區域甚或國際體育爭議解決中心
@@ -915,6 +952,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm)
+
 ---
 
 # 中國南極考察隊在冰蓋已有鑽孔首次測井獲取參考數據
@@ -938,6 +976,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm)
+
 ---
 
 # 分析：地方政府收購存量土地促進市場平衡發展減輕發展商資金壓力
@@ -961,6 +1000,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm)
+
 ---
 
 # 商務部：中方敦促歐方停止抹黑推責　將採措施維護中企合法權益
@@ -984,6 +1024,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm)
+
 ---
 
 # 麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應
@@ -1007,6 +1048,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm)
+
 ---
 
 # 全國兩會｜全國人大常委會第十四次會議在北京閉幕
@@ -1030,6 +1072,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793101-20250225.htm)
+
 ---
 
 # 中方就歐盟和加拿大制裁中國企業提出嚴正交涉
@@ -1053,6 +1096,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793098-20250225.htm)
+
 ---
 
 # 外交部：美方脅迫別國打壓中國半導體產業　最終將損人害己
@@ -1076,6 +1120,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793097-20250225.htm)
+
 ---
 
 # 南韓公路地盤橋樑倒塌4人死亡包括2名中國公民
@@ -1099,6 +1144,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793092-20250225.htm)
+
 ---
 
 # 全國兩會｜李家超與港區全國政協委員舉行座談會
@@ -1122,6 +1168,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793091-20250225.htm)
+
 ---
 
 # 丘應樺稱本港對外資具有吸引力是因為巿場自由公平
@@ -1145,6 +1192,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793056-20250225.htm)
+
 ---
 
 # 知識產權局駁回惡意搶注DEEPSEEK等63件商標註册申請
@@ -1168,6 +1216,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793048-20250225.htm)
+
 ---
 
 # 《環看天下》：國防部稱澳洲炒作中方艦艇演習　對此強烈不滿
@@ -1191,6 +1240,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793033-20250225.htm)
+
 ---
 
 # 聯大召開烏克蘭局勢緊急特別會議　中方冀各方達成有約束力協議
@@ -1214,6 +1264,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793023-20250225.htm)
+
 ---
 
 # 中方代表稱國際社會應弘揚人道博愛　避免人道主義問題政治化
@@ -1237,6 +1288,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793000-20250225.htm)
+
 ---
 
 # 王毅稱中方踐行國際合作　與各方共創人權事業美好未來
@@ -1260,6 +1312,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1792999-20250225.htm)
+
 ---
 
 # 澳門發生劇組拍攝意外12人受傷　警方調查涉事汽車失控原因
@@ -1283,6 +1336,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792983-20250224.htm)
+
 ---
 
 # 習近平與普京通電話　稱中俄關係不針對第三方亦不受第三方影響
@@ -1306,6 +1360,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792979-20250224.htm)
+
 ---
 
 # 吳清：資本市場要積極融入科技創新新型舉國體制
@@ -1329,6 +1384,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792977-20250224.htm)
+
 ---
 
 # 全國兩會｜人大常委會會議聽取民營經濟促進法草案修改匯報
@@ -1352,6 +1408,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792969-20250224.htm)
+
 ---
 
 # 習近平同俄羅斯總統普京通電話
@@ -1375,4 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792966-20250224.htm)
+
 ---

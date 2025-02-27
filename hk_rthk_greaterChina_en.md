@@ -19,6 +19,7 @@ About 100 Chinese nationals who engaged in illegal offshore gambling operations 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm)
+
 ---
 
 # 4 dead, including 2 Chinese, in SKorea bridge collapse
@@ -42,6 +43,7 @@ Four people, including two Chinese nationals, were killed and six injured after 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
+
 ---
 
 # China mulls banning arbitrary fines on private firms
@@ -65,6 +67,7 @@ Mainland lawmakers on Monday began deliberations on the draft private economy pr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm)
+
 ---
 
 # Xi praises efforts to defuse Ukraine crisis
@@ -88,6 +91,7 @@ President Xi Jinping on Monday held a phone conversation with his Russian counte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm)
+
 ---
 
 # China jails four for life over telecom fraud
@@ -111,6 +115,7 @@ A mainland court has sentenced four people described as key figures in cross-bou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm)
+
 ---
 
 # Alibaba announces investment in AI, cloud computing
@@ -134,6 +139,7 @@ Chinese tech giant Alibaba said on Monday it will invest more than 380 billion y
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm)
+
 ---
 
 # China hits back at Australia for 'hyping' drills
@@ -157,6 +163,7 @@ Beijing has responded to accusations made by Australian authorities, saying it h
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htm)
+
 ---
 
 # Two-state solution key to peace in Gaza: FM
@@ -180,6 +187,7 @@ A lasting peace in the Israeli-Palestinian conflict can only be achieved through
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm)
+
 ---
 
 # Myanmar returns 111 Chinese scam centre workers
@@ -203,6 +211,7 @@ Myanmar handed over more than 100 Chinese scam centre workers to be repatriated 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm)
+
 ---
 
 # Ne Zha 2 success 'lightning in a bottle': critic
@@ -228,6 +237,7 @@ The sensation caused by the mainland blockbuster Ne Zha 2 is very much a "lightn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm)
+
 ---
 
 # 'Historic' G20 foreign ministers meeting concludes
@@ -251,6 +261,7 @@ South Africa on Friday concluded the G20 Foreign Ministers' Meeting, after a ran
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm)
+
 ---
 
 # Beijing voices concerns in call with US treasury chief
@@ -274,6 +285,7 @@ Vice Premier He Lifeng expressed concerns over US tariffs and trade restrictions
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm)
+
 ---
 
 # Window for peace opening for Ukraine war: Wang Yi
@@ -297,6 +309,7 @@ Foreign Minister Wang Yi told his G20 counterparts on Thursday that a "window fo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm)
+
 ---
 
 # Premier Li stresses measures to boost consumption
@@ -320,6 +333,7 @@ Premier Li Qiang has emphasised boosting consumption and improving people's live
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm)
+
 ---
 
 # Wang meets Lavrov to strengthen bilateral ties
@@ -343,6 +357,7 @@ Chinese Foreign Minister Wang Yi met with his Russian counterpart Sergei Lavrov 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm)
+
 ---
 
 # Trump says he expects Xi to visit US
@@ -366,6 +381,7 @@ US President Donald Trump said on Wednesday he expects President Xi Jinping to v
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm)
+
 ---
 
 # Myanmar returns first batch of Chinese scam workers
@@ -389,6 +405,7 @@ Myanmar on Thursday handed over the first batch of hundreds of Chinese scam cent
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm)
+
 ---
 
 # 'Constructive' talks after China blasts tariffs at WTO
@@ -412,6 +429,7 @@ The World Trade Organization (WTO) said on Wednesday that discussions on trade t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
+
 ---
 
 # More support to come under CEPA, says Beijing
@@ -435,6 +453,7 @@ A Beijing commerce official on Wednesday pledged further support for Hong Kong u
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm)
+
 ---
 
 # 'Ne Zha 2' to hit HK cinemas on Saturday
@@ -458,6 +477,7 @@ Record-breaking blockbuster "Ne Zha 2" is set for general release in Hong Kong o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm)
+
 ---
 
 # China condemns US 'tariff shocks' at WTO
@@ -481,6 +501,7 @@ The sweeping tariffs threatened or imposed by US President Donald Trump risk tri
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm)
+
 ---
 
 # Ukraine peace talks should include all parties: China
@@ -504,6 +525,7 @@ China hopes that all parties and stakeholders can participate in the peace talks
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm)
+
 ---
 
 # China urges US to correct mistakes in Taiwan wording
@@ -527,6 +549,7 @@ The so-called "update" to the Taiwan fact sheet displayed on the US State Depart
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm)
+
 ---
 
 # President Xi attends gathering on private enterprises
@@ -550,6 +573,7 @@ President Xi Jinping on Monday called for efforts to promote the healthy and hig
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm)
+
 ---
 
 # Asian American women in the spotlight at US awards
@@ -573,6 +597,7 @@ A special event in the United States has been shining a spotlight on the achieve
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm)
+
 ---
 
 # FM tells Nato to be 'rational and pragmatic'
@@ -596,6 +621,7 @@ China urged Nato to adopt a "rational and pragmatic" attitude and establish an "
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm)
+
 ---
 
 # Thai police arrest 10 in case involving Chinese actor
@@ -619,6 +645,7 @@ Authorities in Thailand said they arrested 10 Chinese nationals in connection wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm)
+
 ---
 
 # China will 'play along to the end': FM
@@ -642,6 +669,7 @@ Foreign Minister Wang Yi said China's policy toward the United States is consist
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm)
+
 ---
 
 # Harbin Asian Winter Games makes a grand exit
@@ -665,6 +693,7 @@ The 2025 Asian Winter Games concluded on Friday in Harbin, marking an historic a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm)
+
 ---
 
 # Team China top medals table at Asian Winter Games
@@ -691,6 +720,7 @@ Team China dominated the medals table at the Harbin Asian Winter Games which clo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm)
+
 ---
 
 # Vice education minister visits Polytechnic University
@@ -714,6 +744,7 @@ Vice Minister of Education Wu Yan has praised the Hong Kong Polytechnic Universi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm)
+
 ---
 
 # Bodies of Macau victims of Taiwan blast to head home
@@ -737,6 +768,7 @@ Arrangements were being made by the Macau authorities – via the Red Cross – 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm)
+
 ---
 
 # Baidu to make latest Ernie AI model open-source
@@ -760,6 +792,7 @@ Search engine giant Baidu said on Friday it would make its next-generation artif
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm)
+
 ---
 
 # Foreign Minister Wang Yi in UK for talks
@@ -783,6 +816,7 @@ China and Britain need to strengthen strategic communication, enhance mutual tru
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm)
+
 ---
 
 # Shenzhen Bay Port to close for cross-border marathon
@@ -806,6 +840,7 @@ Shenzhen Bay Port will be closed from 2am to 11am on February 23rd for a cross-b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm)
+
 ---
 
 # China steel warns of 'adverse impact' of US tariffs
@@ -829,6 +864,7 @@ A group representing China's steel industry has warned that a new 25 percent tar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm)
+
 ---
 
 # 4 dead after explosion rocks Taiwan department store
@@ -852,6 +888,7 @@ A suspected gas explosion has hit a department store in the city of Taichung in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm)
+
 ---
 
 # Hong Kong, China qualified in men's curling playoffs
@@ -875,6 +912,7 @@ Team Hong Kong, China secured a spot in the play-offs for the men's curling comp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm)
+
 ---
 
 # China signs communique calling for open, inclusive AI
@@ -898,6 +936,7 @@ China and around 60 other countries on Tuesday signed the final statement of a F
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm)
+
 ---
 
 # Xpeng, Geely shares fall after BYD offers new features
@@ -921,6 +960,7 @@ Shares in Chinese automakers Xpeng and Geely Auto tumbled on Tuesday on concern 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm)
+
 ---
 
 # CATL starts Hong Kong listing process
@@ -944,6 +984,7 @@ Chinese battery giant CATL started the application process on Tuesday to be list
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm)
+
 ---
 
 # 'US steel tariffs may have limited impact on China'
@@ -967,6 +1008,7 @@ An analyst on Tuesday said while United States president Donald Trump's steel an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm)
+
 ---
 
 # China adds six golds at Harbin Asian Winter Games
@@ -991,6 +1033,7 @@ Team China continued their dominance at the Harbin Asian Winter Games by snatchi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm)
+
 ---
 
 # Trump says he spoke to Xi after taking office
@@ -1014,6 +1057,7 @@ US President Donald Trump said he had spoken to his Chinese counterpart Xi Jinpi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm)
+
 ---
 
 # Wang Yi to attend UN event, G20 meeting
@@ -1037,6 +1081,7 @@ Foreign Minister Wang Yi will visit Europe and the United Nations before attendi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm)
+
 ---
 
 # China grab six more golds at Asian Winter Games
@@ -1060,6 +1105,7 @@ Team China on Monday scooped up six gold medals on day three of the Harbin Asian
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm)
+
 ---
 
 # Asean tour groups can visit Xishuangbanna visa-free
@@ -1083,6 +1129,7 @@ China is further relaxing its visa-free programmes by allowing tour groups from 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm)
+
 ---
 
 # Chinese businesses shrug off Trump tariffs
@@ -1106,6 +1153,7 @@ Traders in China's export manufacturing hub of Yiwu shrugged off US President Do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790966-20250210.htm)
+
 ---
 
 # China 'world-class' host: World Athletics president
@@ -1129,6 +1177,7 @@ World Athletics President Sebastian Coe has praised China's exceptional capabili
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htm)
+
 ---
 
 # China puts on a show in Harbin
@@ -1154,6 +1203,7 @@ China unleashed an impressive display at the 9th Asian Winter Games in Harbin on
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm)
+
 ---
 
 # At least 1 dead in Sichuan landslide
@@ -1177,6 +1227,7 @@ One person has been found dead and 28 others remained missing, a day after a lan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm)
+
 ---
 
 # China's CPI at five-month high
@@ -1200,6 +1251,7 @@ China's consumer price index (CPI), a main gauge of inflation, accelerated to it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm)
+
 ---
 
 # More than 30 missing after Sichuan landslide
@@ -1223,6 +1275,7 @@ President Xi Jinping on Saturday ordered all-out search and rescue efforts to mi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm)
+
 ---
 
 # SAR athletes fall short on the ice at the Games
@@ -1247,6 +1300,7 @@ Hong Kong, China team's speed skater Sidney Chu finished fifth in the men's 1,50
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm)
+
 ---
 
 # Li Fanghui wins China's first gold at Winter Games
@@ -1270,6 +1324,7 @@ China's freestyle skiers have dominated at the 9th Asian Winter Games in Harbin,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm)
+
 ---
 
 # Trump pauses de minimis repeal on Chinese imports
@@ -1293,6 +1348,7 @@ US President Donald Trump paused his administration's repeal of duty-free treatm
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm)
+
 ---
 
 # President Xi declares 2025 Asian Winter Games open
@@ -1317,6 +1373,7 @@ President Xi Jinping on Friday declared the 2025 Asian Winter Games officially o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm](https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm)
+
 ---
 
 # China 'regrets' Panama's withdrawal from BRI
@@ -1340,6 +1397,7 @@ China on Friday said it "regrets" Panama's decision to withdraw from the Belt an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm](https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm)
+
 ---
 
 # Winter Games carries Asia's common aspirations: Xi
@@ -1363,6 +1421,7 @@ President Xi Jinping on Friday said the 9th Asian Winter Games embodies Asia’s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm](https://news.rthk.hk/rthk/en/component/k2/1790685-20250207.htm)
+
 ---
 
 # Panama formally withdraws from Belt & Road initiative
@@ -1386,4 +1445,5 @@ Panama has formally pulled out of China's Belt and Road initiative, President Jo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htm](https://news.rthk.hk/rthk/en/component/k2/1790600-20250206.htm)
+
 ---

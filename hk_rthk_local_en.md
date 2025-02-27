@@ -20,6 +20,7 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
+
 ---
 
 # Man dies in Yuen Long Highway pile-up
@@ -43,6 +44,7 @@ A man died and six others were injured following a seven-vehicle collision on Yu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm)
+
 ---
 
 # '99pc of people won't exceed new HK$2 scheme limits'
@@ -66,6 +68,7 @@ An Executive Councillor on Thursday said most of Hong Kong's senior citizens wil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm)
+
 ---
 
 # 'More plans to develop sailing facilities needed'
@@ -89,6 +92,7 @@ The sailing industry on Thursday said they welcomed Financial Secretary Paul Cha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm)
+
 ---
 
 # Universities 'fully prepared' for funding cut
@@ -112,6 +116,7 @@ Several public universities on Wednesday said they understood the public finance
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm)
+
 ---
 
 # Commercial land sale pause draws mixed views
@@ -135,6 +140,7 @@ The government’s move to pause the sale of commercial land in the upcoming fis
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm)
+
 ---
 
 # Views on HK$2 transport scheme tweaks mostly positive
@@ -158,6 +164,7 @@ An economics professor on Wednesday said he supports proposed changes to the HK$
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm)
+
 ---
 
 # Everyone needs to chip in, says cash-strapped FS
@@ -181,6 +188,7 @@ Financial Secretary Paul Chan on Wednesday said he hopes the public understand t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm)
+
 ---
 
 # University funding cuts 'acceptable': lawmaker
@@ -204,6 +212,7 @@ Lawmaker and Lingnan University's associate vice president Lau Chi-pang on Wedne
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm)
+
 ---
 
 # 'Public sector pay freeze is the best choice'
@@ -227,6 +236,7 @@ Executive Council convenor Regina Ip on Wednesday said she supported the governm
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm)
+
 ---
 
 # Dose of sweeteners in budget despite belt-tightening
@@ -250,6 +260,7 @@ Efforts to contain government spending didn't stop Financial Secretary Paul Chan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm)
+
 ---
 
 # Airport departure tax, govt fees to go up
@@ -273,6 +284,7 @@ Financial Secretary Paul Chan proposed in his budget blueprint on Wednesday an i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm)
+
 ---
 
 # Pay freezes, job and spending cuts to tackle deficit
@@ -296,6 +308,7 @@ Financial Secretary Paul Chan said containing government spending would be a top
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htm)
+
 ---
 
 # No commercial sites to be sold in 2025-26
@@ -319,6 +332,7 @@ The government will not sell any commercial sites in the coming year due to a sl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793257-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793257-20250226.htm)
+
 ---
 
 # FS confirms new limits on HK$2 trips
@@ -342,6 +356,7 @@ Financial Secretary Paul Chan on Wednesday confirmed that changes are planned to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm)
+
 ---
 
 # Govt to regulate basketball betting
@@ -365,6 +380,7 @@ The government said it will explore regulating basketball betting activities and
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793247-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793247-20250226.htm)
+
 ---
 
 # HK$300m earmarked for enhanced EV charging network
@@ -388,6 +404,7 @@ The government will increase its support for electric vehicles (EVs) by launchin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm)
+
 ---
 
 # HK$1.2 billion to be spent on attracting tourists
@@ -411,6 +428,7 @@ The Hong Kong Tourism Board (HKTB) will get HK$1.2 billion from the government i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm)
+
 ---
 
 # AI key to realising HK's aspirations as I&T hub: FS
@@ -434,6 +452,7 @@ Artificial intelligence will be at the heart of the government's efforts to turn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm)
+
 ---
 
 # Paul Chan delivers 2025-26 budget
@@ -457,6 +476,7 @@ Financial Secretary Paul Chan on Wednesday delivered his 2025-26 budget to the L
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm)
+
 ---
 
 # FS mulls ways to cut spending, boost revenue in budget
@@ -480,6 +500,7 @@ With the government facing a budget shortfall of almost HK$100 billion, all eyes
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793106-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793106-20250226.htm)
+
 ---
 
 # Man gets 14 months for stashing 0.3g cocaine in shoe
@@ -503,6 +524,7 @@ A man on Tuesday was sentenced to 14 months in prison for trafficking in a dange
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm)
+
 ---
 
 # Three arrested 'for claiming to sell Kai Tak tickets'
@@ -526,6 +548,7 @@ Police have arrested three people for allegedly claiming they had spare tickets 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793116-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793116-20250225.htm)
+
 ---
 
 # Harbour crossing briefly shut after concrete hits car
@@ -549,6 +572,7 @@ The Cross-Harbour Tunnel was forced to shut partially for more than an hour on T
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm)
+
 ---
 
 # HK Disneyland sees record profit, visitor numbers
@@ -572,6 +596,7 @@ Hong Kong Disneyland on Tuesday said it enjoyed its strongest ever business perf
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm)
+
 ---
 
 # Drug warehouse raid finds HK$430m of cocaine
@@ -595,6 +620,7 @@ Police arrested two men following a raid on a drug warehouse, where officers sei
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm)
+
 ---
 
 # 'Child car seats wouldn't work on public transport'
@@ -618,6 +644,7 @@ A new law requiring child car seats or other extra restraints to be fitted in pr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793075-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793075-20250225.htm)
+
 ---
 
 # Improve HK's vocational training system: FTU
@@ -641,6 +668,7 @@ Unionists on Tuesday said the government should allocate more resources to impro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793074-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793074-20250225.htm)
+
 ---
 
 # Self-parking cars good for new drivers: motoring group
@@ -664,6 +692,7 @@ A motoring group has welcomed a change in the law which will allow drivers to us
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793068-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793068-20250225.htm)
+
 ---
 
 # Drinks recycling plan to cut costs: Tse Chin-wan
@@ -687,6 +716,7 @@ Environment minister Tse Chin-wan on Tuesday said he believes a market-led appro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm)
+
 ---
 
 # Cancelled art fair was denied government funding
@@ -710,6 +740,7 @@ The government has urged event organisers to make sure they have sufficient fund
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm)
+
 ---
 
 # FEHD probes workers 'removing own display bills video'
@@ -733,6 +764,7 @@ Officials said they are investigating suspicions that some street cleaners have 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm)
+
 ---
 
 # 'Education spending cuts should be strategic'
@@ -756,6 +788,7 @@ Hong Kong's education sector could face funding cuts as Financial Secretary Paul
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm)
+
 ---
 
 # Automotive sector welcomes govt's child car seat rule
@@ -779,6 +812,7 @@ An automotive sector representative on Tuesday welcomed the rule mandating child
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793028-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793028-20250225.htm)
+
 ---
 
 # Newborn baby found dead in Sham Tseng unit
@@ -802,6 +836,7 @@ Police said a newborn baby was found dead in a unit in western Tsuen Wan on Mond
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm)
+
 ---
 
 # HKTDC says new index flags up city's ESG strengths
@@ -825,6 +860,7 @@ The Hong Kong Trade Development Council (HKTDC) on Monday said a new index it ha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm)
+
 ---
 
 # Central and Wan Chai road closures for triathlon test
@@ -848,6 +884,7 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
+
 ---
 
 # Lower goals help push drink container recycling: govt
@@ -871,6 +908,7 @@ The government on Monday explained why it wants to take a gradual approach to ge
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792962-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792962-20250224.htm)
+
 ---
 
 # Child car seat rule to come into force in November
@@ -894,6 +932,7 @@ Children under eight travelling in private cars will need to be in a safety seat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792958-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792958-20250224.htm)
+
 ---
 
 # HKBU says its school would shake up medical training
@@ -917,6 +956,7 @@ Baptist University says the medical school it is hoping to create would be innov
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792959-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792959-20250224.htm)
+
 ---
 
 # Airport flight numbers soar in January
@@ -940,6 +980,7 @@ The Airport Authority said January marked a significant milestone for flights ta
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792933-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792933-20250224.htm)
+
 ---
 
 # Sunbeam Theatre's last hurrah
@@ -963,6 +1004,7 @@ One of Hong Kong’s most historic theatres, Sunbeam Theatre, will close its doo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792929-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792929-20250224.htm)
+
 ---
 
 # Kai Tak a favourite for latest light public housing
@@ -986,6 +1028,7 @@ Kai Tak appeared to be a top choice as people put in applications on Monday for 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792903-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792903-20250224.htm)
+
 ---
 
 # 'HK$2 transport scheme should stay with limitations'
@@ -1009,6 +1052,7 @@ Financial Secretary Paul Chan is widely expected to unveil measures to trim publ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792879-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792879-20250224.htm)
+
 ---
 
 # Hong Kong runners-up in handball test event
@@ -1032,6 +1076,7 @@ Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm)
+
 ---
 
 # Romantic Warrior claims second in close Saudi Cup race
@@ -1055,6 +1100,7 @@ Hong Kong racing royalty Romantic Warrior has come up just short in the world's 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm)
+
 ---
 
 # Staff numbers are coming back up, HA boss says
@@ -1078,6 +1124,7 @@ Hong Kong Children's Hospital will strive to resume services for its ear, nose a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792830-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792830-20250223.htm)
+
 ---
 
 # Fiscal consolidation to bring HK out of the 'blue': FS
@@ -1101,6 +1148,7 @@ Financial Secretary Paul Chan has said Wednesday's budget will detail the govern
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm)
+
 ---
 
 # Shenzhen-HK marathon went smoothly; Szeto gets bronze
@@ -1125,6 +1173,7 @@ Officials said the Shenzhen-Hong Kong Marathon on Sunday morning proceeded smoot
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792821-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792821-20250223.htm)
+
 ---
 
 # 'All views on regulating ride-hailing welcomed'
@@ -1148,6 +1197,7 @@ All ideas on how officials can regulate online ride-hailing platforms in Hong Ko
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792810-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792810-20250223.htm)
+
 ---
 
 # Handball players happy with Kai Tak test event
@@ -1171,6 +1221,7 @@ Athletes participating in a handball test event for the National Games on Saturd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm)
+
 ---
 
 # DAB to table 40 suggestions to Two Sessions meeting
@@ -1194,6 +1245,7 @@ The SAR's deputies to the National People's Congress from the DAB party said on 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792755-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792755-20250222.htm)
+
 ---
 
 # Mixed reactions over rumoured changes to HK$2 scheme
@@ -1217,6 +1269,7 @@ Lawmakers have mixed reactions towards the rumoured changes on the HK$2 fare con
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792736-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792736-20250222.htm)
+
 ---
 
 # Shenzhen Bay Port to close for cross-boundary marathon
@@ -1240,6 +1293,7 @@ Shenzhen Bay Port will suspend its clearance services on Sunday for the cross-bo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792734-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792734-20250222.htm)
+
 ---
 
 # Ticket scalping for Kai Tak opening being combated
@@ -1263,6 +1317,7 @@ Cultural and tourism minister Rosanna Law on Saturday said officials are working
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792727-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792727-20250222.htm)
+
 ---
 
 # Ne Zha 2 success 'lightning in a bottle': critic
@@ -1288,6 +1343,7 @@ The sensation caused by the mainland blockbuster Ne Zha 2 is very much a "lightn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm)
+
 ---
 
 # Impact of Paul Y's liquidation 'manageable': govt
@@ -1311,6 +1367,7 @@ A long-standing construction firm, Paul Y. Engineering Group, on Friday had its 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792682-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792682-20250221.htm)
+
 ---
 
 # Journey cap, reduced discounts mulled for HK$2 scheme
@@ -1334,6 +1391,7 @@ Hong Kong’s HK$2 subsidised bus, train, ferry, minibus and tram fares for the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792643-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792643-20250221.htm)
+
 ---
 
 # 'Get different jabs based on the travel destination'
@@ -1357,6 +1415,7 @@ The Society for Immunisations and Travel Medicine on Friday said Hong Kong peopl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792641-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792641-20250221.htm)
+
 ---
 
 # Citybus unveils panda-themed open-top bus
@@ -1380,4 +1439,5 @@ Tourists, bus enthusiasts and panda-lovers are being invited to take a ride on a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792632-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792632-20250221.htm)
+
 ---

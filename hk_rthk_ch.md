@@ -1,3 +1,27 @@
+# 銀河娛樂去年多賺28%　派末期息0.5元
+
+![銀河娛樂去年盈利87.6億元，按年升28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793459_1_20250227122804.jpg&q=80)
+  
+
+銀河娛樂去年盈利87.6億元，按年升約28%。派末期息每股0.5元；全年派息1元，按年升2.3倍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793459-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793459-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793459-20250227.htm)
+
+---
+
 # 港交所：滬深港通日均成交金額創新高
 
 ![港股去年日均成交金額1318億元，按年增26%。滬深港通日均成交金額創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793463_1_20250227123813.jpg&q=90)
@@ -19,11 +43,10 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793463-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793463-20250227.htm)
+
 ---
 
 # 已購啟德體育園開幕禮門票人士陸續前往換領實體票
-
-  
 
 啟德體育園本周六晚上舉行開幕典禮，已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票，陸續有市民到場排隊換領。
 
@@ -41,6 +64,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波：考慮多個因素決定公務員凍薪
@@ -64,6 +88,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793460-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793460-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波形容陸路離境稅影響面太大可免則免
@@ -87,11 +112,10 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793458-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793458-20250227.htm)
+
 ---
 
 # 全國兩會｜逾三千名中外記者報名採訪　新聞中心即日起啟用
-
-  
 
 新華社報道，在全國兩會即將召開之際，在北京梅地亞中心的全國兩會新聞中心今日正式啟用。
 
@@ -109,6 +133,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm)
+
 ---
 
 # 港股半日跌252點　小米創新高後半日倒跌近8%
@@ -132,6 +157,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793455-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793455-20250227.htm)
+
 ---
 
 # 港交所去年盈利升10%創新高　第2次中期息增至4.9元
@@ -155,6 +181,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793454-20250227.htm)
+
 ---
 
 # 財政預算案2025｜代理：4百萬元樓降印花稅未見業主反價封盤
@@ -178,6 +205,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793453-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱全力推進北都　再審視明日大嶼規劃
@@ -198,6 +226,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793452-20250227.htm)
+
 ---
 
 # 滬股半日跌0.4%　創業板指數跌逾1%
@@ -221,6 +250,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793450-20250227.htm)
+
 ---
 
 # 南韓憲法法院裁定代總統拒絕任命憲院法官違法
@@ -244,6 +274,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793449-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱人工智能發展需配合基建與市場力量
@@ -267,6 +298,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793448-20250227.htm)
+
 ---
 
 # 財政預算案2025｜有議員籲開源　陳茂波稱不過分倚賴地價收入
@@ -290,6 +322,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793447-20250227.htm)
+
 ---
 
 # 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
@@ -313,6 +346,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
+
 ---
 
 # 財政預算案2025｜兩大醫學院增60學額其中50個為第二學位
@@ -337,6 +371,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793445-20250227.htm)
+
 ---
 
 # 墨西哥多名官員到華盛頓　尋求限期前與美國達成關稅協議
@@ -360,6 +395,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793444-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793444-20250227.htm)
+
 ---
 
 # 日本發現中方無人機在沖繩周邊飛行
@@ -383,6 +419,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793443-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793443-20250227.htm)
+
 ---
 
 # 日股半日升56點
@@ -406,6 +443,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793442-20250227.htm)
+
 ---
 
 # 港股創3年新高後轉跌　中資電信及公用股偏軟
@@ -429,6 +467,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793441-20250227.htm)
+
 ---
 
 # 元朗公路車禍一死六傷　輕型貨車司機送院不治
@@ -452,6 +491,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793438-20250227.htm)
+
 ---
 
 # 恒指升幅擴至逾200點　升穿24000點
@@ -475,6 +515,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793436-20250227.htm)
+
 ---
 
 # 歐盟稱將對貿易壁壘作出堅決及迅速回應
@@ -498,6 +539,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793435-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793435-20250227.htm)
+
 ---
 
 # 滬深股市初段窄幅上落
@@ -521,6 +563,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793434-20250227.htm)
+
 ---
 
 # 人行逆回購2150億元人民幣
@@ -544,6 +587,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793433-20250227.htm)
+
 ---
 
 # 恒指競價時段跌4點
@@ -567,6 +611,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793432-20250227.htm)
+
 ---
 
 # 人民幣兌美元中間價跌8點子
@@ -590,6 +635,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793431-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793431-20250227.htm)
+
 ---
 
 # 受元朗公路交通意外影響　九巴及龍運途經路線班次或延誤
@@ -613,6 +659,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793430-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱公務員凍薪是考慮連續兩年經濟增長
@@ -636,6 +683,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793429-20250227.htm)
+
 ---
 
 # 台股初段靠穩
@@ -659,6 +707,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793428-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱節約開支需取消學生津貼
@@ -682,6 +731,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793426-20250227.htm)
+
 ---
 
 # 《環看天下》：美歐就獲烏克蘭礦產各提協議　分析：美歐嫌隙加深
@@ -705,6 +755,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793425-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波：股市交投量與印花稅無直接推動關係
@@ -728,6 +779,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793424-20250227.htm)
+
 ---
 
 # 元朗公路元朗方向近十八鄉交匯處七車相撞
@@ -751,6 +803,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793422-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波：調整2元乘車優惠簡單易明容易計數
@@ -774,6 +827,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793421-20250227.htm)
+
 ---
 
 # 韓股初段跌約0.5%
@@ -797,6 +851,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793420-20250227.htm)
+
 ---
 
 # 日股初段靠穩
@@ -820,6 +875,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793418-20250227.htm)
+
 ---
 
 # 財政預算案2025｜陳茂波稱投資未來創機會　發債支付投資基建
@@ -843,6 +899,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793417-20250227.htm)
+
 ---
 
 # 哈馬斯向以色列移交4名被扣押人員遺體
@@ -866,6 +923,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793416-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793416-20250227.htm)
+
 ---
 
 # Nvidia首季度收入預測高於預期
@@ -889,6 +947,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793412-20250227.htm)
+
 ---
 
 # 英超聯賽　利物浦主場2:0擊敗紐卡素　榜首優勢擴大至13分
@@ -912,6 +971,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm)
+
 ---
 
 # 港股ADR較本港昨日收市價普遍向下
@@ -935,6 +995,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793411-20250227.htm)
+
 ---
 
 # 美元指數靠穩
@@ -958,6 +1019,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793410-20250227.htm)
+
 ---
 
 # 紐約期金上升0.4%　市場注視美國通脹數據
@@ -981,6 +1043,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793408-20250227.htm)
+
 ---
 
 # 油價向下　美國成品油庫存意外增加
@@ -1004,6 +1067,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793407-20250227.htm)
+
 ---
 
 # 英法德股市升0.72%至約1.7%
@@ -1027,6 +1091,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793402-20250227.htm)
+
 ---
 
 # 道指跌188點　納指及標普500指數結束多日跌勢
@@ -1050,6 +1115,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793404-20250227.htm)
+
 ---
 
 # 特朗普稱將對歐盟徵收25%關稅
@@ -1073,6 +1139,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793406-20250227.htm)
+
 ---
 
 # 澤連斯基周五訪美與特朗普會面　稱美援不停止至關重要
@@ -1096,6 +1163,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793403-20250227.htm)
+
 ---
 
 # 中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳
@@ -1119,6 +1187,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm)
+
 ---
 
 # 美國得州一名小童感染麻疹死亡　是十年來首宗死亡個案
@@ -1142,6 +1211,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793399-20250227.htm)
+
 ---
 
 # 歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉
@@ -1165,6 +1235,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm)
+
 ---
 
 # 教宗方濟各病情有改善　腎功能不足情況已緩解
@@ -1188,6 +1259,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793397-20250227.htm)
+
 ---
 
 # 特朗普相信美中關係會是好的關係
@@ -1211,6 +1283,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
+
 ---
 
 # 特朗普：不會向烏克蘭提供安全保障或北約成員國資格
@@ -1234,6 +1307,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793396-20250227.htm)
+
 ---
 
 # 華府要求部門削減職位　特朗普：政府規模臃腫
@@ -1257,6 +1331,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793395-20250227.htm)
+
 ---
 
 # 國際奧委會主席巴赫辭任　下月選出新主席
@@ -1280,6 +1355,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm)
+
 ---
 
 # 美國參議院確認格里爾出任美國貿易代表
@@ -1303,6 +1379,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793394-20250227.htm)
+
 ---
 
 # 以軍稱在黎巴嫩精準打擊一名真主黨重要成員
@@ -1326,6 +1403,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793393-20250227.htm)
+
 ---
 
 # 聯合國報告：反對針對巴勒斯坦吞併和強行遷移建議
@@ -1349,6 +1427,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793391-20250227.htm)
+
 ---
 
 # 特朗普確認周五在華盛頓會見澤連斯基
@@ -1372,6 +1451,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793390-20250227.htm)
+
 ---
 
 # 日本岩手縣發生山火　數十座房屋損毀
@@ -1395,6 +1475,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793388-20250227.htm)
+
 ---
 
 # 德媒：默茨在大選勝出後首度外訪　將與馬克龍會面
@@ -1418,6 +1499,7 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793389-20250227.htm)
+
 ---
 
 # 澤連斯基：礦產協議能否成功取決於與特朗普對話
@@ -1441,4 +1523,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793387-20250227.htm)
+
 ---
