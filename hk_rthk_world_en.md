@@ -1,3 +1,27 @@
+# Oscar-winning actor Gene Hackman, wife found dead
+
+![Oscar-winning US actor Gene Hackman and his wife Betsy Arakawa were found dead inside their home in New Mexico. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793513_1_20250227175330.jpg&q=90)
+  
+
+Oscar-winning actor Gene Hackman, his wife and their dog were found dead in their New Mexico home Wednesday, authorities said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm)
+
+---
+
 # 'Buffy the Vampire Slayer' star Trachtenberg dies
 
 ![Actress Michelle Trachtenberg, who starred in the 90s show 'Buffy the Vampire Slayer', was found dead in her New York apartment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793451_1_20250227113737.jpg&q=90)
@@ -1411,29 +1435,5 @@ Donald Trump's special envoy was in Kyiv on Wednesday, saying he was there to "l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792336-20250219.htm)
-
----
-
-# Rapper A$AP Rocky found not guilty in assault trial
-
-![A$AP Rocky was found not guilty of felony assault at the conclusion of his trial in Los Angeles. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792231_1_20250219103411.jpg&q=90)
-  
-
-Musician A$AP Rocky was found not guilty of two counts of felony assault at the conclusion of a trial in Los Angeles on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792231-20250219.htm)
 
 ---

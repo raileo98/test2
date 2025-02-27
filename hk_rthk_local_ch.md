@@ -1,3 +1,24 @@
+# 財政預算案2025｜港交所：「科企專線」讓企業放心來港上市
+
+新一年度財政預算案提到，港交所正籌備開通「科企專線」。港交所行政總裁陳翊庭表示，留意到現時投資者特別喜好科技企業，這類企業最近表現非常好，亦佔去年本港市場總融資額80%，近數年亦有很多新經濟公司在港上市。港交所自2018年陸續推出相關上市規則章節，包括18A及18C。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793512-20250227.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793512-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793512-20250227.htm)
+
+---
+
 # 證監會就提高主要指數衍生工具持倉限額諮詢市場
 
 ![證監會就提高主要指數衍生工具持倉限額建議展開諮詢，今日起至3月28日結束。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793508_1_20250227172822.jpg&q=85)
@@ -1387,30 +1408,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793359-20250226.htm)
-
----
-
-# 財政預算案2025｜消息：無意重推俗稱肥雞餐公僕提前離職計劃
-
-![消息指政府無意重推俗稱「肥雞餐」的公務員提前離職計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793358_1_20250226194131.jpg&q=65)
-![政府問責官員與全體公務員一致凍薪。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793358_2_20250226194131.jpg&q=85)
-  
-
-新一份預算案宣布，所有行政、立法、司法機關及區議會全體人員一致凍薪。政府消息人士回應為何問責官員只「凍薪不減薪」時解釋，考慮到過去兩年經濟持續增長，預期今年會持續增長勢頭，私人市場更出現有人工加，因此認為全體公務員、立法會及司法機關等「愛國者治港」整體人員一起凍薪的做法較為合適。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793358-20250226.htm)
 
 ---
