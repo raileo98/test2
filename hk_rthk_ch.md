@@ -1,3 +1,24 @@
+# 猴痘疫情續構成國際關注的突發公共衞生事件
+
+世界衞生組織總幹事譚德塞說，猴痘疫情仍然構成國際關注的突發公共衞生事件。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793561-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793561-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793561-20250228.htm)
+
+---
+
 # 特區政府強烈譴責及反對美國議員對香港作出毫無事實根據攻擊
 
 ![發言人說特區政府會一如既往堅定不移、全面準確實施香港國安法及維護國家安全條例。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793560_1_20250228001842.jpg&q=75)
@@ -1405,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm)
-
----
-
-# 福布斯：首50位香港富豪總財富按年升近2%
-
-![福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793487_2_20250227155340.jpg&q=35)
-  
-
-福布斯最新香港富豪榜顯示，首50位富豪的總財富按年升約1.7%至3010億美元，因房地產市場面臨困境，貿易局勢亦緊張，抵銷內地刺激措施帶動港股大幅上升的利好因素。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793487-20250227.htm)
 
 ---
