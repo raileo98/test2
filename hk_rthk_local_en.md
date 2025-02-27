@@ -1,4 +1,4 @@
-# HKU and CUHK to get 60 more medical traning places
+# HKU and CUHK to get 60 more medical training places
 
 ![CUHK says it will announce details for the “second degree entry track” in due course. Photo courtesy of CUHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793464_1_20250227125822.jpg&q=65)
   
