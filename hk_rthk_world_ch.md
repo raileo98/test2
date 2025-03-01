@@ -1,3 +1,51 @@
+# 哈馬斯拒絕以色列提出延長加沙停火協議第一階段
+
+![在加沙地帶汗尤尼斯，建築物經過多月戰火後成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793797_1_20250301170723.jpg&q=50)
+  
+
+哈馬斯發言人卡西姆接受傳媒採訪時表示，哈馬斯拒絕以色列希望延長加沙停火協議第一階段的方案，而目前沒有關於第二階段的相關談判。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm)
+
+---
+
+# 教宗方濟各支氣管痙攣要用呼吸機　吸氧後情況好轉
+
+![教宗方濟各繼續住院，信眾在聖伯多祿廣場參加祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793792_1_20250301161122.jpg&q=90)
+  
+
+梵蒂岡表示，因肺炎住院的教宗方濟各，星期五出現呼吸危機，導致嘔吐，吸氧後反應良好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm)
+
+---
+
 # 庫爾德工人黨宣布即日起與土耳其停火
 
 ![日前在土耳其一場集會上，有民眾手持厄賈蘭的肖像。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793785_1_20250301150623.jpg&q=85)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm)
-
----
-
-# 猴痘疫情續構成國際關注的突發公共衞生事件
-
-![譚德塞在國際衞生條例緊急委員會開會後，接受委員會建議宣布有關決定。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793561_1_20250228021207.jpg&q=90)
-  
-
-世界衞生組織總幹事譚德塞說，猴痘疫情仍然構成國際關注的突發公共衞生事件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793561-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793561-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793561-20250228.htm)
-
----
-
-# 特區政府強烈譴責及反對美國議員對香港作出毫無事實根據攻擊
-
-![發言人說特區政府會一如既往堅定不移、全面準確實施香港國安法及維護國家安全條例。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793560_1_20250228001842.jpg&q=75)
-  
-
-特區政府強烈譴責美國國會參議院外交關係委員會個別議員，透過提交有關香港特區的所謂決議，對香港作出毫無事實根據的攻擊，以及抹黑香港國安法及維護國家安全條例。特區政府就此等卑劣的政治操作及肆意叫囂，予以強烈譴責及反對，並要求美方立即停止一切貶低香港國際聲譽，粗暴干涉純屬中國內政的香港事務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm)
 
 ---

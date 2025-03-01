@@ -1,4 +1,219 @@
+# 李頌恩視察啟德體育園一帶交通　了解港鐵客流管理措施
+
+運輸署緊急事故交通協調中心自下午起，已提升至最高級別的聯合督導模式運作，監察啟德體育園區一帶交通及公共運輸服務情況，整體交通至今大致暢順。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm)
+
+---
+
+# 大欖懲教所25歲女囚犯疑體內藏毒　案件交警方跟進
+
+大欖女懲教所一名還押在囚女子被發現涉嫌利用體內藏毒，將懷疑毒品偷運進入懲教院所，懲教署將案件轉介警方跟進。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm)
+
+---
+
+# 哈馬斯拒絕以色列提出延長加沙停火協議第一階段
+
+![在加沙地帶汗尤尼斯，建築物經過多月戰火後成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793797_1_20250301170723.jpg&q=50)
+  
+
+哈馬斯發言人卡西姆接受傳媒採訪時表示，哈馬斯拒絕以色列希望延長加沙停火協議第一階段的方案，而目前沒有關於第二階段的相關談判。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm)
+
+---
+
+# 鄧炳強到啟德體育園視察　有信心開幕禮運作暢順
+
+![鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793796_1_20250301170229.jpg&q=75)
+  
+
+啟德體育園傍晚舉行開幕典禮，保安局局長鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。他說經過多次演練，有信心今晚的整體運作會暢順，至於公眾不應攜帶的物品，工作人員能夠有效率處理，經宣傳後一些不應攜帶的物品，已很少人攜帶。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm)
+
+---
+
+# 有市民及旅客換票遲到　啟德體育園職員彈性處理
+
+![大會指，已有九成半的門票經兌換，對於遲到入場的市民會彈性處理。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_1_20250301165551.jpg&q=45)
+  
+
+啟德體育園傍晚舉行開幕禮，已購買電子門券的市民需於下午3時前到場換領實體票。有市民遲到，奔跑過來換票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm)
+
+---
+
+# 專業服務協進支援計劃接受新一輪申請　機構可提交建議項目
+
+![商務及經濟發展局表示，專業服務協進支援計劃下的主計劃邀請新一輪撥款申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793794_1_20250301165517.jpg&q=80)
+  
+
+專業服務協進支援計劃下的主計劃邀請新一輪撥款申請，專業團體、工商組織及研究院所等非分配利潤機構可提交建議項目。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm)
+
+---
+
+# 持票市民陸續進場準備觀賞啟德體育園開幕禮
+
+![持門票市民下午4時起進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_2_20250301164258.jpg&q=35)
+![鄧竟成表示，經過多次演練，園方人員、安保和警方等不同單位有工作默契，互相配合得不錯。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_1_20250301164258.jpg&q=85)
+![有市民期待在開幕禮觀賞到參與節目的國家乒乓球手樊振東。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_3_20250301164258.jpg&q=35)
+  
+
+啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式。預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm)
+
+---
+
+# 教宗方濟各支氣管痙攣要用呼吸機　吸氧後情況好轉
+
+![教宗方濟各繼續住院，信眾在聖伯多祿廣場參加祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793792_1_20250301161122.jpg&q=90)
+  
+
+梵蒂岡表示，因肺炎住院的教宗方濟各，星期五出現呼吸危機，導致嘔吐，吸氧後反應良好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm)
+
+---
+
+# 逾千名學童於維園為花卉展覽鑲嵌花壇
+
+![超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793789_1_20250301160502.jpg&q=55)
+  
+
+超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動，在約140名綠化義工指導下，協助鑲嵌大型花壇「非洲獵奇」。花壇為即將舉行的香港花卉展覽的主要特色景點之一。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm)
+
+---
+
 # 當局稱會彈性處理逾時換領啟德體育園開幕禮實體票
+
+![入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793787_1_20250301154124.jpg&q=50)
+  
 
 啟德體育園今日開幕，典禮晚上6時半在主場館舉行，將會有3萬多名觀眾可以入場觀看。入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止，但當局表示會彈性處理，不會立即停止換票。
 
@@ -20,6 +235,9 @@
 ---
 
 # 王新偉出任遼寧省代省長
+
+![遼寧省人大常委會會議任命王新偉為遼寧省副省長、代省長。（微博圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793786_1_20250301155329.jpg&q=90)
+  
 
 新華社報道，遼寧省人大常委會會議決定，接受李樂成辭去遼寧省省長職務的請求，任命王新偉為遼寧省副省長、代省長。
 
@@ -232,7 +450,7 @@
 
 ---
 
-# 財政預算案2025｜陳茂波稱政府發債比率屬穩健
+# 財政預算案2025｜陳茂波稱私家車陸路邊境建設費並非定案
 
 ![陳茂波強調，香港從來的基建都有正面回報，北都發展都會一樣。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793775_1_20250301124019.jpg&q=75)
   
@@ -1213,222 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm)
-
----
-
-# 測量師料8幅住宅地估值約130億元或以上
-
-![美聯測量師行估計，8幅地皮可為庫房帶來約130億元進帳。中原測量師行則預計，地皮估值合共162.9至167.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793720_1_20250228213853.jpg&q=75)
-  
-
-政府公布2025/26年度賣地計劃，涉及8幅住宅用地，合共可提供約4450個單位，屬15年新低。其中3幅為本財政年度的滾存用地，其餘5幅新增住宅地分別位於筲箕灣東大街、佐敦谷彩興路、牛頭角彩霞道、屯門海珠路、荃灣永順街。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793720-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793720-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793720-20250228.htm)
-
----
-
-# 衞生防護中心檢視做法　盡早公布特殊傳染病個案臨床情況重要轉變
-
-![徐樂堅表示，這宗個案的調查、控制、預防，以及宣傳教育的工作上沒有任何延遲，但中心會再檢視現行做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793719_1_20250228212858.jpg&q=80)
-  
-
-一名37歲男子被野生猴子襲擊後確診猴疱疹病毒，是本港首宗病例。昨日出版的《傳染病直擊》，當局披露，病人已於去年6月不治。衞生防護中心說，留意到有意見認為，在病人病逝當日，中心可再度發布新聞稿向市民公布消息。中心會檢視現行做法，在切實可行的情況下，盡早公布特殊傳染病個案臨床情況的重要轉變。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793719-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793719-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793719-20250228.htm)
-
----
-
-# 李家超出席藝術節開幕禮　指香港全力發展為中外文化藝術交流中心
-
-![李家超說，在國家「十四五」規劃下，香港全力發展成為中外文化藝術交流中心。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793717_1_20250228212932.jpg&q=80)
-  
-
-行政長官李家超在香港藝術節開幕典禮致辭時說，在國家「十四五」規劃下，香港全力發展成為中外文化藝術交流中心。政府已公布《文藝創意產業發展藍圖》，通過產業導向推動藝術發展，亦在《香港旅遊業發展藍圖2.0》訂下了「文化+旅遊」作為重點發展方向之一。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm)
-
----
-
-# 小欖綜合康復服務大樓啟用　陳國基稱會續增殘疾人士康復服務名額
-
-![陳國基表示，不同部門及營運機構早在大樓投入服務之前，已商討推展醫社合作服務模式，減少院友往返醫院的次數。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793716_1_20250228213135.jpg&q=90)
-  
-
-小欖綜合康復服務大樓正式啓用，提供1150個住宿照顧名額和560個日間訓練名額，服務對象涵蓋智障人士、肢體傷殘人士和精神復元人士。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm)
-
----
-
-# 海關檢獲市值約85萬元懷疑冒牌藥物拘4人
-
-![海關檢獲約14000懷疑冒牌藥物，估計市值約85萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793715_3_20250228213357.jpg&q=80)
-![海關人員採取執法行動，突擊搜查三間位於大埔、銅鑼灣和佐敦的藥店。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793715_2_20250228213357.jpg&q=75)
-  
-
-海關在大埔、銅鑼灣和佐敦打擊售賣冒牌藥物，檢獲約14000懷疑冒牌藥物，估計市值約85萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm)
-
----
-
-# 財委會通過批准中大醫院40億貸款首次還款日期順延至2028年
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793714_1_20250228212517.jpg&q=75)
-  
-
-立法會財委會在63票贊成、無人反對、9票棄權下，通過批准中大醫院40億貸款首次還款日期順延至2028年。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm)
-
----
-
-# CEPA修訂協議二將實施　讓香港企業人才以更優惠待遇進入內地
-
-![當局表示，特區政府會繼續協助業界善用《修訂協議二》的優惠措施，助力香港利用好「一國兩制」下「背靠祖國、聯通世界」的獨特優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793713_1_20250228212603.jpg&q=80)
-  
-
-國家商務部與特區政府在《內地與香港關於建立更緊密經貿關係的安排》（CEPA）框架下簽署的《關於修訂〈CEPA服務貿易協議〉的協議二》，明日起實施。《修訂協議二》進一步對香港開放內地的服務業市場，讓香港企業和專業人才能以更優惠的待遇進入內地市場，同時帶來制度創新和加強對接。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm)
-
----
-
-# 佳兆業香港債務重組計劃已獲大多數債權人批准
-
-![佳兆業集團公布，佳兆業香港債務重組計劃已獲所需的大多數佳兆業香港計劃債權人批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793712_1_20250228210023.jpg&q=75)
-  
-
-佳兆業集團公布境外債務重組計劃會議結果，指出佳兆業香港計劃已獲所需的大多數佳兆業香港計劃債權人批准。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793712-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793712-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793712-20250228.htm)
-
----
-
-# 印度北阿坎德邦喜馬拉雅山區發生雪崩　至少40人被困
-
-![印度軍方人員冒著大雪參與搜救行動。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793710_1_20250228205145.jpg&q=85)
-  
-
-印度北阿坎德邦喜馬拉雅山區發生雪崩，當局表示，至少40人被困。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793710-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793710-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793710-20250228.htm)
 
 ---

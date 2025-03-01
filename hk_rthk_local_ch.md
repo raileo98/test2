@@ -1,4 +1,171 @@
+# 李頌恩視察啟德體育園一帶交通　了解港鐵客流管理措施
+
+運輸署緊急事故交通協調中心自下午起，已提升至最高級別的聯合督導模式運作，監察啟德體育園區一帶交通及公共運輸服務情況，整體交通至今大致暢順。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm)
+
+---
+
+# 大欖懲教所25歲女囚犯疑體內藏毒　案件交警方跟進
+
+大欖女懲教所一名還押在囚女子被發現涉嫌利用體內藏毒，將懷疑毒品偷運進入懲教院所，懲教署將案件轉介警方跟進。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm)
+
+---
+
+# 鄧炳強到啟德體育園視察　有信心開幕禮運作暢順
+
+![鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793796_1_20250301170229.jpg&q=75)
+  
+
+啟德體育園傍晚舉行開幕典禮，保安局局長鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。他說經過多次演練，有信心今晚的整體運作會暢順，至於公眾不應攜帶的物品，工作人員能夠有效率處理，經宣傳後一些不應攜帶的物品，已很少人攜帶。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm)
+
+---
+
+# 有市民及旅客換票遲到　啟德體育園職員彈性處理
+
+![大會指，已有九成半的門票經兌換，對於遲到入場的市民會彈性處理。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_1_20250301165551.jpg&q=45)
+  
+
+啟德體育園傍晚舉行開幕禮，已購買電子門券的市民需於下午3時前到場換領實體票。有市民遲到，奔跑過來換票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm)
+
+---
+
+# 專業服務協進支援計劃接受新一輪申請　機構可提交建議項目
+
+![商務及經濟發展局表示，專業服務協進支援計劃下的主計劃邀請新一輪撥款申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793794_1_20250301165517.jpg&q=80)
+  
+
+專業服務協進支援計劃下的主計劃邀請新一輪撥款申請，專業團體、工商組織及研究院所等非分配利潤機構可提交建議項目。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm)
+
+---
+
+# 持票市民陸續進場準備觀賞啟德體育園開幕禮
+
+![持門票市民下午4時起進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_2_20250301164258.jpg&q=35)
+![鄧竟成表示，經過多次演練，園方人員、安保和警方等不同單位有工作默契，互相配合得不錯。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_1_20250301164258.jpg&q=85)
+![有市民期待在開幕禮觀賞到參與節目的國家乒乓球手樊振東。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_3_20250301164258.jpg&q=35)
+  
+
+啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式。預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm)
+
+---
+
+# 逾千名學童於維園為花卉展覽鑲嵌花壇
+
+![超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793789_1_20250301160502.jpg&q=55)
+  
+
+超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動，在約140名綠化義工指導下，協助鑲嵌大型花壇「非洲獵奇」。花壇為即將舉行的香港花卉展覽的主要特色景點之一。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm)
+
+---
+
 # 當局稱會彈性處理逾時換領啟德體育園開幕禮實體票
+
+![入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793787_1_20250301154124.jpg&q=50)
+  
 
 啟德體育園今日開幕，典禮晚上6時半在主場館舉行，將會有3萬多名觀眾可以入場觀看。入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止，但當局表示會彈性處理，不會立即停止換票。
 
@@ -115,7 +282,7 @@
 
 ---
 
-# 財政預算案2025｜陳茂波稱政府發債比率屬穩健
+# 財政預算案2025｜陳茂波稱私家車陸路邊境建設費並非定案
 
 ![陳茂波強調，香港從來的基建都有正面回報，北都發展都會一樣。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793775_1_20250301124019.jpg&q=75)
   
@@ -1268,173 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793650-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793650-20250228.htm)
-
----
-
-# 財政預算案2025｜投資基金公會對各項金融相關舉措都非常歡迎
-
-![黃王慈明（左一）舉例指政府將推出第二份虛擬資產政策宣言，反映政策具有一定前瞻性。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793649_1_20250228141511.jpg&q=80)
-  
-
-新一份財政預算案在提升本港國際金融市場發展方面有不少着墨。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793649-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793649-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793649-20250228.htm)
-
----
-
-# 人民幣貿易融資流動資金安排啟動　渣打向鋒睿國際香港提供融資
-
-![渣打為浙商中拓集團股份旗下全資子公司提供超過1億元人民幣離岸人民幣貿易融資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793642_1_20250228133620.jpg&q=90)
-  
-
-金管局新推出人民幣貿易融資流動資金安排今日正式啟動。渣打香港表示，已根據安排，向企業客戶提供離岸人民幣貿易融資。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793642-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793642-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793642-20250228.htm)
-
----
-
-# 啟德體育園明晚開幕禮　蔡健斌稱網上炒賣門票平台廣告已下架
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793637_1_20250228125849.jpg&q=80)
-  
-
-啟德體育園明日傍晚6時半在主場館舉行開幕典禮。體育專員蔡健斌說，觀眾下午4時半可以開始入場，一定要持實體門票才能進場，呼籲已購買電子門票換領券的市民，明天下午3時前到啟德體藝館換領實體票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm)
-
----
-
-# 徐樂堅表示流感仍在學校及院舍活躍傳播
-
-![徐樂堅表示，整體流感活躍程度仍然是高水平，預料趨勢至少維持至3月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793636_1_20250228130225.jpg&q=80)
-  
-
-衞生防護中心總監徐樂堅在本台節目《千禧年代》表示，今年1月初踏入流感季節後至今已8個星期，現時以甲一型的病毒株為主，最新監測數據顯示，上星期的呼吸道樣本陽性比率是7.14%，公立醫院住院病人的流感入院率是每1萬人口的0.43%，兩個指標都沒有再呈現持續上升，而且有少許下降跡象。但他強調整體流感活躍程度仍然是高水平，預料趨勢至少維持至3月。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793636-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793636-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793636-20250228.htm)
-
----
-
-# 分析料本港樓價今年平穩　無需再為樓市「加甜」
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793627_2_20250228123034.jpg&q=55)
-  
-
-差餉物業估價署數據顯示，本港1月樓價按月跌0.45%，連跌兩個月，創近8年半新低，按年跌6.4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793627-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793627-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793627-20250228.htm)
-
----
-
-# 啟德體育園明晚舉行開幕禮　蔡健斌稱觀眾一定要持實體票入場
-
-![政府舉行跨部門記者會，簡介啟德體育園明晚開幕禮的入場和交通安排。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793629_1_20250228124237.jpg&q=80)
-  
-
-政府舉行跨部門記者會，簡介啟德體育園明晚開幕禮的入場和交通安排。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793629-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793629-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793629-20250228.htm)
-
----
-
-# 財政預算案2025｜孫東稱本港創科中下游轉化要努力
-
-![孫東表示，香港人工智能研發院有助整合有限資源。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793631_1_20250228124031.jpg&q=80)
-  
-
-創新科技及工業局局長孫東表示，本港的上游研發做得不錯，但中下游轉化要努力，成立香港人工智能研發院有助整合有限資源，為人工智能成為關鍵產業發揮引領作用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793631-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793631-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793631-20250228.htm)
 
 ---

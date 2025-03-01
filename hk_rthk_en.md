@@ -46,9 +46,9 @@ World number one Aryna Sabalenka praised on Friday the WTA's mission to highligh
 
 ---
 
-# Search continues for 22 people after avalanche
+# Search continues for 22 missing from India avalanche
 
-![A handout image from the Indian Army shows what the army says is a rescue operation during heavy snowfall, after an avalanche struck a camp near Mana village. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793776_1_20250301121615.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793776_1_20250301121615.jpg&q=85)
   
 
 Search teams in northern India on Saturday attempted to rescue 22 workers believed to be trapped after an avalanche hit a remote border area, officials and local media said.
@@ -144,7 +144,7 @@ Jos Buttler resigned as England white-ball captain on Friday after his team made
 
 # Japan battles biggest wildfire in decades
 
-![An aerial views shows a forest fire on a mountain in Ofunato, Iwate Prefecture, northeastern Japan, in this photo taken by Kyodo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793771_1_20250301115415.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793771_1_20250301115415.jpg&q=80)
   
 
 Japan was battling its largest wildfire in more than three decades on Saturday, one of several blazes that have killed one person and forced the evacuation of more than a thousand.
@@ -192,7 +192,7 @@ China's manufacturing activity grew in February after a dip the previous month, 
 
 # Card readers will be updated to allow for HK$2 tweaks
 
-![Chris Sun says users will be able to check their remaining subsidised journeys by the time the changes to the HK$2 transport subsidy scheme take effect. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793766_1_20250301104120.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793766_1_20250301104120.jpg&q=80)
   
 
 Users will be able to check the remaining number of discounted trips using an Octopus card reader when changes to the HK$2 elderly transport subsidy take effect, the labour and welfare chief Chris Sun said on Saturday.
@@ -312,7 +312,7 @@ Microsoft on Friday announced it was retiring Skype, the online voice and video 
 
 # Trump berates Zelensky in shock Oval office meeting
 
-![Speaking before the shouting match erupted, Trump told Zelensky that a truce is "fairly close." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793743_1_20250301034739.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793743_1_20250301034739.jpg&q=85)
   
 
 US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday and said the Ukrainian leader is "not ready" for peace with Russia in an extraordinary meltdown in the Oval Office that threw question marks over chances for a truce.

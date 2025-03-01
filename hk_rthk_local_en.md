@@ -48,7 +48,7 @@ Financial Secretary Paul Chan on Saturday said his proposal to freeze civil serv
 
 # Card readers will be updated to allow for HK$2 tweaks
 
-![Chris Sun says users will be able to check their remaining subsidised journeys by the time the changes to the HK$2 transport subsidy scheme take effect. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793766_1_20250301104120.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793766_1_20250301104120.jpg&q=80)
   
 
 Users will be able to check the remaining number of discounted trips using an Octopus card reader when changes to the HK$2 elderly transport subsidy take effect, the labour and welfare chief Chris Sun said on Saturday.
