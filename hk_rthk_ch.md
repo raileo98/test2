@@ -1,4 +1,23 @@
+# 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm)
+
+---
+
 # 有遲到市民和旅客滿意當局換領實體票安排
+
+![有觀眾表示，好期待開幕禮的表演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793808_1_20250301184040.jpg&q=80)
+  
 
 啟德體育園開幕禮的入場觀眾，需預先換領實體門票，當局原定今日下午3時為換票截止時間，但最後彈性安排給遲到的人兌換門票。有遲到的市民和旅客都滿意當局安排。
 
@@ -1407,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm)
-
----
-
-# 日本岩手縣大船渡市山火擴大　石破茂指示做到應對工作萬無一失
-
-![山火至今造成一人死亡，超過80棟房屋焚毀。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793731_1_20250228225525.jpg&q=85)
-  
-
-日本岩手縣大船渡市的山火焚燒三日，火場面積擴大至最少1200公頃，超越1992年北海道釧路市山火的紀錄。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Pope spends 'peaceful night' after breathing crisis
+
+![Candles and flowers adorn the statue of John Paul II at the Gemelli University Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793810_1_20250301183956.jpg&q=90)
+  
+
+Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a peaceful night after suffering a breathing crisis, the Vatican said on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm)
+
+---
+
 # Excited crowds arrive early for Kai Tak opening show
 
 ![Spectators were allowed to enter Kai Tak Stadium from 4:30pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_1_20250301181051.jpg&q=60)
@@ -1414,29 +1438,5 @@ Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
-
----
-
-# Man dies in Yuen Long Highway pile-up
-
-![A seven-vehicle collision occurred at around 7:30am near the Shap Pat Heung Interchange. Image: social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
-  
-
-A man died and seven others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm)
 
 ---

@@ -1,4 +1,23 @@
+# 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm)
+
+---
+
 # 有遲到市民和旅客滿意當局換領實體票安排
+
+![有觀眾表示，好期待開幕禮的表演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793808_1_20250301184040.jpg&q=80)
+  
 
 啟德體育園開幕禮的入場觀眾，需預先換領實體門票，當局原定今日下午3時為換票截止時間，但最後彈性安排給遲到的人兌換門票。有遲到的市民和旅客都滿意當局安排。
 
@@ -1411,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm)
-
----
-
-# 財政預算案2025｜丘應樺稱本港擬於吉隆坡及利雅得開設經貿辦
-
-![丘應樺表示，就擴展經貿網絡，當局正分別與馬來西亞及沙特阿拉伯政府商討。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793661_1_20250228162051.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺表示，就擴展經貿網絡，當局正分別與馬來西亞及沙特阿拉伯政府商討，在吉隆坡及利雅得開設經濟貿易辦事處，加強特區與中東及東盟貿易夥伴的聯繫。本港正與沙特阿拉伯、孟加拉國、埃及及秘魯探討簽訂投資協定，並積極爭取盡早加入區域全面經濟夥伴關係協定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm)
 
 ---

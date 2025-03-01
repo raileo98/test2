@@ -1,3 +1,27 @@
+# Pope spends 'peaceful night' after breathing crisis
+
+![Candles and flowers adorn the statue of John Paul II at the Gemelli University Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793810_1_20250301183956.jpg&q=90)
+  
+
+Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a peaceful night after suffering a breathing crisis, the Vatican said on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm)
+
+---
+
 # Four dead from India avalanche, five still missing
 
 ![The Indian army says that of the 50 people initially rescued, four had succumbed to their injuries. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793804_1_20250301180434.jpg&q=90)
@@ -1411,29 +1435,5 @@ Spain's High Court has found former soccer federation boss Luis Rubiales guilty 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm)
-
----
-
-# Teen detained after two killed in Czech knife attack
-
-![A police officer stands guard at the site where two women died in a knife attack in Hradec Kralove, Czech Republic. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792502_1_20250220211355.jpg&q=90)
-  
-
-Two women died in a knife attack on Thursday at a shopping center in the Czech Republic, officials said.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm)
 
 ---
