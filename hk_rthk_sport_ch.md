@@ -120,9 +120,9 @@
 
 # 張家朗回母校獲頒337.5萬獎金　勉勵學生遇挫折不要氣餒
 
-![張家朗獲頒獎金表揚他在巴黎奧運出色表現。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_1_20250228161129.jpg&q=75)
 ![張家朗表示，他在巴黎奧運前的亞錦賽遇到很大挫折，花了一些時間重新振作。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_4_20250228171530.jpg&q=5)
 ![林大輝說，運動員獎勵計劃再次證明學校對香港體育界和教育界的付出和貢獻。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_3_20250228170314.jpg&q=80)
+![林大輝中學將興建一所樓高8層的「藝術及文化發展中心」，今日舉行奠基典禮，預計明年9月落成。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_5_20250301124343.jpg&q=60)
   
 
 「香港劍神」張家朗在去年巴黎奧運衞冕成功，再奪花劍個人賽金牌，「林大輝慈善基金傑出運動員獎勵計劃」向張家朗頒發337.5萬元獎金，表揚他的傑出表現。
