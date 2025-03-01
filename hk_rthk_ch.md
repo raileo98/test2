@@ -1,3 +1,24 @@
+# 奧蘇利雲因健康狀況　將缺席於本港舉行世界格蘭披治桌球大獎賽
+
+桌球手奧蘇利雲因健康狀況，將缺席星期二起，在啟德體藝館舉行的世界格蘭披治桌球大獎賽2025。主辦單位稱是今日接獲奧蘇利雲的通知，而排名33位的賀辛將取代奧蘇利雲參賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm)
+
+---
+
 # 陳美寶：公共交通營運商全面提升運力　觀眾往返啟德體育園順利
 
 ![陳美寶表示，觀眾往返啟德體育園十分順利。（運輸及物流局網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793833_1_20250301231102.jpg&q=80)
@@ -95,6 +116,9 @@
 ---
 
 # 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
+
+![警方調查香港仔發生的致命交通意外，一名女子死亡。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793828_1_20250301231603.jpg&q=25)
+  
 
 警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。
 
