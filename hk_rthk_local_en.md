@@ -1,3 +1,27 @@
+# Man hospitalised with measles after Vietnam trip
+
+![The 38-year-old man is now stable in Queen Elizabeth Hospital. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793847_1_20250302054528.jpg&q=40)
+  
+
+The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old had travelled to the country earlier this month and is now stable at Queen Elizabeth Hospital.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm)
+
+---
+
 # O'Sullivan drops out of HK Snooker Grand Prix
 
 ![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
@@ -1413,29 +1437,5 @@ Environment minister Tse Chin-wan on Tuesday said he believes a market-led appro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm)
-
----
-
-# Cancelled art fair was denied government funding
-
-![The event was scheduled to take place between March 26-30. Photo courtesy of Digital Art Fair.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793060_1_20250225111142.jpg&q=90)
-  
-
-The government has urged event organisers to make sure they have sufficient funding before selling tickets, after this year's Digital Art Fair was cancelled just weeks in advance.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm)
 
 ---

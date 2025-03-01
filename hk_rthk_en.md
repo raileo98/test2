@@ -1,3 +1,27 @@
+# Man hospitalised with measles after Vietnam trip
+
+![The 38-year-old man is now stable in Queen Elizabeth Hospital. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793847_1_20250302054528.jpg&q=40)
+  
+
+The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old had travelled to the country earlier this month and is now stable at Queen Elizabeth Hospital.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm)
+
+---
+
 # O'Sullivan drops out of HK Snooker Grand Prix
 
 ![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
@@ -1412,29 +1436,5 @@ Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a ne
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.3 percent at 23,718. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793499_1_20250227170354.jpg&q=60)
-  
-
-Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.3 percent at 23,718.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm)
 
 ---
