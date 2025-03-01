@@ -1,3 +1,27 @@
+# 音樂人方大同離世　終年41歲
+
+![方大同上月21日離世，終年41歲。（方大同社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793784_1_20250301141344.jpg&q=90)
+  
+
+著名音樂人方大同上月21日離世，終年41歲。其創辦的音樂公司在社交網站發布帖文，指方大同面對頑疾5年，上月21日早上安詳離世。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡稱會與社福機構商討資源運用拆牆鬆綁
 
 ![孫玉菡表示，現有向社福機構提供的400多億元資助需要削減。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793780_1_20250301123735.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793625-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793625-20250228.htm)
-
----
-
-# 37歲男子染猴疱疹病毒後死亡　衞生防護中心籲勿與猴子直接接觸
-
-![衞生防護中心指出，「猴疱疹病毒」感染到人類可以有嚴重後果，最重要是不要與猴子有直接接觸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793630_1_20250228124133.jpg&q=75)
-  
-
-一名37歲男子去年確診「猴疱疹病毒」，其後死亡。衞生防護中心總監徐樂堅表示，自從去年4月啟動呈報機制後，沒有收過第二宗同類呈報。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793630-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793630-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793630-20250228.htm)
 
 ---

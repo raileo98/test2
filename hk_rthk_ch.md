@@ -1,3 +1,27 @@
+# 音樂人方大同離世　終年41歲
+
+![方大同上月21日離世，終年41歲。（方大同社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793784_1_20250301141344.jpg&q=90)
+  
+
+著名音樂人方大同上月21日離世，終年41歲。其創辦的音樂公司在社交網站發布帖文，指方大同面對頑疾5年，上月21日早上安詳離世。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm)
+
+---
+
 # 特朗普：澤連斯基須意識到正輸掉戰爭　沒美國支持烏克蘭將失敗
 
 ![特朗普不點名指澤連斯基企圖讓美國加入並繼續戰鬥，美國不會這麼做。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793783_1_20250301134345.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm)
-
----
-
-# 洪水橋厦村及元朗南新發展區智慧綠色集體運輸項目接27份意向書
-
-![陳美寶形容反應踴躍，令人鼓舞。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793707_1_20250228203754.jpg&q=90)
-  
-
-政府就洪水橋/厦村及元朗南新發展區智慧綠色集體運輸系統項目，收到27份來自本地、內地及海外公司相關系統供應商及營運商意向書。運輸及物流局局長陳美寶形容反應踴躍，令人鼓舞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm)
 
 ---
