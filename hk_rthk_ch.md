@@ -1,3 +1,27 @@
+# 東深供水工程60年對港供水3百億立方米　佔港淡水總用量近八成
+
+![東江源頭護林員巡護山林時經過小溪，這裡的溪水將與其他水源匯成東江源頭。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793838_1_20250302011506.jpg&q=85)
+  
+
+昨日是東江—深圳供水工程正式通水、暨廣東對香港供水60周年，廣東省水利廳表示，60年來工程累計供水達671億立方米，其中對香港供水達300億立方米，佔香港淡水總用量近八成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm)
+
+---
+
 # 華爾街日報：中方出於安全考慮要求國內AI人才避免赴美
 
 ![國家主席習近平上月出席民營企業家座談會，DeepSeek創辦人梁文鋒亦有參與。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793837_1_20250302004357.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm)
-
----
-
-# 《環看天下》：DeepSeek觸發環球資金轉向
-
-![Deep Seek 核心成員均來自中國的大學，並沒有海外背景。（法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793756_1_20250301083234.jpg&q=90)
-  
-
-中國人工智能模型DeepSeek使用較低端及較少數目晶片，但運算速度及得出的生成式文字結果，與使用大量高端晶片運算的Open AI大模型大致相同，引發全球關注。由於DeepSeek的成本相對便宜，觸發資產市場對中美相關企業重新估值，導致環球資金短時間內轉向。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm)
 
 ---

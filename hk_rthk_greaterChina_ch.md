@@ -1,3 +1,27 @@
+# 東深供水工程60年對港供水3百億立方米　佔港淡水總用量近八成
+
+![東江源頭護林員巡護山林時經過小溪，這裡的溪水將與其他水源匯成東江源頭。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793838_1_20250302011506.jpg&q=85)
+  
+
+昨日是東江—深圳供水工程正式通水、暨廣東對香港供水60周年，廣東省水利廳表示，60年來工程累計供水達671億立方米，其中對香港供水達300億立方米，佔香港淡水總用量近八成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm)
+
+---
+
 # 王新偉出任遼寧省代省長
 
 ![遼寧省人大常委會會議任命王新偉為遼寧省副省長、代省長。（微博圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793786_1_20250301155329.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm)
-
----
-
-# 財政預算案2025｜彭耀佳稱謹慎運用政府資源精準制訂宣傳策略
-
-![旅發局稱定必謹慎運用政府資源，精準制訂宣傳策略。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793294_1_20250226153056.jpg&q=70)
-  
-
-財政司司長陳茂波宣布，為落實「無處不旅遊」的理念及《香港旅遊業發展藍圖2.0》，來年會向旅發局撥款12億3500萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm)
 
 ---
