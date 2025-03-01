@@ -1,3 +1,24 @@
+# 有遲到市民和旅客滿意當局換領實體票安排
+
+啟德體育園開幕禮的入場觀眾，需預先換領實體門票，當局原定今日下午3時為換票截止時間，但最後彈性安排給遲到的人兌換門票。有遲到的市民和旅客都滿意當局安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm)
+
+---
+
 # 啟德體育園開幕禮傍晚舉行　鄧炳強：相信運作暢順
 
 啟德體育園今日正式啟用，開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，持票觀眾已陸續進場。
@@ -20,6 +41,9 @@
 ---
 
 # 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793806_1_20250301183553.jpg&q=60)
+  
 
 啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm)
-
----
-
-# 財政預算案2025｜羅淑佩稱留意有報道指國際歌星或到鄰近城市
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793659_1_20250228162014.jpg&q=80)
-  
-
-啟德體育園開幕典禮明晚6時半在啟德主場館舉行，文化體育及旅遊局局長羅淑佩表示，屆時會有簡單隆重的儀式，容許新聞界進行拍攝及剪輯成不多於3分鐘播出。至於開幕典禮則以轉播安排，希望以最美麗、宏偉及一氣呵成的角度播映給市民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm)
 
 ---

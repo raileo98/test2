@@ -1,3 +1,24 @@
+# 有遲到市民和旅客滿意當局換領實體票安排
+
+啟德體育園開幕禮的入場觀眾，需預先換領實體門票，當局原定今日下午3時為換票截止時間，但最後彈性安排給遲到的人兌換門票。有遲到的市民和旅客都滿意當局安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm)
+
+---
+
 # 啟德體育園開幕禮傍晚舉行　鄧炳強：相信運作暢順
 
 啟德體育園今日正式啟用，開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，持票觀眾已陸續進場。
@@ -20,6 +41,9 @@
 ---
 
 # 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793806_1_20250301183553.jpg&q=60)
+  
 
 啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
 
@@ -117,7 +141,7 @@
 ![馬克龍（左）與葡萄牙總理蒙特內格羅舉行聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793800_1_20250301173251.jpg&q=90)
   
 
-法國總統馬克龍在對葡萄牙訪問期間表示，如果美國對歐洲進口商品徵收25%關稅，歐盟將對美國鋼鐵和鋁徵收「對等關稅」，對其他產品亦將不得不「採取回應措施」。
+法國總統馬克龍在葡萄牙訪問期間表示，如果美國對歐洲進口商品徵收25%關稅，歐盟將對美國鋼鐵和鋁徵收「對等關稅」，對其他產品亦將不得不「採取回應措施」。
 
   
 
@@ -908,6 +932,9 @@
 
 # 澤連斯基：毋須向特朗普道歉　有信心挽回彼此關係
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793754_1_20250301183115.jpg&q=75)
+  
+
 美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，原定的兩國總統記者會取消，美方提出的礦產協議亦未簽署。
 
   
@@ -1404,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm)
-
----
-
-# 美股初段個別發展
-
-![道瓊斯指數較早時報43332點，升92點，升幅0.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793729_1_20250228224550.jpg&q=90)
-  
-
-美股在開市初段個別發展，美國上月核心個人消費開支(PCE)物價指數符合預期。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm)
 
 ---
