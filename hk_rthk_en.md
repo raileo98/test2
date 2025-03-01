@@ -1,9 +1,33 @@
+# Zelensky gets warm welcome in UK after Trump clash
+
+![UK Prime Minister Keir Starmer meets Ukraine's President Volodymyr Zelensky in Downing Street. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793850_1_20250302074020.jpg&q=90)
+  
+
+UK Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm welcome in London, a day after the Ukrainian leader's clash with US President Donald Trump.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm)
+
+---
+
 # Man hospitalised with measles after Vietnam trip
 
 ![The 38-year-old man is now stable in Queen Elizabeth Hospital. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793847_1_20250302054528.jpg&q=40)
   
 
-The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old had travelled to the country earlier this month and is now stable at Queen Elizabeth Hospital.
+The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old had travelled to the country in February and is now stable at Queen Elizabeth Hospital.
 
   
 
@@ -1412,29 +1436,5 @@ Oscar-winning actor Gene Hackman, his wife and their dog were found dead in thei
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm)
-
----
-
-# 'AI R&D institute could open as early as next year'
-
-![Sun Dong says the planned Hong Kong AI Research and Development Institute could commence operation as early as next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793505_1_20250227171607.jpg&q=85)
-  
-
-Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a new Hong Kong AI Research and Development Institute could commence operation as early as next year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm)
 
 ---
