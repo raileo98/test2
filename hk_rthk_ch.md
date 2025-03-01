@@ -1,3 +1,27 @@
+# 啟德體育園開幕典禮舉行　本港與內地歌手和體壇名將參與
+
+![開幕典禮上，內地與香港運動員代表合唱歌曲。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793846_1_20250302051453.jpg&q=90)
+  
+
+啟德體育園開幕典禮，昨晚在啟德體育園主場館舉行，歷時2小時，有3萬多名觀眾出席。行政長官李家超在開幕致辭說，懷著興奮心情見證啟德體育園開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm)
+
+---
+
 # 埃爾多安警告若庫爾德工人黨不信守承諾將重啟軍事行動
 
 ![埃爾多安說，如果庫爾德工人黨試圖欺騙或採取拖延戰術，就要承擔責任。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793845_1_20250302041650.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm)
-
----
-
-# 全國兩會｜全國政協十四屆三次會議下星期二北京召開
-
-![新華社報道，全國政協十四屆三次會議下星期二在北京召開。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793765_1_20250301102958.jpg&q=55)
-  
-
-新華社報道，今日召開的全國政協常委會會議決定，全國政協十四屆三次會議下星期二在北京召開。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm)
 
 ---

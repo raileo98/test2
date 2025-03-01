@@ -1,3 +1,27 @@
+# 啟德體育園開幕典禮舉行　本港與內地歌手和體壇名將參與
+
+![開幕典禮上，內地與香港運動員代表合唱歌曲。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793846_1_20250302051453.jpg&q=90)
+  
+
+啟德體育園開幕典禮，昨晚在啟德體育園主場館舉行，歷時2小時，有3萬多名觀眾出席。行政長官李家超在開幕致辭說，懷著興奮心情見證啟德體育園開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm)
+
+---
+
 # 東深供水工程60年對港供水3百億立方米　佔港淡水總用量近八成
 
 ![東江源頭護林員巡護山林時經過小溪，這裡的溪水將與其他水源匯成東江源頭。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793838_1_20250302011506.jpg&q=85)
@@ -1418,30 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793690-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793690-20250228.htm)
-
----
-
-# 胡英明率團訪沙特及阿聯酋　加強與中東反貪領域聯繫
-
-![胡英明到訪阿拉伯聯合酋長國問責局與主席會面，並簽訂合作諒解備忘錄，深化反貪合作。（廉署提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793686_1_20250228183711.jpg&q=80)
-![胡英明率領代表團訪問沙特阿拉伯和阿聯酋，加強香港與中東地區在反貪領域的聯繫。（廉署提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793686_2_20250228183711.jpg&q=70)
-  
-
-廉政專員胡英明率領代表團訪問沙特阿拉伯和阿聯酋，加強香港與中東地區在反貪領域的聯繫。胡英明亦以國際反貪局聯合會主席身份，在雙邊會議期間，與作為聯合會執行委員會委員的沙特監察與反腐敗署署長探討加快推進與廉署的合作項目。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm)
 
 ---
