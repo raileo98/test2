@@ -1,3 +1,27 @@
+# PKK declares ceasefire with Turkey after 40 years
+
+![Turkish president Recep Tayyip Erdogan has described PKK leader Abdullah Ocalan's appeal as an "historic opportunity." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793814_1_20250301193855.jpg&q=90)
+  
+
+Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey following a landmark call by jailed PKK leader Abdullah Ocalan asking the group to disband.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm)
+
+---
+
 # Pope spends 'peaceful night' after breathing crisis
 
 ![Candles and flowers adorn the statue of John Paul II at the Gemelli University Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793810_1_20250301183956.jpg&q=90)
@@ -1413,29 +1437,5 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
-
----
-
-# 'Buffy the Vampire Slayer' star Trachtenberg dies
-
-![Actress Michelle Trachtenberg, who starred in the 90s show 'Buffy the Vampire Slayer', was found dead in her New York apartment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793451_1_20250227113737.jpg&q=90)
-  
-
-Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet the Spy” hit movie and went on to co-star in two buzzy millennial-era TV shows — “Buffy the Vampire Slayer” and “Gossip Girl” — has died. She was 39.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
 
 ---
