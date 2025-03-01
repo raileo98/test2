@@ -1,3 +1,27 @@
+# 哈馬斯拒延長停火協議第一階段　以色列接納在齋戒月和逾越節停火
+
+![以色列表示，將採納在齋戒月和逾越節在加沙暫時停火的建議。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793849_1_20250302065157.jpg&q=5)
+  
+
+為期六星期的加沙停火協議第一階段在星期六結束，巴勒斯坦武裝組織哈馬斯拒絕以色列希望延長第一階段的方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm)
+
+---
+
 # 埃爾多安警告若庫爾德工人黨不信守承諾將重啟軍事行動
 
 ![埃爾多安說，如果庫爾德工人黨試圖欺騙或採取拖延戰術，就要承擔責任。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793845_1_20250302041650.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793615-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793615-20250228.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱需更多高消費旅客及開拓內地新客源
-
-![陳茂波認為，本港需要更多高消費旅客，同時亦要開拓內地新客源。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793609_1_20250228102254.jpg&q=70)
-  
-
-財政司司長陳茂波說，零售業在過去兩年經歷一些挑戰，本地消費者及旅客的消費模式不斷改變，認為本港需要更多高消費旅客，同時亦要開拓內地新客源。他表示，得到中央支持，開放更多省市的人士以個人遊方式來港旅客，一簽多行亦可能擴展至更多大灣區城市的居民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 哈馬斯拒延長停火協議第一階段　以色列接納在齋戒月和逾越節停火
+
+![以色列表示，將採納在齋戒月和逾越節在加沙暫時停火的建議。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793849_1_20250302065157.jpg&q=5)
+  
+
+為期六星期的加沙停火協議第一階段在星期六結束，巴勒斯坦武裝組織哈馬斯拒絕以色列希望延長第一階段的方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm)
+
+---
+
 # 英足盃曼城3:1反勝普利茅夫晉級
 
 ![曼城年輕小將歷高奧懷利建兩功。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793848_1_20250302064149.jpg&q=80)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm)
-
----
-
-# 習近平主持中央政治局集體學習　強調建設更高水平平安中國
-
-![習近平主持中央政治局第十九次集體學習。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793768_1_20250301110503.jpg&q=90)
-  
-
-中共總書記習近平主持中央政治局第十九次集體學習。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm)
 
 ---
