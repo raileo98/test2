@@ -1,3 +1,27 @@
+# 埃爾多安警告若庫爾德工人黨不信守承諾將重啟軍事行動
+
+![埃爾多安說，如果庫爾德工人黨試圖欺騙或採取拖延戰術，就要承擔責任。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793845_1_20250302041650.jpg&q=85)
+  
+
+土耳其總統埃爾多安警告，如果庫爾德工人黨不信守承諾，土耳其將會重啟軍事行動並予以打擊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm)
+
+---
+
 # 美國有貨機遭鳥擊導致引擎起火緊急降落
 
 ![飛機起飛後不久因為鳥擊導致引擎起火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793844_1_20250302031443.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm)
-
----
-
-# 中國駐澳大使：澳洲應客觀理性看待中澳關係和中國軍艦活動
-
-![肖千接受央視新聞訪問。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793603_1_20250228093156.jpg&q=90)
-  
-
-中國駐澳洲大使肖千表示，澳洲應該以客觀理性的眼光看待中澳關係、中國軍艦在塔斯曼海的活動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm)
 
 ---
