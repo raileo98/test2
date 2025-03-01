@@ -1,3 +1,27 @@
+# 華爾街日報：中方出於安全考慮要求國內AI人才避免赴美
+
+![國家主席習近平上月出席民營企業家座談會，DeepSeek創辦人梁文鋒亦有參與。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793837_1_20250302004357.jpg&q=85)
+  
+
+美國《華爾街日報》報道，中方出於安全考慮，要求國內人工智能AI行業的頂尖人才，避免前往美國。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm)
+
+---
+
 # 哈馬斯：戰後加沙管理由巴人決定　埃及稱加沙屬巴方不可分割領土
 
 ![哈馬斯說，戰後加沙的管理必須由巴勒斯坦人自主決定。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793836_1_20250302002459.jpg&q=35)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm)
-
----
-
-# 澤連斯基：毋須向特朗普道歉　有信心挽回彼此關係
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793754_1_20250301183115.jpg&q=75)
-  
-
-美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，原定的兩國總統記者會取消，美方提出的礦產協議亦未簽署。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm)
 
 ---
