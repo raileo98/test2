@@ -1,3 +1,24 @@
+# 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
+
+啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
+
+---
+
 # 觀眾接受安檢進入啟德體育園主場館　有人攜帶水樽被收走
 
 ![市民陸續經安檢後入場。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793802_1_20250301174455.jpg&q=60)
@@ -1417,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm)
-
----
-
-# 工貿署署長訪問印尼與東盟官員會面　推動香港加入RCEP
-
-![工業貿易署署長廖廣翔訪問印尼雅加達。（商經局社交網站圖片 ）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793652_1_20250228161159.jpg&q=85)
-  
-
-工業貿易署署長廖廣翔訪問印尼，與東盟官員會面，推動香港加入《區域全面經濟伙伴關係協定》(RCEP)。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
 
 ---

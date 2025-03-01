@@ -1,3 +1,27 @@
+# Four dead from India avalanche, five still missing
+
+![The Indian army says that of the 50 people initially rescued, four had succumbed to their injuries. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793804_1_20250301180434.jpg&q=90)
+  
+
+At least four people died from their injuries in India after an avalanche hit a remote border area, officials said on Saturday, as rescuers deployed helicopters to search for the remaining five missing.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm)
+
+---
+
 # Search continues for 22 missing from India avalanche
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793776_1_20250301121615.jpg&q=85)
@@ -1411,29 +1435,5 @@ Two women died in a knife attack on Thursday at a shopping center in the Czech R
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792502-20250220.htm)
-
----
-
-# Ousted S Korean leader goes on trial
-
-![Ousted premier Han Duck-soo told Seoul's Constitutional Court he had "expressed my opposition" to President Yoon's decision to suspend civilian rule. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792501_1_20250220184003.jpg&q=90)
-  
-
-South Korea's ousted premier said on Thursday that he had opposed suspended President Yoon Suk-yeol's declaration of martial law, testifying for the first time at his former boss' impeachment trial about the events of a night that threw the country into turmoil.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm)
 
 ---

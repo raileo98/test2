@@ -1,3 +1,28 @@
+# Excited crowds arrive early for Kai Tak opening show
+
+![Spectators were allowed to enter Kai Tak Stadium from 4:30pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_1_20250301181051.jpg&q=60)
+![Authorities originally told spectators to arrive by 3pm to redeem their tickets, but the redemption counter remained open after the deadline as many arrived late. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_2_20250301181051.jpg&q=65)
+  
+
+Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening ceremony on Saturday night, but some were left confused by the rules of admission.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm)
+
+---
+
 # Taxi fleets to be unveiled on Monday: transport chief
 
 ![Five taxi fleets will hit the streets next Monday, with a range of electric vehicles on offer. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793790_1_20250301155137.jpg&q=85)
@@ -1412,29 +1437,5 @@ An automotive sector representative on Tuesday welcomed the rule mandating child
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793028-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793028-20250225.htm)
-
----
-
-# Newborn baby found dead in Sham Tseng unit
-
-![Police say they received a report on Monday afternoon regarding an unconscious infant in Sham Tseng. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792991_1_20250224205840.jpg&q=80)
-  
-
-Police said a newborn baby was found dead in a unit in western Tsuen Wan on Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm)
 
 ---

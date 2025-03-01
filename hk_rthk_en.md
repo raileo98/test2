@@ -1,3 +1,52 @@
+# Excited crowds arrive early for Kai Tak opening show
+
+![Spectators were allowed to enter Kai Tak Stadium from 4:30pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_1_20250301181051.jpg&q=60)
+![Authorities originally told spectators to arrive by 3pm to redeem their tickets, but the redemption counter remained open after the deadline as many arrived late. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_2_20250301181051.jpg&q=65)
+  
+
+Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening ceremony on Saturday night, but some were left confused by the rules of admission.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm)
+
+---
+
+# Four dead from India avalanche, five still missing
+
+![The Indian army says that of the 50 people initially rescued, four had succumbed to their injuries. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793804_1_20250301180434.jpg&q=90)
+  
+
+At least four people died from their injuries in India after an avalanche hit a remote border area, officials said on Saturday, as rescuers deployed helicopters to search for the remaining five missing.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm)
+
+---
+
 # Taxi fleets to be unveiled on Monday: transport chief
 
 ![Five taxi fleets will hit the streets next Monday, with a range of electric vehicles on offer. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793790_1_20250301155137.jpg&q=85)
@@ -1388,53 +1437,5 @@ A man died and seven others were injured following a seven-vehicle collision on 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm)
-
----
-
-# Local stocks drop at open
-
-![The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793437_1_20250227095324.jpg&q=25)
-  
-
-Hong Kong stocks on Thursday opened lower, after Wall Street stocks were mixed at the end of a choppy session on Wednesday as US President Donald Trump signalled plans for tariffs on the European Union.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm)
-
----
-
-# '99pc of people won't exceed new HK$2 scheme limits'
-
-![The government proposes that the HK$2 scheme be capped at 240 trips per month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793427_1_20250227090706.jpg&q=85)
-  
-
-An Executive Councillor on Thursday said most of Hong Kong's senior citizens will not be affected by changes to the city's fare concessionary scheme for the over 60s.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm)
 
 ---

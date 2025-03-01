@@ -1,3 +1,24 @@
+# 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
+
+啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
+
+---
+
 # 梵蒂岡：教宗方濟各度過了平靜一晚
 
 ![信眾在聖伯多祿廣場為教宗祈禱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793803_1_20250301174645.jpg&q=85)
@@ -866,9 +887,6 @@
 
 # 澤連斯基：毋須向特朗普道歉　有信心挽回彼此關係
 
-![特朗普在白宮會見到訪的澤連斯基，最終不歡而散。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793754_1_20250301082928.jpg&q=85)
-  
-
 美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，原定的兩國總統記者會取消，美方提出的礦產協議亦未簽署。
 
   
@@ -1413,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm)
-
----
-
-# 俄方稱於俄美會談提出恢復兩國直航
-
-![美國和俄羅斯的代表團，昨日在土耳其伊斯坦布爾會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793728_1_20250228224312.jpg&q=25)
-  
-
-美國和俄羅斯的代表團，昨日在土耳其伊斯坦布爾就雙邊關係舉行首輪會談，俄羅斯外交部說，會談內容豐富務實，雙方同意透過有關渠道繼續對話。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm)
 
 ---
