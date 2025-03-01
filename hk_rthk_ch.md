@@ -1,3 +1,27 @@
+# 美國有貨機遭鳥擊導致引擎起火緊急降落
+
+![飛機起飛後不久因為鳥擊導致引擎起火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793844_1_20250302031443.jpg&q=90)
+  
+
+美國聯邦快遞一架貨機因為遭到鳥擊導致引擎起火，需要緊急降落。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm)
+
+---
+
 # 梵蒂岡稱教宗方濟各情況穩定
 
 ![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793843_1_20250302022219.jpg&q=65)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱創科有不同舉措需穩中求進
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793763_1_20250301102213.jpg&q=70)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍早前南下考察時表示，期望特區政府繼續勇於改革，敢於破局。財政司司長陳茂波出席本台節目《星期六問責》時被問到，有否按夏寶龍的想法去做財政預算案。陳茂波回應說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破，亦要鞏固好傳統優勢才開展新領域，例如創科方面有不同舉措，強調要穩中求進，令社會在升級轉型過程中順利，將可能出現的影響減到最低。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm)
 
 ---

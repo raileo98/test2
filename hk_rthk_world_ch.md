@@ -1,3 +1,27 @@
+# 美國有貨機遭鳥擊導致引擎起火緊急降落
+
+![飛機起飛後不久因為鳥擊導致引擎起火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793844_1_20250302031443.jpg&q=90)
+  
+
+美國聯邦快遞一架貨機因為遭到鳥擊導致引擎起火，需要緊急降落。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm)
+
+---
+
 # 梵蒂岡稱教宗方濟各情況穩定
 
 ![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793843_1_20250302022219.jpg&q=65)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm)
-
----
-
-# 《環看天下》：美國政府效率部多人請辭　馬斯克領導角色惹質疑
-
-![美國總統特朗普近日對馬斯克（左）在政府效率部的工作表示讚賞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793598_1_20250228091257.jpg&q=90)
-  
-
-美國總統特朗普為推動聯邦政府「瘦身」而成立的諮詢機構「政府效率部」，近期一些措施持續引發爭議。特朗普近日繼續為負責牽頭的富商馬斯克護航。馬斯克亦獲准以非內閣成員的身份，出席白宮首次內閣會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793598-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793598-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793598-20250228.htm)
 
 ---
