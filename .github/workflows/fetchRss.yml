@@ -87,7 +87,7 @@ jobs:
         echo 2
         while ! curl -s https://mozilla.cloudflare-dns.com/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
         echo 3
-        warp-cli --accept-tos tunnel stats 
+        for i in {1..10}; do warp-cli --accept-tos tunnel stats && break; done
         echo 4
         warp-cli --accept-tos --help
         echo 5
