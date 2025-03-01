@@ -1,6 +1,33 @@
+# 陳美寶：公共交通營運商全面提升運力　觀眾往返啟德體育園順利
+
+![陳美寶表示，觀眾往返啟德體育園十分順利。（運輸及物流局網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793833_1_20250301231102.jpg&q=80)
+  
+
+啟德體育園晚上舉行開幕典禮，運輸及物流局局長陳美寶表示，回想一百年前啟德首次成功試飛雙翼機，標誌香港航空歷史的起點，對於能夠與數萬名觀眾一同見證啟德機場搖身一變，成為本港最大型的體育園區，感到非常興奮。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm)
+
+---
+
 # 陳茂波：啟德體育園大大提升香港舉辦盛事容量和吸引力
 
-啟德體育園舉行開幕典禮，出席典禮的財政司司長陳茂波表示，開幕禮表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
+![陳茂波說政府將繼續舉辦各類型大型體育、娛樂和文化盛事。（陳茂波社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793831_1_20250301230859.jpg&q=85)
+  
+
+啟德體育園舉行開幕典禮，財政司司長陳茂波表示，表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
 
   
 
@@ -1413,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793685-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793685-20250228.htm)
-
----
-
-# 財政預算案2025｜消息：爭取9月通過籃球博彩法例
-
-![消息人士表示，建議參照現時足球博彩的做法規範籃球博彩，包括從收益中徵收一半稅款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793682_1_20250228183255.jpg&q=90)
-  
-
-新一份《財政預算案》提出積極探討規範籃球博彩活動，並邀請馬會提交建議。消息人士表示，建議參照現時足球博彩的做法規範，包括從收益當中徵收50%稅款，修例只需將字眼由足球改成籃球，估計規範後，可吸納3至4成的非法賭注，每年大約300億元，馬會收益大約10至11% ，即約30至33億元，稅收15億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm)
 
 ---

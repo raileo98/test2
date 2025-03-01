@@ -1,9 +1,9 @@
-# O'Sullivan drops of of HK Snooker Grand Prix
+# O'Sullivan drops out of HK Snooker Grand Prix
 
 ![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
   
 
-Ronnie O'Sullivan has dropped out of the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
+Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
 
   
 
