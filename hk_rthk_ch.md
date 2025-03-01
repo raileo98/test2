@@ -1,3 +1,27 @@
+# 馬克龍：歐盟將對美國鋼鐵和鋁徵收「對等關稅」
+
+![馬克龍（左）與葡萄牙總理蒙特內格羅舉行聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793800_1_20250301173251.jpg&q=90)
+  
+
+法國總統馬克龍在對葡萄牙訪問期間表示，如果美國對歐洲進口商品徵收25%關稅，歐盟將對美國鋼鐵和鋁徵收「對等關稅」，對其他產品亦將不得不「採取回應措施」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm)
+
+---
+
 # 李頌恩視察啟德體育園一帶交通　了解港鐵客流管理措施
 
 ![運輸署署長李頌恩視察啟德體育園交通配套和部署。（運輸署社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793799_1_20250301172540.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793725-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793725-20250228.htm)
-
----
-
-# 美國上月核心PCE物價指數按月升0.3%　符合預期
-
-![美國上月核心PCE物價指數按月升0.3%，符合預期，重返去年10月的水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793723_1_20250228220530.jpg&q=55)
-  
-
-美國商務部經濟分析局公布，上月個人消費支出(PCE)物價指數按月升0.3%，符合市場預期，按年升2.5%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm)
 
 ---

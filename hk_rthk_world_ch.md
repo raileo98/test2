@@ -1,3 +1,27 @@
+# 馬克龍：歐盟將對美國鋼鐵和鋁徵收「對等關稅」
+
+![馬克龍（左）與葡萄牙總理蒙特內格羅舉行聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793800_1_20250301173251.jpg&q=90)
+  
+
+法國總統馬克龍在對葡萄牙訪問期間表示，如果美國對歐洲進口商品徵收25%關稅，歐盟將對美國鋼鐵和鋁徵收「對等關稅」，對其他產品亦將不得不「採取回應措施」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm)
+
+---
+
 # 哈馬斯拒絕以色列提出延長加沙停火協議第一階段
 
 ![在加沙地帶汗尤尼斯，建築物經過多月戰火後成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793797_1_20250301170723.jpg&q=50)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm)
-
----
-
-# 阿富汗多地大雨及落雹引發洪水及山泥傾瀉釀多人死傷
-
-![受強降雨影響，阿富汗坎達哈省遭遇洪災。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793562_1_20250228021757.jpg&q=40)
-  
-
-阿富汗多地近日出現強降雨天氣，引發洪水及山泥傾瀉等自然災害，當局指洪災和落雹災情已導致當地最少39人死亡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793562-20250228.htm)
 
 ---

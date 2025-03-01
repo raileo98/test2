@@ -1,3 +1,27 @@
+# Taxi fleets to be unveiled on Monday: transport chief
+
+![Five taxi fleets will hit the streets next Monday, with a range of electric vehicles on offer. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793790_1_20250301155137.jpg&q=85)
+  
+
+Five taxi companies which were awarded licences to operate taxi fleets will roll out the long-awaited service next week, according to the secretary for transport and logistics.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm)
+
+---
+
 # HK singer-songwriter Khalil Fong dies at 41
 
 ![Hong Kong singer songwriter Khalil Fong died after fighting a relentless illness. Photo: Khalil Fong's social media page](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793788_1_20250301151743.jpg&q=90)
@@ -1412,29 +1436,5 @@ Police said a newborn baby was found dead in a unit in western Tsuen Wan on Mond
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792991-20250224.htm)
-
----
-
-# HKTDC says new index flags up city's ESG strengths
-
-![HKTDC says there are plans to acquire more data from three more trade fairs for a final report. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792976_1_20250224183308.jpg&q=75)
-  
-
-The Hong Kong Trade Development Council (HKTDC) on Monday said a new index it has introduced to gauge how well the city fares in environmental, social and governance (ESG) has identified several strengths.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm)
 
 ---
