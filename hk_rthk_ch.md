@@ -1,3 +1,27 @@
+# 洪都拉斯全國停電並影響拉美多國
+
+![洪都拉斯全國停電並影響拉美多國](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793842_1_20250302015023.jpg&q=90)
+  
+
+洪都拉斯國家電力公司表示，由於區域電力系統故障，洪都拉斯全國停電，並影響部分拉美國家，包括墨西哥、薩爾瓦多、危地馬拉、尼加拉瓜等，目前正緊急協調恢復供電。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm)
+
+---
+
 # 北約秘書長稱已告知澤連斯基須修復與特朗普的關係
 
 ![呂特形容，澤連斯基與特朗普的會晤令人遺憾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793841_1_20250302014133.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm)
-
----
-
-# 啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播
-
-![啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793761_1_20250301094658.jpg&q=75)
-  
-
-啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm)
 
 ---

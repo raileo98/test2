@@ -1,3 +1,27 @@
+# 洪都拉斯全國停電並影響拉美多國
+
+![洪都拉斯全國停電並影響拉美多國](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793842_1_20250302015023.jpg&q=90)
+  
+
+洪都拉斯國家電力公司表示，由於區域電力系統故障，洪都拉斯全國停電，並影響部分拉美國家，包括墨西哥、薩爾瓦多、危地馬拉、尼加拉瓜等，目前正緊急協調恢復供電。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm)
+
+---
+
 # 北約秘書長稱已告知澤連斯基須修復與特朗普的關係
 
 ![呂特形容，澤連斯基與特朗普的會晤令人遺憾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793841_1_20250302014133.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm)
-
----
-
-# 特朗普：美英若達成貿易協議或不需向英國徵稅
-
-![特朗普（右）與施紀賢會後共同見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793595_1_20250228084535.jpg&q=90)
-  
-
-美國總統特朗普在白宮與英國首相施紀賢會談。特朗普在會後聯合記者會表示，他認為美英好快會達成貿易協議，指一項真正的貿易協議可能不需要向英國徵收關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793595-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793595-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793595-20250228.htm)
 
 ---
