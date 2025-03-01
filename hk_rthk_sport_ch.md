@@ -1,3 +1,27 @@
+# 英足盃曼城3:1反勝普利茅夫晉級
+
+![曼城年輕小將歷高奧懷利建兩功。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793848_1_20250302064149.jpg&q=80)
+  
+
+英格蘭足總盃第五圈，英超的曼城3:1反勝英冠的普利芧夫晉級。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm)
+
+---
+
 # 啟德體育園開幕典禮舉行　本港與內地歌手和體壇名將參與
 
 ![開幕典禮上，內地與香港運動員代表合唱歌曲。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793846_1_20250302051453.jpg&q=90)
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm)
-
----
-
-# 馬刺中鋒雲班耶馬續接受深層靜脈血栓治療　隊友及對手齊祝福
-
-![雲班耶馬本賽季均貢獻24.3分、11個籃板、3.7次助攻，對馬刺十分重要。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792717_1_20250222073218.jpg&q=90)
-  
-
-NBA聖安東尼奧馬刺隊陣中，被診斷出患有深層靜脈血栓的明星中鋒雲班耶馬，繼續接受治療。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792717-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792717-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792717-20250222.htm)
 
 ---
