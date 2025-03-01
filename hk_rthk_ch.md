@@ -48,7 +48,7 @@
 
 # 李家超稱懷興奮心情見證啟德體育園開幕典禮
 
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_1_20250301191222.jpg&q=80)
+![李家超表示，香港又一次衝上雲霄，再創高峰。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_2_20250301195833.jpg&q=80)
   
 
 啟德體育園晚上舉行開幕典禮，行政長官李家超主持開幕儀式，他致辭表示，與大家一樣懷著興奮和期待的心情，見證啟德體育園，作為一個世界級香港新地標的開幕典禮。
