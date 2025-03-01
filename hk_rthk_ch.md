@@ -1,3 +1,48 @@
+# 王新偉出任遼寧省代省長
+
+新華社報道，遼寧省人大常委會會議決定，接受李樂成辭去遼寧省省長職務的請求，任命王新偉為遼寧省副省長、代省長。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm)
+
+---
+
+# 庫爾德工人黨宣布即日起與土耳其停火
+
+![日前在土耳其一場集會上，有民眾手持厄賈蘭的肖像。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793785_1_20250301150623.jpg&q=85)
+  
+
+庫爾德工人黨宣布，遵守領導人厄賈蘭的呼籲，與土耳其停火，即日生效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm)
+
+---
+
 # 音樂人方大同離世　終年41歲
 
 ![方大同上月21日離世，終年41歲。（方大同社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793784_1_20250301141344.jpg&q=90)
@@ -1388,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm)
-
----
-
-# 王毅晤紹伊古　指新時代中俄關係超越陣營對抗式陳舊思維
-
-![王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793709_1_20250228203729.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm)
-
----
-
-# 希臘最嚴重火車意外兩周年　全國多處有民眾上街為死者伸張正義
-
-![雅典示威者在議會大樓前與警方衝突，警方發射催淚彈驅散。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793708_1_20250228202321.jpg&q=50)
-  
-
-希臘歷來最嚴重火車相撞事故兩周年，全國各地有大批民眾上街，其中首都雅典的示威演變成警民衝突。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm)
 
 ---

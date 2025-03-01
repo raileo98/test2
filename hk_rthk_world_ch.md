@@ -1,3 +1,27 @@
+# 庫爾德工人黨宣布即日起與土耳其停火
+
+![日前在土耳其一場集會上，有民眾手持厄賈蘭的肖像。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793785_1_20250301150623.jpg&q=85)
+  
+
+庫爾德工人黨宣布，遵守領導人厄賈蘭的呼籲，與土耳其停火，即日生效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm)
+
+---
+
 # 特朗普：澤連斯基須意識到正輸掉戰爭　沒美國支持烏克蘭將失敗
 
 ![特朗普不點名指澤連斯基企圖讓美國加入並繼續戰鬥，美國不會這麼做。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793783_1_20250301134345.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793560-20250228.htm)
-
----
-
-# 王文濤：中美在經貿領域有分歧正常　應透過平等對話解決各自關切
-
-![王文濤說，中美在經貿領域存在分歧是正常，應透過平等對話磋商解決各自關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793552_1_20250227222918.jpg&q=90)
-  
-
-商務部部長王文濤去信美國新任貿易代表格里爾，就美國對中國輸美產品加徵關稅表達關切。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm)
 
 ---

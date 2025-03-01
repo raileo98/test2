@@ -1,3 +1,24 @@
+# 王新偉出任遼寧省代省長
+
+新華社報道，遼寧省人大常委會會議決定，接受李樂成辭去遼寧省省長職務的請求，任命王新偉為遼寧省副省長、代省長。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm)
+
+---
+
 # 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
 
 ![劉佩瓊說修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793778_1_20250301123915.jpg&q=55)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793294-20250226.htm)
-
----
-
-# 王滬寧：要堅定不移推進祖國統一大業
-
-![中共中央政治局常委、全國政協主席王滬寧出席會議並發表講話。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793285_1_20250226144807.jpg&q=90)
-  
-
-中共中央政治局常委、全國政協主席王滬寧在2025年對台工作會議發表講話，強調要牢牢把握兩岸關係主導權和主動權，堅定不移推進祖國統一大業。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm)
 
 ---
