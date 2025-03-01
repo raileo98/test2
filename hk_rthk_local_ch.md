@@ -1,3 +1,24 @@
+# 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
+
+行政長官李家超表示，啟德體育園開幕典禮今晚舉行，很高興親臨現場，與市民一同見證歷史性時刻。節目豐富多彩，香港和內地跨年齡、跨世代的體育、文化、演藝界精英傾情獻藝，為啟德體育園的啟用揭開精彩序幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm)
+
+---
+
 # 啟德體育園開幕典禮有舞蹈及歌星獻唱　亦有劍擊表演
 
 ![巴黎奧運女子重劍金牌得主江旻憓與影星甄子丹表演劍擊。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793815_1_20250301194944.jpg&q=80)
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm)
-
----
-
-# 34歲男子曾卓榮上月29日馬鞍山失蹤　警方呼籲市民提供消息
-
-![曾卓榮身高約1.73米，體重約73公斤，中等身材，方面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793666_1_20250228162146.jpg&q=90)
-  
-
-34歲男子曾卓榮上月29日下午在馬鞍山寧泰路一單位最後露面後失蹤，家人今日報案，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793666-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793666-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793666-20250228.htm)
 
 ---

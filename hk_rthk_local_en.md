@@ -1,3 +1,29 @@
+# HK to soar to new heights with Kai Tak Sports Park: CE
+
+![John Lee (centre) was joined by political and business leaders on stage for the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_1_20250301200959.jpg&q=80)
+![The chief executive thanked all those who were involved in the planning, construction and operation of the sports park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_2_20250301200959.jpg&q=80)
+![The 90-minute opening ceremony began with a Chinese drum performance. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_3_20250301200959.jpg&q=80)
+  
+
+The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the chief executive told the crowd during the opening ceremony on Saturday night.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm)
+
+---
+
 # Excited crowds arrive early for Kai Tak opening show
 
 ![Some ticket holders were seen finishing their drinks before depositing the bottles on shelves placed near the gate. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_3_20250301182424.jpg&q=35)
@@ -1413,29 +1439,5 @@ Hong Kong's education sector could face funding cuts as Financial Secretary Paul
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm)
-
----
-
-# Automotive sector welcomes govt's child car seat rule
-
-![An automotive sector representative says officials are trying to bring Hong Kong more in line with international regulations with the new child car seat rule. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793028_1_20250225084354.jpg&q=55)
-  
-
-An automotive sector representative on Tuesday welcomed the rule mandating children under eight to be in a safety seat or strapped in with some other restraining device, saying it provides much needed protection for children travelling in private cars.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793028-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793028-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793028-20250225.htm)
 
 ---

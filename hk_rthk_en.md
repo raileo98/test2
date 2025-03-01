@@ -1,3 +1,29 @@
+# HK to soar to new heights with Kai Tak Sports Park: CE
+
+![John Lee (centre) was joined by political and business leaders on stage for the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_1_20250301200959.jpg&q=80)
+![The chief executive thanked all those who were involved in the planning, construction and operation of the sports park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_2_20250301200959.jpg&q=80)
+![The 90-minute opening ceremony began with a Chinese drum performance. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_3_20250301200959.jpg&q=80)
+  
+
+The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the chief executive told the crowd during the opening ceremony on Saturday night.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm)
+
+---
+
 # PKK declares ceasefire with Turkey after 40 years
 
 ![Turkish president Recep Tayyip Erdogan has described PKK leader Abdullah Ocalan's appeal as an "historic opportunity." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793814_1_20250301193855.jpg&q=90)
@@ -1412,30 +1438,5 @@ Financial Secretary Paul Chan on Thursday said a proposed levy on private cars d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm)
-
----
-
-# Abraham Ancer seeks another win at HK LIV Golf
-
-![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
-![Bryson DeChambeau hits his shot on the first round at the Hong Kong Golf Club in 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_2_20250227120945.jpg&q=55)
-  
-
-Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, eager to relive the unforgettable moments from last year’s tournament.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
 
 ---

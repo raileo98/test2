@@ -1,3 +1,27 @@
+# 英國首相府：施紀賢將於周六與澤連斯基會面
+
+![畫面顯示，一架相信載著澤連斯基的飛機在倫敦以北斯坦斯特德機場降落。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793816_1_20250301200953.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基結束在美國訪問後，據報已飛抵英國。英國首相辦公室說，首相施紀賢將於當地星期六下午與澤連斯基會面。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm)
+
+---
+
 # 烏媒：澤連斯基已離開美國前往英國
 
 ![澤連斯基周五到白宮與特朗普會面時，兩人激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793813_1_20250301191516.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm)
-
----
-
-# 烏克蘭經濟部長或外長據報獲授權簽署與美國之間礦產協議
-
-![瑟比加可能代表烏克蘭政府簽署協議。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793565_1_20250228022614.jpg&q=90)
-  
-
-烏克蘭報章報道，總理什梅加爾會授權第一副總理、經濟部長斯維里堅科或外交部長瑟比加，代表烏克蘭政府簽署關於設立烏克蘭重建投資基金規則與條件的協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm)
 
 ---
