@@ -27,7 +27,7 @@ UK Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm welcom
 ![The 38-year-old man is now stable in Queen Elizabeth Hospital. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793847_1_20250302054528.jpg&q=40)
   
 
-The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old had travelled to the country in February and is now stable at Queen Elizabeth Hospital.
+The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old, who travelled to the country in early February, is now stable at Queen Elizabeth Hospital.
 
   
 
