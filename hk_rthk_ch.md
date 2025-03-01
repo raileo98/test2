@@ -1,3 +1,24 @@
+# 啟德體育園開幕禮傍晚舉行　鄧炳強：相信運作暢順
+
+啟德體育園今日正式啟用，開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，持票觀眾已陸續進場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm)
+
+---
+
 # 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
 
 啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
@@ -1407,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm)
-
----
-
-# 何立峰：歡迎美國企業續投資中國　為推動中美關係穩定發展作貢獻
-
-![何立峰表示，歡迎美國企業繼續投資中國，共享發展機遇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793727_1_20250228223700.jpg&q=90)
-  
-
-中共中央政治局委員、國務院副總理何立峰應邀在北京出席中國美國商會年度答謝晚宴並致辭。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm)
 
 ---

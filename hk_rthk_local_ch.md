@@ -1,3 +1,24 @@
+# 啟德體育園開幕禮傍晚舉行　鄧炳強：相信運作暢順
+
+啟德體育園今日正式啟用，開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，持票觀眾已陸續進場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm)
+
+---
+
 # 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
 
 啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm)
-
----
-
-# 羅淑佩：啟德體育園開幕禮將為「盛匯超級三月」打響頭炮
-
-![啟德體育園開幕典禮明日傍晚6時半在啟德主場館舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793656_1_20250228161946.jpg&q=70)
-  
-
-文化體育及旅遊局局長羅淑佩表示，去年本港旅遊業繼續復蘇，訪港旅客人次穩步增長，中央政府推出多項惠港措施，亦令本港自從去年年底開始，整體市面人流暢旺，在剛過去的聖誕新年和農曆新年期間，零售、餐飲等行業都反映生意額是錄得增長。她期望今年可以迎來4900萬人次訪港旅客，相比去年增加約一成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm)
 
 ---
