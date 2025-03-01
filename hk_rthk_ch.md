@@ -1,3 +1,27 @@
+# 澤連斯基抵唐寧街與英國首相施紀賢會晤
+
+![烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793840_1_20250302013232.jpg&q=90)
+  
+
+與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm)
+
+---
+
 # 玻利維亞有長途巴士相撞至少37死
 
 ![涉事的其中一輛巴士損毀嚴重。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793839_1_20250302012112.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm)
-
----
-
-# 財政預算案2025｜孫玉菡冀日後長者乘車更精打細算
-
-![財政預算案2025｜孫玉菡冀日後長者乘車更精打細算](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793759_1_20250301094642.jpg&q=85)
-  
-
-財政預算案公布調整兩元乘車優惠計劃，每月限240程，10元以上車資改為兩折。勞工及福利局局長孫玉菡說，推行樂悠咭後當局統計，每月使用兩元優惠超過240程的人士有360人，對比整體250萬受惠對象，只佔萬分之一，75%受惠人士乘坐的交通工具車資在10元以下，認為措施影響輕微。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm)
 
 ---

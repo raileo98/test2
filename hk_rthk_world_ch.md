@@ -1,3 +1,27 @@
+# 澤連斯基抵唐寧街與英國首相施紀賢會晤
+
+![烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793840_1_20250302013232.jpg&q=90)
+  
+
+與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm)
+
+---
+
 # 玻利維亞有長途巴士相撞至少37死
 
 ![涉事的其中一輛巴士損毀嚴重。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793839_1_20250302012112.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm)
-
----
-
-# 朝中社稱北韓進行戰略巡航導彈發射訓練
-
-![朝中社稱領袖金正恩觀摩戰略巡航導彈發射訓練。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793585_1_20250228072344.jpg&q=75)
-  
-
-朝中社報道，北韓軍隊前日在西部海域進行戰略巡航導彈發射訓練，領袖金正恩觀摩發射訓練。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793585-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793585-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793585-20250228.htm)
 
 ---
