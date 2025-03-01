@@ -1,3 +1,27 @@
+# 俄羅斯：在烏克蘭實現非軍事化等目標沒變
+
+![扎哈羅娃指責澤連斯基 「執著於延續」 戰鬥。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793822_1_20250301211257.jpg&q=90)
+  
+
+俄羅斯表示，在烏克蘭總統澤連斯基訪問華盛頓之後，俄羅斯在烏克蘭的目標沒有改變，並指責澤連斯基一心想著延長衝突。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm)
+
+---
+
 # 英國首相府：施紀賢將於周六與澤連斯基會面
 
 ![畫面顯示，一架相信載著澤連斯基的飛機在倫敦以北斯坦斯特德機場降落。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793816_1_20250301200953.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm)
-
----
-
-# 馬斯克稱將繼續發射星鏈衛星確保美國空中交管及境內航空安全
-
-![馬斯克說正緊急部署星鏈系統解決威瑞森通信系統迅速老化的問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793566_1_20250228022754.jpg&q=90)
-  
-
-美國富商馬斯克表示，將繼續發射旗下太空探索技術公司高速互聯網接入服務的星鏈衛星終端，確保美國空中交通管制通訊及美國境內航空旅行安全。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793566-20250228.htm)
 
 ---
