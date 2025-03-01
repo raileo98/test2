@@ -24,7 +24,6 @@ Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a p
 
 # Excited crowds arrive early for Kai Tak opening show
 
-![Spectators were allowed to enter Kai Tak Stadium from 4:30pm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_1_20250301181051.jpg&q=60)
 ![Some ticket holders were seen finishing their drinks before depositing the bottles on shelves placed near the gate. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_3_20250301182424.jpg&q=35)
 ![Authorities originally told spectators to arrive by 3pm to redeem their tickets, but the redemption counter remained open after the deadline as many arrived late. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_2_20250301181051.jpg&q=65)
   
