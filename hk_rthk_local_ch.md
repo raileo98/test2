@@ -1,4 +1,50 @@
+# 影星劉德華出席啟德體育園開幕禮與觀眾大合照
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm)
+
+---
+
+# 鄧俊文謝影雪向觀眾拋出羽毛球　樊振東以巨型乒乓球拍打波
+
+![鄧俊文和謝影雪等向觀眾拋出親筆簽名羽毛球。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_1_20250301203326.jpg&q=80)
+![樊振東以巨型乒乓球拍打波，觀眾高呼喝采。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_2_20250301203326.jpg&q=75)
+  
+
+啟德體育園開幕禮傍晚6時半舉行，先後有多位奧運名將等上台表演。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm)
+
+---
+
 # 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
+
+![啟德體育園舉行開幕典禮。（李家超社交網頁)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_1_20250301202436.jpg&q=80)
+![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=85)
+![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
+  
 
 行政長官李家超表示，啟德體育園開幕典禮今晚舉行，很高興親臨現場，與市民一同見證歷史性時刻。節目豐富多彩，香港和內地跨年齡、跨世代的體育、文化、演藝界精英傾情獻藝，為啟德體育園的啟用揭開精彩序幕。
 
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793671-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793671-20250228.htm)
-
----
-
-# 兩架貨機昨早本港起飛後分隔距離未達預期　觸發交通防撞警示
-
-![民航處即時展開調查和跟進，表示事件可能涉及空管人員未有遵循既定程序安排飛機起飛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793669_1_20250228162427.jpg&q=80)
-  
-
-兩架貨機昨日在本港起飛後，分隔距離一度未達預期，觸發交通防撞警示，民航處即時展開調查和跟進，表示事件可能涉及空管人員未有遵循既定程序安排飛機起飛，有關空管人員暫時被調離前線空管職務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793669-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793669-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793669-20250228.htm)
-
----
-
-# 財政預算案2025｜羅淑佩稱增加飛機乘客離境稅不會令旅客卻步
-
-![羅淑佩表示，飛機乘客離境稅稅額屬相對小數目，會在旅客訂購機票時收取。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793667_1_20250228162405.jpg&q=85)
-  
-
-財政預算案提出下個財政年度第三季起，將飛機乘客離境稅由現時每名乘客120元增加至200元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm)
 
 ---
