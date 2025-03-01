@@ -1,3 +1,51 @@
+# 哈馬斯：戰後加沙管理由巴人決定　埃及稱加沙屬巴方不可分割領土
+
+![哈馬斯說，戰後加沙的管理必須由巴勒斯坦人自主決定。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793836_1_20250302002459.jpg&q=35)
+  
+
+阿拉伯國家緊急峰會將於星期二在埃及開羅舉行，討論巴勒斯坦問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm)
+
+---
+
+# 澤連斯基：與美國對話艱難　冀美國更堅定站在烏克蘭一邊
+
+![澤連斯基在白宮與特朗普會談期間多次爭吵，最終不歡而散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793835_1_20250301235343.jpg&q=85)
+  
+
+與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，由華盛頓轉抵倫敦，將會與英國首相施紀賢會晤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm)
+
+---
+
 # 俄國防部：烏克蘭無人機襲擊俄境內天然氣壓縮站設施
 
 ![俄方說，烏克蘭出動無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793823_1_20250301212656.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793574-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793574-20250228.htm)
-
----
-
-# 特朗普指新對華關稅措施疊加月初關稅上　即累計徵收20%關稅
-
-![特朗普說將對從中國進口美國的商品，徵收額外10%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793571_1_20250228044815.jpg&q=85)
-  
-
-美國總統特朗普在社交平台表示，下星期二起會對從中國進口美國的商品，徵收額外10%關稅。他其後在白宮向傳媒說，相關關稅疊加在本月初對華徵收的10%關稅之上，即是累計徵收20%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm)
-
----
-
-# 敘利亞民主力量指揮官指厄賈蘭的呼籲與該武裝部隊無關
-
-![阿卜迪指信件強調地區和平與安全，並呼籲結束戰爭及停止衝突，內容非常積極。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793569_1_20250228023010.jpg&q=90)
-  
-
-在敘利亞由庫爾德武裝份子主導的部隊「敘利亞民主力量」、指揮官阿卜迪回應庫爾德工人黨領導人厄賈蘭提出庫爾德工人黨應解散，以及所有武裝團體應放下武器的呼籲。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm)
 
 ---

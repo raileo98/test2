@@ -1,4 +1,55 @@
+# 哈馬斯：戰後加沙管理由巴人決定　埃及稱加沙屬巴方不可分割領土
+
+![哈馬斯說，戰後加沙的管理必須由巴勒斯坦人自主決定。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793836_1_20250302002459.jpg&q=35)
+  
+
+阿拉伯國家緊急峰會將於星期二在埃及開羅舉行，討論巴勒斯坦問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm)
+
+---
+
+# 澤連斯基：與美國對話艱難　冀美國更堅定站在烏克蘭一邊
+
+![澤連斯基在白宮與特朗普會談期間多次爭吵，最終不歡而散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793835_1_20250301235343.jpg&q=85)
+  
+
+與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，由華盛頓轉抵倫敦，將會與英國首相施紀賢會晤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm)
+
+---
+
 # 奧蘇利雲因健康狀況　將缺席於本港舉行世界格蘭披治桌球大獎賽
+
+![奧蘇利雲因健康狀況　將缺席於本港舉行世界格蘭披治桌球大獎賽](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793834_1_20250302002029.jpg&q=90)
+  
 
 桌球手奧蘇利雲因健康狀況，將缺席星期二起，在啟德體藝館舉行的世界格蘭披治桌球大獎賽2025。主辦單位稱是今日接獲奧蘇利雲的通知，而排名33位的賀辛將取代奧蘇利雲參賽。
 
@@ -1390,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm)
-
----
-
-# 港股美國預託證券較本港收市普遍向好
-
-![滙控美國預託證券較本港收市升逾4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793751_1_20250301061727.jpg&q=90)
-  
-
-滙控美國預託證券折合93.2港元，較本港收市升逾4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793751-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793751-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793751-20250301.htm)
-
----
-
-# 巴黎當局稱220名運動員要求更換巴黎奧運獎牌
-
-![有巴黎奧運得奬運動員指獎牌「失色」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793753_1_20250301071917.jpg&q=90)
-  
-
-2024巴黎奧運獎牌「失色」事件，巴黎奧組委說會更換損壞的獎牌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm)
 
 ---
