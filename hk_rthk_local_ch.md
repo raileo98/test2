@@ -1,3 +1,27 @@
+# 啟德體育園開幕典禮有舞蹈及歌星獻唱　亦有劍擊表演
+
+![巴黎奧運女子重劍金牌得主江旻憓與影星甄子丹表演劍擊。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793815_1_20250301194944.jpg&q=80)
+  
+
+啟德體育園舉行開幕典禮，先播放開場短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅表演。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm)
+
+---
+
 # 李家超稱懷興奮心情見證啟德體育園開幕典禮
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_1_20250301191222.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793666-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793666-20250228.htm)
-
----
-
-# 財政預算案2025｜丘應樺稱就美國加徵關稅將盡快向世貿申訴
-
-![丘應樺表示，因應美國加徵關稅，當局早前已經表示會向世貿作出申訴，需要時間研究策略。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793665_1_20250228162119.jpg&q=50)
-  
-
-美國宣布將會對從中國進口的商品徵收額外10%關稅。商務及經濟發展局局長丘應樺表示，因應美國加徵關稅，當局早前已經表示會向世貿作出申訴，需要時間研究策略，至於美方今次再增加關稅，會否影響香港，需要從整體去看，會因應需要盡快向世貿作出申訴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm)
 
 ---
