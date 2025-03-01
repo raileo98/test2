@@ -1,3 +1,24 @@
+# 陳茂波：啟德體育園大大提升香港舉辦盛事容量和吸引力
+
+啟德體育園舉行開幕典禮，出席典禮的財政司司長陳茂波表示，開幕禮表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm)
+
+---
+
 # 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
 
 ![啟德體育園舉行開幕典禮。（李家超社交網頁)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_1_20250301202436.jpg&q=80)
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
-
----
-
-# 劉詩韻獲委為中醫藥發展基金諮詢委員會主席
-
-![政府委任劉詩韻為中醫藥發展基金諮詢委員會新主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793651_1_20250228145842.jpg&q=80)
-  
-
-政府委任劉詩韻為中醫藥發展基金諮詢委員會新主席，並委任16名新委員及再度委任9名現任委員，明日起生效，為期兩年。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793651-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793651-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793651-20250228.htm)
 
 ---

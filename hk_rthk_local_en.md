@@ -1,6 +1,29 @@
+# O'Sullivan drops of of HK Snooker Grand Prix
+
+![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
+  
+
+Ronnie O'Sullivan has dropped out of the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
+
+---
+
 # Fireworks and celebrities wow guests at Kai Tak
 
-![Fireworks lit up the stadium at the end of the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_1_20250301220517.jpg&q=80)
 ![Crowds streamed out of Kai Tak Stadium in an orderly manner after the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_2_20250301220517.jpg&q=80)
   
 
@@ -1414,29 +1437,5 @@ The government has urged event organisers to make sure they have sufficient fund
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793060-20250225.htm)
-
----
-
-# FEHD probes workers 'removing own display bills video'
-
-![Four workers are suspected of removing display bills posted by themselves in Nam Cheong Street. Photo: Roni Wong](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793057_1_20250225105426.jpg&q=90)
-  
-
-Officials said they are investigating suspicions that some street cleaners have been creating fake work for themselves by putting up posters on lampposts just so they can be seen removing them.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm)
 
 ---

@@ -1,4 +1,52 @@
+# 陳茂波：啟德體育園大大提升香港舉辦盛事容量和吸引力
+
+啟德體育園舉行開幕典禮，出席典禮的財政司司長陳茂波表示，開幕禮表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm)
+
+---
+
+# 教育局對有學生交流活動期間離世感十分難過
+
+![教育局說，全力為涉事的學校及師生提供支援，又指事件並不涉及考察活動行程，其他考察團不受影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793830_1_20250301225314.jpg&q=80)
+  
+
+聖保羅書院一名中五學生，參與內地交流活動期間死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm)
+
+---
+
 # 衞生防護中心調查外地傳入麻疹個案涉及一名38歲男子　情況穩定
+
+![衞生防護中心提醒市民外遊前應確保完成接種兩劑麻疹疫苗，以減低感染風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793829_1_20250301225517.jpg&q=80)
+  
 
 衞生署衞生防護中心調查一宗由外地傳入的麻疹個案，涉及一名過往健康良好的38歲男子，現時仍然留院，情況穩定。他的家居接觸者目前沒有病徵。
 
@@ -42,7 +90,7 @@
 
 # 啟德體育園發放煙花　有觀眾感震撼稱表演精彩
 
-![啟德體育園發放煙花，有觀眾說感覺震撼。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)
   
 
 歷時約2小時的啟德體育園開幕典禮，晚上約8時40分結束。接近典禮完結時，啟德體育園上蓋發放煙花，有觀眾說感覺震撼，又說節目緊湊，看見很多本地明星，表演精彩。
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm)
-
----
-
-# 本港今個財政年度首10個月赤字599億元
-
-![政府公布，今個財政年度首10個月赤字599億元，計及餘下兩個月預期收入及開支，預計2024/25年度赤字將為872億元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793676_1_20250228165207.jpg&q=65)
-  
-
-政府公布，今個財政年度首10個月赤字599億元，當中已計入發行政府債券所得1181億元，以及償還政府債券219億元本金。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793676-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793676-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793676-20250228.htm)
-
----
-
-# 中原城市領先指數按星期跌0.27%　連跌兩星期
-
-![中原認為，預算案放寬印花稅措施可望刺激細價樓成交樓增加，樓市氣氛有望改善，預料第2季CCL或逐步見底回升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793673_1_20250228164806.jpg&q=75)
-  
-
-反映二手樓價走勢的中原城市領先指數(CCL)最新報137.02，按星期跌0.27%，連跌兩星期累計跌約1.1%，處於近8年半低位，今年累計跌0.45%。指數反映本港大型銀行2月初維持港元最優惠利率不變、內地推出關稅反制措施的當星期市況。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm)
 
 ---

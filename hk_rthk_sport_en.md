@@ -1,3 +1,27 @@
+# O'Sullivan drops of of HK Snooker Grand Prix
+
+![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
+  
+
+Ronnie O'Sullivan has dropped out of the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
+
+---
+
 # Tennis star welcomes WTA rebranding
 
 ![Aryna Sabalenka at the Qatar Open 2025 WTA 1000 tennis tournament in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793781_1_20250301123815.jpg&q=90)
@@ -1419,29 +1443,5 @@ Jude Bellingham scored the winner in stoppage time as Real Madrid twice came fro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791253-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791253-20250212.htm)
-
----
-
-# South China crowned HK basketball champs
-
-![South China tops the Hong Kong A-1 basketball division once again. Photo courtesy of SCAA](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791230_1_20250211231204.jpg&q=50)
-  
-
-South China on Tuesday won the local top division basketball championship in dramatic fashion.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791230-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791230-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791230-20250211.htm)
 
 ---

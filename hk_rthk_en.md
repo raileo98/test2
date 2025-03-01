@@ -1,3 +1,27 @@
+# O'Sullivan drops of of HK Snooker Grand Prix
+
+![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
+  
+
+Ronnie O'Sullivan has dropped out of the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
+
+---
+
 # Delhi bans old cars from refuelling to help curb smog
 
 ![At the peak of the smog, levels of PM2.5 pollutants have surged to more than 60 times the World Health Organisation's recommended daily maximum. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793825_1_20250301215153.jpg&q=90)
@@ -24,7 +48,6 @@ Cars more than 15 years old will soon be barred from refuelling in New Delhi, th
 
 # Fireworks and celebrities wow guests at Kai Tak
 
-![Fireworks lit up the stadium at the end of the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_1_20250301220517.jpg&q=80)
 ![Crowds streamed out of Kai Tak Stadium in an orderly manner after the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_2_20250301220517.jpg&q=80)
   
 
@@ -1413,29 +1436,5 @@ Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm)
-
----
-
-# HKEX posts record annual profit on rising turnover
-
-![Hong Kong Exchanges and Clearing (HKEX) posted a record profit for 2024. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793473_1_20250227143726.jpg&q=90)
-  
-
-Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchange, posted its best-ever annual profit, revenue, and income during 2024 - on the back of the rising market turnover and new listings especially during the fourth quarter of last year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm)
 
 ---
