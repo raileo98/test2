@@ -1,3 +1,27 @@
+# Zelensky gets warm welcome in UK after Trump clash
+
+![UK Prime Minister Keir Starmer meets Ukraine's President Volodymyr Zelensky in Downing Street. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793850_1_20250302074020.jpg&q=90)
+  
+
+UK Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm welcome in London, a day after the Ukrainian leader's clash with US President Donald Trump.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm)
+
+---
+
 # Delhi bans old cars from refuelling to help curb smog
 
 ![At the peak of the smog, levels of PM2.5 pollutants have surged to more than 60 times the World Health Organisation's recommended daily maximum. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793825_1_20250301215153.jpg&q=90)
@@ -1411,29 +1435,5 @@ Israeli Prime Minister Benjamin Netanyahu accused Hamas on Friday of committing 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm)
-
----
-
-# Window for peace opening for Ukraine war: Wang Yi
-
-![Wang Yi says China supports all efforts to achieve peace in Ukraine conflict. File photo: XInhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792581_1_20250221104147.jpg&q=85)
-  
-
-Foreign Minister Wang Yi told his G20 counterparts on Thursday that a "window for peace" is opening for the Ukraine crisis, days after top US and Russian diplomats met in Saudi Arabia.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm)
 
 ---
