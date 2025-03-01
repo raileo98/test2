@@ -1,3 +1,27 @@
+# 梵蒂岡稱教宗方濟各情況穩定
+
+![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793843_1_20250302022219.jpg&q=65)
+  
+
+教宗方濟各因肺炎住院兩星期，梵蒂岡星期六晚表示，方濟各經歷呼吸危機後，臨床情況保持穩定，仍然需要吸氧氣，但沒有發燒，亦沒有出現支氣管痙攣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm)
+
+---
+
 # 洪都拉斯全國停電並影響拉美多國
 
 ![洪都拉斯全國停電並影響拉美多國](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793842_1_20250302015023.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793598-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793598-20250228.htm)
-
----
-
-# 全國兩會｜經濟增長目標或再定於約5%　聚焦促消費助民企推創科
-
-![市場普遍預料中央繼續保持寬鬆貨幣政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793597_1_20250228090751.jpg&q=35)
-  
-
-十四屆全國人大三次會議將於3月5日在北京開幕，政協會議則於3月4日召開。市場普遍預料，中央或會將今年經濟增長目標再度定於5%左右；財政赤字率有機會增至約4%，並繼續保持寬鬆貨幣政策。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm)
 
 ---
