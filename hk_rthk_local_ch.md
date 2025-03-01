@@ -1,3 +1,24 @@
+# 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
+
+警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm)
+
+---
+
 # 啟德體育園發放煙花　有觀眾感震撼稱表演精彩
 
 ![啟德體育園發放煙花，有觀眾說感覺震撼。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)
@@ -1419,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm)
-
----
-
-# 財政預算案2025｜下年度賣8幅住宅地規模均建少於1千個單位
-
-![甯漢豪表示，位置鄰近輕鐵站，交通便利、配套成熟，相信對市場有一定吸引力。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793672_1_20250228165527.jpg&q=80)
-  
-
-發展局公布2025/26年度賣地計劃，有8幅住宅用地，其中3幅為本財政年度的滾存用地，其餘5幅新增住宅地分別位於筲箕灣東大街、佐敦谷彩興路、牛頭角彩霞道、屯門海珠路、荃灣永順街，每幅規模均興建少於1000個單位，總共可提供約4450個單位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793672-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793672-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793672-20250228.htm)
 
 ---

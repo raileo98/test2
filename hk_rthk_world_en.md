@@ -1,3 +1,27 @@
+# Delhi bans old cars from refuelling to help curb smog
+
+![At the peak of the smog, levels of PM2.5 pollutants have surged to more than 60 times the World Health Organisation's recommended daily maximum. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793825_1_20250301215153.jpg&q=90)
+  
+
+Cars more than 15 years old will soon be barred from refuelling in New Delhi, the city's government said on Saturday, as part of measures to reduce the Indian capital's hazardous pollution levels.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm)
+
+---
+
 # Hamas says 'no progress' on second phase of ceasefire
 
 ![Ramadan ornaments go on sale against the backdrop of destroyed buildings. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793821_1_20250301204524.jpg&q=90)
@@ -1411,29 +1435,5 @@ Foreign Minister Wang Yi told his G20 counterparts on Thursday that a "window fo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm)
-
----
-
-# Macron to tell Trump to not be 'weak with Putin'
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792540_1_20250221052514.jpg&q=90)
-  
-
-President Emmanuel Macron said on Thursday that France was entering a "new era" three years after the Russian-Ukrainian war and that he planned to tell US President Donald Trump that he could not "be weak" with Vladimir Putin.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm)
 
 ---

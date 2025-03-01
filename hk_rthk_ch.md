@@ -1,3 +1,24 @@
+# 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
+
+警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm)
+
+---
+
 # 啟德體育園發放煙花　有觀眾感震撼稱表演精彩
 
 ![啟德體育園發放煙花，有觀眾說感覺震撼。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)

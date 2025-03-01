@@ -1,3 +1,27 @@
+# Delhi bans old cars from refuelling to help curb smog
+
+![At the peak of the smog, levels of PM2.5 pollutants have surged to more than 60 times the World Health Organisation's recommended daily maximum. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793825_1_20250301215153.jpg&q=90)
+  
+
+Cars more than 15 years old will soon be barred from refuelling in New Delhi, the city's government said on Saturday, as part of measures to reduce the Indian capital's hazardous pollution levels.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm)
+
+---
+
 # Fireworks and celebrities wow guests at Kai Tak
 
 ![Fireworks lit up the stadium at the end of the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_1_20250301220517.jpg&q=80)
@@ -1413,29 +1437,5 @@ Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchang
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm)
-
----
-
-# Govt won't rely on land sales for revenue: Paul Chan
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793467_1_20250227134032.jpg&q=85)
-  
-
-Financial Secretary Paul Chan said on Thursday that the government no longer wants to rely heavily on land sales as a main source of revenue.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm)
 
 ---
