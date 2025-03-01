@@ -1,3 +1,27 @@
+# 烏媒：澤連斯基已離開美國前往英國
+
+![澤連斯基周五到白宮與特朗普會面時，兩人激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793813_1_20250301191516.jpg&q=90)
+  
+
+新華社引述烏克蘭媒體報道，烏克蘭總統澤連斯基當地周五晚結束在美國訪問後已飛往英國，他將與英國首相施紀賢會晤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm)
+
+---
+
 # 梵蒂岡：教宗方濟各度過了平靜一晚
 
 ![信眾在聖伯多祿廣場為教宗祈禱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793803_1_20250301174645.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793565-20250228.htm)
-
----
-
-# 領導人厄賈蘭籲庫爾德工人黨解散及所有武裝團體放下武器
-
-![厄賈蘭（相中人）發表親筆信。圖為其支持者早前在土耳其舉行集會要求釋放他的情況。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793564_1_20250228022359.jpg&q=75)
-  
-
-目前在監獄的庫爾德工人黨領導人厄賈蘭在親筆信中，明確提出庫爾德工人黨應召開大會並宣布自行解散，呼籲所有武裝團體應放下武器。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm)
 
 ---

@@ -1,4 +1,31 @@
+# 烏媒：澤連斯基已離開美國前往英國
+
+![澤連斯基周五到白宮與特朗普會面時，兩人激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793813_1_20250301191516.jpg&q=90)
+  
+
+新華社引述烏克蘭媒體報道，烏克蘭總統澤連斯基當地周五晚結束在美國訪問後已飛往英國，他將與英國首相施紀賢會晤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm)
+
+---
+
 # 李家超稱懷興奮心情見證啟德體育園開幕典禮
+
+![開幕典禮有鼓樂及舞龍舞獅表演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_1_20250301191222.jpg&q=80)
+  
 
 啟德體育園晚上舉行開幕典禮，行政長官李家超主持開幕儀式，他致辭表示，與大家一樣懷著興奮和期待的心情，見證啟德體育園，作為一個世界級香港新地標的開幕典禮。
 
