@@ -1,3 +1,27 @@
+# 特朗普：澤連斯基須意識到正輸掉戰爭　沒美國支持烏克蘭將失敗
+
+![特朗普不點名指澤連斯基企圖讓美國加入並繼續戰鬥，美國不會這麼做。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793783_1_20250301134345.jpg&q=85)
+  
+
+美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，美方提出的礦產協議亦未簽署。他重申希望俄烏立即停火，並警告澤連斯基一是實現和平，否則失去美國的支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm)
+
+---
+
 # 南韓代總統稱社會分裂與對立加劇　應促進全民大團結
 
 ![南韓代總統稱社會分裂與對立加劇　應促進全民大團結](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793782_1_20250301131142.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm)
-
----
-
-# 特朗普：下周向墨西哥和加拿大加徵關稅　中國關稅再加一成
-
-![特朗普表示，將會如期從下星期二起，對墨西哥和加拿大加徵關稅，同日亦會再向中國徵收額外一成關稅。（特朗普社交平台截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793549_1_20250227224405.jpg&q=90)
-  
-
-美國總統特朗普表示，將會如期從下星期二起，對墨西哥和加拿大加徵關稅，同日亦會再向中國徵收額外一成關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm)
 
 ---

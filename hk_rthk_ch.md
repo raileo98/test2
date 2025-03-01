@@ -1,3 +1,27 @@
+# 特朗普：澤連斯基須意識到正輸掉戰爭　沒美國支持烏克蘭將失敗
+
+![特朗普不點名指澤連斯基企圖讓美國加入並繼續戰鬥，美國不會這麼做。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793783_1_20250301134345.jpg&q=85)
+  
+
+美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，美方提出的礦產協議亦未簽署。他重申希望俄烏立即停火，並警告澤連斯基一是實現和平，否則失去美國的支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm)
+
+---
+
 # 南韓代總統稱社會分裂與對立加劇　應促進全民大團結
 
 ![南韓代總統稱社會分裂與對立加劇　應促進全民大團結](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793782_1_20250301131142.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm)
-
----
-
-# 女子因處理及隱藏文件違反競爭條例判囚兩個月
-
-![被告被判囚兩個月，獲准保釋等候上訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793706_1_20250228202809.jpg&q=80)
-  
-
-一名女子因處理及隱藏文件，違反競爭條例，今日在西九龍裁判法院被定罪，判囚兩個月，被告獲准保釋等候上訴，是本港首宗因不遵從競爭事務委員會的調查權力而遭刑事檢控及定罪的案件。競委會表示歡迎。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm)
 
 ---
