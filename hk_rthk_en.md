@@ -286,7 +286,7 @@ China's space station will welcome its first foreign astronaut in the next few y
 
 ---
 
-# Beijing slams US tariff treat over fentanyl issue
+# Beijing slams US tariff threat over fentanyl issue
 
 ![China urges the US to preserve the progress in bilateral anti-drug cooperation and return to a path that it says benefits both nations. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793740_1_20250301022431.jpg&q=80)
   
