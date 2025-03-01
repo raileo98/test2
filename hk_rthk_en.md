@@ -1,3 +1,28 @@
+# Fireworks and celebrities wow guests at Kai Tak
+
+![Fireworks lit up the stadium at the end of the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_1_20250301220517.jpg&q=80)
+![Crowds streamed out of Kai Tak Stadium in an orderly manner after the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_2_20250301220517.jpg&q=80)
+  
+
+A fencing duel between movie star Donnie Yen and Olympic gold medallist Vivian Kong, a medley performance by celebrity couple George Lam and Sally Yeh, and a surprise appearance by singer and actor Andy Lau were some of the highlights for the opening ceremony of Kai Tak Sports Park on Saturday night.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm)
+
+---
+
 # Hamas says 'no progress' on second phase of ceasefire
 
 ![Ramadan ornaments go on sale against the backdrop of destroyed buildings. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793821_1_20250301204524.jpg&q=90)
@@ -1412,29 +1437,5 @@ Financial Secretary Paul Chan said on Thursday that the government no longer wan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm)
-
----
-
-# HKU and CUHK to get 60 more medical training places
-
-![CUHK says it will announce details for the “second degree entry track” in due course. Photo courtesy of CUHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793464_1_20250227125822.jpg&q=65)
-  
-
-The Education Bureau said that medical schools at Chinese University (CUHK) and the University of Hong Kong (HKU) would have 60 more training places in the next academic year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm)
 
 ---

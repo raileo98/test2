@@ -1,3 +1,27 @@
+# 啟德體育園發放煙花　有觀眾感震撼稱表演精彩
+
+![啟德體育園發放煙花，有觀眾說感覺震撼。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)
+  
+
+歷時約2小時的啟德體育園開幕典禮，晚上約8時40分結束。接近典禮完結時，啟德體育園上蓋發放煙花，有觀眾說感覺震撼，又說節目緊湊，看見很多本地明星，表演精彩。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm)
+
+---
+
 # 啟德體育園開幕典禮歷時2小時　合唱歌曲「壯志驕陽」並發放煙花
 
 ![啟德體育園傍晚舉行開幕典禮，歷時2小時，並發放煙花。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793824_1_20250301214727.jpg&q=75)

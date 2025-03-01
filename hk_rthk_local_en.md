@@ -1,3 +1,28 @@
+# Fireworks and celebrities wow guests at Kai Tak
+
+![Fireworks lit up the stadium at the end of the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_1_20250301220517.jpg&q=80)
+![Crowds streamed out of Kai Tak Stadium in an orderly manner after the show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793827_2_20250301220517.jpg&q=80)
+  
+
+A fencing duel between movie star Donnie Yen and Olympic gold medallist Vivian Kong, a medley performance by celebrity couple George Lam and Sally Yeh, and a surprise appearance by singer and actor Andy Lau were some of the highlights for the opening ceremony of Kai Tak Sports Park on Saturday night.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm)
+
+---
+
 # HK to soar to new heights with Kai Tak Sports Park: CE
 
 ![The chief executive thanked all those who were involved in the planning, construction and operation of the sports park. Photo courtesy: John Lee Facebook](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_5_20250301203401.jpg&q=75)
@@ -1413,29 +1438,5 @@ Officials said they are investigating suspicions that some street cleaners have 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793057-20250225.htm)
-
----
-
-# 'Education spending cuts should be strategic'
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793046_1_20250225095556.jpg&q=85)
-  
-
-Hong Kong's education sector could face funding cuts as Financial Secretary Paul Chan prepares to deliver his budget speech on Wednesday amid a projected HK$100 billion deficit.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793046-20250225.htm)
 
 ---
