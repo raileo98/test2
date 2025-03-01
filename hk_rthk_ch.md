@@ -1,3 +1,24 @@
+# 衞生防護中心調查外地傳入麻疹個案涉及一名38歲男子　情況穩定
+
+衞生署衞生防護中心調查一宗由外地傳入的麻疹個案，涉及一名過往健康良好的38歲男子，現時仍然留院，情況穩定。他的家居接觸者目前沒有病徵。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm)
+
+---
+
 # 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
 
 警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。

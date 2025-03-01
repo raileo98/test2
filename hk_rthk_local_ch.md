@@ -1,3 +1,24 @@
+# 衞生防護中心調查外地傳入麻疹個案涉及一名38歲男子　情況穩定
+
+衞生署衞生防護中心調查一宗由外地傳入的麻疹個案，涉及一名過往健康良好的38歲男子，現時仍然留院，情況穩定。他的家居接觸者目前沒有病徵。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm)
+
+---
+
 # 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
 
 警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。
@@ -1416,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm)
-
----
-
-# 財政預算案2025｜爭取今年完成檢討交通收費罰款並分批提建議
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793679_1_20250228183026.jpg&q=80)
-  
-
-運輸及物流局將檢視數項與交通相關的收費和罰款，包括停車收費錶收費、交通違例事項定額罰款，隧道收費，以及電動私家車牌照費。運輸及物流局局長陳美寶表示，爭取今年完成檢討，預計分批提出建議，將諮詢立法會交通事務委員會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm)
 
 ---
