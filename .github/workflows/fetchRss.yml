@@ -352,15 +352,15 @@ jobs:
 
         echo ""
 
-        counter=0
-        while true; do
-          counter=$((counter+1))
-          echo "8.6 - 嘗試 enable redis  次數: $counter"
-          if sudo systemctl enable redis; then
-              break
-          fi
-          sleep 1
-        done
+        #counter=0
+        #while true; do
+          #counter=$((counter+1))
+          #echo "8.6 - 嘗試 enable redis  次數: $counter"
+          #if sudo systemctl enable redis; then
+          #    break
+          #fi
+          #sleep 1
+        #done
 
         echo ""
 
