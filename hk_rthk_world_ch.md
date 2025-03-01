@@ -1,3 +1,27 @@
+# 玻利維亞有長途巴士相撞至少37死
+
+![涉事的其中一輛巴士損毀嚴重。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793839_1_20250302012112.jpg&q=90)
+  
+
+玻利維亞西南部波托西省有長途巴士相撞，至少37人死亡，多人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm)
+
+---
+
 # 華爾街日報：中方出於安全考慮要求國內AI人才避免赴美
 
 ![國家主席習近平上月出席民營企業家座談會，DeepSeek創辦人梁文鋒亦有參與。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793837_1_20250302004357.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793585-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793585-20250228.htm)
-
----
-
-# 特朗普指俄烏和議須迅速否則失敗　施紀賢稱準備派部隊助達成和議
-
-![特朗普（右）會見施紀賢（左）後，兩人共同舉行記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793579_1_20250228071958.jpg&q=85)
-  
-
-美國總統特朗普在白宮會見到訪的英國首相施紀賢後，兩人共同會見記者。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793579-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793579-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793579-20250228.htm)
 
 ---

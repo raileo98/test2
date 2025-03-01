@@ -1,3 +1,27 @@
+# 玻利維亞有長途巴士相撞至少37死
+
+![涉事的其中一輛巴士損毀嚴重。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793839_1_20250302012112.jpg&q=90)
+  
+
+玻利維亞西南部波托西省有長途巴士相撞，至少37人死亡，多人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm)
+
+---
+
 # 東深供水工程60年對港供水3百億立方米　佔港淡水總用量近八成
 
 ![東江源頭護林員巡護山林時經過小溪，這裡的溪水將與其他水源匯成東江源頭。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793838_1_20250302011506.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱公僕凍薪體現政府社會一起面對財赤
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793758_1_20250301094626.jpg&q=65)
-  
-
-財政司司長陳茂波說，預算案提出公務員凍薪，財政是非常主要考慮原因，今年財赤處於高水平，明年稍為降低，後年經營賬目開始回復平衡，政府率先凍薪讓社會知道當局有決心，盡快將經營賬目恢復平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm)
 
 ---
