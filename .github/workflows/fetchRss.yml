@@ -20,14 +20,15 @@ jobs:
     runs-on: ubuntu-latest
 
     steps:
-    - name: 檢出代碼
+    - name: Step 1 - 檢出代碼
       timeout-minutes: 2
       uses: actions/checkout@v4
 
-    - name: 檢查並取消較新的運行
+    - name: Step 2 - 檢查並取消較新的運行
       env:
         GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
       run: |
+        echo "2.1 - 開始檢查取消動作"
         echo "獲取當前運行 ID..."
         CURRENT_RUN_ID=${{ github.run_id }}
         echo "當前運行 ID: $CURRENT_RUN_ID"
@@ -38,113 +39,384 @@ jobs:
           --json databaseId,status \
           --jq ".[] | select(.status == \"queued\" or .status == \"in_progress\") | select(.databaseId != $CURRENT_RUN_ID)" \
           | while read -r run_id; do
-            echo "取消運行 $run_id..."
-            gh run cancel $run_id
+              echo "2.2 - 取消運行 $run_id..."
+              gh run cancel $run_id
           done
 
-    - name: 如果沒有較新的運行則繼續
-      run: echo "繼續當前運行..."
+    - name: Step 3 - 如果沒有較新的運行則繼續
+      run: |
+        echo "3 - 繼續當前運行..."
 
-    - name: 檢出代碼 2
+    - name: Step 4 - 檢出代碼 2
       timeout-minutes: 2
       run: |
-        echo 1
-        for i in {1..100}; do git pull && break; done
-        echo 2
+        echo "4.1 - 開始檢出代碼 2"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "4.2 - 嘗試拉取代碼次數: $counter"
+          if git pull; then
+              echo "4.3 - 成功拉取代碼！"
+              break
+          fi
+          sleep 1
+        done
+        echo "4.4 - 完成檢出代碼 2"
 
-    - name: Install and configure Cloudflare WARP
+    - name: Step 5 - Install and configure Cloudflare WARP
       timeout-minutes: 2
       run: |
-        echo 1
-        for i in {1..10}; do curl -v https://1.1.1.1/cdn-cgi/trace && break; done
-        echo 2
-        for i in {1..10}; do curl https://pkg.cloudflareclient.com/pubkey.gpg | sudo gpg --dearmor -o /usr/share/keyrings/cloudflare-warp-archive-keyring.gpg && break; done
-        echo 3
-        for i in {1..10}; do echo "deb [arch=amd64 signed-by=/usr/share/keyrings/cloudflare-warp-archive-keyring.gpg] https://pkg.cloudflareclient.com/ $(lsb_release -cs) main" | sudo tee /etc/apt/sources.list.d/cloudflare-client.list && break; done
-        echo 4
-        for i in {1..10}; do sudo apt update -y && break; done
-        echo 5
-        for i in {1..10}; do sudo apt install -y cloudflare-warp && break; done
-        echo 6
-        for i in {1..10}; do warp-cli --accept-tos registration new && break; done
-        echo 7
-        for i in {1..10}; do warp-cli --accept-tos mode warp+doh && break; done
-        echo 8
-        for i in {1..10}; do warp-cli --accept-tos tunnel ip add 127.0.0.1 && break; done
-        echo 9
-        for i in {1..10}; do warp-cli --accept-tos tunnel host add localhost && break; done
-        echo 10
-        for i in {1..10}; do warp-cli --accept-tos connect && break; done
-        echo 11
+        echo "5.1 - 開始 Install and configure Cloudflare WARP"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.2 - 嘗試 curl trace 次數: $counter"
+          if curl -v https://1.1.1.1/cdn-cgi/trace; then
+              break
+          fi
+          sleep 1
+        done
 
-    - name: Testing WARP
+        echo "5.3 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.4 - 嘗試 curl pubkey 次數: $counter"
+          if curl https://pkg.cloudflareclient.com/pubkey.gpg | sudo gpg --dearmor -o /usr/share/keyrings/cloudflare-warp-archive-keyring.gpg; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.5 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.6 - 嘗試寫入 apt source 次數: $counter"
+          if echo "deb [arch=amd64 signed-by=/usr/share/keyrings/cloudflare-warp-archive-keyring.gpg] https://pkg.cloudflareclient.com/ $(lsb_release -cs) main" | sudo tee /etc/apt/sources.list.d/cloudflare-client.list; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.7 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.8 - 嘗試 apt update 次數: $counter"
+          if sudo apt update -y; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.9 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.10 - 嘗試安裝 cloudflare-warp 次數: $counter"
+          if sudo apt install -y cloudflare-warp; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.11 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.12 - 嘗試 warp registration 次數: $counter"
+          if warp-cli --accept-tos registration new; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.13 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.14 - 嘗試設置 mode 次數: $counter"
+          if warp-cli --accept-tos mode warp+doh; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.15 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.16 - 嘗試 tunnel ip add 次數: $counter"
+          if warp-cli --accept-tos tunnel ip add 127.0.0.1; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.17 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.18 - 嘗試 tunnel host add 次數: $counter"
+          if warp-cli --accept-tos tunnel host add localhost; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.19 - 下一步"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "5.20 - 嘗試 connect 次數: $counter"
+          if warp-cli --accept-tos connect; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "5.21 - 完成 WARP 配置"
+
+    - name: Step 6 - Testing WARP
       timeout-minutes: 2
       run: |
-        echo 0
+        echo "6.1 - 開始 Testing WARP"
         warp-cli --accept-tos status
-        echo 1
-        while ! curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
-        echo 2
-        while ! curl -s https://mozilla.cloudflare-dns.com/cdn-cgi/trace | grep -q "warp=on"; do echo "warp is off, retrying..."; sleep 1; done; echo "warp is on"
-        echo 3
-        for i in {1..10}; do warp-cli --accept-tos tunnel stats && break; done
-        echo 4
+
+        echo "6.2 - 檢查 1.1.1.1 trace"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "6.3 - 嘗試檢查 https://1.1.1.1/cdn-cgi/trace 次數: $counter"
+          if curl -s https://1.1.1.1/cdn-cgi/trace | grep -q "warp=on"; then
+              echo "6.4 - warp is on"
+              break
+          else
+              echo "6.5 - warp is off, retrying..."
+          fi
+          sleep 1
+        done
+
+        echo "6.6 - 檢查 mozilla.cloudflare-dns.com trace"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "6.7 - 嘗試檢查 https://mozilla.cloudflare-dns.com/cdn-cgi/trace 次數: $counter"
+          if curl -s https://mozilla.cloudflare-dns.com/cdn-cgi/trace | grep -q "warp=on"; then
+              echo "6.8 - warp is on"
+              break
+          else
+              echo "6.9 - warp is off, retrying..."
+          fi
+          sleep 1
+        done
+
+        echo "6.10 - 檢查 tunnel stats"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "6.11 - 嘗試 tunnel stats 次數: $counter"
+          if warp-cli --accept-tos tunnel stats; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "6.12 - 顯示 warp-cli help"
         warp-cli --accept-tos --help
-        echo 5
+
+        echo "6.13 - 檢查 warp-cli settings (protocol)"
         warp-cli --accept-tos settings | grep protocol
-        echo 6
+
+        echo "6.14 - 顯示全部 settings"
         warp-cli --accept-tos settings
-        echo 7
+
+        echo "6.15 - 設定 tunnel protocol 為 MASQUE"
         warp-cli --accept-tos tunnel protocol set MASQUE
-        echo 8
+
+        echo "6.16 - 再次檢查 settings (protocol)"
         warp-cli --accept-tos settings | grep protocol
-        echo 9
-        for i in {1..10}; do curl -s curl -v https://images.weserv.nl/quota && break; done
-        echo 10
-        for i in {1..10}; do curl -s curl -v https://wsrv.nl/quota && break; done
-        echo 11
-        for i in {1..10}; do curl -s https://github.com/raileo98/test2/raw/refs/heads/main/hk_rthk_ch.xml | head -n 10 && break; done
-        echo 12
-        for i in {1..10}; do curl -s https://raw.githubusercontent.com/raileo98/test2/refs/heads/main/hk_rthk_ch.xml | head -n 10 && break; done
-        echo 13
 
-    - name: 檢出代碼 3
+        echo "6.17 - 檢查 images.weserv.nl quota"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "6.18 - 嘗試 images.weserv.nl quota 次數: $counter"
+          if curl -s curl -v https://images.weserv.nl/quota; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "6.19 - 檢查 wsrv.nl quota"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "6.20 - 嘗試 wsrv.nl quota 次數: $counter"
+          if curl -s curl -v https://wsrv.nl/quota; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "6.21 - 拉取 GitHub XML (方法1)"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "6.22 - 嘗試拉取 GitHub XML (方法1) 次數: $counter"
+          if curl -s https://github.com/raileo98/test2/raw/refs/heads/main/hk_rthk_ch.xml | head -n 10; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "6.23 - 拉取 GitHub XML (方法2)"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "6.24 - 嘗試拉取 GitHub XML (方法2) 次數: $counter"
+          if curl -s https://raw.githubusercontent.com/raileo98/test2/refs/heads/main/hk_rthk_ch.xml | head -n 10; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "6.25 - 完成 Testing WARP"
+
+    - name: Step 7 - 檢出代碼 3
       timeout-minutes: 2
       run: |
-        echo 1
-        for i in {1..100}; do git pull && break; done
-        echo 2
+        echo "7.1 - 開始檢出代碼 3"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "7.2 - 嘗試拉取代碼 (第三次) 次數: $counter"
+          if git pull; then
+              echo "7.3 - 成功拉取代碼！"
+              break
+          fi
+          sleep 1
+        done
+        echo "7.4 - 完成檢出代碼 3"
 
-    - name: 安裝依賴
+    - name: Step 8 - 安裝依賴
       timeout-minutes: 2
       run: |
-        for i in {1..10}; do sudo apt update -y && break; done
-        for i in {1..10}; do sudo apt install python3 python3-pip redis-server -y && break; done
-        for i in {1..10}; do sudo python3 -m pip install --upgrade -r requirements.txt && break; done
-        for i in {1..10}; do sudo systemctl status redis && break; done
-        for i in {1..10}; do sudo systemctl enable redis && break; done
-        for i in {1..10}; do sudo systemctl start redis && break; done
-        for i in {1..10}; do sudo systemctl status redis && break; done
+        echo "8.1 - 開始安裝依賴"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "8.2 - 嘗試 apt update 次數: $counter"
+          if sudo apt update -y; then
+              break
+          fi
+          sleep 1
+        done
 
-    - name: 執行 Python 腳本
+        echo ""
+
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "8.3 - 嘗試安裝 python3 python3-pip redis-server 次數: $counter"
+          if sudo apt install python3 python3-pip redis-server -y; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo ""
+
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "8.4 - 嘗試安裝 Python 套件次數: $counter"
+          if sudo python3 -m pip install --upgrade -r requirements.txt; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo ""
+
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "8.5 - 嘗試查詢 redis 狀態次數: $counter"
+          if sudo systemctl status redis; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo ""
+
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "8.6 - 嘗試 enable redis  次數: $counter"
+          if sudo systemctl enable redis; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo ""
+
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "8.7 - 嘗試 start redis 次數: $counter"
+          if sudo systemctl start redis; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo ""
+
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "8.8 - 嘗試再次查詢 redis 狀態次數: $counter"
+          if sudo systemctl status redis; then
+              break
+          fi
+          sleep 1
+        done
+
+        echo "8.9 - 完成安裝依賴"
+
+    - name: Step 9 - 執行 Python 腳本
       timeout-minutes: 10
       run: |
-        echo 1
+        echo "9.1 - 開始執行 Python 腳本"
         python3 code/rthk.py
-        echo 2
+        echo "9.2 - 完成執行 Python 腳本"
 
-    - name: Redis 狀態
+    - name: Step 10 - Redis 狀態
       run: |
-        for i in {1..10}; do sudo systemctl status redis && break; done
+        echo "10.1 - 開始檢查 Redis 狀態"
+        counter=0
+        while true; do
+          counter=$((counter+1))
+          echo "10.2 - 嘗試檢查 Redis 狀態次數: $counter"
+          if sudo systemctl status redis; then
+              break
+          fi
+          sleep 1
+        done
+        echo "10.3 - 完成 Redis 狀態檢查"
      
-    - name: 上傳 RSS 文件
+    - name: Step 11 - 上傳 RSS 文件
       run: |
-          git config --global user.email "github-actions@github.com"
-          git config --global user.name "github-actions"
-          git add *.xml
-          git add *.md
-          echo '# git stash'
-          git commit -m "Upload RSS file"
-          git push origin main
-
-          
+        echo "11.1 - 開始上傳 RSS 文件"
+        git config --global user.email "github-actions@github.com"
+        git config --global user.name "github-actions"
+        git add *.xml
+        git add *.md
+        echo '# git stash'
+        git commit -m "Upload RSS file"
+        git push origin main
+        echo "11.2 - 完成上傳 RSS 文件"
