@@ -1,3 +1,27 @@
+# HK singer-songwriter Khalil Fong dies at 41
+
+![Hong Kong singer songwriter Khalil Fong died after fighting a relentless illness. Photo: Khalil Fong's social media page](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793788_1_20250301151743.jpg&q=90)
+  
+
+Hong Kong-based singer songwriter Khalil Fong has died at the age of 41, his music label revealed on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm)
+
+---
+
 # 'Pay freezes show govt serious in tackling deficit'
 
 ![Financial Secretary Paul Chan says salaries are the government's biggest expense. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793772_1_20250301115542.jpg&q=65)
@@ -1412,29 +1436,5 @@ The Hong Kong Trade Development Council (HKTDC) on Monday said a new index it ha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792976-20250224.htm)
-
----
-
-# Central and Wan Chai road closures for triathlon test
-
-![The 15th National Games Triathlon Test Event is set to take place at Central Harbourfront and Victoria Harbour on March 1 and 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792964_1_20250224173206.jpg&q=30)
-  
-
-Drivers are urged to steer clear of certain roads in Central and Wan Chai because of an upcoming triathlon test event.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
 
 ---

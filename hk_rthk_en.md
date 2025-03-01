@@ -1,3 +1,27 @@
+# HK singer-songwriter Khalil Fong dies at 41
+
+![Hong Kong singer songwriter Khalil Fong died after fighting a relentless illness. Photo: Khalil Fong's social media page](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793788_1_20250301151743.jpg&q=90)
+  
+
+Hong Kong-based singer songwriter Khalil Fong has died at the age of 41, his music label revealed on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm)
+
+---
+
 # Tennis star welcomes WTA rebranding
 
 ![Aryna Sabalenka at the Qatar Open 2025 WTA 1000 tennis tournament in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793781_1_20250301123815.jpg&q=90)
@@ -1412,29 +1436,5 @@ The sailing industry on Thursday said they welcomed Financial Secretary Paul Cha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm)
-
----
-
-# Afghanistan knock England out of Champions Trophy
-
-![Afghanistan's Azmatullah Omarzai, left, celebrates with teammate Ibrahim Zadran after the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793419_1_20250227081610.jpg&q=85)
-  
-
-Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghanistan knock England out of the Champions Trophy with a thrilling eight-run victory.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm)
 
 ---
