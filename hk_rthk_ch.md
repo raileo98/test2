@@ -1,3 +1,27 @@
+# 南韓代總統稱社會分裂與對立加劇　應促進全民大團結
+
+![南韓代總統稱社會分裂與對立加劇　應促進全民大團結](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793782_1_20250301131142.jpg&q=75)
+  
+
+南韓代總統崔相穆表示，當前社會分裂與對立呈加劇之勢，應促進全民大團結，克服面臨內部和外部的困難和挑戰。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡稱會與社福機構商討資源運用拆牆鬆綁
 
 ![孫玉菡表示，現有向社福機構提供的400多億元資助需要削減。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793780_1_20250301123735.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm)
-
----
-
-# 財政預算案2025｜工作組擬下季就建新醫學院晤提交建議書大學
-
-![籌備新醫學院工作組第三次會議，討論評核建設第三所醫學院建議書的下一步工作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793705_1_20250228202745.jpg&q=85)
-  
-
-籌備新醫學院工作組今日召開第三次會議，討論評核建設第三所醫學院建議書的下一步工作。工作組計劃今年第二季內與提交建議書的大學進行會面，進一步了解大學提出的建議，以作出綜合考量，並預期今年內完成評核，向政府建議能配合香港發展為國際醫學培訓、研究及創新樞紐的方案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793705-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793705-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793705-20250228.htm)
 
 ---

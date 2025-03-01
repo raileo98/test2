@@ -1,3 +1,27 @@
+# 南韓代總統稱社會分裂與對立加劇　應促進全民大團結
+
+![南韓代總統稱社會分裂與對立加劇　應促進全民大團結](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793782_1_20250301131142.jpg&q=75)
+  
+
+南韓代總統崔相穆表示，當前社會分裂與對立呈加劇之勢，應促進全民大團結，克服面臨內部和外部的困難和挑戰。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm)
+
+---
+
 # 美財長稱墨西哥已提議配合美國對中國加徵相同關稅
 
 ![貝森特稱墨西哥已提議配合美國對中國加徵相同關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793762_1_20250301094603.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm)
-
----
-
-# 普京：俄美已準備好重新建立合作關係
-
-![普京說，俄羅斯從未拒絕以和平方式解決烏克蘭危機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793541_1_20250227205952.jpg&q=90)
-  
-
-俄羅斯和美國的代表在土耳其伊斯坦布爾舉行閉門會談，討論恢復兩國使館正常運作的問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793541-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793541-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793541-20250227.htm)
 
 ---
