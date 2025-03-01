@@ -1,3 +1,27 @@
+# 北約秘書長稱已告知澤連斯基須修復與特朗普的關係
+
+![呂特形容，澤連斯基與特朗普的會晤令人遺憾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793841_1_20250302014133.jpg&q=90)
+  
+
+北約秘書長呂特表示，已經告知烏克蘭總統澤連斯基，需要尋找方法修復與美國總統特朗普的關係。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm)
+
+---
+
 # 澤連斯基抵唐寧街與英國首相施紀賢會晤
 
 ![烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793840_1_20250302013232.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm)
-
----
-
-# 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
-
-![劉佩瓊說，修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793760_2_20250301085619.jpg&q=55)
-  
-
-全國人大會議將於本月5日開幕，議程之一是審議《全國人大和地方各級人大代表法修正草案》，草案增加規定人大代表參加各項履職活動，明確人大代表出席會議前，應透過多種形式聽取群眾意見和建議，研讀計劃提交大會審議的議案和報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm)
 
 ---
