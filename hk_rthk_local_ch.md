@@ -1,3 +1,24 @@
+# 當局稱會彈性處理逾時換領啟德體育園開幕禮實體票
+
+啟德體育園今日開幕，典禮晚上6時半在主場館舉行，將會有3萬多名觀眾可以入場觀看。入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止，但當局表示會彈性處理，不會立即停止換票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm)
+
+---
+
 # 音樂人方大同離世　終年41歲
 
 ![方大同上月21日離世，終年41歲。（方大同社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793784_1_20250301141344.jpg&q=90)
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793631-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793631-20250228.htm)
-
----
-
-# 恒指半日跌546點　成交逾1900億元
-
-![恒指半日跌546點，收報23171點，跌幅2.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793625_1_20250228121242.jpg&q=1)
-  
-
-港股受壓，美國將向多國徵收關稅，包括下星期二起對從中國進口商品，徵收額外10%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793625-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793625-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793625-20250228.htm)
 
 ---

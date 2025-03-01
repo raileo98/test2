@@ -1,3 +1,24 @@
+# 當局稱會彈性處理逾時換領啟德體育園開幕禮實體票
+
+啟德體育園今日開幕，典禮晚上6時半在主場館舉行，將會有3萬多名觀眾可以入場觀看。入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止，但當局表示會彈性處理，不會立即停止換票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm)
+
+---
+
 # 王新偉出任遼寧省代省長
 
 新華社報道，遼寧省人大常委會會議決定，接受李樂成辭去遼寧省省長職務的請求，任命王新偉為遼寧省副省長、代省長。
@@ -1409,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793710-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793710-20250228.htm)
-
----
-
-# 日本政府和執政黨據報考慮上調國際離境稅
-
-![有關稅項會包括在離境的機票及船票價格內。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793711_1_20250228210007.jpg&q=90)
-  
-
-日本政府和執政自民黨據報正考慮上調國際離境稅，收益將會用於作為應對過度旅遊的措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm)
 
 ---
