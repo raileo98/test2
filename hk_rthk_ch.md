@@ -1,3 +1,27 @@
+# 梵蒂岡稱教宗方濟各情況穩定
+
+![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793843_1_20250302022219.jpg&q=65)
+  
+
+教宗方濟各因肺炎住院兩星期，梵蒂岡星期六晚表示，方濟各經歷呼吸危機後，臨床情況保持穩定，仍然需要吸氧氣，但沒有發燒，亦沒有出現支氣管痙攣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm)
+
+---
+
 # 洪都拉斯全國停電並影響拉美多國
 
 ![洪都拉斯全國停電並影響拉美多國](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793842_1_20250302015023.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm)
-
----
-
-# 美財長稱墨西哥已提議配合美國對中國加徵相同關稅
-
-![貝森特稱墨西哥已提議配合美國對中國加徵相同關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793762_1_20250301094603.jpg&q=85)
-  
-
-美國財長貝森特表示，墨西哥已提議對中國徵收與美國相同的關稅，形容做法「非常有意思」，加拿大也應該仿效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm)
 
 ---
