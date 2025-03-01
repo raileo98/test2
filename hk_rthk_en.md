@@ -1,6 +1,29 @@
+# Hamas says 'no progress' on second phase of ceasefire
+
+![Ramadan ornaments go on sale against the backdrop of destroyed buildings. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793821_1_20250301204524.jpg&q=90)
+  
+
+The latest round of talks on the second phase of the ceasefire between Israel and Hamas has made no progress so far, and it was unclear whether the talks would resume on Saturday, a senior Hamas official said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm)
+
+---
+
 # HK to soar to new heights with Kai Tak Sports Park: CE
 
-![John Lee (centre) was joined by political and business leaders on stage for the opening ceremony. Photo courtesy: John Lee Facebook](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_4_20250301202315.jpg&q=10)
 ![The chief executive thanked all those who were involved in the planning, construction and operation of the sports park. Photo courtesy: John Lee Facebook](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_5_20250301203401.jpg&q=75)
   
 
@@ -1413,29 +1436,5 @@ The Education Bureau said that medical schools at Chinese University (CUHK) and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm)
-
----
-
-# FS shoots down levy for all outbound travellers
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793462_2_20250227135507.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Thursday said a proposed levy on private cars departing Hong Kong is aimed at clawing back government spending on cross-boundary facilities, while dismissing the idea of a fee for all outbound travellers over the potential impact on the public.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm)
 
 ---

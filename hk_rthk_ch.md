@@ -1,3 +1,48 @@
+# 啟德體育園開幕典禮歷時2小時　合唱歌曲「壯志驕陽」並發放煙花
+
+啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華押軸現身，講述自己與啟德的淵源。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm)
+
+---
+
+# 俄國防部：烏克蘭無人機襲擊俄境內天然氣壓縮站設施
+
+![俄方說，烏克蘭出動無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793823_1_20250301212656.jpg&q=90)
+  
+
+俄羅斯國防部通報，烏克蘭周五夜間使用無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm)
+
+---
+
 # 俄羅斯：在烏克蘭實現非軍事化等目標沒變
 
 ![扎哈羅娃指責澤連斯基 「執著於延續」 戰鬥。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793822_1_20250301211257.jpg&q=90)
@@ -28,7 +73,7 @@
 ![啟德體育園開幕典禮歷時2小時，結束前有大合唱及煙花匯演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_2_20250301205816.jpg&q=80)
   
 
-啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華押軸現身，講述自己與啟德的淵源。
+啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
 
   
 

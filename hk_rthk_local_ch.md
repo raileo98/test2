@@ -1,10 +1,31 @@
+# 啟德體育園開幕典禮歷時2小時　合唱歌曲「壯志驕陽」並發放煙花
+
+啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華押軸現身，講述自己與啟德的淵源。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm)
+
+---
+
 # 影星劉德華壓軸現身啟德體育園開幕禮　與觀眾大合照
 
 ![影星劉德華現身啟德體育園開幕禮。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_1_20250301204611.jpg&q=75)
 ![啟德體育園開幕典禮歷時2小時，結束前有大合唱及煙花匯演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_2_20250301205816.jpg&q=80)
   
 
-啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華押軸現身，講述自己與啟德的淵源。
+啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
 
   
 
@@ -1419,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm)
-
----
-
-# 葵涌有工業大廈單位疑作私煙貯存庫　海關檢約30萬支私煙
-
-![海關檢獲約30萬支懷疑私煙，估計市值約140萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793671_1_20250228162452.jpg&q=85)
-  
-
-海關在葵涌搗破懷疑私煙貯存倉庫，檢獲約30萬支懷疑私煙，估計市值約140萬元，應課稅值約100萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793671-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793671-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793671-20250228.htm)
 
 ---

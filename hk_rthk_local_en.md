@@ -1,6 +1,5 @@
 # HK to soar to new heights with Kai Tak Sports Park: CE
 
-![John Lee (centre) was joined by political and business leaders on stage for the opening ceremony. Photo courtesy: John Lee Facebook](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_4_20250301202315.jpg&q=10)
 ![The chief executive thanked all those who were involved in the planning, construction and operation of the sports park. Photo courtesy: John Lee Facebook](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_5_20250301203401.jpg&q=75)
   
 

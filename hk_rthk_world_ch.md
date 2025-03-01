@@ -1,3 +1,27 @@
+# 俄國防部：烏克蘭無人機襲擊俄境內天然氣壓縮站設施
+
+![俄方說，烏克蘭出動無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793823_1_20250301212656.jpg&q=90)
+  
+
+俄羅斯國防部通報，烏克蘭周五夜間使用無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm)
+
+---
+
 # 俄羅斯：在烏克蘭實現非軍事化等目標沒變
 
 ![扎哈羅娃指責澤連斯基 「執著於延續」 戰鬥。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793822_1_20250301211257.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793569-20250228.htm)
-
----
-
-# 特朗普白宮晤施紀賢　西翼外握手並向傳媒微笑
-
-![特朗普（左）在白宮西翼門外迎接施紀賢（右）。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793568_1_20250228021408.jpg&q=90)
-  
-
-美國總統特朗普在白宮會見到訪的英國首相施紀賢。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793568-20250228.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Hamas says 'no progress' on second phase of ceasefire
+
+![Ramadan ornaments go on sale against the backdrop of destroyed buildings. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793821_1_20250301204524.jpg&q=90)
+  
+
+The latest round of talks on the second phase of the ceasefire between Israel and Hamas has made no progress so far, and it was unclear whether the talks would resume on Saturday, a senior Hamas official said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm)
+
+---
+
 # PKK declares ceasefire with Turkey after 40 years
 
 ![Turkish president Recep Tayyip Erdogan has described PKK leader Abdullah Ocalan's appeal as an "historic opportunity." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793814_1_20250301193855.jpg&q=90)
@@ -1411,29 +1435,5 @@ President Emmanuel Macron said on Thursday that France was entering a "new era" 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792540-20250221.htm)
-
----
-
-# Wang meets Lavrov to strengthen bilateral ties
-
-![Foreign Minister Wang Yi (Right) says Beijing is willing to work with Russia to implement the consensus reached by the two heads of state and to further advance China-Russia relations. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792537_1_20250221034153.jpg&q=90)
-  
-
-Chinese Foreign Minister Wang Yi met with his Russian counterpart Sergei Lavrov on the sidelines of the Group of 20 (G20) Foreign Ministers' Meeting in Johannesburg, South Africa, to discuss China-Russia relations.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm)
 
 ---
