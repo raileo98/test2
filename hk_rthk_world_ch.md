@@ -1,3 +1,27 @@
+# 梵蒂岡：教宗方濟各度過了平靜一晚
+
+![信眾在聖伯多祿廣場為教宗祈禱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793803_1_20250301174645.jpg&q=85)
+  
+
+教宗方濟各因肺炎住院已兩星期，梵蒂岡星期六表示，方濟各經歷呼吸危機後，度過了平靜的一晚，目前正在休息。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm)
+
+---
+
 # 馬克龍：歐盟將對美國鋼鐵和鋁徵收「對等關稅」
 
 ![馬克龍（左）與葡萄牙總理蒙特內格羅舉行聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793800_1_20250301173251.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793564-20250228.htm)
-
----
-
-# 聯合國指蘇丹因武裝衝突面臨嚴重人道主義危機促國際社會採取行動
-
-![聯合國指自2023年武裝衝突爆發以來，蘇丹已成為全球最嚴重的人道災難中心。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793563_1_20250228022005.jpg&q=80)
-  
-
-聯合國人權事務高級專員圖爾克警告，蘇丹面臨嚴重人道主義危機，局勢危急，迫切需要國際社會採取行動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793563-20250228.htm)
 
 ---

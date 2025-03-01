@@ -1,3 +1,27 @@
+# 梵蒂岡：教宗方濟各度過了平靜一晚
+
+![信眾在聖伯多祿廣場為教宗祈禱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793803_1_20250301174645.jpg&q=85)
+  
+
+教宗方濟各因肺炎住院已兩星期，梵蒂岡星期六表示，方濟各經歷呼吸危機後，度過了平靜的一晚，目前正在休息。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm)
+
+---
+
 # 觀眾接受安檢進入啟德體育園主場館　有人攜帶水樽被收走
 
 ![市民陸續經安檢後入場。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793802_1_20250301174455.jpg&q=60)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽下周在港舉行　4千張表演賽門票免費派發
-
-![世界格蘭披治桌球大獎賽首次在香港舉行，賽事在3月4日、下周二起一連6日在啟德體育園啟德體藝館舉行。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793726_1_20250228225747.jpg&q=90)
-  
-
-世界格蘭披治桌球大獎賽首次在香港舉行，賽事在3月4日、下周二起一連6日在啟德體育園啟德體藝館舉行。全球排名前32名的桌球選手將會參與。3月8日及9日早上11時將舉行表演賽，大會免費派發共4000張表演賽門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm)
 
 ---
