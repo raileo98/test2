@@ -1,3 +1,51 @@
+# 觀眾接受安檢進入啟德體育園主場館　有人攜帶水樽被收走
+
+![市民陸續經安檢後入場。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793802_1_20250301174455.jpg&q=60)
+  
+
+啟德體育園傍晚6時半舉行開幕禮，觀眾陸續入場，近5時人流越來越多，場地設有不少安檢櫃台。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm)
+
+---
+
+# 大欖懲教所62歲男囚犯不治　死者生前有長期濫藥紀錄
+
+![大欖懲教所62歲男在囚人士不治，懲教署表示，死者生前有有長期濫藥紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793801_1_20250301174019.jpg&q=85)
+  
+
+大欖懲教所一名62歲男性在囚人士在公立醫院因病不治，懲教署已將事件通知警方，死因裁判法庭將進行死因研訊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm)
+
+---
+
 # 李頌恩視察啟德體育園一帶交通　了解港鐵客流管理措施
 
 ![運輸署署長李頌恩視察啟德體育園交通配套和部署。（運輸署社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793799_1_20250301172540.jpg&q=90)
@@ -23,6 +71,9 @@
 ---
 
 # 大欖懲教所25歲女囚犯疑體內藏毒　案件交警方跟進
+
+![這名25歲在囚女子上月18日因販運危險藥物罪而被還押。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793798_1_20250301174101.jpg&q=80)
+  
 
 大欖女懲教所一名還押在囚女子被發現涉嫌利用體內藏毒，將懷疑毒品偷運進入懲教院所，懲教署將案件轉介警方跟進。
 
@@ -69,7 +120,6 @@
 
 # 有市民及旅客換票遲到　啟德體育園職員彈性處理
 
-![大會指，已有九成半的門票經兌換，對於遲到入場的市民會彈性處理。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_1_20250301165551.jpg&q=45)
 ![啟德體育園傍晚舉行開幕禮，持門票觀眾下午陸續進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_2_20250301172827.jpg&q=70)
   
 
@@ -1391,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
-
----
-
-# 劉詩韻獲委為中醫藥發展基金諮詢委員會主席
-
-![政府委任劉詩韻為中醫藥發展基金諮詢委員會新主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793651_1_20250228145842.jpg&q=80)
-  
-
-政府委任劉詩韻為中醫藥發展基金諮詢委員會新主席，並委任16名新委員及再度委任9名現任委員，明日起生效，為期兩年。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793651-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793651-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793651-20250228.htm)
-
----
-
-# 金管局：約500億人民幣貿易融資流動資金已分配給銀行
-
-![人民幣貿易融資流動資金安排今日正式啟動，首階段參與的銀行有24家。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793650_1_20250228141832.jpg&q=75)
-  
-
-人民幣貿易融資流動資金安排今日正式啟動，首階段參與的銀行有24家。金管局說，1000億元人民幣總額度當中，約500億元已分配給參與銀行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793650-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793650-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793650-20250228.htm)
 
 ---
