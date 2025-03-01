@@ -1,9 +1,369 @@
-# 'SAR debts still at very manageable level'
+# 'Pay freezes show govt serious in tackling deficit'
+
+![Financial Secretary Paul Chan says salaries are the government's biggest expense. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793772_1_20250301115542.jpg&q=65)
+  
+
+Financial Secretary Paul Chan on Saturday said his proposal to freeze civil servant pay aims to show the government's determination in achieving a fiscal balance.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm)
+
+---
+
+# Card readers will be updated to allow for HK$2 tweaks
+
+![Chris Sun says users will be able to check their remaining subsidised journeys by the time the changes to the HK$2 transport subsidy scheme take effect. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793766_1_20250301104120.jpg&q=80)
+  
+
+Users will be able to check the remaining number of discounted trips using an Octopus card reader when changes to the HK$2 elderly transport subsidy take effect, the labour and welfare chief Chris Sun said on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm)
+
+---
+
+# Basketball betting 'could be legalised by September'
+
+![It is believed that basketball betting activities could be legalised within this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793724_1_20250228221320.jpg&q=90)
+  
+
+Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the way for basketball betting will be passed by lawmakers by September this year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm)
+
+---
+
+# 'Not enough separation for planes after take-off'
+
+![The Civil Aviation Department says air traffic control staff involved in the incident near Hong Kong International Airport have been removed from frontline duties temporarily. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793718_1_20250228212309.jpg&q=80)
+  
+
+An unspecified number of air traffic control staff have been suspended over an incident involving two cargo planes that triggered an alert after take-off.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm)
+
+---
+
+# Review on tolls, traffic penalties to finish this year
+
+![Mable Chan says the review by her bureau will focus on traffic charges that have not gone up for years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793702_1_20250228192045.jpg&q=80)
+  
+
+The Transport and Logistics Bureau is aiming to complete a review on the fixed penalties for traffic-related offences and various fees and tolls this year, its chief said on Friday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm)
+
+---
+
+# Edgar Cheung tells students to never give up
+
+![Edgar Cheung, left, receives an outstanding athlete award from Lam Tai-fai. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793695_2_20250228200003.jpg&q=70)
+  
+
+Hong Kong's fencing king and two-time Olympic gold medallist Edgar Cheung has encouraged students to never give up in the face of adversity.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm)
+
+---
+
+# Smaller housing plots in next land sale programme
+
+![Bernadette Linn said the plots in the coming financial year's land sale programme can house less than a thousand flats each. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793689_1_20250228180230.jpg&q=80)
+  
+
+The government said on Friday that eight residential plots it plans to roll out in the coming financial year can house around 4,450 flats, more than a fifth less than the figure from the current fiscal year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm)
+
+---
+
+# Govt seeking clarifications over latest US tariffs
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793674_1_20250228165109.jpg&q=80)
+  
+
+Secretary for Commerce and Economic Development Algernon Yau on Friday said authorities are seeking clarifications as to whether new additional tariffs on Chinese imports announced by the US also cover goods from Hong Kong.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm)
+
+---
+
+# Ethnic minority advocacy group Unison to wind up
+
+![The executive committee chair of Hong Kong Unison, Alice Chong, middle, says its “historical mission has been successfully accomplished”. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793653_2_20250228164445.jpg&q=85)
+  
+
+Hong Kong Unison, a group advocating the rights of the city's ethnic minorities, on Friday announced it was starting its dissolution process, saying its “historical mission has been successfully accomplished.”
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm)
+
+---
+
+# 'Preparations for sports park opening in final stage'
+
+![Rosanna Law says preparations for the opening of Kai Tak Sports Park are in the final stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793663_1_20250228160057.jpg&q=90)
+  
+
+Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of the Kai Tak Sports Park is only the beginning of many mega events in March, adding that preparations are in the final stage.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm)
+
+---
+
+# Spectators urged to get sports park tickets early
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793634_1_20250228123827.jpg&q=80)
+  
+
+The government says people attending the opening ceremony for Kai Tak Sports Park on Saturday evening must get their tickets by 3pm on the day.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm)
+
+---
+
+# Home prices drop to almost 8.5-year low
+
+![Home prices retreated for the second month in a row in January. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793618_1_20250228110317.jpg&q=10)
+  
+
+Hong Kong home prices retreated to their lowest level in nearly eight and a half years in January.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
+
+---
+
+# HK must adapt to Trump tariffs, FS tells phone-in show
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793606_1_20250228095158.jpg&q=85)
+  
+
+Financial Secretary Paul Chan on Friday said overseas firms were still keen on the mainland market and on Hong Kong's position as a gateway to that, a day after US President Donald Trump said a further 10 percent levies on China would be going ahead.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm)
+
+---
+
+# HK condemns US politicians' slander of NSL
+
+![The government says it remains committed to enforcing national security laws while safeguarding the rights of residents under One Country, Two Systems. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793567_1_20250228014146.jpg&q=90)
+  
+
+The SAR government has condemned members of the US Senate Committee on Foreign Affairs, accusing them of making baseless allegations against Hong Kong's national security law.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm)
+
+---
+
+# 'Private sector growth high on Two Sessions agenda'
+
+!['Private sector growth high on Two Sessions agenda'](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793553_2_20250228075850.jpg&q=80)
+  
+
+Support for private businesses is a very important area that will be addressed during the upcoming "Two Sessions" meetings in Beijing, according to Hong Kong's sole delegate to the country's top legislature.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
+
+---
+
+# 'SAR debt still at very manageable level'
 
 ![Christopher Hui says the ratio of government debt to GDP is less than 17 percent. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
   
 
-The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt levels are still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
+The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt is still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
 
   
 
@@ -1076,366 +1436,5 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
-
----
-
-# Lower goals help push drink container recycling: govt
-
-![The government is hoping to recover 30 percent of plastic beverage containers and 10 percent of drink cartons in the initial phase of the recycling scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792962_1_20250224171913.jpg&q=45)
-  
-
-The government on Monday explained why it wants to take a gradual approach to getting drinks companies to collect plastic bottles and cartons for recycling, after a lawmaker suggested its initial target isn't ambitious enough.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792962-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792962-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792962-20250224.htm)
-
----
-
-# Child car seat rule to come into force in November
-
-![Drivers can choose to use child car seats, seat belt adjusters, wearable safety restraint vests or foldable boosters. Image courtesy of Transport Department.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792958_1_20250224170030.jpg&q=90)
-  
-
-Children under eight travelling in private cars will need to be in a safety seat or strapped in with some other child restraining device (CRD) from November 1, transport officials said on Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792958-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792958-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792958-20250224.htm)
-
----
-
-# HKBU says its school would shake up medical training
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792959_1_20250224171007.jpg&q=90)
-  
-
-Baptist University says the medical school it is hoping to create would be innovative and creative and not just a replica of the two Hong Kong already has.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792959-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792959-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792959-20250224.htm)
-
----
-
-# Airport flight numbers soar in January
-
-![The airport handled 5.28 million passengers in the first month of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792933_1_20250224151810.jpg&q=75)
-  
-
-The Airport Authority said January marked a significant milestone for flights taking off and landing at Chek Lap Kok, with the numbers reaching a post-pandemic high.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792933-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792933-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792933-20250224.htm)
-
----
-
-# Sunbeam Theatre's last hurrah
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792929_1_20250224144329.jpg&q=80)
-  
-
-One of Hong Kong’s most historic theatres, Sunbeam Theatre, will close its doors next month after hosting fans for over five decades.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792929-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792929-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792929-20250224.htm)
-
----
-
-# Kai Tak a favourite for latest light public housing
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792903_1_20250224113318.jpg&q=80)
-  
-
-Kai Tak appeared to be a top choice as people put in applications on Monday for homes in the second phase of Hong Kong's light public housing scheme.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792903-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792903-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792903-20250224.htm)
-
----
-
-# 'HK$2 transport scheme should stay with limitations'
-
-![The HK$2 scheme was originally introduced in 2012 for anyone aged 65 or above. It was expanded in 2022 to also cover those between 60 and 64. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792879_1_20250224084830.jpg&q=75)
-  
-
-Financial Secretary Paul Chan is widely expected to unveil measures to trim public expenditure when he delivers his latest budget on Wednesday, with one of them being a possible adjustment to the HK$2 transport fares for people over 60.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792879-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792879-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792879-20250224.htm)
-
----
-
-# Hong Kong runners-up in handball test event
-
-![Team Hong Kong, China are happy for silver at the two-day test event at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792842_1_20250223175953.jpg&q=65)
-  
-
-Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as they missed out on gold at a men's handball tournament at Kai Tak Arena.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm)
-
----
-
-# Romantic Warrior claims second in close Saudi Cup race
-
-![Romantic Warrior (right) was in the lead until the final 50 metres from the post. Photo courtesy of the Hong Kong Jockey Club](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792825_1_20250223125637.jpg&q=85)
-  
-
-Hong Kong racing royalty Romantic Warrior has come up just short in the world's most lucrative race, galloping to second in an epic finish against Japan's Forever Young in the US$20 million Saudi Cup in Riyadh.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm)
-
----
-
-# Staff numbers are coming back up, HA boss says
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792830_1_20250223141550.jpg&q=85)
-  
-
-Hong Kong Children's Hospital will strive to resume services for its ear, nose and throat, or ENT, department by the second half of this year, according to the head of the Hospital Authority.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792830-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792830-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792830-20250223.htm)
-
----
-
-# Fiscal consolidation to bring HK out of the 'blue': FS
-
-![Financial Secretary Paul Chan says the aqua-coloured cover of the budget represents the unlimited opportunities presented in future developments. Photo courtesy of the Financial Secretary's blog](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792823_1_20250223124333.jpg&q=90)
-  
-
-Financial Secretary Paul Chan has said Wednesday's budget will detail the government's fiscal consolidation strategies, while revealing the colour of choice for his upcoming blueprint.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm)
-
----
-
-# Shenzhen-HK marathon went smoothly; Szeto gets bronze
-
-![Leanne Szeto described getting a bronze as a bonus, as she was a little fatigued after running her third marathon in as many weeks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792821_2_20250223133335.jpg&q=75)
-![Hong Kong runners Wan Cheuk-hei (left) and Carman Tam posed for a photo after the race. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792821_4_20250223133335.jpg&q=85)
-  
-
-Officials said the Shenzhen-Hong Kong Marathon on Sunday morning proceeded smoothly, but a review will still go ahead for to identify areas of improvement for the upcoming National Games later this year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792821-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792821-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792821-20250223.htm)
-
----
-
-# 'All views on regulating ride-hailing welcomed'
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792810_1_20250223110316.jpg&q=75)
-  
-
-All ideas on how officials can regulate online ride-hailing platforms in Hong Kong are welcomed, says the head of a government advisory body spearheading an industry review.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792810-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792810-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792810-20250223.htm)
-
----
-
-# Handball players happy with Kai Tak test event
-
-![The men's handball test event is underway at the Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792765_1_20250222180132.jpg&q=5)
-  
-
-Athletes participating in a handball test event for the National Games on Saturday said they were happy with the atmosphere and facilities at the Kai Tak Sports Park.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm)
-
----
-
-# DAB to table 40 suggestions to Two Sessions meeting
-
-![The DAB party will propose expanding the multi-entry visa scheme to include more cities. Photo: RTHK.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792755_1_20250222163822.jpg&q=85)
-  
-
-The SAR's deputies to the National People's Congress from the DAB party said on Saturday that they will propose expanding the multi-entry visa scheme to include more cities in the Greater Bay Area, or even first-tier cities, at the Two Sessions meeting in Beijing early next month.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792755-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792755-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792755-20250222.htm)
 
 ---

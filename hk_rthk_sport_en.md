@@ -1,3 +1,147 @@
+# Tennis star welcomes WTA rebranding
+
+![Aryna Sabalenka at the Qatar Open 2025 WTA 1000 tennis tournament in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793781_1_20250301123815.jpg&q=90)
+  
+
+World number one Aryna Sabalenka praised on Friday the WTA's mission to highlight the personalities of its athletes and called Saudi Arabia's investment in the women's tennis tour an important part of growing the game.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm)
+
+---
+
+# Jos Buttler quits as England's white-ball captain
+
+![England had a disastrous preparation for the Champions Trophy when it won only one of its eight white-ball matches against India before arriving in Pakistan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793773_1_20250301115819.jpg&q=90)
+  
+
+Jos Buttler resigned as England white-ball captain on Friday after his team made an early exit from the Champions Trophy with back-to-back defeats against Australia and Afghanistan.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
+
+---
+
+# HK gymnast Stone Shek calls it a career
+
+![Stone Shek gives himself a full score of 10 for his gymnastics career. File photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793697_1_20250228183035.jpg&q=90)
+  
+
+Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirement from gymnastics.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
+
+---
+
+# Spurs' coach Popovich says he won't return this season
+
+![Popovich said he hopes to make a return to coaching in the near future. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793588_1_20250228074546.jpg&q=90)
+  
+
+Hall of Fame coach Gregg Popovich said Thursday he won't return this season as coach of the San Antonio Spurs as he continues to recover from a stroke he suffered in November.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm)
+
+---
+
+# West Ham ease to victory over lacklustre Leicester
+
+![West Ham climbed to 15th and 16 points clear of the relegation zone with the victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793582_1_20250228071128.jpg&q=90)
+  
+
+Leicester sank closer to an immediate return to the Championship after West Ham pulled clear of the bottom three with a convincing 2-0 win.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
+
+---
+
+# Russian chess grandmaster Spassky dies aged 88
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793572_1_20250228052907.jpg&q=90)
+  
+
+Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-called match of the century at the height of the Cold War, has died aged 88, the Chess Federation of Russia said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm)
+
+---
+
 # Legendary Irish trio to retire at end of Six Nations
 
 ![Last year's Six Nations title-winning skipper Peter O'Mahony is as famous for his gardening skills as his rugby prowess. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793545_1_20250227214946.jpg&q=85)
@@ -1299,150 +1443,5 @@ South China on Tuesday won the local top division basketball championship in dra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791230-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791230-20250211.htm)
-
----
-
-# HK men's ice hockey team crash out of Harbin Games
-
-![Team Hong Kong, China bid farewell to the crowd in Harbin after the loss. Photo courtesy of SF&OC.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791204_2_20250211221204.jpg&q=50)
-  
-
-The eventful journey of the Hong Kong, China men's ice hockey team at the Harbin Asian Winter Games came to an end on Tuesday, after they were dumped out of the quarter-finals 24-0 by top-seeded Kazakhstan.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791204-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791204-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791204-20250211.htm)
-
----
-
-# Top golfers ready for LIV tournament in HK
-
-![Hong Kong will be the third stop of the LIV golf tournament. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791190_1_20250211170351.jpg&q=55)
-  
-
-LIV golf is returning to Hong Kong in March, after the SAR hosted the tournament for the first time last year in Fanling.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791190-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791190-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791190-20250211.htm)
-
----
-
-# China adds six golds at Harbin Asian Winter Games
-
-![Han Mei took home three golds and two silvers at the Harbin Games, three of which were from individual events. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791179_1_20250211160239.jpg&q=90)
-![Sidney Chu finished 18th in the men's 1,000m speed skating. Photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791179_2_20250211160239.jpg&q=90)
-  
-
-Team China continued their dominance at the Harbin Asian Winter Games by snatching six golds on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm)
-
----
-
-# Rubiales takes stand at forced kiss trial
-
-![Spanish prosecutors are seeking two-and-a-half years in prison for Rubiales, one year for sexual assault for the forced kiss and 18 months for allegedly coercing Hermoso to downplay the incident. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791122_1_20250211093653.jpg&q=90)
-  
-
-Spain's former football federation chief Luis Rubiales gives his highly-anticipated version of events on Tuesday in the trial over his forced kiss on Jenni Hermoso that sparked global outrage.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791122-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791122-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791122-20250211.htm)
-
----
-
-# Palace sink Doncaster, book clash with rivals Millwall
-
-![Daniel Muñoz, left, celebrates scoring Crystal Palace's first goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791105_1_20250211064509.jpg&q=90)
-  
-
-Crystal Palace booked an FA Cup fifth round clash with south London rivals Millwall after a 2-0 win against fourth tier Doncaster.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791105-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791105-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791105-20250211.htm)
-
----
-
-# SAR ice hockey team falls to Kyrgyzstan at Games
-
-![Hong Kong, China team are back on the ice at 4pm on Tuesday against Kazakhstan. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791087_1_20250211003753.jpg&q=90)
-  
-
-The Hong Kong, China men's ice hockey team on Monday night was defeated by Kyrgyzstan, 5-6, in the quarter-finals ranking round at the Asian Winter Games in Harbin.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791087-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791087-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791087-20250211.htm)
 
 ---

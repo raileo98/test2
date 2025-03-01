@@ -1,3 +1,675 @@
+# 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
+
+![劉佩瓊說修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793778_1_20250301123915.jpg&q=55)
+  
+
+全國人大會議下周三開幕，議程包括審議有關人大代表法的修正草案，新增規定人大代表參加各項履職活動，出席會議前應聽取群眾意見和建議；同時提出為人大代表提供便利，加強履職。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm)
+
+---
+
+# 習近平主持中央政治局集體學習　強調建設更高水平平安中國
+
+![習近平主持中央政治局第十九次集體學習。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793768_1_20250301110503.jpg&q=90)
+  
+
+中共總書記習近平主持中央政治局第十九次集體學習。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm)
+
+---
+
+# 全國兩會｜全國政協十四屆三次會議下星期二北京召開
+
+![新華社報道，全國政協十四屆三次會議下星期二在北京召開。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793765_1_20250301102958.jpg&q=55)
+  
+
+新華社報道，今日召開的全國政協常委會會議決定，全國政協十四屆三次會議下星期二在北京召開。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm)
+
+---
+
+# 財政預算案2025｜陳茂波稱創科有不同舉措需穩中求進
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793763_1_20250301102213.jpg&q=70)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍早前南下考察時表示，期望特區政府繼續勇於改革，敢於破局。財政司司長陳茂波出席本台節目《星期六問責》時被問到，有否按夏寶龍的想法去做財政預算案。陳茂波回應說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破，亦要鞏固好傳統優勢才開展新領域，例如創科方面有不同舉措，強調要穩中求進，令社會在升級轉型過程中順利，將可能出現的影響減到最低。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm)
+
+---
+
+# 美財長稱墨西哥已提議配合美國對中國加徵相同關稅
+
+![貝森特稱墨西哥已提議配合美國對中國加徵相同關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793762_1_20250301094603.jpg&q=85)
+  
+
+美國財長貝森特表示，墨西哥已提議對中國徵收與美國相同的關稅，形容做法「非常有意思」，加拿大也應該仿效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm)
+
+---
+
+# 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
+
+![劉佩瓊說，修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793760_2_20250301085619.jpg&q=55)
+  
+
+全國人大會議將於本月5日開幕，議程之一是審議《全國人大和地方各級人大代表法修正草案》，草案增加規定人大代表參加各項履職活動，明確人大代表出席會議前，應透過多種形式聽取群眾意見和建議，研讀計劃提交大會審議的議案和報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm)
+
+---
+
+# 《環看天下》：DeepSeek觸發環球資金轉向
+
+![Deep Seek 核心成員均來自中國的大學，並沒有海外背景。（法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793756_1_20250301083234.jpg&q=90)
+  
+
+中國人工智能模型DeepSeek使用較低端及較少數目晶片，但運算速度及得出的生成式文字結果，與使用大量高端晶片運算的Open AI大模型大致相同，引發全球關注。由於DeepSeek的成本相對便宜，觸發資產市場對中美相關企業重新估值，導致環球資金短時間內轉向。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm)
+
+---
+
+# 公安部強烈不滿美方關稅威脅　促糾正錯誤並回到正確軌道
+
+![公安部發言人強調中國是世界上禁毒政策最嚴格、執行最徹底的國家之一。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793734_1_20250301002658.jpg&q=90)
+  
+
+在北京，公安部對美方再次以芬太尼問題為藉口，威脅對中國輸美產品再加徵10%關稅，表示強烈不滿及堅決反對。中方敦促美方糾正錯誤做法，維護中美禁毒合作來之不易的良好局面，回到造福兩國人民的正確軌道。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm)
+
+---
+
+# 何立峰：歡迎美國企業續投資中國　為推動中美關係穩定發展作貢獻
+
+![何立峰表示，歡迎美國企業繼續投資中國，共享發展機遇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793727_1_20250228223700.jpg&q=90)
+  
+
+中共中央政治局委員、國務院副總理何立峰應邀在北京出席中國美國商會年度答謝晚宴並致辭。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm)
+
+---
+
+# 王毅晤紹伊古　指新時代中俄關係超越陣營對抗式陳舊思維
+
+![王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793709_1_20250228203729.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm)
+
+---
+
+# 習近平晤紹伊古　稱中俄要不斷深化戰略協作和務實合作
+
+![國家主席習近平在北京人民大會堂會見俄羅斯聯邦安全會議秘書紹伊古。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793699_1_20250228215444.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂，會見俄羅斯聯邦安全會議秘書紹伊古。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm)
+
+---
+
+# 習近平與王毅分別晤紹伊古　紹伊古稱俄中合作不針對其他國家
+
+![紹伊古在與習近平會晤時說，俄中全面戰略協作夥伴關係今日達到歷史前所未有的高度。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793683_1_20250228171723.jpg&q=90)
+  
+
+國家主席習近平和外長王毅，分別與訪華的俄羅斯聯邦安全會議秘書紹伊古會談。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm)
+
+---
+
+# 中方堅決反對美國參議院個別議員攻擊抹黑香港特區立法
+
+![林劍說，中方敦促美國個別議員立即停止插手香港事務、停止干涉中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793668_1_20250228161307.jpg&q=90)
+  
+
+中方對美國國會參議院個別議員攻擊抹黑香港特區立法，詆毀香港的人權法治，粗暴干涉香港事務，表示堅決反對。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm)
+
+---
+
+# 習近平：中國經濟運行仍面臨困難挑戰　中國經濟向好趨勢沒有變
+
+![文章指出，中國經濟運行仍然面臨不少困難和挑戰。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793662_1_20250228155924.jpg&q=90)
+  
+
+明日出版的新一期《求是》雜誌將發表中共中央總書記習近平的文章《經濟工作必須統籌好幾對重要關係》。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm)
+
+---
+
+# 外交部堅決反對美方加徵關稅　促糾正錯誤回到磋商正確軌道
+
+![林劍強調，中方一再聲明，貿易戰和關稅戰沒有贏家。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793660_1_20250228154851.jpg&q=90)
+  
+
+中方強烈不滿和堅決反對美方再次以芬太尼問題為藉口，威脅對中國輸美產品額外加徵一成關稅，將採取一切必要措施，堅定維護自身的正當利益。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm)
+
+---
+
+# 工貿署署長訪問印尼與東盟官員會面　推動香港加入RCEP
+
+![工業貿易署署長廖廣翔訪問印尼雅加達。（商經局社交網站圖片 ）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793652_1_20250228161159.jpg&q=85)
+  
+
+工業貿易署署長廖廣翔訪問印尼，與東盟官員會面，推動香港加入《區域全面經濟伙伴關係協定》(RCEP)。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
+
+---
+
+# 全國兩會｜習近平主持中共中央政治局會議　討論政府工作報告
+
+![中共中央政治局召開會議，總書記習近平主持。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793647_1_20250228141649.jpg&q=90)
+  
+
+中共中央政治局召開會議，討論國務院擬提請第十四屆全國人民代表大會第三次會議審議的《政府工作報告》稿。總書記習近平主持會議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm)
+
+---
+
+# 曾拐賣17名兒童　余華英被執行死刑
+
+![曾拐賣17名兒童　余華英被執行死刑](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793645_1_20250228135631.jpg&q=90)
+  
+
+內地多名兒童被拐賣案，貴州省貴陽市中級人民法院經最高人民法院核准，依照法定程序，今日對案中主犯余華英執行死刑，檢察機關依法派員臨場監督。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm)
+
+---
+
+# 俄媒稱紹伊古抵京　將與習近平及王毅會晤
+
+![俄羅斯傳媒報道，紹伊古抵達北京訪問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793644_1_20250228134637.jpg&q=90)
+  
+
+俄羅斯傳媒報道，俄羅斯聯邦安全會議秘書紹伊古抵達北京，將與中國國家主席習近平和外長王毅會晤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm)
+
+---
+
+# 中方駁斥比利時媒體和國家安全部門散布涉華虛假信息
+
+![中國駐比利時使館駁斥比利時媒體和國家安全部門散布涉華虛假信息。（中國駐比利時使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793643_1_20250228134011.jpg&q=90)
+  
+
+中國駐比利時使館駁斥比利時有關媒體和國家安全部門散布所謂中國黑客和中國威脅的虛假信息，敦促比利時有關媒體和部門停止反華政治操弄，客觀看待中國和兩國關係發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm)
+
+---
+
+# 回應美國對華產品加徵關稅　商務部：甩鍋推責無益於解決自身問題
+
+![商務部稱，中方希望美方盡快回到通過平等對話妥善解決分歧的正確軌道。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793641_1_20250228131753.jpg&q=90)
+  
+
+在北京，商務部回應美國下星期二起對從中國進口美國的商品徵收額外10%關稅，發言人說，中方對此堅決反對。美方這種行為純屬「甩鍋推責」，無益於解決自身問題，還會加劇美國企業和消費者負擔，並破壞全球產業鏈穩定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm)
+
+---
+
+# 全國兩會｜市場料中央會將經濟增長目標再定於約5%
+
+![市場普遍預計，中央會將經濟增長目標再度定在5%左右。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793635_1_20250228134047.jpg&q=75)
+  
+
+十四屆全國人大三次會議將於3月5日在北京開幕，政協會議則於3月4日召開。市場預計，中央會將經濟增長目標再度定在5%左右，並關注財政政策加碼規模。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm)
+
+---
+
+# 財政預算案2025｜陳茂波稱香港可協助海外企業進入內地市場
+
+![陳茂波說，特區政府在各方努力下，在吸引投資和人才方面取得相當成果。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793617_1_20250228123330.jpg&q=85)
+  
+
+美國總統特朗普表示，下星期二起，會對從中國進口美國的商品徵收額外10%關稅。財政司司長陳茂波出席本台英文節目《財政司司長熱線》，被問到相關措施對香港的影響，陳茂波說，地緣政治緊張局勢持續，強調許多海外企業仍然對內地市場非常感興趣，香港可以作為平台協助他們進入內地市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm)
+
+---
+
+# 孫衛東訪越南共同主持中越外交磋商
+
+![孫衛東本星期二至四訪問越南，同越方共同主持中越外交磋商。(外交部網站)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793610_1_20250228100753.jpg&q=90)
+  
+
+外交部副部長孫衛東結束越南訪問，他表示，中共總書記習近平與越共總書記蘇林保持戰略溝通，為中越關係發展指明方向。雙方各領域合作成果豐碩。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793610-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793610-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793610-20250228.htm)
+
+---
+
+# 財政預算案2025｜陳茂波稱需更多高消費旅客及開拓內地新客源
+
+![陳茂波認為，本港需要更多高消費旅客，同時亦要開拓內地新客源。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793609_1_20250228102254.jpg&q=70)
+  
+
+財政司司長陳茂波說，零售業在過去兩年經歷一些挑戰，本地消費者及旅客的消費模式不斷改變，認為本港需要更多高消費旅客，同時亦要開拓內地新客源。他表示，得到中央支持，開放更多省市的人士以個人遊方式來港旅客，一簽多行亦可能擴展至更多大灣區城市的居民。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm)
+
+---
+
+# 中國駐澳大使：澳洲應客觀理性看待中澳關係和中國軍艦活動
+
+![肖千接受央視新聞訪問。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793603_1_20250228093156.jpg&q=90)
+  
+
+中國駐澳洲大使肖千表示，澳洲應該以客觀理性的眼光看待中澳關係、中國軍艦在塔斯曼海的活動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm)
+
+---
+
+# 全國兩會｜經濟增長目標或再定於約5%　聚焦促消費助民企推創科
+
+![市場普遍預料中央繼續保持寬鬆貨幣政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793597_1_20250228090751.jpg&q=35)
+  
+
+十四屆全國人大三次會議將於3月5日在北京開幕，政協會議則於3月4日召開。市場普遍預料，中央或會將今年經濟增長目標再度定於5%左右；財政赤字率有機會增至約4%，並繼續保持寬鬆貨幣政策。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm)
+
+---
+
+# 回應加徵關稅　中方：中美就芬太尼問題合作取得明顯進展
+
+![回應加徵關稅　中方：中美就芬太尼問題合作取得明顯進展](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793590_1_20250228080034.jpg&q=90)
+  
+
+美國總統特朗普在社交平台表示，下星期二起會對從中國進口美國的商品，徵收額外10%關稅。他其後在白宮向傳媒說，相關關稅疊加在本月初對華徵收的10%關稅之上，即是累計徵收20%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm)
+
+---
+
 # 特朗普指新對華關稅措施疊加月初關稅上　即累計徵收20%關稅
 
 ![特朗普說將對從中國進口美國的商品，徵收額外10%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793571_1_20250228044815.jpg&q=85)
@@ -167,6 +839,9 @@
 ---
 
 # 國防部：堅決反對美國任何形式的對台軍事聯繫
+
+![國防部強調，堅決反對美國任何形式的對台軍事聯繫。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793495_1_20250228115150.jpg&q=60)
+  
 
 有傳台灣當局計劃向美國購買70億至100億美元武器，在北京，國防部新聞發言人吳謙強調，台灣問題純屬中國內政，堅決反對美國任何形式的對台軍事聯繫。
 
@@ -760,677 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793285-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱中期財政預測已反映強化整合措施
-
-![陳茂波說中期財政預測，主要從宏觀角度估算政府的收支和財政情況。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793268_1_20250226143229.jpg&q=90)
-  
-
-財政司司長陳茂波在新一份預算案提到，中期財政預測主要從宏觀角度估算政府的收支和財政情況，並已全面反映強化後的財政整合計劃中的措施。2025/26年度所採納的實質經濟增長率為2%至3%，2026/27至2029/30年度則為約每年2.9%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793268-20250226.htm)
-
----
-
-# 財政預算案2025｜李家超稱預算案為經濟發展塑造新動能新優勢
-
-![李家超指預算案提出多項措施，與施政報告的方向一致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793263_1_20250226142911.jpg&q=75)
-  
-
-行政長官李家超表示，新一份財政預算案就香港經濟發展和公共財政整合，提出一系列實際和有效措施，鞏固政府的財政實力，並為香港的經濟發展塑造新動能和新優勢。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793263-20250226.htm)
-
----
-
-# 財政預算案2025｜飛機乘客離境稅第三季起加至200元
-
-![由2025/26年度第三季起，飛機乘客離境稅由現時每位乘客120元增加至200元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793255_1_20250226141832.jpg&q=65)
-  
-
-財政司司長陳茂波表示，過去一段時間，部分政府收費未有按機制調整，以致未能充分反映成本及體現「用者自付」原則，將推出一系列措施，包括由2025/26年度第三季起，將飛機乘客離境稅，由現時每位乘客120元增加至200元，預計每年可增加約16億元收入，他估計對飛機乘客影響輕微。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793255-20250226.htm)
-
----
-
-# 財政預算案2025｜將積極探討規範籃球博彩活動
-
-![陳茂波說政府將積極探討規範籃球博彩活動，並邀請香港賽馬會提交建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793239_1_20250226130235.jpg&q=85)
-  
-
-財政司司長陳茂波在預算案表示，近年有不少社會人士關注香港的籃球非法賭博問題。根據香港賽馬會的最新評估，去年的非法籃球賭博投注額高達700億至900億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793239-20250226.htm)
-
----
-
-# 財政預算案2025｜新資本投資者入境計劃料帶來逾260億元
-
-![「新資本投資者入境計劃」累計接獲超過880宗申請，預計帶來超過260億元投資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793234_1_20250226124644.jpg&q=1)
-  
-
-財政司司長陳茂波表示，「新資本投資者入境計劃」累計接獲超過880宗申請，預計帶來超過260億元投資，當局即將推出一系列優化措施，為計劃提供更大彈性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793234-20250226.htm)
-
----
-
-# 商務部稱堅決反對加拿大以涉俄為由制裁中國企業
-
-![商務部說，中方將採取必要措施，堅決捍衛中國企業的合法權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793226_1_20250226120817.jpg&q=30)
-  
-
-商務部回應加拿大以涉俄為由制裁中國企業，發言人表示，加方制裁中國企業的單邊做法破壞國際經貿規則和秩序，損害全球產業鏈供應鏈安全穩定，中方對此強烈不滿，堅決反對，敦促加方立即停止錯誤做法。中方將採取必要措施，堅決捍衛中國企業的合法權益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793226-20250226.htm)
-
----
-
-# 財政預算案2025｜向旅發局撥12.35億落實無處不旅遊理念
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793225_1_20250226122721.jpg&q=80)
-  
-
-財政司司長陳茂波宣布，為落實「無處不旅遊」的理念及《香港旅遊業發展藍圖2.0》，來年會向旅發局撥款12億3500萬元。旅發局會與更多國際品牌合作舉辦活動，說好香港旅遊故事。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793225-20250226.htm)
-
----
-
-# 財政預算案2025｜助力C919打進國際市場　擴展培訓範疇
-
-![陳茂波表示，香港將助力C919打進國際市場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793222_1_20250226122400.jpg&q=85)
-  
-
-財政司司長陳茂波表示，今年1月，國家自主研發的C919飛機正式應用於香港與上海的定期航班，是內地以外地區的首次，標誌著國產飛機走向世界的一大突破。香港將助力C919打進國際市場，香港國際航空學院會把培訓課程擴展至涵蓋與C919飛機相關的範疇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793222-20250226.htm)
-
----
-
-# 財政預算案2025｜年內展開港深西部鐵路勘查及北環線支線規劃
-
-![預算案提到，預計年內展開港深西部鐵路（洪水橋至前海）項目的勘查及設計研究，以及北環線支線的詳細規劃及設計。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793219_1_20250226122212.jpg&q=75)
-  
-
-財政司司長陳茂波公布將全力推進北部都會區的土地發展，北部都會區在未來數年的房屋單位及產業用地將有可觀產出。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793219-20250226.htm)
-
----
-
-# 財政預算案2025｜預留37億加快河套香港園區第一期基建設施
-
-![陳茂波表示政府高度重視河套合作區的發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793216_1_20250226122104.jpg&q=35)
-  
-
-財政司司長陳茂波表示，政府將會繼續優先為北部都會區項目投入資源。他指出，政府高度重視河套合作區的發展，該區提供大量創科用地，當局會推出新政策，促進創新要素跨境便捷流動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793216-20250226.htm)
-
----
-
-# 國台辦：希望台灣有關方面讓更多優秀大陸電影進入台灣影院
-
-![國台辦希望台灣有關方面傾聽民眾呼聲，讓更多優秀大陸電影進入台灣影院。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793214_1_20250226114023.jpg&q=80)
-  
-
-在北京，國台辦發言人朱鳳蓮表示，很多台灣同胞在大陸已經看了《哪吒之魔童鬧海》這部電影，有近40萬條台灣網民評論呼籲盡快在台灣上映，希望台灣有關方面傾聽民眾呼聲，讓更多優秀大陸電影進入台灣影院，讓台灣同胞能欣賞更多優秀文化產品。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793214-20250226.htm)
-
----
-
-# 財政預算案2025｜擴大低空飛行應用範圍　為經濟開拓新增長點
-
-![政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793215_1_20250226114849.jpg&q=85)
-  
-
-財政司司長陳茂波表示，去年底成立的「發展低空經濟工作組」正審議首批監管沙盒試點項目的申請，即將宣布結果。政府期望通過試點項目，逐步擴大和豐富低空飛行的應用範圍，為香港經濟開拓新的增長點。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793215-20250226.htm)
-
----
-
-# 財政預算案2025｜北都建大學城並推動生態旅遊
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793213_1_20250226123231.jpg&q=80)
-  
-
-財政司司長陳茂波說，為配合創科產業發展及推動香港成為國際專上教育樞紐，在北部都會區預留約90公頃土地，發展「北都大學教育城」，包括第三所醫學院。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793213-20250226.htm)
-
----
-
-# 財政預算案2025｜舉辦國際機器人大會　提升香港影響力
-
-![陳茂波提出舉辦國際機器人大會，藉此提升香港的影響力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793212_1_20250226114809.jpg&q=75)
-  
-
-財政預算案表示，港投公司將會舉辦首屆「國際機器人大會」，匯聚頂尖科企、學術機構和投資者，展示最新科研成果和應用場景，進一步提升香港在科技領域的國際影響力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793212-20250226.htm)
-
----
-
-# 國台辦促美方糾正錯誤　停止向「台獨」分裂勢力發錯誤信號
-
-![國台辦敦促美方糾正錯誤，停止發出任何縱容支持「台獨」分裂勢力的錯誤信號。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793208_1_20250226112628.jpg&q=85)
-  
-
-在北京，國台辦回應美國國務院官網近日修改「美台關係」內容，刪除不支持「台獨」表述，發言人朱鳳蓮指出，有關舉動是美方在台灣問題上立場的嚴重倒退，嚴重違反一個中國原則和中美三個聯合公報，粗暴干涉中國內政，向「台獨」分裂勢力發出嚴重錯誤信號，只會損害台海和平穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793208-20250226.htm)
-
----
-
-# 財政預算案2025｜引進辦下月公布新一批重點企業名單
-
-![引進重點企業辦公室下月將公布新一批重點企業名單，涉及10多家企業。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793209_1_20250226114050.jpg&q=25)
-  
-
-財政司司長陳茂波發表新一年度財政預算案。他表示，近期多個經濟環節持續改善，政府拼經濟、搶企業、搶人才的努力已取得一定成果表示。引進重點企業辦公室下月將公布新一批重點企業名單，涉及10多家企業。連同早前引進的重點企業，未來數年會在香港合共投資近500億元，創造超過2萬個就業機會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793209-20250226.htm)
-
----
-
-# 國台辦批評日本妄圖製造「一中一台」　促慎重處理涉台問題
-
-![朱鳳蓮強調，日本應恪守一個中國原則和中日四個政治文件精神，慎重處理涉台問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793203_1_20250226105924.jpg&q=70)
-  
-
-在北京，國台辦回應日本法務省據報5月起允許在日台灣民眾將原籍地登記的「中國」改為「台灣」，發言人朱鳳蓮說，世界上只有一個中國，台灣是中國的一部分。日方的有關舉動妄圖製造「兩個中國」、「一中一台」，嚴重違背一個中國原則，嚴重干涉中國內政，中方對此堅決反對。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793203-20250226.htm)
-
----
-
-# 黃家榮稱迪士尼利潤用於擴建新景點帶來經濟效益大於派發股息
-
-![黃家榮認為，業績反映除了本地人，亦吸引到旅客入場，並願意作高消費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793193_1_20250226104558.jpg&q=65)
-  
-
-香港迪士尼上年度錄得破紀錄淨利潤8.38億元，入場人次770萬創新高。職業訓練局酒店及旅遊學院課程總監黃家榮形容成績亮麗，今次是香港迪士尼完全不受疫情影響的首個業績，可見除了維持到本地人入場，亦吸引到旅客入場，願意作高消費。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793193-20250226.htm)
-
----
-
-# 劇組拍攝汽車飄移發生意外　澳門文化局中止拍攝許可
-
-![澳門文化局發出中止項目的拍攝許可通知，不排除續後會廢止有關拍攝許可通知。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793155_1_20250226015101.jpg&q=70)
-  
-
-澳門負責審批拍攝許可申請的文化局表示，已向在市區拍攝期間發生交通事故的拍攝單位，發出中止項目的拍攝許可通知，即有關單位不可以在澳門進行這個項目的拍攝活動，同時會要求拍攝單位提交報告解釋，不排除續後會廢止有關拍攝許可通知。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793155-20250226.htm)
-
----
-
-# 李強：加力推進前沿新興領域科技創新　更好培育新質生產力
-
-![李強指出，要加力推進前沿科技創新，以科技創新引領產業創新，更好培育新質生產力、推動高質量發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793153_1_20250226005330.jpg&q=90)
-  
-
-中共中央政治局常委、國務院總理李強到中國電信、中國聯通、中國移動所屬企業調研科技創新工作。他強調，要深入貫徹習近平總書記關於建設科技強國的重要論述，加力推進前沿科技創新，以科技創新引領產業創新，更好培育新質生產力、推動高質量發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793153-20250226.htm)
-
----
-
-# 趙樂際：要穩中求進推動人大工作高質量發展
-
-![趙樂際：要穩中求進推動人大工作高質量發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793145_1_20250225224700.jpg&q=90)
-  
-
-全國人大常委會第十四次會議上午閉幕。委員長趙樂際在會議完成有關表決事項後發表講話。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793145-20250225.htm)
-
----
-
-# 湖南懷化客船與油污清理船相撞　2死十多人失蹤
-
-![湖南懷化客船與油污清理船相撞　2死十多人失蹤](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793132_1_20250225203340.jpg&q=90)
-  
-
-湖南懷化市發生撞船，2人死亡，3人獲救送院，有14人失蹤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793132-20250225.htm)
-
----
-
-# 新一輪民青局內地專題實習提供110個名額涵蓋文物保育科研技術
-
-![實習項目將於今年6月至8月期間展開，為期3至6個星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793122_1_20250225181734.jpg&q=90)
-  
-
-民政及青年事務局宣布推出新一輪民青局內地專題實習計劃，為青年提供到內地官方文化、自然保育和科研單位的專題實習機會，合共提供超過110個專題實習名額，涵蓋文物保育、科研技術、生態及環境保育等範疇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793122-20250225.htm)
-
----
-
-# 張國鈞稱香港非常有潛力作為區域甚或國際體育爭議解決中心
-
-![張國鈞表示，香港在「一國兩制」下享有獨特優勢，非常有潛力發展成為區域甚或國際體育爭議解決中心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793121_1_20250225181616.jpg&q=85)
-  
-
-由律政司副司長張國鈞領導的律政司體育爭議解決諮詢委員會與多位立法會議員會面，探討體育爭議解決在本港的發展路向，並就設立體育爭議解決先導計劃交換意見。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793121-20250225.htm)
-
----
-
-# 中國南極考察隊在冰蓋已有鑽孔首次測井獲取參考數據
-
-![中國第41次南極考察，雪龍二號在南極作業。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793111_1_20250225174104.jpg&q=90)
-  
-
-中國第41次南極考察隊在東南極拉斯曼丘陵首次利用已有鑽孔，開展測井工作，獲取關鍵參考數據，為探明東南極伊麗莎白公主地末端冰蓋底部的地熱通量及其動力學演化機制奠定基礎。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793111-20250225.htm)
-
----
-
-# 分析：地方政府收購存量土地促進市場平衡發展減輕發展商資金壓力
-
-![嚴躍進強調，今年房地產市場仍以穩為主，預料整體樓價跌幅將進一步收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793117_1_20250225174418.jpg&q=50)
-  
-
-廣東省計劃本周五發行總額307億元人民幣新增專項債，全部用於回收閒置存量土地。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793117-20250225.htm)
-
----
-
-# 商務部：中方敦促歐方停止抹黑推責　將採措施維護中企合法權益
-
-![商務部稱，歐方做法有違中歐領導人共識精神，對中歐經貿關係造成消極影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793112_1_20250225171058.jpg&q=30)
-  
-
-在北京，商務部回應歐盟宣布在第16輪對俄制裁中將部分中國企業和個人列入清單，發言人說，中方一貫反對沒有國際法依據、未經聯合國安理會授權的單邊制裁，已多次對歐盟無理制裁中國企業和個人表示強烈不滿，堅決反對。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793112-20250225.htm)
-
----
-
-# 麥萃才稱迪士尼控制開支及旅客量升　配合其他景點可產生協同效應
-
-![麥萃才認為，如果迪士尼能控制開支，以及外地到港旅客數量持續上升，迪士尼肯定受惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793104_1_20250225170101.jpg&q=75)
-  
-
-香港迪士尼樂園公布業績，淨利潤達8.38億港元，10年來首次錄得盈利，收入按年增長54%至88億港元，同時創開幕以來新高。浸會大學會計、經濟及金融學系副教授麥萃才表示，疫情後機場的運力開始回升，令長短途旅客來港人數有所增加，而旅客增長主要受惠於東盟國家，包括來自菲律賓及泰國等地的遊客，再加上近年香港迪士尼樂園新增部分設施都能吸引區內旅客。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793104-20250225.htm)
 
 ---

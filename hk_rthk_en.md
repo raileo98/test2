@@ -1,3 +1,891 @@
+# Tennis star welcomes WTA rebranding
+
+![Aryna Sabalenka at the Qatar Open 2025 WTA 1000 tennis tournament in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793781_1_20250301123815.jpg&q=90)
+  
+
+World number one Aryna Sabalenka praised on Friday the WTA's mission to highlight the personalities of its athletes and called Saudi Arabia's investment in the women's tennis tour an important part of growing the game.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm)
+
+---
+
+# Search continues for 22 people after avalanche
+
+![A handout image from the Indian Army shows what the army says is a rescue operation during heavy snowfall, after an avalanche struck a camp near Mana village. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793776_1_20250301121615.jpg&q=85)
+  
+
+Search teams in northern India on Saturday attempted to rescue 22 workers believed to be trapped after an avalanche hit a remote border area, officials and local media said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm)
+
+---
+
+# Hackman likely dead for nine days before being found
+
+![Gene Hackman was a two-time Academy Award winner and credited for intense performances inspired by his troubled upbringing. (AFP)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793774_1_20250301120931.jpg&q=90)
+  
+
+Hollywood legend Gene Hackman had likely been dead for over a week when he and his wife were found lifeless in their New Mexico home, the local sheriff said on Friday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm)
+
+---
+
+# 'Pay freezes show govt serious in tackling deficit'
+
+![Financial Secretary Paul Chan says salaries are the government's biggest expense. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793772_1_20250301115542.jpg&q=65)
+  
+
+Financial Secretary Paul Chan on Saturday said his proposal to freeze civil servant pay aims to show the government's determination in achieving a fiscal balance.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm)
+
+---
+
+# Jos Buttler quits as England's white-ball captain
+
+![England had a disastrous preparation for the Champions Trophy when it won only one of its eight white-ball matches against India before arriving in Pakistan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793773_1_20250301115819.jpg&q=90)
+  
+
+Jos Buttler resigned as England white-ball captain on Friday after his team made an early exit from the Champions Trophy with back-to-back defeats against Australia and Afghanistan.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
+
+---
+
+# Japan battles biggest wildfire in decades
+
+![An aerial views shows a forest fire on a mountain in Ofunato, Iwate Prefecture, northeastern Japan, in this photo taken by Kyodo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793771_1_20250301115415.jpg&q=80)
+  
+
+Japan was battling its largest wildfire in more than three decades on Saturday, one of several blazes that have killed one person and forced the evacuation of more than a thousand.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm)
+
+---
+
+# China's factory activity grows in February
+
+![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=20)
+  
+
+China's manufacturing activity grew in February after a dip the previous month, official figures showed on Saturday, as the United States targets the country's exports with increased tariffs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
+
+---
+
+# Card readers will be updated to allow for HK$2 tweaks
+
+![Chris Sun says users will be able to check their remaining subsidised journeys by the time the changes to the HK$2 transport subsidy scheme take effect. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793766_1_20250301104120.jpg&q=80)
+  
+
+Users will be able to check the remaining number of discounted trips using an Octopus card reader when changes to the HK$2 elderly transport subsidy take effect, the labour and welfare chief Chris Sun said on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm)
+
+---
+
+# Chinese embassy warns against coercion in tariff hikes
+
+![The Chinese embassy in Washington said unilateral tariff hikes by the US severely violate World Trade Organization rules and harm interests for China, the US and the world. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793757_1_20250301083308.jpg&q=90)
+  
+
+US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matching US tariffs on China in a move that he described as "very interesting" and one that Canada should match.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm)
+
+---
+
+# China pledges to train Pakistani astronauts
+
+![There are plans for a Pakistani astronaut to eventually take part in missions to the Tiangong space station. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793755_1_20250301082605.jpg&q=90)
+  
+
+China's space station will welcome its first foreign astronaut in the next few years, after China and Pakistan on Friday signed a cooperation agreement on the selection and training of astronauts.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm)
+
+---
+
+# Beijing slams US tariff treat over fentanyl issue
+
+![China urges the US to preserve the progress in bilateral anti-drug cooperation and return to a path that it says benefits both nations. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793740_1_20250301022431.jpg&q=80)
+  
+
+A spokesperson for the Ministry of Public Security on Friday voiced firm opposition to the US threat of imposing an additional 10 per cent tariff on Chinese exports.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm)
+
+---
+
+# Microsoft to shut Skype in favour of Teams
+
+![The president of Microsoft 365 collaborative apps and platforms says the company "can deliver more innovation faster just by being focused on Teams." File Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793738_1_20250301070354.jpg&q=90)
+  
+
+Microsoft on Friday announced it was retiring Skype, the online voice and video call pioneer that the tech titan acquired in 2011.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm)
+
+---
+
+# Trump berates Zelensky in shock Oval office meeting
+
+![Speaking before the shouting match erupted, Trump told Zelensky that a truce is "fairly close." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793743_1_20250301034739.jpg&q=85)
+  
+
+US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday and said the Ukrainian leader is "not ready" for peace with Russia in an extraordinary meltdown in the Oval Office that threw question marks over chances for a truce.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm)
+
+---
+
+# Basketball betting 'could be legalised by September'
+
+![It is believed that basketball betting activities could be legalised within this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793724_1_20250228221320.jpg&q=90)
+  
+
+Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the way for basketball betting will be passed by lawmakers by September this year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm)
+
+---
+
+# 'Not enough separation for planes after take-off'
+
+![The Civil Aviation Department says air traffic control staff involved in the incident near Hong Kong International Airport have been removed from frontline duties temporarily. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793718_1_20250228212309.jpg&q=80)
+  
+
+An unspecified number of air traffic control staff have been suspended over an incident involving two cargo planes that triggered an alert after take-off.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm)
+
+---
+
+# Review on tolls, traffic penalties to finish this year
+
+![Mable Chan says the review by her bureau will focus on traffic charges that have not gone up for years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793702_1_20250228192045.jpg&q=80)
+  
+
+The Transport and Logistics Bureau is aiming to complete a review on the fixed penalties for traffic-related offences and various fees and tolls this year, its chief said on Friday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm)
+
+---
+
+# Edgar Cheung tells students to never give up
+
+![Edgar Cheung, left, receives an outstanding athlete award from Lam Tai-fai. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793695_2_20250228200003.jpg&q=70)
+  
+
+Hong Kong's fencing king and two-time Olympic gold medallist Edgar Cheung has encouraged students to never give up in the face of adversity.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm)
+
+---
+
+# HK gymnast Stone Shek calls it a career
+
+![Stone Shek gives himself a full score of 10 for his gymnastics career. File photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793697_1_20250228183035.jpg&q=90)
+  
+
+Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirement from gymnastics.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
+
+---
+
+# Smaller housing plots in next land sale programme
+
+![Bernadette Linn said the plots in the coming financial year's land sale programme can house less than a thousand flats each. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793689_1_20250228180230.jpg&q=80)
+  
+
+The government said on Friday that eight residential plots it plans to roll out in the coming financial year can house around 4,450 flats, more than a fifth less than the figure from the current fiscal year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm)
+
+---
+
+# Hong Kong stocks close lower
+
+![The Hang Seng Index finished down 3.3 percent at 22,941. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793684_1_20250228172129.jpg&q=75)
+  
+
+Hong Kong's stocks ended lower on Friday, with the benchmark Hang Seng Index down 3.3 percent at 22,941.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm)
+
+---
+
+# Govt seeking clarifications over latest US tariffs
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793674_1_20250228165109.jpg&q=80)
+  
+
+Secretary for Commerce and Economic Development Algernon Yau on Friday said authorities are seeking clarifications as to whether new additional tariffs on Chinese imports announced by the US also cover goods from Hong Kong.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm)
+
+---
+
+# China's economic fundamentals remain solid: Xi
+
+![President Xi Jinping says the conditions supporting long-term economic growth in China, and the overall positive trajectory, have not changed. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793680_1_20250228171442.jpg&q=90)
+  
+
+President Xi Jinping said China's economic fundamentals remain solid despite the difficulties and challenges facing the world's second-largest economy.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm)
+
+---
+
+# Ethnic minority advocacy group Unison to wind up
+
+![The executive committee chair of Hong Kong Unison, Alice Chong, middle, says its “historical mission has been successfully accomplished”. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793653_2_20250228164445.jpg&q=85)
+  
+
+Hong Kong Unison, a group advocating the rights of the city's ethnic minorities, on Friday announced it was starting its dissolution process, saying its “historical mission has been successfully accomplished.”
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm)
+
+---
+
+# 'Preparations for sports park opening in final stage'
+
+![Rosanna Law says preparations for the opening of Kai Tak Sports Park are in the final stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793663_1_20250228160057.jpg&q=90)
+  
+
+Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of the Kai Tak Sports Park is only the beginning of many mega events in March, adding that preparations are in the final stage.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm)
+
+---
+
+# China vows response to latest US tariffs
+
+![China vowed to take "all necessary countermeasures" after US President Donald Trump said he would impose an additional 10 percent tariff on Chinese imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793657_1_20250228151408.jpg&q=85)
+  
+
+The Commerce Ministry on Friday said it opposed US President Donald Trump's latest threat to impose an additional 10 percent tariff on Chinese imports and vowed to take "all necessary countermeasures" if Chinese entities got caught up in the levies.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
+
+---
+
+# Spectators urged to get sports park tickets early
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793634_1_20250228123827.jpg&q=80)
+  
+
+The government says people attending the opening ceremony for Kai Tak Sports Park on Saturday evening must get their tickets by 3pm on the day.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm)
+
+---
+
+# Home prices drop to almost 8.5-year low
+
+![Home prices retreated for the second month in a row in January. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793618_1_20250228110317.jpg&q=10)
+  
+
+Hong Kong home prices retreated to their lowest level in nearly eight and a half years in January.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
+
+---
+
+# HK must adapt to Trump tariffs, FS tells phone-in show
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793606_1_20250228095158.jpg&q=85)
+  
+
+Financial Secretary Paul Chan on Friday said overseas firms were still keen on the mainland market and on Hong Kong's position as a gateway to that, a day after US President Donald Trump said a further 10 percent levies on China would be going ahead.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm)
+
+---
+
+# HSI dips at open on final trading day of February
+
+![The Hang Seng Index opened down 102 points, or 0.4 percent, at 23,616. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793607_1_20250228095650.jpg&q=25)
+  
+
+Hong Kong stocks opened lower on Friday, the final trading of February, after earnings from artificial intelligence chipmaking leader Nvidia failed to wow the market and US President Donald Trump launched fresh broadsides on trade.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm)
+
+---
+
+# Argentina agency blasted over disability scale
+
+![Argentina's President Javier Milei says he is trying to clamp down on disability fraud. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793586_1_20250228072938.jpg&q=85)
+  
+
+Argentina's state disability agency apologised on Thursday following a furore over the use of the terms "idiot", "imbecile" and "mentally retarded" to describe people with disabilities.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm)
+
+---
+
+# HK condemns US politicians' slander of NSL
+
+![The government says it remains committed to enforcing national security laws while safeguarding the rights of residents under One Country, Two Systems. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793567_1_20250228014146.jpg&q=90)
+  
+
+The SAR government has condemned members of the US Senate Committee on Foreign Affairs, accusing them of making baseless allegations against Hong Kong's national security law.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm)
+
+---
+
+# 'Private sector growth high on Two Sessions agenda'
+
+!['Private sector growth high on Two Sessions agenda'](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793553_2_20250228075850.jpg&q=80)
+  
+
+Support for private businesses is a very important area that will be addressed during the upcoming "Two Sessions" meetings in Beijing, according to Hong Kong's sole delegate to the country's top legislature.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
+
+---
+
+# Spurs' coach Popovich says he won't return this season
+
+![Popovich said he hopes to make a return to coaching in the near future. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793588_1_20250228074546.jpg&q=90)
+  
+
+Hall of Fame coach Gregg Popovich said Thursday he won't return this season as coach of the San Antonio Spurs as he continues to recover from a stroke he suffered in November.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm)
+
+---
+
+# West Ham ease to victory over lacklustre Leicester
+
+![West Ham climbed to 15th and 16 points clear of the relegation zone with the victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793582_1_20250228071128.jpg&q=90)
+  
+
+Leicester sank closer to an immediate return to the Championship after West Ham pulled clear of the bottom three with a convincing 2-0 win.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
+
+---
+
+# US stocks fall as Nvidia results hit AI shares
+
+![The Dow Jones Industrial Average finished down 0.5 percent at 43,239. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793576_1_20250228055119.jpg&q=85)
+  
+
+Wall Street stocks tumbled on Thursday, extending a rough period as disappointment with Nvidia earnings and fresh tariff rhetoric from US President Donald Trump pressured the market.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm)
+
+---
+
+# Russian chess grandmaster Spassky dies aged 88
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793572_1_20250228052907.jpg&q=90)
+  
+
+Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-called match of the century at the height of the Cold War, has died aged 88, the Chess Federation of Russia said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm)
+
+---
+
+# Trump meets UK PM, says he trusts Putin
+
+![US President Trump (Right) said a peace deal between Ukraine and Russia will "either be soon or won't be at all". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793570_1_20250228043154.jpg&q=70)
+  
+
+US President Donald Trump and British Prime Minister Keir Starmer met at the White House on Thursday for their first in-person talks since the Republican leader upended US policy on Ukraine, the Middle East, and global trade.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm)
+
+---
+
 # China faces additional levy, says Trump
 
 ![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=65)
@@ -94,12 +982,12 @@ Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six N
 
 ---
 
-# 'SAR debts still at very manageable level'
+# 'SAR debt still at very manageable level'
 
 ![Christopher Hui says the ratio of government debt to GDP is less than 17 percent. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
   
 
-The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt levels are still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
+The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt is still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
 
   
 
@@ -548,894 +1436,5 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm)
-
----
-
-# EU was born to 'screw' US, Trump says
-
-![US President Donald Trump hosts his first cabinet meeting with Elon Musk in attendance. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793415_1_20250227075523.jpg&q=75)
-  
-
-US President Donald Trump said on Wednesday that the European Union was born to "screw" the United States, laying bare his hostility to the longtime US partner as he detailed new tariffs.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm)
-
----
-
-# Liverpool beat Newcastle to extend lead; Arsenal held
-
-![Dominik Szoboszlai opened the scoring early for the Reds. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793414_1_20250227071410.jpg&q=90)
-![Arsenal's Gabriel Magalhães reacts after his side's goalless draw against Nottingham Forest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793414_2_20250227071410.jpg&q=90)
-  
-
-Liverpool moved a giant step closer to the Premier League title with a ruthless 2-0 win against Newcastle, while Arsenal's challenge was left in tatters after a 0-0 draw against Nottingham Forest.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm)
-
----
-
-# Nasdaq rises while Dow falls on latest tariff talks
-
-![The Dow Jones Industrial Average finished down 0.4 percent at 43,433. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793409_1_20250227055740.jpg&q=90)
-  
-
-Gains in Nvidia ahead of earnings helped lift the Nasdaq on Wednesday while the Dow retreated on White House talk of more tariffs, this time on the European Union.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm)
-
----
-
-# Gaza as gold resort posted on Trump social media
-
-![Palestinians sit next to a fire among the rubble of destroyed buildings, amid a ceasefire between Israel and Hamas, at Jabalia refugee camp, northern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793405_1_20250227053207.jpg&q=30)
-  
-
-US President Donald Trump's official social media accounts posted an apparently AI-generated video depicting war-ravaged Gaza rebuilt into a seaside resort, replete with a towering golden statue of himself.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm)
-
----
-
-# Hamas to hand over four Israeli hostages' bodies
-
-![In Israel on Wednesday, thousands of mourners gathered for the funeral of Shiri Bibas and her sons, who died in captivity in Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793374_1_20250226212829.jpg&q=75)
-  
-
-Hamas will hand over the bodies of four Israeli hostages on Thursday in what it said would be an exchange for more than 600 Palestinian prisoners, capping the first phase of a Gaza ceasefire deal.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm)
-
----
-
-# Universities 'fully prepared' for funding cut
-
-![Several public universities say it will find ways to absorb an imminent spending cut. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793373_1_20250226212540.jpg&q=75)
-  
-
-Several public universities on Wednesday said they understood the public finance challenges faced by the government, and are fully prepared for a funding cut.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm)
-
----
-
-# Manila repatriates 100 Chinese nationals in joint op
-
-![The Chinese Embassy in Manila urged Philippines authorities to "completely eradicate the scourge" inflicted by offshore gambling. Photo: screenshot of embassy website](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793364_1_20250226205158.jpg&q=90)
-  
-
-About 100 Chinese nationals who engaged in illegal offshore gambling operations in the Philippines have been repatriated to the country.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm)
-
----
-
-# Liverpool's Slot gets two-match ban over derby chaos
-
-![Arne Slot gets his marching orders from referee Michael Oliver. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793366_1_20250226204458.jpg&q=90)
-  
-
-Liverpool manager Arne Slot will not be on the touchline for Wednesday's home match against Newcastle after he was handed a two-match ban and given a hefty fine for his behaviour in the Merseyside derby.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm)
-
----
-
-# Commercial land sale pause draws mixed views
-
-![The vacancy rate for Hong Kong's prime office space reached a historic high of 17 percent in January, according to property consultancy Colliers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793353_2_20250226195707.jpg&q=75)
-  
-
-The government’s move to pause the sale of commercial land in the upcoming fiscal year has drawn mixed views from analysts – some say it will ease a supply glut of office space while others felt it will have limited impact to the market.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm)
-
----
-
-# Views on HK$2 transport scheme tweaks mostly positive
-
-![Ho Lok-sang says the government has good intentions in trying to cut costs, but that the cap won't offer a major boost to the public coffers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793286_1_20250226145154.jpg&q=90)
-  
-
-An economics professor on Wednesday said he supports proposed changes to the HK$2 transport subsidy scheme but questioned whether capping the number of journeys would offer a significant boost to the public coffers.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793286-20250226.htm)
-
----
-
-# Hong Kong stocks close higher
-
-![The Hang Seng Index finished 3.3 percent higher at 23,787. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793331_1_20250226173813.jpg&q=60)
-  
-
-Hong Kong stocks rallied on Wednesday, with the benchmark Hang Seng Index soaring 3.3 percent to close at 23,787.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm)
-
----
-
-# Everyone needs to chip in, says cash-strapped FS
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793329_1_20250226172752.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Wednesday said he hopes the public understand that everyone has to play their part when it comes to the city's "belt-tightening", given the tough financial situation.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm)
-
----
-
-# University funding cuts 'acceptable': lawmaker
-
-![Universities will have to return HK$4 billion from their reserves to the government. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793324_1_20250226165659.jpg&q=85)
-  
-
-Lawmaker and Lingnan University's associate vice president Lau Chi-pang on Wednesday said he believed universities could cope with the proposed funding cuts which he described as "mild and acceptable".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm)
-
----
-
-# 'Public sector pay freeze is the best choice'
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793303_1_20250226154954.jpg&q=85)
-  
-
-Executive Council convenor Regina Ip on Wednesday said she supported the government's decision to freeze public servants' pay.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm)
-
----
-
-# Power mostly restored after blackout hits Chile
-
-![A drone shot shows a general view of Concepcion, during a major power outage that affected vast swathes of Chile. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793291_1_20250226151351.jpg&q=90)
-  
-
-Chilean authorities said they had restored power to most homes on Wednesday, hours after a massive, rare blackout caused transport chaos in the capital and forced the president to declare a state of emergency and curfew across much of the country.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm)
-
----
-
-# South Korea births rose last year on surge in marriage
-
-![South Korea's birthrate, the lowest in the world, rose in 2024 for the first time in nine years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793287_1_20250226145543.jpg&q=85)
-  
-
-The number of births in South Korea rose last year for the first time in roughly a decade on the back of a rise in marriages, officials said on Wednesday, bucking a trend for a country battling a demographic crisis.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm)
-
----
-
-# Dose of sweeteners in budget despite belt-tightening
-
-![The government has announced various relief measures to support residents and businesses. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793261_1_20250226133409.jpg&q=70)
-  
-
-Efforts to contain government spending didn't stop Financial Secretary Paul Chan from sprinkling some sweeteners into the budget announced on Wednesday, but his offerings were slimmed down this time around.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm)
-
----
-
-# Airport departure tax, govt fees to go up
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793258_1_20250226132546.jpg&q=65)
-  
-
-Financial Secretary Paul Chan proposed in his budget blueprint on Wednesday an increase in air passenger departure tax and certain government fees and charges to help generate revenue, amid a budget deficit.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm)
-
----
-
-# Pay freezes, job and spending cuts to tackle deficit
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793264_1_20250226145526.jpg&q=25)
-  
-
-Financial Secretary Paul Chan said containing government spending would be a top priority for the administration in the coming years as he outlined plans for job cuts, pay freezes and reducing expenditure.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793264-20250226.htm)
-
----
-
-# No commercial sites to be sold in 2025-26
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793257_1_20250226131917.jpg&q=65)
-  
-
-The government will not sell any commercial sites in the coming year due to a sluggish commercial property market.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793257-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793257-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793257-20250226.htm)
-
----
-
-# FS confirms new limits on HK$2 trips
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793245_1_20250226124825.jpg&q=75)
-  
-
-Financial Secretary Paul Chan on Wednesday confirmed that changes are planned to the city's subsidised public transport fares for the over 60s, dubbing the new arrangement "HK$2 flat rate cum 80 percent discount".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm)
-
----
-
-# Govt to regulate basketball betting
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793247_1_20250226125057.jpg&q=80)
-  
-
-The government said it will explore regulating basketball betting activities and invite the Hong Kong Jockey Club to submit a proposal on the matter.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793247-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793247-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793247-20250226.htm)
-
----
-
-# HK$300m earmarked for enhanced EV charging network
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793244_1_20250226124445.jpg&q=90)
-  
-
-The government will increase its support for electric vehicles (EVs) by launching a HK$300 million subsidy scheme in the middle of the year for a citywide charging network.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm)
-
----
-
-# HK$1.2 billion to be spent on attracting tourists
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793240_1_20250226123326.jpg&q=70)
-  
-
-The Hong Kong Tourism Board (HKTB) will get HK$1.2 billion from the government in the coming year to fund its efforts to attract visitors to the city and pursue the concept of "tourism is everywhere".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm)
-
----
-
-# AI key to realising HK's aspirations as I&T hub: FS
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793223_1_20250226120300.jpg&q=90)
-  
-
-Artificial intelligence will be at the heart of the government's efforts to turn the city into an Innovation and Technology (I&T) and science centre for Asia, according to the financial secretary.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm)
-
----
-
-# Paul Chan delivers 2025-26 budget
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793205_1_20250226111217.jpg&q=90)
-  
-
-Financial Secretary Paul Chan on Wednesday delivered his 2025-26 budget to the Legislative Council.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm)
-
----
-
-# Hong Kong stocks claw back some losses
-
-![The Hang Seng index opens up marginally higher after markets closed down 1.3 percent on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793195_1_20250226093725.jpg&q=30)
-  
-
-The Hang Seng Index gained 204.32 points, or 0.89 percent, to open at 23,238 points on Wednesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm)
-
----
-
-# 'Disney's good performance is welcome news'
-
-![The Vocational Training Council’s Dennis Wong says Hong Kong Disneyland should keep innovating to attract new customers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793187_1_20250226085255.jpg&q=80)
-  
-
-A hospitality expert on Wednesday said Hong Kong Disneylands’s performance is welcome news, after the amusement park reported records in profit and attendance.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm)
-
----
-
-# Atlético hold Barca in eight-goal Copa del Rey clash
-
-![Atlético Madrid's Marcos Llorente controls the ball against Barcelona's Frenkie de Jong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793180_1_20250226074804.jpg&q=80)
-  
-
-Atlético Madrid conceded a two-goal lead then fought back from two down in a wild 4-4 draw with Barcelona in a Copa del Rey semi-final first leg thriller.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm)
-
----
-
-# Wall Street falls amid pessimistic consumer sentiment
-
-![A report on Tuesday shows confidence among US consumers is falling by more than economists expected. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793174_2_20250226071332.jpg&q=90)
-  
-
-Some of Wall Street’s brightest stars lost more of their shine on Tuesday after another report said US households are getting more pessimistic about the economy.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm)
-
----
-
-# Chelsea thrash Southampton; Villa beaten by Palace
-
-![Cheslea's Nkunku celebrates after scoring his team first goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793177_1_20250226070748.jpg&q=90)
-  
-
-Chelsea moved into the Premier League's top four with a 4-0 demolition of hapless Southampton, but Aston Villa's hopes of Champions League football next season diminished after a 4-1 defeat at Crystal Palace.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm)
-
----
-
-# 'Doctor of the poor' becomes Venezuela's first saint
-
-![Jose Gregorio Hernandez was beatified – an earlier step towards sainthood – in 2021. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793161_1_20250226033237.jpg&q=90)
-  
-
-Venezuela will soon have its first saint, after ailing Pope Francis on Tuesday canonised a physician who died more than 100 years ago, revered for his selfless service during a previous pandemic.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm)
-
----
-
-# A third of Musk's Doge staff resign in protest
-
-![Elon Musk's downsizing has led to the layoff of more than 20,000 workers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793173_1_20250226062227.jpg&q=85)
-  
-
-More than 20 civil service employees resigned on Tuesday from billionaire Trump adviser Elon Musk's Department of Government Efficiency (Doge), saying they were refusing to use their technical expertise to “dismantle critical public services”.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm)
-
----
-
-# FS mulls ways to cut spending, boost revenue in budget
-
-![With the administration facing a budget deficit, Financial Secretary Paul Chan is expected to find ways to reduce government spending and generate additional revenue. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793106_1_20250225170806.jpg&q=50)
-  
-
-With the government facing a budget shortfall of almost HK$100 billion, all eyes will be on how the financial secretary plans to cut spending and increase revenue when he delivers his budget speech on Wednesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793106-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793106-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793106-20250226.htm)
-
----
-
-# Macron to brief EU leaders on Trump Ukraine talks
-
-![The transatlantic rift over Ukraine was on display during French President Emmanuel Macron's talks with US President Donald Trump on Monday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793141_1_20250225215156.jpg&q=90)
-  
-
-French President Emmanuel Macron will brief fellow EU leaders on Wednesday on his talks with US President Donald Trump, ahead of an emergency summit on European support for Ukraine.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm)
-
----
-
-# UK PM pledges to spend 2.5% of GDP on defence by 2027
-
-![Keir Starmer tells MPs the increase will be funded by cutting overseas development aid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793142_1_20250225221040.jpg&q=90)
-  
-
-British Prime Minister Keir Starmer on Tuesday pledged to boost defence spending to 2.5 percent of the economy by 2027 with the aim of hiking it to 3 percent in the next parliament.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm)
-
----
-
-# Man gets 14 months for stashing 0.3g cocaine in shoe
-
-![The trace amount of cocaine was found under the insole of the man's sneaker. Photo courtesy of the Customs and Excise Department](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793138_1_20250225213622.jpg&q=85)
-  
-
-A man on Tuesday was sentenced to 14 months in prison for trafficking in a dangerous drug last year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm)
 
 ---

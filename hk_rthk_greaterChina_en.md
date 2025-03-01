@@ -1,3 +1,171 @@
+# China's factory activity grows in February
+
+![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=20)
+  
+
+China's manufacturing activity grew in February after a dip the previous month, official figures showed on Saturday, as the United States targets the country's exports with increased tariffs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
+
+---
+
+# Chinese embassy warns against coercion in tariff hikes
+
+![The Chinese embassy in Washington said unilateral tariff hikes by the US severely violate World Trade Organization rules and harm interests for China, the US and the world. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793757_1_20250301083308.jpg&q=90)
+  
+
+US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matching US tariffs on China in a move that he described as "very interesting" and one that Canada should match.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm)
+
+---
+
+# China pledges to train Pakistani astronauts
+
+![There are plans for a Pakistani astronaut to eventually take part in missions to the Tiangong space station. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793755_1_20250301082605.jpg&q=90)
+  
+
+China's space station will welcome its first foreign astronaut in the next few years, after China and Pakistan on Friday signed a cooperation agreement on the selection and training of astronauts.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm)
+
+---
+
+# Beijing slams US tariff treat over fentanyl issue
+
+![China urges the US to preserve the progress in bilateral anti-drug cooperation and return to a path that it says benefits both nations. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793740_1_20250301022431.jpg&q=80)
+  
+
+A spokesperson for the Ministry of Public Security on Friday voiced firm opposition to the US threat of imposing an additional 10 per cent tariff on Chinese exports.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm)
+
+---
+
+# China's economic fundamentals remain solid: Xi
+
+![President Xi Jinping says the conditions supporting long-term economic growth in China, and the overall positive trajectory, have not changed. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793680_1_20250228171442.jpg&q=90)
+  
+
+President Xi Jinping said China's economic fundamentals remain solid despite the difficulties and challenges facing the world's second-largest economy.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm)
+
+---
+
+# China vows response to latest US tariffs
+
+![China vowed to take "all necessary countermeasures" after US President Donald Trump said he would impose an additional 10 percent tariff on Chinese imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793657_1_20250228151408.jpg&q=85)
+  
+
+The Commerce Ministry on Friday said it opposed US President Donald Trump's latest threat to impose an additional 10 percent tariff on Chinese imports and vowed to take "all necessary countermeasures" if Chinese entities got caught up in the levies.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
+
+---
+
+# 'Private sector growth high on Two Sessions agenda'
+
+!['Private sector growth high on Two Sessions agenda'](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793553_2_20250228075850.jpg&q=80)
+  
+
+Support for private businesses is a very important area that will be addressed during the upcoming "Two Sessions" meetings in Beijing, according to Hong Kong's sole delegate to the country's top legislature.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
+
+---
+
 # China faces additional levy, says Trump
 
 ![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=65)
@@ -1275,175 +1443,5 @@ One person has been found dead and 28 others remained missing, a day after a lan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm)
-
----
-
-# China's CPI at five-month high
-
-![People walk in an alley near a popular shopping street in Beijing during the Spring Festival holiday. Officials say an increase in the consumer price index in January is due largely to the influence of the new year break. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790882_1_20250209120154.jpg&q=90)
-  
-
-China's consumer price index (CPI), a main gauge of inflation, accelerated to its fastest in five months, government data showed on Sunday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790882-20250209.htm)
-
----
-
-# More than 30 missing after Sichuan landslide
-
-![President Xi instructed officials to minimise casualties after the landslide in Junlian County. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790829_1_20250208190423.jpg&q=90)
-  
-
-President Xi Jinping on Saturday ordered all-out search and rescue efforts to minimise casualties, after a landslide buried 10 houses and left more than 30 people unaccounted for in Sichuan Province.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790829-20250208.htm)
-
----
-
-# SAR athletes fall short on the ice at the Games
-
-![Sidney Chu came fifth in the men's 1,500m final B of short track speed skating. Photo courtesy of the SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790819_1_20250208171514.jpg&q=90)
-![Nicole Law finished 17th in the women's 100m speed skating final. Photo courtesy of the SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790819_2_20250208171514.jpg&q=90)
-  
-
-Hong Kong, China team's speed skater Sidney Chu finished fifth in the men's 1,500m final B short track speed skating event at the Asian Winter Games in Harbin.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790819-20250208.htm)
-
----
-
-# Li Fanghui wins China's first gold at Winter Games
-
-![China's Li Fanghui competes in the women's freeski halfpipe event at the 2025 Harbin Asian Winter Games at the Yabuli Ski Resort, Harbin. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790804_1_20250208131346.jpg&q=90)
-  
-
-China's freestyle skiers have dominated at the 9th Asian Winter Games in Harbin, claiming the country's first gold medal.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790804-20250208.htm)
-
----
-
-# Trump pauses de minimis repeal on Chinese imports
-
-![President Trump's ban had created disruptions for customs inspectors, postal and delivery services and online retailers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790798_1_20250208113211.jpg&q=50)
-  
-
-US President Donald Trump paused his administration's repeal of duty-free treatment of low-cost packages from China on Friday, giving the Commerce Department time to make the order workable, after the rapid change created disruptions for customs inspectors, postal and delivery services and online retailers.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm](https://news.rthk.hk/rthk/en/component/k2/1790798-20250208.htm)
-
----
-
-# President Xi declares 2025 Asian Winter Games open
-
-![President Xi was on hand at the opening of the Harbin Asian Winter Games 2025.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790740_1_20250207211803.jpg&q=90)
-![Team Hong Kong, China were led by flag-bearers Lam Ching-yan and Adrian Yung. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790740_2_20250207211803.jpg&q=20)
-  
-
-President Xi Jinping on Friday declared the 2025 Asian Winter Games officially open in Harbin, marking the second time the northeastern Chinese city has hosted the event.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm](https://news.rthk.hk/rthk/en/component/k2/1790740-20250207.htm)
-
----
-
-# China 'regrets' Panama's withdrawal from BRI
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790689_1_20250207160832.jpg&q=90)
-  
-
-China on Friday said it "regrets" Panama's decision to withdraw from the Belt and Road Initiative, after the Latin American nation ended its participation in the project in a concession to Washington.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm](https://news.rthk.hk/rthk/en/component/k2/1790689-20250207.htm)
 
 ---

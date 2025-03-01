@@ -1,3 +1,171 @@
+# Search continues for 22 people after avalanche
+
+![A handout image from the Indian Army shows what the army says is a rescue operation during heavy snowfall, after an avalanche struck a camp near Mana village. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793776_1_20250301121615.jpg&q=85)
+  
+
+Search teams in northern India on Saturday attempted to rescue 22 workers believed to be trapped after an avalanche hit a remote border area, officials and local media said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm)
+
+---
+
+# Hackman likely dead for nine days before being found
+
+![Gene Hackman was a two-time Academy Award winner and credited for intense performances inspired by his troubled upbringing. (AFP)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793774_1_20250301120931.jpg&q=90)
+  
+
+Hollywood legend Gene Hackman had likely been dead for over a week when he and his wife were found lifeless in their New Mexico home, the local sheriff said on Friday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm)
+
+---
+
+# Japan battles biggest wildfire in decades
+
+![An aerial views shows a forest fire on a mountain in Ofunato, Iwate Prefecture, northeastern Japan, in this photo taken by Kyodo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793771_1_20250301115415.jpg&q=80)
+  
+
+Japan was battling its largest wildfire in more than three decades on Saturday, one of several blazes that have killed one person and forced the evacuation of more than a thousand.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm)
+
+---
+
+# Microsoft to shut Skype in favour of Teams
+
+![The president of Microsoft 365 collaborative apps and platforms says the company "can deliver more innovation faster just by being focused on Teams." File Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793738_1_20250301070354.jpg&q=90)
+  
+
+Microsoft on Friday announced it was retiring Skype, the online voice and video call pioneer that the tech titan acquired in 2011.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm)
+
+---
+
+# Trump berates Zelensky in shock Oval office meeting
+
+![Speaking before the shouting match erupted, Trump told Zelensky that a truce is "fairly close." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793743_1_20250301034739.jpg&q=85)
+  
+
+US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday and said the Ukrainian leader is "not ready" for peace with Russia in an extraordinary meltdown in the Oval Office that threw question marks over chances for a truce.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm)
+
+---
+
+# Argentina agency blasted over disability scale
+
+![Argentina's President Javier Milei says he is trying to clamp down on disability fraud. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793586_1_20250228072938.jpg&q=85)
+  
+
+Argentina's state disability agency apologised on Thursday following a furore over the use of the terms "idiot", "imbecile" and "mentally retarded" to describe people with disabilities.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm)
+
+---
+
+# Trump meets UK PM, says he trusts Putin
+
+![US President Trump (Right) said a peace deal between Ukraine and Russia will "either be soon or won't be at all". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793570_1_20250228043154.jpg&q=70)
+  
+
+US President Donald Trump and British Prime Minister Keir Starmer met at the White House on Thursday for their first in-person talks since the Republican leader upended US policy on Ukraine, the Middle East, and global trade.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm)
+
+---
+
 # China faces additional levy, says Trump
 
 ![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=65)
@@ -1267,173 +1435,5 @@ South Korea's ousted premier said on Thursday that he had opposed suspended Pres
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792501-20250220.htm)
-
----
-
-# Hamas returns bodies of four Israeli hostages
-
-![Hamas militants carry a coffin with the remains of one of four deceased Israeli hostages who were handed over to the Red Cross for return to Israel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792473_1_20250220164412.jpg&q=75)
-  
-
-Hamas on Thursday released the bodies of four Israeli hostages, said to include a mother and her two children who had long been feared dead and had come to embody the nation's agony following the October 7, 2023, attack on Israel which triggered the Gaza war.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792473-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792473-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792473-20250220.htm)
-
----
-
-# Trump says he expects Xi to visit US
-
-![Presidents Xi Jinping and Donald Trump meet on the sidelines of the G20 leaders summit in Osaka in 2019. Trump says he expects President Xi and other world leaders to visit his country. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792437_2_20250220131602.jpg&q=85)
-  
-
-US President Donald Trump said on Wednesday he expects President Xi Jinping to visit the United States, without giving a timeline for his trip.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm)
-
----
-
-# Myanmar returns first batch of Chinese scam workers
-
-![Two double-decker coaches have delivered a first round of returning workers to the border post in the western Thai town of Mae Sot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792418_1_20250220113134.jpg&q=85)
-  
-
-Myanmar on Thursday handed over the first batch of hundreds of Chinese scam centre workers who are set to be repatriated through Thailand in the coming days.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm)
-
----
-
-# US$30K offered to each Toronto plane crash passenger
-
-![Delta said 21 passengers were injured in the accident. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792413_1_20250220105555.jpg&q=90)
-  
-
-US airline Delta on Wednesday said it will offer US$30,000, or HK$233,395, to each passenger on a plane that crashed as it landed at Toronto airport this week.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792413-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792413-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792413-20250220.htm)
-
----
-
-# Trump brands Zelensky a 'dictator' in bitter clash
-
-![Volodymyr Zelensky was elected in 2019 for a five-year term and has remained leader under martial law imposed as his country fights for its survival. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792405_1_20250220101705.jpg&q=90)
-  
-
-US President Donald Trump called Ukrainian leader Volodymyr Zelensky a "dictator" on Wednesday, widening a personal rift with major implications for efforts to end the conflict triggered by Russia's military offensive three years ago.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792405-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792405-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792405-20250220.htm)
-
----
-
-# 'Constructive' talks after China blasts tariffs at WTO
-
-![The US, Nicaragua, Namibia, Malaysia, Trinidad and Tobago and Russia took part in the WTO discussions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792389_2_20250220104914.jpg&q=90)
-  
-
-The World Trade Organization (WTO) said on Wednesday that discussions on trade tensions were "constructive", after China accused the US of imposing "tariff shocks" that could upend the global trading system.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
-
----
-
-# Dead or alive: Mosquito bounty in Manila
-
-![Enthusiasm is high among residents who carried pails, cups and other containers filled with dengue-spreading mosquitoes to exchange for cash. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792349_1_20250219211745.jpg&q=90)
-  
-
-Residents in a central Manila neighbourhood lined up on Wednesday, as dengue cases spike nationwide, to collect a bounty – one peso for every five mosquitoes, dead or alive.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792349-20250220.htm)
 
 ---
