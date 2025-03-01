@@ -1,3 +1,19 @@
+# 李家超稱懷興奮心情見證啟德體育園開幕典禮
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm)
+
+---
+
 # 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
 
 啟德體育園開幕典禮晚上約6時半在啟德主場館舉行，多位主禮嘉賓出席，包括李家超伉儷、鄭雁雄伉儷，政務司司長陳國基及立法會主席梁君彥等。
@@ -1410,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793733-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793733-20250301.htm)
-
----
-
-# 美國上月商品貿易逆差升近26%　加徵關稅前提早進口
-
-![美國1月商品貿易逆差上升25.6%至1533億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793730_1_20250228225430.jpg&q=80)
-  
-
-美國1月貨物貿易逆差急劇擴大，企業在加徵關稅前提前進口貨物。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm)
 
 ---

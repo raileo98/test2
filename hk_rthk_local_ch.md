@@ -1,3 +1,19 @@
+# 李家超稱懷興奮心情見證啟德體育園開幕典禮
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm)
+
+---
+
 # 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
 
 啟德體育園開幕典禮晚上約6時半在啟德主場館舉行，多位主禮嘉賓出席，包括李家超伉儷、鄭雁雄伉儷，政務司司長陳國基及立法會主席梁君彥等。
@@ -1412,31 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm)
-
----
-
-# 張家朗回母校獲頒337.5萬獎金　勉勵學生遇挫折不要氣餒
-
-![張家朗表示，他在巴黎奧運前的亞錦賽遇到很大挫折，花了一些時間重新振作。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_4_20250228171530.jpg&q=5)
-![林大輝說，運動員獎勵計劃再次證明學校對香港體育界和教育界的付出和貢獻。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_3_20250228170314.jpg&q=80)
-![林大輝中學將興建一所樓高8層的「藝術及文化發展中心」，今日舉行奠基典禮，預計明年9月落成。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_5_20250301124343.jpg&q=60)
-  
-
-「香港劍神」張家朗在去年巴黎奧運衞冕成功，再奪花劍個人賽金牌，「林大輝慈善基金傑出運動員獎勵計劃」向張家朗頒發337.5萬元獎金，表揚他的傑出表現。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm)
 
 ---
