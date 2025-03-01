@@ -1,5 +1,8 @@
 # 李頌恩視察啟德體育園一帶交通　了解港鐵客流管理措施
 
+![運輸署署長李頌恩視察啟德體育園交通配套和部署。（運輸署社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793799_1_20250301172540.jpg&q=90)
+  
+
 運輸署緊急事故交通協調中心自下午起，已提升至最高級別的聯合督導模式運作，監察啟德體育園區一帶交通及公共運輸服務情況，整體交通至今大致暢順。
 
   
@@ -67,6 +70,7 @@
 # 有市民及旅客換票遲到　啟德體育園職員彈性處理
 
 ![大會指，已有九成半的門票經兌換，對於遲到入場的市民會彈性處理。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_1_20250301165551.jpg&q=45)
+![啟德體育園傍晚舉行開幕禮，持門票觀眾下午陸續進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_2_20250301172827.jpg&q=70)
   
 
 啟德體育園傍晚舉行開幕禮，已購買電子門券的市民需於下午3時前到場換領實體票。有市民遲到，奔跑過來換票。

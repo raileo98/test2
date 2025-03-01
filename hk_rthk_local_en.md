@@ -24,7 +24,7 @@ Hong Kong-based singer songwriter Khalil Fong has died at the age of 41, his mus
 
 # 'Pay freezes show govt serious in tackling deficit'
 
-![Financial Secretary Paul Chan says salaries are the government's biggest expense. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793772_1_20250301115542.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793772_1_20250301115542.jpg&q=65)
   
 
 Financial Secretary Paul Chan on Saturday said his proposal to freeze civil servant pay aims to show the government's determination in achieving a fiscal balance.
