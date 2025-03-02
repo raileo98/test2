@@ -1,3 +1,24 @@
+# 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
+
+商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm)
+
+---
+
 # 以色列決定齋戒月期間繼續執行加沙停火協議
 
 ![在加沙地帶拉法一處建築物廢墟，一批巴勒斯坦人參加齋戒月祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793877_1_20250302152852.jpg&q=75)
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm)
-
----
-
-# 大欖懲教所25歲女囚犯疑體內藏毒　案件交警方跟進
-
-![這名25歲在囚女子上月18日因販運危險藥物罪而被還押。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793798_1_20250301174101.jpg&q=80)
-  
-
-大欖女懲教所一名還押在囚女子被發現涉嫌利用體內藏毒，將懷疑毒品偷運進入懲教院所，懲教署將案件轉介警方跟進。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm)
 
 ---

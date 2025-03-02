@@ -1,3 +1,24 @@
+# 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
+
+商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm)
+
+---
+
 # 葵涌貨櫃碼頭附近有貨車疑失控翻側　司機自行爬出車外
 
 一輛貨車下午近2時，沿葵涌貨櫃碼頭南路行駛，駛至迴旋處失控翻側。車斗貨物散落一地，司機沒有受傷，自行爬出車外。
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm)
-
----
-
-# 女子因處理及隱藏文件違反競爭條例判囚兩個月
-
-![被告被判囚兩個月，獲准保釋等候上訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793706_1_20250228202809.jpg&q=80)
-  
-
-一名女子因處理及隱藏文件，違反競爭條例，今日在西九龍裁判法院被定罪，判囚兩個月，被告獲准保釋等候上訴，是本港首宗因不遵從競爭事務委員會的調查權力而遭刑事檢控及定罪的案件。競委會表示歡迎。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm)
 
 ---

@@ -1,3 +1,24 @@
+# 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
+
+商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm)
+
+---
+
 # 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
 
 ![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
@@ -1413,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm)
-
----
-
-# 財政預算案2025｜丘應樺稱本港擬於吉隆坡及利雅得開設經貿辦
-
-![丘應樺表示，就擴展經貿網絡，當局正分別與馬來西亞及沙特阿拉伯政府商討。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793661_1_20250228162051.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺表示，就擴展經貿網絡，當局正分別與馬來西亞及沙特阿拉伯政府商討，在吉隆坡及利雅得開設經濟貿易辦事處，加強特區與中東及東盟貿易夥伴的聯繫。本港正與沙特阿拉伯、孟加拉國、埃及及秘魯探討簽訂投資協定，並積極爭取盡早加入區域全面經濟夥伴關係協定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm)
 
 ---
