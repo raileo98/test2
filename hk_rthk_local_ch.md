@@ -1,3 +1,27 @@
+# 跨部門舉行重大事故及反恐演習為全運會做準備
+
+![警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。（警方圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793918_1_20250303043638.jpg&q=75)
+  
+
+警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm)
+
+---
+
 # 兩外籍男子涉嫌盜取他人手提電話被捕
 
 ![兩名外籍男子涉嫌盜取他人手提電話，被警方拘捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793907_1_20250302224847.jpg&q=70)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm)
-
----
-
-# 司機即日起可透過流動設備遙控泊車　陳美寶：更貼近用家需要
-
-![修訂包括擴闊可在快速公路上使用的電動車輛種類，讓電動商用車輛可以無需申請快速公路許可證，直接在快速公路上行駛。（陳美寶網誌圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793769_1_20250301113400.jpg&q=90)
-  
-
-駕駛獲運輸署批准使用遙控泊車系統的車輛即日起，司機可以在車外使用手機或汽車匙扣等流動設備，遙距控制車輛停泊及駛出。若遇到較窄車位，司機就可以先行下車再遙控泊車，整個過程中，司機必須站在車外附近，全程控制及監控。至於保險安排，運輸及物流局局長陳美寶說，如運輸署批准使用有關系統，保險業界一般亦會接受。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm)
 
 ---
