@@ -1,3 +1,24 @@
+# 財政預算案2025｜陳茂波：陸路離境稅仍在設想階段可再商量
+
+新一份《財政預算案》提出多項開源節流的措施，財政司司長陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm)
+
+---
+
 # 甯漢豪：恐龍會客室兩個月已吸引逾4萬人次參觀
 
 ![發展局與中國科學院古脊椎動物與古人類研究所於2024年10月23日簽署《關於深化地層古生物及史前時期遺址領域交流與合作的框架協議》。（甯漢豪網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793866_1_20250302120751.jpg&q=75)
@@ -1417,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm)
-
----
-
-# 逾千名學童於維園為花卉展覽鑲嵌花壇
-
-![超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793789_1_20250301160502.jpg&q=55)
-  
-
-超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動，在約140名綠化義工指導下，協助鑲嵌大型花壇「非洲獵奇」。花壇為即將舉行的香港花卉展覽的主要特色景點之一。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm)
 
 ---

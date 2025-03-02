@@ -1,3 +1,24 @@
+# 財政預算案2025｜陳茂波：陸路離境稅仍在設想階段可再商量
+
+新一份《財政預算案》提出多項開源節流的措施，財政司司長陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm)
+
+---
+
 # 甯漢豪：恐龍會客室兩個月已吸引逾4萬人次參觀
 
 ![發展局與中國科學院古脊椎動物與古人類研究所於2024年10月23日簽署《關於深化地層古生物及史前時期遺址領域交流與合作的框架協議》。（甯漢豪網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793866_1_20250302120751.jpg&q=75)
@@ -1418,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793704-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793704-20250228.htm)
-
----
-
-# 保監局：分紅保險演示利率設定上限　應用指引7月起生效
-
-![保監局就「分紅保險演示利率」設定上限，向業界發布應用指引，以確保分紅保單表現達到保單持有人的合理預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793700_1_20250228190317.jpg&q=90)
-  
-
-保監局就「分紅保險演示利率」設定上限，向業界發布應用指引，將於7月1日起生效，以確保分紅保單表現達到保單持有人的合理預期。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793700-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793700-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793700-20250228.htm)
 
 ---
