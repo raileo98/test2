@@ -1,3 +1,24 @@
+# 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
+
+世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
+
+---
+
 # 鄧炳強率青少年制服團隊領袖論壇成員參與澳門研學行程
 
 ![研學團早前考察順德區無人機指揮調度中心，亦到訪當地智能製造科技園、創新研發中心和生產企業。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793888_1_20250302180100.jpg&q=45)
@@ -1417,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm)
-
----
-
-# 小欖綜合康復服務大樓啟用　陳國基稱會續增殘疾人士康復服務名額
-
-![陳國基表示，不同部門及營運機構早在大樓投入服務之前，已商討推展醫社合作服務模式，減少院友往返醫院的次數。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793716_1_20250228213135.jpg&q=90)
-  
-
-小欖綜合康復服務大樓正式啓用，提供1150個住宿照顧名額和560個日間訓練名額，服務對象涵蓋智障人士、肢體傷殘人士和精神復元人士。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm)
 
 ---

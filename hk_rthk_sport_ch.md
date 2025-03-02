@@ -1,3 +1,24 @@
+# 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
+
+世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
+
+---
+
 # 英足盃曼城3:1反勝普利茅夫晉級
 
 ![曼城年輕小將歷高奧懷利建兩功。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793848_1_20250302064149.jpg&q=80)
@@ -1420,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm)
-
----
-
-# 全運會手球男子測試賽今明啟德體藝館舉行
-
-![測試賽今明兩日在啟德體藝館舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792746_1_20250222150956.jpg&q=80)
-  
-
-第十五屆全國運動會手球（男子）項目測試賽今明兩日在啟德體育園的體藝館舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792746-20250222.htm)
 
 ---
