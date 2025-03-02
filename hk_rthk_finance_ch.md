@@ -1,3 +1,27 @@
+# 美商務部長稱對墨加關稅稅率仍有待特朗普決定
+
+![盧特尼克說，除非中國停止向美國販運芬太尼，否則特朗普預計上調對華關稅到兩成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793911_1_20250303002627.jpg&q=90)
+  
+
+美國商務部長盧特尼克表示，美國將會按計劃在星期二對加拿大和墨西哥徵收關稅，但具體稅率將會由總統特朗普決定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm)
+
+---
+
 # 財政預算案2025｜唐英年相信陳茂波有能力按量入為出原則辦事
 
 ![唐英年表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793897_1_20250302213746.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm)
-
----
-
-# 財政預算案2025｜丘應樺稱就美國加徵關稅將盡快向世貿申訴
-
-![丘應樺表示，因應美國加徵關稅，當局早前已經表示會向世貿作出申訴，需要時間研究策略。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793665_1_20250228162119.jpg&q=50)
-  
-
-美國宣布將會對從中國進口的商品徵收額外10%關稅。商務及經濟發展局局長丘應樺表示，因應美國加徵關稅，當局早前已經表示會向世貿作出申訴，需要時間研究策略，至於美方今次再增加關稅，會否影響香港，需要從整體去看，會因應需要盡快向世貿作出申訴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美商務部長稱對墨加關稅稅率仍有待特朗普決定
+
+![盧特尼克說，除非中國停止向美國販運芬太尼，否則特朗普預計上調對華關稅到兩成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793911_1_20250303002627.jpg&q=90)
+  
+
+美國商務部長盧特尼克表示，美國將會按計劃在星期二對加拿大和墨西哥徵收關稅，但具體稅率將會由總統特朗普決定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm)
+
+---
+
 # 以總理：若與哈馬斯談判無效　將重返加沙作戰
 
 ![內塔尼亞胡說，如果哈馬斯不釋放更多人質，將會有進一步後果。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793910_1_20250303001058.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm)
-
----
-
-# 奧蘇利雲因健康狀況　將缺席於本港舉行世界格蘭披治桌球大獎賽
-
-![奧蘇利雲因健康狀況　將缺席於本港舉行世界格蘭披治桌球大獎賽](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793834_1_20250302002029.jpg&q=90)
-  
-
-桌球手奧蘇利雲因健康狀況，將缺席星期二起，在啟德體藝館舉行的世界格蘭披治桌球大獎賽2025。主辦單位稱是今日接獲奧蘇利雲的通知，而排名33位的賀辛將取代奧蘇利雲參賽。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm)
 
 ---
