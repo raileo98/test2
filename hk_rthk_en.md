@@ -1,3 +1,27 @@
+# Gaza health ministry says 4 killed in Israel attacks
+
+![Relatives mourn two Palestinians killed in a reported Israeli strike in the northern Gaza Strip, as a truce hangs in the balance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793904_1_20250302212847.jpg&q=85)
+  
+
+The ministry of health in Hamas-run Gaza said four people were killed and six others wounded in Israeli attacks on Sunday after the first phase of a fragile truce in the territory drew to a close.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm)
+
+---
+
 # Ailing pope hails faithful's 'support' and 'affection'
 
 ![Tourists and pilgrims visit St Peter's square in The Vatican as Pope Francis is still hospitalised with pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793898_1_20250302202730.jpg&q=80)
@@ -1413,29 +1437,5 @@ Hall of Fame coach Gregg Popovich said Thursday he won't return this season as c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm)
-
----
-
-# West Ham ease to victory over lacklustre Leicester
-
-![West Ham climbed to 15th and 16 points clear of the relegation zone with the victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793582_1_20250228071128.jpg&q=90)
-  
-
-Leicester sank closer to an immediate return to the Championship after West Ham pulled clear of the bottom three with a convincing 2-0 win.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
 
 ---
