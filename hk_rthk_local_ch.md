@@ -1,4 +1,52 @@
+# 孫東今晚啟程訪問西班牙和葡萄牙　為香港創科界開拓商機
+
+創新科技及工業局局長孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問，加強香港與兩國在創新科技等領域的聯繫和合作，推廣香港創科優勢，為香港創新科技業界在海外開拓商機。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm)
+
+---
+
+# 財政預算案2025｜陳茂波：全力發展人工智能為關鍵產業
+
+![陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業。（陳茂波網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793861_1_20250302105656.jpg&q=85)
+  
+
+財政司司長陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業，賦能傳統產業升級轉型；強調重視人工智能的發展，加大投入推進算力、算法、數據、人才及資金等5方面要素的提升，加強開拓新的應用場景，並已取得一定進展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm)
+
+---
+
 # 財政預算案2025 | 謝展寰：第二季報告供冷系統檢視結果
+
+![預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。（謝展寰網誌圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793860_1_20250302105632.jpg&q=80)
+  
 
 財政預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。環境及生態局局長謝展寰表示，現時除了使用中的啓德區域供冷系統，東涌和古洞北新發展區的區域供冷系統正在建設中，而洪水橋／厦村和新田科技城新發展區的區域供冷系統的工程則還是在初始或規劃階段。特別是洪水橋／厦村和新田科技城的區域供冷系統，按現時規劃將會是香港最大規模的區域供冷系統，政府工程費用達到數百億元。
 
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm)
-
----
-
-# 財政預算案2025｜商業地改劃住宅用途分佈洪水橋石門九龍東
-
-![甯漢豪透露，位置分佈在洪水橋廈村、東涌、石門及九龍東，希望照顧市場，更有彈性。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793701_1_20250228202439.jpg&q=80)
-  
-
-財政預算案提出，計劃將部分商業用地改劃成住宅地，發展局局長甯漢豪透露，位置分佈在洪水橋廈村、東涌、石門及九龍東，希望照顧市場，更有彈性。她說，做法有幾個可能性，包括在不影響地區定位下完全改劃作住宅，或者採取商住混合模式，保留寫字樓及零售等商業元素，但加入住宅樓面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793701-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793701-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793701-20250228.htm)
-
----
-
-# 陳美寶責成民航處全面調查兩架貨機距離觸發防撞警示事件
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793696_1_20250228183901.jpg&q=90)
-  
-
-民航處公布，昨日早上兩架貨機在本港起飛後，分隔距離一度未達預期，觸發交通防撞警示，兩架飛機最終按計劃前往目的地。民航處表示，事件可能涉及空管人員未有遵循既定程序安排飛機起飛，有關人員暫時被調離前線空管職務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793696-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793696-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793696-20250228.htm)
 
 ---

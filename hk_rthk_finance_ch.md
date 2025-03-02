@@ -1,3 +1,27 @@
+# 財政預算案2025｜陳茂波：全力發展人工智能為關鍵產業
+
+![陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業。（陳茂波網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793861_1_20250302105656.jpg&q=85)
+  
+
+財政司司長陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業，賦能傳統產業升級轉型；強調重視人工智能的發展，加大投入推進算力、算法、數據、人才及資金等5方面要素的提升，加強開拓新的應用場景，並已取得一定進展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm)
+
+---
+
 # 財政預算案2025｜楊何蓓茵：部分私人市場或會參考公務員薪調
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793858_1_20250302103032.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793658-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793658-20250228.htm)
-
----
-
-# 韓股低收約3.4%　創逾6個月最大單日跌幅
-
-![首爾綜合指數收市報2532點，跌幅約3.4%，創逾6個月最大單日跌幅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793655_1_20250228145411.jpg&q=85)
-  
-
-南韓股市收市跌逾3%，接近全日低位收市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793655-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793655-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793655-20250228.htm)
 
 ---

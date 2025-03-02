@@ -1,3 +1,51 @@
+# 華府加快向以色列提供約40億美元軍事援助
+
+![華府加快向以色列提供約40億美元軍事援助](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793863_1_20250302110943.jpg&q=90)
+  
+
+美國政府加快對以色列的軍事援助。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm)
+
+---
+
+# 奧爾西宣誓就任烏拉圭總統
+
+![奧爾西在蒙得維的亞獨立廣場出總統權力交接儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793862_1_20250302110640.jpg&q=85)
+  
+
+烏拉圭當選總統奧爾西在國會宣誓就職，開啟為期5年的任期。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm)
+
+---
+
 # 日本岩手縣山火持續　火場面積擴大至約1800公頃
 
 ![日本消防部門出動直升機協助撲救山火。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793859_1_20250302102327.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm)
-
----
-
-# 美俄代表團土耳其會談　討論恢復使館運作問題
-
-![會後雙方代表團坐車離開。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793622_1_20250228114151.jpg&q=90)
-  
-
-美俄兩國代表團在土耳其會談，俄方表示希望會談有助改善兩國關係。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793622-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793622-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793622-20250228.htm)
-
----
-
-# 日本岩手縣山火蔓延　至少1死3300人疏散
-
-![日本岩手縣大船渡市發生山火，並持續蔓延。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793621_1_20250228113014.jpg&q=90)
-  
-
-日本東北部岩手縣大船渡市在星期三開始發生山火，並持續蔓延，至少一人死亡，超過80座建築物受損，3300人需要疏散。消防人員加緊撲滅山火，自衛隊也派出直升機在空中灑水協助滅火。警方和消防部門正跟進是否有人因未能及時疏散而受傷或被困。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793621-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793621-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793621-20250228.htm)
 
 ---

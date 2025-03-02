@@ -1,4 +1,100 @@
+# 孫東今晚啟程訪問西班牙和葡萄牙　為香港創科界開拓商機
+
+創新科技及工業局局長孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問，加強香港與兩國在創新科技等領域的聯繫和合作，推廣香港創科優勢，為香港創新科技業界在海外開拓商機。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm)
+
+---
+
+# 華府加快向以色列提供約40億美元軍事援助
+
+![華府加快向以色列提供約40億美元軍事援助](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793863_1_20250302110943.jpg&q=90)
+  
+
+美國政府加快對以色列的軍事援助。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm)
+
+---
+
+# 奧爾西宣誓就任烏拉圭總統
+
+![奧爾西在蒙得維的亞獨立廣場出總統權力交接儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793862_1_20250302110640.jpg&q=85)
+  
+
+烏拉圭當選總統奧爾西在國會宣誓就職，開啟為期5年的任期。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm)
+
+---
+
+# 財政預算案2025｜陳茂波：全力發展人工智能為關鍵產業
+
+![陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業。（陳茂波網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793861_1_20250302105656.jpg&q=85)
+  
+
+財政司司長陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業，賦能傳統產業升級轉型；強調重視人工智能的發展，加大投入推進算力、算法、數據、人才及資金等5方面要素的提升，加強開拓新的應用場景，並已取得一定進展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm)
+
+---
+
 # 財政預算案2025 | 謝展寰：第二季報告供冷系統檢視結果
+
+![預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。（謝展寰網誌圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793860_1_20250302105632.jpg&q=80)
+  
 
 財政預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。環境及生態局局長謝展寰表示，現時除了使用中的啓德區域供冷系統，東涌和古洞北新發展區的區域供冷系統正在建設中，而洪水橋／厦村和新田科技城新發展區的區域供冷系統的工程則還是在初始或規劃階段。特別是洪水橋／厦村和新田科技城的區域供冷系統，按現時規劃將會是香港最大規模的區域供冷系統，政府工程費用達到數百億元。
 
@@ -1341,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm)
-
----
-
-# 庫爾德工人黨宣布即日起與土耳其停火
-
-![日前在土耳其一場集會上，有民眾手持厄賈蘭的肖像。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793785_1_20250301150623.jpg&q=85)
-  
-
-庫爾德工人黨宣布，遵守領導人厄賈蘭的呼籲，與土耳其停火，即日生效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm)
-
----
-
-# 音樂人方大同離世　終年41歲
-
-![方大同上月21日離世，終年41歲。（方大同社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793784_1_20250301141344.jpg&q=90)
-  
-
-著名音樂人方大同上月21日離世，終年41歲。其創辦的音樂公司在社交網站發布帖文，指方大同面對頑疾5年，上月21日早上安詳離世。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm)
-
----
-
-# 特朗普：澤連斯基須意識到正輸掉戰爭　沒美國支持烏克蘭將失敗
-
-![特朗普不點名指澤連斯基企圖讓美國加入並繼續戰鬥，美國不會這麼做。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793783_1_20250301134345.jpg&q=85)
-  
-
-美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，美方提出的礦產協議亦未簽署。他重申希望俄烏立即停火，並警告澤連斯基一是實現和平，否則失去美國的支持。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm)
-
----
-
-# 南韓代總統稱社會分裂與對立加劇　應促進全民大團結
-
-![南韓代總統稱社會分裂與對立加劇　應促進全民大團結](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793782_1_20250301131142.jpg&q=75)
-  
-
-南韓代總統崔相穆表示，當前社會分裂與對立呈加劇之勢，應促進全民大團結，克服面臨內部和外部的困難和挑戰。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm)
 
 ---
