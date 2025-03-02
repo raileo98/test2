@@ -1,4 +1,31 @@
+# 楊德強：會檢討全運會三鐵測試賽流程　為年底舉辦正賽做好準備
+
+![港隊在混合接力賽取得銅牌。（2025全運會香港賽區社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793901_1_20250302214044.jpg&q=80)
+  
+
+一連兩日在中環海濱及維港舉行的全運會三項鐵人測試賽結束。全運會統籌辦主任楊德強表示，會與各相關機構及政府部門檢討賽事流程和各項細節，為今年年底舉辦的正賽做好準備。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm)
+
+---
+
 # 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
+
+![斯佳輝（左）表示，對奧蘇利雲退賽感到可惜，但不會影響自己的比賽計劃。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793891_1_20250302214621.jpg&q=55)
+  
 
 世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
 
@@ -1417,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm)
-
----
-
-# 全運會手球男子測試賽舉行　有內地球員認為體藝館質素與海外一樣
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792756_1_20250222170315.jpg&q=5)
-  
-
-第十五屆全國運動會手球（男子）項目測試賽今明兩日在啟德體育園的體藝館舉行，其中香港隊對澳門隊的賽事下午進行，上半場比分為18比9，現場氣氛熱烈，觀眾不時高呼支持港隊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792756-20250222.htm)
 
 ---

@@ -1,4 +1,127 @@
+# 蕭澤頤：年輕人對警隊信心增強　去年大學招募投考申請大升逾3成
+
+![蕭澤頤表示，「警察．大學招募快線」去年收到的投考申請大幅上升超過3成。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793902_1_20250302214311.jpg&q=90)
+  
+
+警務處處長蕭澤頤表示，「警察．大學招募快線」去年收到的投考申請大幅上升超過3成。去年4月至12月的整體投考人數按年增加5%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm)
+
+---
+
+# 楊德強：會檢討全運會三鐵測試賽流程　為年底舉辦正賽做好準備
+
+![港隊在混合接力賽取得銅牌。（2025全運會香港賽區社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793901_1_20250302214044.jpg&q=80)
+  
+
+一連兩日在中環海濱及維港舉行的全運會三項鐵人測試賽結束。全運會統籌辦主任楊德強表示，會與各相關機構及政府部門檢討賽事流程和各項細節，為今年年底舉辦的正賽做好準備。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm)
+
+---
+
+# 荔枝角收押所一名懲教人員被在囚人士襲擊送院治理
+
+![一名懲教人員在荔枝角收押所遭一名61歲在囚人士襲擊受傷，需送院治理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793900_1_20250302213855.jpg&q=70)
+  
+
+一名懲教人員在荔枝角收押所遭一名61歲在囚人士襲擊受傷，需送院治理，事件已轉交警方調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm)
+
+---
+
+# 財政預算案2025｜唐英年相信陳茂波有能力按量入為出原則辦事
+
+![唐英年表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793897_1_20250302213746.jpg&q=85)
+  
+
+財政司司長陳茂波在財政預算案預計，本港將於2028/29年度恢復綜合盈餘，並計劃增加發債。全國政協常委、前財政司司長唐英年在北京見記者時表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。他又說，當然可用更短時間扭轉財赤，但時間愈快，痛楚愈大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm)
+
+---
+
+# 麥美娟聯同關愛隊探望元朗公路車禍死者家人　提供援助
+
+![麥美娟(左一)聯同關愛隊及區議員，探望死者家人，提供援助。（民青局社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793896_1_20250302213618.jpg&q=75)
+  
+
+元朗公路上星期四發生的7車連環相撞交通意外，導致一名貨車司機死亡。民政及青年事務局局長麥美娟聯同關愛隊及區議員，探望死者家人，提供援助。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm)
+
+---
+
 # 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
+  
 
 全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
 
@@ -68,6 +191,9 @@
 ---
 
 # 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
+
+![斯佳輝（左）表示，對奧蘇利雲退賽感到可惜，但不會影響自己的比賽計劃。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793891_1_20250302214621.jpg&q=55)
+  
 
 世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
 
@@ -186,7 +312,7 @@
 
 # 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
 
-![丘應樺說，特區政府將繼續堅定支持多邊貿易體系，希望未來有更多貿易展覽和大型活動在香港舉行。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
   
 
 商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
@@ -1315,125 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱創科有不同舉措需穩中求進
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793763_1_20250301102213.jpg&q=70)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍早前南下考察時表示，期望特區政府繼續勇於改革，敢於破局。財政司司長陳茂波出席本台節目《星期六問責》時被問到，有否按夏寶龍的想法去做財政預算案。陳茂波回應說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破，亦要鞏固好傳統優勢才開展新領域，例如創科方面有不同舉措，強調要穩中求進，令社會在升級轉型過程中順利，將可能出現的影響減到最低。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm)
-
----
-
-# 啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播
-
-![啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793761_1_20250301094658.jpg&q=75)
-  
-
-啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm)
-
----
-
-# 財政預算案2025｜孫玉菡冀日後長者乘車更精打細算
-
-![財政預算案2025｜孫玉菡冀日後長者乘車更精打細算](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793759_1_20250301094642.jpg&q=85)
-  
-
-財政預算案公布調整兩元乘車優惠計劃，每月限240程，10元以上車資改為兩折。勞工及福利局局長孫玉菡說，推行樂悠咭後當局統計，每月使用兩元優惠超過240程的人士有360人，對比整體250萬受惠對象，只佔萬分之一，75%受惠人士乘坐的交通工具車資在10元以下，認為措施影響輕微。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱公僕凍薪體現政府社會一起面對財赤
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793758_1_20250301094626.jpg&q=65)
-  
-
-財政司司長陳茂波說，預算案提出公務員凍薪，財政是非常主要考慮原因，今年財赤處於高水平，明年稍為降低，後年經營賬目開始回復平衡，政府率先凍薪讓社會知道當局有決心，盡快將經營賬目恢復平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽下周在港舉行　4千張表演賽門票免費派發
-
-![世界格蘭披治桌球大獎賽首次在香港舉行，賽事在3月4日、下周二起一連6日在啟德體育園啟德體藝館舉行。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793726_1_20250228225747.jpg&q=90)
-  
-
-世界格蘭披治桌球大獎賽首次在香港舉行，賽事在3月4日、下周二起一連6日在啟德體育園啟德體藝館舉行。全球排名前32名的桌球選手將會參與。3月8日及9日早上11時將舉行表演賽，大會免費派發共4000張表演賽門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm)
 
 ---

@@ -1,4 +1,196 @@
+# 英揆：將與法烏合作制訂結束俄烏衝突計劃　無美國支持將欠威懾力
+
+英國首相施紀賢表示，英國、法國及其他歐洲國家將與烏克蘭合作，制訂結束俄烏衝突的計劃，之後與美國討論，強調沒有美國的支持，結束俄烏衝突的計劃將欠缺威懾力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm)
+
+---
+
+# 蕭澤頤：年輕人對警隊信心增強　去年大學招募投考申請大升逾3成
+
+![蕭澤頤表示，「警察．大學招募快線」去年收到的投考申請大幅上升超過3成。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793902_1_20250302214311.jpg&q=90)
+  
+
+警務處處長蕭澤頤表示，「警察．大學招募快線」去年收到的投考申請大幅上升超過3成。去年4月至12月的整體投考人數按年增加5%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm)
+
+---
+
+# 楊德強：會檢討全運會三鐵測試賽流程　為年底舉辦正賽做好準備
+
+![港隊在混合接力賽取得銅牌。（2025全運會香港賽區社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793901_1_20250302214044.jpg&q=80)
+  
+
+一連兩日在中環海濱及維港舉行的全運會三項鐵人測試賽結束。全運會統籌辦主任楊德強表示，會與各相關機構及政府部門檢討賽事流程和各項細節，為今年年底舉辦的正賽做好準備。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm)
+
+---
+
+# 荔枝角收押所一名懲教人員被在囚人士襲擊送院治理
+
+![一名懲教人員在荔枝角收押所遭一名61歲在囚人士襲擊受傷，需送院治理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793900_1_20250302213855.jpg&q=70)
+  
+
+一名懲教人員在荔枝角收押所遭一名61歲在囚人士襲擊受傷，需送院治理，事件已轉交警方調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm)
+
+---
+
+# 克宮：加快改善俄美關係是有可能　但過程仍然漫長
+
+![佩斯科夫表示，不應期待俄美合作能快速取得成果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793899_1_20250302210032.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，美國新政府正迅速改變外交政策佈局，很大程度上與俄方立場契合，在兩國總統具備政治意願的情況下，加快改善俄美之間的關係是有可能，但由於美國前政府的行為，即使俄美正試圖改善雙邊關係，有關進程都將會漫長。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm)
+
+---
+
+# 財政預算案2025｜唐英年相信陳茂波有能力按量入為出原則辦事
+
+![唐英年表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793897_1_20250302213746.jpg&q=85)
+  
+
+財政司司長陳茂波在財政預算案預計，本港將於2028/29年度恢復綜合盈餘，並計劃增加發債。全國政協常委、前財政司司長唐英年在北京見記者時表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。他又說，當然可用更短時間扭轉財赤，但時間愈快，痛楚愈大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm)
+
+---
+
+# 麥美娟聯同關愛隊探望元朗公路車禍死者家人　提供援助
+
+![麥美娟(左一)聯同關愛隊及區議員，探望死者家人，提供援助。（民青局社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793896_1_20250302213618.jpg&q=75)
+  
+
+元朗公路上星期四發生的7車連環相撞交通意外，導致一名貨車司機死亡。民政及青年事務局局長麥美娟聯同關愛隊及區議員，探望死者家人，提供援助。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm)
+
+---
+
+# 山東出現大範圍雨雪　濟南市發布暴雪紅色預警明日停課
+
+![山東多個市縣出現降雪，其中濟南市區降雪量最大。（央視圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793895_1_20250302201617.jpg&q=45)
+  
+
+山東出現寒潮和大範圍雨雪天氣，當地氣象台表示，截至下午2時，全省多個市縣出現降雪，平均降雪量2.5毫米，其中濟南市區降雪量最大，達17.9毫米，濱州陽信錄得最大積雪深度，有13厘米。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm)
+
+---
+
 # 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
+  
 
 全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
 
@@ -68,6 +260,9 @@
 ---
 
 # 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
+
+![斯佳輝（左）表示，對奧蘇利雲退賽感到可惜，但不會影響自己的比賽計劃。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793891_1_20250302214621.jpg&q=55)
+  
 
 世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
 
@@ -282,7 +477,7 @@
 
 # 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
 
-![丘應樺說，特區政府將繼續堅定支持多邊貿易體系，希望未來有更多貿易展覽和大型活動在香港舉行。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
   
 
 商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
@@ -1238,200 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm)
-
----
-
-# 啟德體育園發放煙花　有觀眾感震撼稱表演精彩
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)
-  
-
-歷時約2小時的啟德體育園開幕典禮，晚上約8時40分結束。接近典禮完結時，啟德體育園上蓋發放煙花，有觀眾說感覺震撼，又說節目緊湊，看見很多本地明星，表演精彩。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm)
-
----
-
-# 啟德體育園開幕典禮歷時2小時　合唱歌曲「壯志驕陽」並發放煙花
-
-![啟德體育園傍晚舉行開幕典禮，歷時2小時，並發放煙花。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793824_1_20250301214727.jpg&q=75)
-  
-
-啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華押軸現身，講述自己與啟德的淵源。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm)
-
----
-
-# 俄國防部：烏克蘭無人機襲擊俄境內天然氣壓縮站設施
-
-![俄方說，烏克蘭出動無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793823_1_20250301212656.jpg&q=90)
-  
-
-俄羅斯國防部通報，烏克蘭周五夜間使用無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm)
-
----
-
-# 俄羅斯：在烏克蘭實現非軍事化等目標沒變
-
-![扎哈羅娃指責澤連斯基 「執著於延續」 戰鬥。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793822_1_20250301211257.jpg&q=90)
-  
-
-俄羅斯表示，在烏克蘭總統澤連斯基訪問華盛頓之後，俄羅斯在烏克蘭的目標沒有改變，並指責澤連斯基一心想著延長衝突。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm)
-
----
-
-# 影星劉德華壓軸現身啟德體育園開幕禮　與觀眾大合照
-
-![影星劉德華現身啟德體育園開幕禮。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_1_20250301204611.jpg&q=75)
-![啟德體育園開幕典禮歷時2小時，結束前有大合唱及煙花匯演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_2_20250301205816.jpg&q=80)
-  
-
-啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm)
-
----
-
-# 鄧俊文謝影雪向觀眾拋出羽毛球　樊振東以巨型乒乓球拍打波
-
-![鄧俊文和謝影雪等向觀眾拋出親筆簽名羽毛球。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_1_20250301203326.jpg&q=80)
-![樊振東以巨型乒乓球拍打波，觀眾高呼喝采。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_2_20250301203326.jpg&q=75)
-  
-
-啟德體育園開幕禮傍晚6時半舉行，先後有多位奧運名將等上台表演。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm)
-
----
-
-# 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
-
-![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=85)
-![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
-  
-
-行政長官李家超表示，啟德體育園開幕典禮今晚舉行，很高興親臨現場，與市民一同見證歷史性時刻。節目豐富多彩，香港和內地跨年齡、跨世代的體育、文化、演藝界精英傾情獻藝，為啟德體育園的啟用揭開精彩序幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm)
-
----
-
-# 英國首相府：施紀賢將於周六與澤連斯基會面
-
-![畫面顯示，一架相信載著澤連斯基的飛機在倫敦以北斯坦斯特德機場降落。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793816_1_20250301200953.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基結束在美國訪問後，據報已飛抵英國。英國首相辦公室說，首相施紀賢將於當地星期六下午與澤連斯基會面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm)
 
 ---
