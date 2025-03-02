@@ -1,3 +1,27 @@
+# Man City beat giant killers Plymouth in FA Cup
+
+![Manchester City's English midfielder Nico O'Reilly celebrates scoring the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793851_1_20250302075410.jpg&q=90)
+  
+
+Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress to the FA Cup quarter-finals on Saturday, after Crystal Palace striker Jean Philippe-Mateta was hospitalised in the Eagles' 3-1 win over Millwall.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm)
+
+---
+
 # O'Sullivan drops out of HK Snooker Grand Prix
 
 ![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
@@ -1419,29 +1443,5 @@ Team Hong Kong, China secured a spot in the play-offs for the men's curling comp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm)
-
----
-
-# Real Madrid secure 3-2 Champions League win over City
-
-![Jude Bellingham's late winner helped lift Real Madrid over Manchester City in the first leg of their play-off tie. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791253_2_20250212063303.jpg&q=90)
-  
-
-Jude Bellingham scored the winner in stoppage time as Real Madrid twice came from behind to inflict more misery on Manchester City with a 3-2 Champions League play-off, first leg win at the Etihad.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791253-20250212.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791253-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791253-20250212.htm)
 
 ---
