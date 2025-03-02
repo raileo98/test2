@@ -1,3 +1,27 @@
+# 特朗普簽署行政命令指定英語為官方語言
+
+![在美國有警告牌同時使用英語和西班牙語。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793865_1_20250302113623.jpg&q=35)
+  
+
+美國總統特朗普簽署行政命令，指定英語為美國官方語言，聲稱可以增強國家凝聚力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm)
+
+---
+
 # 華府加快向以色列提供約40億美元軍事援助
 
 ![華府加快向以色列提供約40億美元軍事援助](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793863_1_20250302110943.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm)
-
----
-
-# 回應美國對華產品加徵關稅　商務部：甩鍋推責無益於解決自身問題
-
-![商務部稱，中方希望美方盡快回到通過平等對話妥善解決分歧的正確軌道。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793641_1_20250228131753.jpg&q=90)
-  
-
-在北京，商務部回應美國下星期二起對從中國進口美國的商品徵收額外10%關稅，發言人說，中方對此堅決反對。美方這種行為純屬「甩鍋推責」，無益於解決自身問題，還會加劇美國企業和消費者負擔，並破壞全球產業鏈穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm)
 
 ---

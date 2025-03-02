@@ -1,3 +1,27 @@
+# 特朗普簽署行政命令指定英語為官方語言
+
+![在美國有警告牌同時使用英語和西班牙語。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793865_1_20250302113623.jpg&q=35)
+  
+
+美國總統特朗普簽署行政命令，指定英語為美國官方語言，聲稱可以增強國家凝聚力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm)
+
+---
+
 # 孫東今晚啟程訪問西班牙和葡萄牙　為香港創科界開拓商機
 
 創新科技及工業局局長孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問，加強香港與兩國在創新科技等領域的聯繫和合作，推廣香港創科優勢，為香港創新科技業界在海外開拓商機。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm)
-
----
-
-# 王新偉出任遼寧省代省長
-
-![遼寧省人大常委會會議任命王新偉為遼寧省副省長、代省長。（微博圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793786_1_20250301155329.jpg&q=90)
-  
-
-新華社報道，遼寧省人大常委會會議決定，接受李樂成辭去遼寧省省長職務的請求，任命王新偉為遼寧省副省長、代省長。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm)
 
 ---
