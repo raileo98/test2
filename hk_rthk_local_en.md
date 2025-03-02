@@ -1,3 +1,27 @@
+# Technology chief pledges to foster AI development
+
+![Sun Dong says there were 4,700 start-ups in the city at the end of last year. Photo courtesy of Commercial Radio](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793867_1_20250302115400.jpg&q=85)
+  
+
+Technology and innovation chief Sun Dong on Sunday said policies related to artificial intelligence (AI) mentioned in last month's budget show the government’s commitment to high-quality development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm)
+
+---
+
 # Man hospitalised with measles after Vietnam trip
 
 ![The 38-year-old man is now stable in Queen Elizabeth Hospital. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793847_1_20250302054528.jpg&q=40)
@@ -1413,29 +1437,5 @@ A motoring group has welcomed a change in the law which will allow drivers to us
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793068-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793068-20250225.htm)
-
----
-
-# Drinks recycling plan to cut costs: Tse Chin-wan
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793061_1_20250225111853.jpg&q=75)
-  
-
-Environment minister Tse Chin-wan on Tuesday said he believes a market-led approach in recycling plastic containers and beverage cartons will reduce overall operational costs.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793061-20250225.htm)
 
 ---

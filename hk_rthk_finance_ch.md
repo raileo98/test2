@@ -1,3 +1,24 @@
+# 財政預算案2025｜陳茂波：陸路離境稅仍在設想階段可再商量
+
+新一份《財政預算案》提出多項開源節流的措施，財政司司長陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm)
+
+---
+
 # 財政預算案2025｜陳茂波：全力發展人工智能為關鍵產業
 
 ![陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業。（陳茂波網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793861_1_20250302105656.jpg&q=85)
@@ -1413,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm)
-
----
-
-# 滬指本周跌逾1.7%　結束3星期升勢
-
-![上證綜合指數收市報3320點，跌67點，跌幅1.98%。全星期跌逾1.7%，結束3星期升勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793658_1_20250228151806.jpg&q=85)
-  
-
-滬深股市3大指數收市跌近2%至近4%，人形機械人、CPO概念等股份下跌；油氣開採、白酒板塊升幅較大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793658-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793658-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793658-20250228.htm)
 
 ---
