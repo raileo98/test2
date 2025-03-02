@@ -1,3 +1,27 @@
+# 俄外長：有歐洲國家想俄烏衝突延續　派維和部隊意味危機根源不除
+
+![拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793909_1_20250302234729.jpg&q=90)
+  
+
+俄羅斯外長拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm)
+
+---
+
 # 施紀賢召開歐洲領導人峰會商討烏國危機　意總理稱須避免西方分裂
 
 ![施紀賢在倫敦蘭開斯特府主持召開歐洲領導人峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793908_1_20250302233916.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm)
-
----
-
-# 陳茂波：啟德體育園大大提升香港舉辦盛事容量和吸引力
-
-![陳茂波說政府將繼續舉辦各類型大型體育、娛樂和文化盛事。（陳茂波社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793831_1_20250301230859.jpg&q=85)
-  
-
-啟德體育園舉行開幕典禮，財政司司長陳茂波表示，表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm)
 
 ---

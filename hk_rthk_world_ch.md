@@ -1,3 +1,27 @@
+# 俄外長：有歐洲國家想俄烏衝突延續　派維和部隊意味危機根源不除
+
+![拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793909_1_20250302234729.jpg&q=90)
+  
+
+俄羅斯外長拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm)
+
+---
+
 # 施紀賢召開歐洲領導人峰會商討烏國危機　意總理稱須避免西方分裂
 
 ![施紀賢在倫敦蘭開斯特府主持召開歐洲領導人峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793908_1_20250302233916.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm)
-
----
-
-# 習近平與王毅分別晤紹伊古　紹伊古稱俄中合作不針對其他國家
-
-![紹伊古在與習近平會晤時說，俄中全面戰略協作夥伴關係今日達到歷史前所未有的高度。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793683_1_20250228171723.jpg&q=90)
-  
-
-國家主席習近平和外長王毅，分別與訪華的俄羅斯聯邦安全會議秘書紹伊古會談。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm)
 
 ---
