@@ -1,3 +1,27 @@
+# Local delegate proposes plans to connect with GBA
+
+![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=85)
+  
+
+A local delegate to the country’s top advisory body plans to ask for measures on facilitating people flow within the Greater Bay Area, during the upcoming “Two Sessions” meetings in Beijing.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
+
+---
+
 # UK, France working with Ukraine on peace plan: Starmer
 
 ![British Prime Minister Keir Starmer and Ukrainian President Volodymyr Zelensky shake hands during a bilateral meeting ahead of a European leaders' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793890_1_20250302180719.jpg&q=80)
@@ -1413,29 +1437,5 @@ Wall Street stocks tumbled on Thursday, extending a rough period as disappointme
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm)
-
----
-
-# Russian chess grandmaster Spassky dies aged 88
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793572_1_20250228052907.jpg&q=90)
-  
-
-Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-called match of the century at the height of the Cold War, has died aged 88, the Chess Federation of Russia said.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm)
 
 ---

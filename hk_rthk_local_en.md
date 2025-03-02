@@ -1,3 +1,27 @@
+# Local delegate proposes plans to connect with GBA
+
+![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=85)
+  
+
+A local delegate to the country’s top advisory body plans to ask for measures on facilitating people flow within the Greater Bay Area, during the upcoming “Two Sessions” meetings in Beijing.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
+
+---
+
 # 'Most civil servants understand need for pay freeze'
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793871_1_20250302125453.jpg&q=85)
@@ -1413,29 +1437,5 @@ Police arrested two men following a raid on a drug warehouse, where officers sei
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm)
-
----
-
-# 'Child car seats wouldn't work on public transport'
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793075_1_20250225125833.jpg&q=35)
-  
-
-A new law requiring child car seats or other extra restraints to be fitted in private vehicles carrying children would be too difficult to implement on public transport, the government said on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793075-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793075-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793075-20250225.htm)
 
 ---

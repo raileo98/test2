@@ -1,3 +1,27 @@
+# Local delegate proposes plans to connect with GBA
+
+![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=85)
+  
+
+A local delegate to the country’s top advisory body plans to ask for measures on facilitating people flow within the Greater Bay Area, during the upcoming “Two Sessions” meetings in Beijing.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
+
+---
+
 # China's factory activity grows in February
 
 ![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=20)
@@ -1419,29 +1443,5 @@ China unleashed an impressive display at the 9th Asian Winter Games in Harbin on
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm)
-
----
-
-# At least 1 dead in Sichuan landslide
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790883_1_20250209121215.jpg&q=90)
-  
-
-One person has been found dead and 28 others remained missing, a day after a landslide hit Sichuan Province.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790883-20250209.htm)
 
 ---
