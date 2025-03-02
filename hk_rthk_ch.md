@@ -1,3 +1,27 @@
+# 施紀賢召開歐洲領導人峰會商討烏國危機　意總理稱須避免西方分裂
+
+![施紀賢在倫敦蘭開斯特府主持召開歐洲領導人峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793908_1_20250302233916.jpg&q=85)
+  
+
+英國首相施紀賢在倫敦蘭開斯特府主持召開歐洲領導人峰會，討論烏克蘭危機和歐洲防務問題，烏克蘭總統澤連斯基、法國總統馬克龍、德國總理朔爾茨、意大利總理梅洛尼、歐盟委員會主席馮德萊恩、北約秘書長呂特等領導人出席，加拿大總理杜魯多亦有參與。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm)
+
+---
+
 # 兩外籍男子涉嫌盜取他人手提電話被捕
 
 ![兩名外籍男子涉嫌盜取他人手提電話，被警方拘捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793907_1_20250302224847.jpg&q=70)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm)
-
----
-
-# 教育局對有學生交流活動期間離世感十分難過
-
-![教育局說，全力為涉事的學校及師生提供支援，又指事件並不涉及考察活動行程，其他考察團不受影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793830_1_20250301225314.jpg&q=80)
-  
-
-聖保羅書院一名中五學生，參與內地交流活動期間死亡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm)
 
 ---
