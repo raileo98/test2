@@ -1,3 +1,27 @@
+# 歐洲領導人就烏克蘭危機達成四點共識　英揆不認為美國非可靠盟友
+
+![施紀賢說，不認為美國是不可靠的盟友，但歐洲必須在任何和平協議中承擔重任。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793914_1_20250303031753.jpg&q=90)
+  
+
+歐洲多國領導人結束在倫敦的烏克蘭危機峰會，英國首相施紀賢表示，各方達成四點共識，包括繼續向烏克蘭提供軍事援助、讓基輔參與任何和平談判、阻止俄羅斯未來再入侵烏克蘭，以及組建聯盟來保護烏克蘭並保證烏克蘭的和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm)
+
+---
+
 # 梵蒂岡：教宗方濟各周日病情穩定　毋須用呼吸機
 
 ![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793913_1_20250303023405.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm)
-
----
-
-# 王毅晤紹伊古　指新時代中俄關係超越陣營對抗式陳舊思維
-
-![王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793709_1_20250228203729.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm)
 
 ---

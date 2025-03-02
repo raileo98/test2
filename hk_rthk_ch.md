@@ -1,3 +1,27 @@
+# 歐洲領導人就烏克蘭危機達成四點共識　英揆不認為美國非可靠盟友
+
+![施紀賢說，不認為美國是不可靠的盟友，但歐洲必須在任何和平協議中承擔重任。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793914_1_20250303031753.jpg&q=90)
+  
+
+歐洲多國領導人結束在倫敦的烏克蘭危機峰會，英國首相施紀賢表示，各方達成四點共識，包括繼續向烏克蘭提供軍事援助、讓基輔參與任何和平談判、阻止俄羅斯未來再入侵烏克蘭，以及組建聯盟來保護烏克蘭並保證烏克蘭的和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm)
+
+---
+
 # 梵蒂岡：教宗方濟各周日病情穩定　毋須用呼吸機
 
 ![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793913_1_20250303023405.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm)
-
----
-
-# 華爾街日報：中方出於安全考慮要求國內AI人才避免赴美
-
-![國家主席習近平上月出席民營企業家座談會，DeepSeek創辦人梁文鋒亦有參與。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793837_1_20250302004357.jpg&q=85)
-  
-
-美國《華爾街日報》報道，中方出於安全考慮，要求國內人工智能AI行業的頂尖人才，避免前往美國。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm)
 
 ---
