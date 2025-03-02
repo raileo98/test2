@@ -1,3 +1,51 @@
+# 地產代理：上周末10大二手屋苑成交量創多個星期低位
+
+![地產代理表示，多個新盤同步推售搶去大量購買力，上周末10大二手指標屋苑成交量創多個星期低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793922_1_20250303061023.jpg&q=20)
+  
+
+地產代理數據顯示，上周末10大二手指標屋苑成交量創多個星期低位，一手市場成焦點。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm)
+
+---
+
+# 美股本周焦點在於非農就業數據及鮑威爾講話
+
+![踏入3月，本周市場焦點在於美國最新就業數據、聯儲局主席鮑威爾講話，以及多隻零售股公布業績。（法新社資資圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793921_1_20250303055813.jpg&q=90)
+  
+
+美股3大指數在2月均下跌，其中納斯達克指數跌約4%，創去年4月以來最大單月跌幅，道瓊斯指數及標準普爾500指數累計跌逾1%。踏入3月，本周市場焦點在於美國最新就業數據，以及多隻零售股公布業績。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793921-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793921-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793921-20250303.htm)
+
+---
+
 # 美商務部長稱對墨加關稅稅率仍有待特朗普決定
 
 ![盧特尼克說，除非中國停止向美國販運芬太尼，否則特朗普預計上調對華關稅到兩成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793911_1_20250303002627.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793670-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793670-20250228.htm)
-
----
-
-# 兩架貨機昨早本港起飛後分隔距離未達預期　觸發交通防撞警示
-
-![民航處即時展開調查和跟進，表示事件可能涉及空管人員未有遵循既定程序安排飛機起飛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793669_1_20250228162427.jpg&q=80)
-  
-
-兩架貨機昨日在本港起飛後，分隔距離一度未達預期，觸發交通防撞警示，民航處即時展開調查和跟進，表示事件可能涉及空管人員未有遵循既定程序安排飛機起飛，有關空管人員暫時被調離前線空管職務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793669-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793669-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793669-20250228.htm)
-
----
-
-# 財政預算案2025｜羅淑佩稱增加飛機乘客離境稅不會令旅客卻步
-
-![羅淑佩表示，飛機乘客離境稅稅額屬相對小數目，會在旅客訂購機票時收取。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793667_1_20250228162405.jpg&q=85)
-  
-
-財政預算案提出下個財政年度第三季起，將飛機乘客離境稅由現時每名乘客120元增加至200元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 地產代理：上周末10大二手屋苑成交量創多個星期低位
+
+![地產代理表示，多個新盤同步推售搶去大量購買力，上周末10大二手指標屋苑成交量創多個星期低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793922_1_20250303061023.jpg&q=20)
+  
+
+地產代理數據顯示，上周末10大二手指標屋苑成交量創多個星期低位，一手市場成焦點。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm)
+
+---
+
+# 美股本周焦點在於非農就業數據及鮑威爾講話
+
+![踏入3月，本周市場焦點在於美國最新就業數據、聯儲局主席鮑威爾講話，以及多隻零售股公布業績。（法新社資資圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793921_1_20250303055813.jpg&q=90)
+  
+
+美股3大指數在2月均下跌，其中納斯達克指數跌約4%，創去年4月以來最大單月跌幅，道瓊斯指數及標準普爾500指數累計跌逾1%。踏入3月，本周市場焦點在於美國最新就業數據，以及多隻零售股公布業績。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793921-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793921-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793921-20250303.htm)
+
+---
+
 # 澤連斯基稱感受到各方的強大支持　相信可挽救與特朗普的關係
 
 ![歐洲多國領導人在倫敦舉行峰會，西班牙首相桑切斯與澤連斯基擁抱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793919_1_20250303052312.jpg&q=75)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm)
-
----
-
-# 美國有貨機遭鳥擊導致引擎起火緊急降落
-
-![飛機起飛後不久因為鳥擊導致引擎起火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793844_1_20250302031443.jpg&q=90)
-  
-
-美國聯邦快遞一架貨機因為遭到鳥擊導致引擎起火，需要緊急降落。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm)
-
----
-
-# 梵蒂岡稱教宗方濟各情況穩定
-
-![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793843_1_20250302022219.jpg&q=65)
-  
-
-教宗方濟各因肺炎住院兩星期，梵蒂岡星期六晚表示，方濟各經歷呼吸危機後，臨床情況保持穩定，仍然需要吸氧氣，但沒有發燒，亦沒有出現支氣管痙攣。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm)
 
 ---
