@@ -1,3 +1,51 @@
+# 歐洲多國在倫敦舉行峰會　尋求加強安全合作及對烏克蘭支持
+
+![施紀賢（右）在安全峰會舉行前一日，在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793885_1_20250302170932.jpg&q=85)
+  
+
+歐洲多國領導人星期日在英國倫敦舉行安全峰會，尋求加強安全合作以及對烏克蘭的支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm)
+
+---
+
+# 謝鋒：中美長期和平共存既是責任也是必須
+
+![謝鋒在「杜克-北卡中國領導力峰會」上發表視像致辭。（中美駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793886_1_20250302171051.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須，希望美方同中方相向而行，落實好兩國元首通話達成的重要共識，本著相互尊重、和平共處、合作共贏的原則，保持溝通、管控分歧、拓展合作，推動中美關係穩定、健康、可持續發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm)
+
+---
+
 # 調查：逾半受職場性騷擾女性沒處理問題　不足一半企業訂立指引
 
 ![調查發現，超過3成受訪女性表示，過去3年曾受職場性騷擾。（民建聯提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793884_1_20250302170158.jpg&q=70)
@@ -47,6 +95,9 @@
 ---
 
 # 六旬男子被困將軍澳山坡兩日獲救　手部受傷送院治理
+
+![一名約68歲男子在將軍澳被困一處山坡兩日後獲救，送往將軍澳醫院治理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793882_1_20250302171303.jpg&q=75)
+  
 
 一名約68歲男子在將軍澳被困一處山坡兩日後獲救。
 
@@ -1388,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm)
-
----
-
-# 啟德體育園開幕禮傍晚舉行　鄧炳強：相信運作暢順
-
-![鄧炳強表示，啟德體育園經過多次演練，相信運作會暢順。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793807_1_20250301184315.jpg&q=80)
-  
-
-啟德體育園今日正式啟用，開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，持票觀眾已陸續進場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm)
-
----
-
-# 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793806_1_20250301183553.jpg&q=60)
-  
-
-啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 歐洲多國在倫敦舉行峰會　尋求加強安全合作及對烏克蘭支持
+
+![施紀賢（右）在安全峰會舉行前一日，在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793885_1_20250302170932.jpg&q=85)
+  
+
+歐洲多國領導人星期日在英國倫敦舉行安全峰會，尋求加強安全合作以及對烏克蘭的支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm)
+
+---
+
 # 謝鋒：中美長期和平共存既是責任也是必須
 
 ![謝鋒在「杜克-北卡中國領導力峰會」上發表視像致辭。（中美駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793886_1_20250302171051.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm)
-
----
-
-# 財政預算案2025｜丘應樺稱就美國加徵關稅將盡快向世貿申訴
-
-![丘應樺表示，因應美國加徵關稅，當局早前已經表示會向世貿作出申訴，需要時間研究策略。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793665_1_20250228162119.jpg&q=50)
-  
-
-美國宣布將會對從中國進口的商品徵收額外10%關稅。商務及經濟發展局局長丘應樺表示，因應美國加徵關稅，當局早前已經表示會向世貿作出申訴，需要時間研究策略，至於美方今次再增加關稅，會否影響香港，需要從整體去看，會因應需要盡快向世貿作出申訴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm)
 
 ---
