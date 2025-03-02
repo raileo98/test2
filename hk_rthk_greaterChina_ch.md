@@ -1,3 +1,27 @@
+# 新一輪寒潮南下　受強對流影響湖南岳陽落冰雹
+
+![湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793917_1_20250303042931.jpg&q=25)
+  
+
+內地新一輪寒潮南下，受強對流影響，湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小，影響市民出行，但由於冰雹集中在市區，未對農業造成破壞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm)
+
+---
+
 # 山東出現大範圍雨雪　濟南市發布暴雪紅色預警明日停課
 
 ![山東多個市縣出現降雪，其中濟南市區降雪量最大。（央視圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793895_1_20250302201617.jpg&q=45)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱目標是經營帳目兩年內恢復平衡
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793365_1_20250226214510.jpg&q=75)
-  
-
-本財政年度預計綜合赤字為872億元，預計要到2028/29年度綜合赤字才恢復盈餘，較上一份預算案提到的時間表推遲。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
 
 ---

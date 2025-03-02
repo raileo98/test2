@@ -1,3 +1,27 @@
+# 新一輪寒潮南下　受強對流影響湖南岳陽落冰雹
+
+![湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793917_1_20250303042931.jpg&q=25)
+  
+
+內地新一輪寒潮南下，受強對流影響，湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小，影響市民出行，但由於冰雹集中在市區，未對農業造成破壞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm)
+
+---
+
 # 曼聯互射十二碼不敵富咸　英格蘭足總盃第五圈止步
 
 ![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=35)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm)
-
----
-
-# 澤連斯基與英國首相會晤　施紀賢重申一直支持烏克蘭
-
-![烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793840_1_20250302013232.jpg&q=90)
-  
-
-與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm)
 
 ---
