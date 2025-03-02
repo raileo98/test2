@@ -1,3 +1,24 @@
+# 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+
+全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm)
+
+---
+
 # 全國兩會 | 唐英年：提案包括進一步優化一簽多行等內容
 
 ![唐英年表示，會有一系列提案，包括進一步優化一簽多行措施，以及金融自由行等內容。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793892_1_20250302183821.jpg&q=75)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm)
-
----
-
-# 美國據報解凍對台軍援　中方嚴重關切
-
-![林劍敦促美方停止武裝台灣，停止破壞台海和平穩定。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793309_1_20250226160232.jpg&q=90)
-  
-
-美國政府據報日前解凍53億美元的援外資金，包括8億7千萬美元的對台軍援，中方表示嚴重關切。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793309-20250226.htm)
 
 ---

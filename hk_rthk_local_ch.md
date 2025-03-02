@@ -1,3 +1,24 @@
+# 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+
+全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm)
+
+---
+
 # 陳茂波：加快AI落地應用　邁向AI+賦能產業發展目標
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793889_1_20250302183615.jpg&q=70)
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm)
-
----
-
-# 將軍澳三車相撞電單車司機傷重亡　62歲城巴司機涉危駕被捕
-
-![將軍澳三車相撞電單車司機傷重亡　62歲城巴司機涉危駕被捕](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793725_1_20250228225649.jpg&q=90)
-  
-
-將軍澳傍晚發生三車相撞意外，一名50歲電單車司機傷重死亡，62歲城巴司機涉嫌危險駕駛被捕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793725-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793725-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793725-20250228.htm)
 
 ---

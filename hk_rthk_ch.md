@@ -1,3 +1,24 @@
+# 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+
+全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm)
+
+---
+
 # 陳茂波：加快AI落地應用　邁向AI+賦能產業發展目標
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793889_1_20250302183615.jpg&q=70)
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm)
-
----
-
-# 啟德體育園開幕典禮有舞蹈及歌星獻唱　亦有劍擊表演
-
-![巴黎奧運女子重劍金牌得主江旻憓與影星甄子丹表演劍擊。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793815_1_20250301194944.jpg&q=80)
-  
-
-啟德體育園舉行開幕典禮，先播放開場短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅表演。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm)
 
 ---
