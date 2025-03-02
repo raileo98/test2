@@ -1,3 +1,27 @@
+# 施紀賢：實現和平須獲美國支持　馬克龍倡烏克蘭空海停火一個月
+
+![英國首相施紀賢與烏克蘭總統澤連斯基及法國總統馬克龍交談。（唁透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
+  
+
+歐洲多國領導人在倫敦就烏克蘭危機召開峰會，英國首相施紀賢在會後說，各方達成四點共識，包括繼續軍援烏克蘭、讓基輔參與和平談判、阻止俄羅斯未來再入侵烏克蘭，以及組建聯盟來保證烏克蘭的和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm)
+
+---
+
 # 烏拉圭總統稱願與中方不斷深化兩國全面戰略夥伴關係
 
 ![奧爾西在烏拉圭首都出席總統就職儀式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793923_1_20250303062345.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm)
-
----
-
-# 何立峰：歡迎美國企業續投資中國　為推動中美關係穩定發展作貢獻
-
-![何立峰表示，歡迎美國企業繼續投資中國，共享發展機遇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793727_1_20250228223700.jpg&q=90)
-  
-
-中共中央政治局委員、國務院副總理何立峰應邀在北京出席中國美國商會年度答謝晚宴並致辭。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm)
 
 ---
