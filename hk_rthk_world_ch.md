@@ -1,3 +1,27 @@
+# 以色列決定齋戒月期間繼續執行加沙停火協議
+
+![在加沙地帶拉法一處建築物廢墟，一批巴勒斯坦人參加齋戒月祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793877_1_20250302152852.jpg&q=75)
+  
+
+加沙地帶停火協議第一階段已於周六結束，巴勒斯坦武裝組織哈馬斯堅持要實施第二階段，又指以色列違背協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm)
+
+---
+
 # 美軍增派近3000名士兵赴美墨邊境堵截非法移民
 
 ![美國軍方將向美墨邊境增派近3000名士兵，圖為國民警衛隊士兵巡邏後返航。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793873_1_20250302141503.jpg&q=50)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm)
-
----
-
-# 工貿署署長訪問印尼與東盟官員會面　推動香港加入RCEP
-
-![工業貿易署署長廖廣翔訪問印尼雅加達。（商經局社交網站圖片 ）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793652_1_20250228161159.jpg&q=85)
-  
-
-工業貿易署署長廖廣翔訪問印尼，與東盟官員會面，推動香港加入《區域全面經濟伙伴關係協定》(RCEP)。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
 
 ---

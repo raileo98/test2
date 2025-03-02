@@ -1,3 +1,27 @@
+# 以色列決定齋戒月期間繼續執行加沙停火協議
+
+![在加沙地帶拉法一處建築物廢墟，一批巴勒斯坦人參加齋戒月祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793877_1_20250302152852.jpg&q=75)
+  
+
+加沙地帶停火協議第一階段已於周六結束，巴勒斯坦武裝組織哈馬斯堅持要實施第二階段，又指以色列違背協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm)
+
+---
+
 # 葵涌貨櫃碼頭附近有貨車疑失控翻側　司機自行爬出車外
 
 一輛貨車下午近2時，沿葵涌貨櫃碼頭南路行駛，駛至迴旋處失控翻側。車斗貨物散落一地，司機沒有受傷，自行爬出車外。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm)
-
----
-
-# 哈馬斯拒絕以色列提出延長加沙停火協議第一階段
-
-![在加沙地帶汗尤尼斯，建築物經過多月戰火後成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793797_1_20250301170723.jpg&q=50)
-  
-
-哈馬斯發言人卡西姆接受傳媒採訪時表示，哈馬斯拒絕以色列希望延長加沙停火協議第一階段的方案，而目前沒有關於第二階段的相關談判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm)
 
 ---
