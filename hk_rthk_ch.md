@@ -1,4 +1,28 @@
+# 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
+
+公務員事務局局長楊何蓓茵表示，公務員職位空缺和削減編制是兩回事，某些職位空缺不能不填補，例如消防員、官校教師，某些職位空缺可以透過檢討工作安排、調職、退休自然流失等，達到減省人手。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm)
+
+---
+
 # 財政預算案2025｜陳茂波：陸路離境稅仍在設想階段可再商量
+
+![陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793868_1_20250302123027.jpg&q=90)
+  
 
 新一份《財政預算案》提出多項開源節流的措施，財政司司長陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。
 
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm)
-
----
-
-# 教宗方濟各支氣管痙攣要用呼吸機　吸氧後情況好轉
-
-![教宗方濟各繼續住院，信眾在聖伯多祿廣場參加祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793792_1_20250301161122.jpg&q=90)
-  
-
-梵蒂岡表示，因肺炎住院的教宗方濟各，星期五出現呼吸危機，導致嘔吐，吸氧後反應良好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm)
 
 ---

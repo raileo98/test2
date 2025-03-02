@@ -1,4 +1,28 @@
+# 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
+
+公務員事務局局長楊何蓓茵表示，公務員職位空缺和削減編制是兩回事，某些職位空缺不能不填補，例如消防員、官校教師，某些職位空缺可以透過檢討工作安排、調職、退休自然流失等，達到減省人手。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm)
+
+---
+
 # 財政預算案2025｜陳茂波：陸路離境稅仍在設想階段可再商量
+
+![陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793868_1_20250302123027.jpg&q=90)
+  
 
 新一份《財政預算案》提出多項開源節流的措施，財政司司長陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。
 
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm)
-
----
-
-# 財政預算案2025｜羅淑佩稱留意有報道指國際歌星或到鄰近城市
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793659_1_20250228162014.jpg&q=80)
-  
-
-啟德體育園開幕典禮明晚6時半在啟德主場館舉行，文化體育及旅遊局局長羅淑佩表示，屆時會有簡單隆重的儀式，容許新聞界進行拍攝及剪輯成不多於3分鐘播出。至於開幕典禮則以轉播安排，希望以最美麗、宏偉及一氣呵成的角度播映給市民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm)
 
 ---
