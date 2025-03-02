@@ -1,6 +1,6 @@
 # Technology chief pledges to foster AI development
 
-![Sun Dong says there were 4,700 start-ups in the city at the end of last year. Photo courtesy of Commercial Radio](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793867_1_20250302115400.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793867_1_20250302115400.jpg&q=85)
   
 
 Technology and innovation chief Sun Dong on Sunday said policies related to artificial intelligence (AI) mentioned in last month's budget show the government’s commitment to high-quality development.
