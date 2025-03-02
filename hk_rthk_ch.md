@@ -1,3 +1,27 @@
+# 跨部門舉行重大事故及反恐演習為全運會做準備
+
+![警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。（警方圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793918_1_20250303043638.jpg&q=75)
+  
+
+警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm)
+
+---
+
 # 新一輪寒潮南下　受強對流影響湖南岳陽落冰雹
 
 ![湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793917_1_20250303042931.jpg&q=25)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm)
-
----
-
-# 北約秘書長稱已告知澤連斯基須修復與特朗普的關係
-
-![呂特形容，澤連斯基與特朗普的會晤令人遺憾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793841_1_20250302014133.jpg&q=90)
-  
-
-北約秘書長呂特表示，已經告知烏克蘭總統澤連斯基，需要尋找方法修復與美國總統特朗普的關係。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm)
 
 ---
