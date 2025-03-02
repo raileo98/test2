@@ -1,3 +1,27 @@
+# Man Utd crash out of FA Cup as Fulham win shoot-out
+
+![Manchester United's Joshua Zirkzee reacts after a penalty kick. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793920_1_20250303053151.jpg&q=90)
+  
+
+Manchester United's dismal season hit a new low as the FA Cup holders crashed out after a 4-3 penalty shoot-out defeat against Fulham in the fifth round.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
+
+---
+
 # Ethiopia dominates Tokyo Marathon
 
 ![Ethiopia's Tadese Takele finishes in first place to win the men's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_1_20250302145335.jpg&q=80)
@@ -1420,29 +1444,5 @@ Arsenal's bid to win the Premier League could suffer a major setback following r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791406-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791406-20250213.htm)
-
----
-
-# 'SAR men's ice hockey team did great in Harbin'
-
-![The Hong Kong, China Ice Hockey Association says the SAR men's team had a great performance at the Asian Winter Games in Harbin. Photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791342_1_20250212162750.jpg&q=85)
-  
-
-The Hong Kong, China Ice Hockey Association on Wednesday said the men's team put in a great performance at the Asian Winter Games in Harbin.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791342-20250212.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791342-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791342-20250212.htm)
 
 ---

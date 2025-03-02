@@ -1,3 +1,27 @@
+# Man Utd crash out of FA Cup as Fulham win shoot-out
+
+![Manchester United's Joshua Zirkzee reacts after a penalty kick. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793920_1_20250303053151.jpg&q=90)
+  
+
+Manchester United's dismal season hit a new low as the FA Cup holders crashed out after a 4-3 penalty shoot-out defeat against Fulham in the fifth round.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
+
+---
+
 # Gaza health ministry says 4 killed in Israel attacks
 
 ![Relatives mourn two Palestinians killed in a reported Israeli strike in the northern Gaza Strip, as a truce hangs in the balance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793904_1_20250302212847.jpg&q=85)
@@ -1413,29 +1437,5 @@ Support for private businesses is a very important area that will be addressed d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
-
----
-
-# Spurs' coach Popovich says he won't return this season
-
-![Popovich said he hopes to make a return to coaching in the near future. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793588_1_20250228074546.jpg&q=90)
-  
-
-Hall of Fame coach Gregg Popovich said Thursday he won't return this season as coach of the San Antonio Spurs as he continues to recover from a stroke he suffered in November.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm)
 
 ---
