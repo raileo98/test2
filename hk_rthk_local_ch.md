@@ -1,3 +1,27 @@
+# 兩外籍男子涉嫌盜取他人手提電話被捕
+
+![兩名外籍男子涉嫌盜取他人手提電話，被警方拘捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793907_1_20250302224847.jpg&q=70)
+  
+
+警方在深水埗區拘捕兩名外籍男子，涉嫌盜取他人手提電話，其中一人以失明人士作為盜竊目標，警方予以強烈譴責。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm)
+
+---
+
 # 天文台料周二天氣變得不穩定　早上部分地區雨勢可能較大
 
 ![天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持。（張連登攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793906_1_20250302215750.jpg&q=75)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波：肥雞餐令能力較好人員流失
-
-![陳茂波提到，市場期望政府發長債，金融界亦認為會出現港元債務孳息曲綫，當局會積極研究。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793767_1_20250301112339.jpg&q=80)
-  
-
-預算案提出問責官員及全體公務員凍薪，今屆政府任內合共減1萬個職位。財政司司長陳茂波出席一個電台節目時表示，2003年推出涉及40億元的「肥雞餐」經驗顯示，離職的公務員當中，很多都是較易轉職到私人市場，不少都是能力較好，考慮到流失了這批人員，因此今次決定循序漸進，通過每年削減2%開支而減人手，包括善用科技或精簡流程。他又說，由於要減少開支，編外職位亦會因應開支限制，達到預期效果。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm)
 
 ---

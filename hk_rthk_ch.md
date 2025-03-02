@@ -1,3 +1,27 @@
+# 兩外籍男子涉嫌盜取他人手提電話被捕
+
+![兩名外籍男子涉嫌盜取他人手提電話，被警方拘捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793907_1_20250302224847.jpg&q=70)
+  
+
+警方在深水埗區拘捕兩名外籍男子，涉嫌盜取他人手提電話，其中一人以失明人士作為盜竊目標，警方予以強烈譴責。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm)
+
+---
+
 # 天文台料周二天氣變得不穩定　早上部分地區雨勢可能較大
 
 ![天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持。（張連登攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793906_1_20250302215750.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm)
-
----
-
-# 衞生防護中心調查外地傳入麻疹個案涉及一名38歲男子　情況穩定
-
-![衞生防護中心提醒市民外遊前應確保完成接種兩劑麻疹疫苗，以減低感染風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793829_1_20250301225517.jpg&q=80)
-  
-
-衞生署衞生防護中心調查一宗由外地傳入的麻疹個案，涉及一名過往健康良好的38歲男子，現時仍然留院，情況穩定。他的家居接觸者目前沒有病徵。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm)
 
 ---
