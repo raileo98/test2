@@ -1,3 +1,27 @@
+# 克宮：加快改善俄美關係是有可能　但過程仍然漫長
+
+![佩斯科夫表示，不應期待俄美合作能快速取得成果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793899_1_20250302210032.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，美國新政府正迅速改變外交政策佈局，很大程度上與俄方立場契合，在兩國總統具備政治意願的情況下，加快改善俄美之間的關係是有可能，但由於美國前政府的行為，即使俄美正試圖改善雙邊關係，有關進程都將會漫長。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm)
+
+---
+
 # 歐洲多國在倫敦舉行峰會　尋求加強安全合作及對烏克蘭支持
 
 ![施紀賢（右）在安全峰會舉行前一日，在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793885_1_20250302170932.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm)
-
----
-
-# 財政預算案2025｜羅淑佩稱增加飛機乘客離境稅不會令旅客卻步
-
-![羅淑佩表示，飛機乘客離境稅稅額屬相對小數目，會在旅客訂購機票時收取。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793667_1_20250228162405.jpg&q=85)
-  
-
-財政預算案提出下個財政年度第三季起，將飛機乘客離境稅由現時每名乘客120元增加至200元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793667-20250228.htm)
 
 ---
