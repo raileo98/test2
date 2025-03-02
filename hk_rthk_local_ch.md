@@ -1,3 +1,24 @@
+# 葵涌貨櫃碼頭附近有貨車疑失控翻側　司機自行爬出車外
+
+一輛貨車下午近2時，沿葵涌貨櫃碼頭南路行駛，駛至迴旋處失控翻側。車斗貨物散落一地，司機沒有受傷，自行爬出車外。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm)
+
+---
+
 # 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
 
 ![楊何蓓茵表示，公務員職位空缺和削減編制是兩回事。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793869_1_20250302124303.jpg&q=85)
@@ -1418,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793706-20250228.htm)
-
----
-
-# 財政預算案2025｜工作組擬下季就建新醫學院晤提交建議書大學
-
-![籌備新醫學院工作組第三次會議，討論評核建設第三所醫學院建議書的下一步工作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793705_1_20250228202745.jpg&q=85)
-  
-
-籌備新醫學院工作組今日召開第三次會議，討論評核建設第三所醫學院建議書的下一步工作。工作組計劃今年第二季內與提交建議書的大學進行會面，進一步了解大學提出的建議，以作出綜合考量，並預期今年內完成評核，向政府建議能配合香港發展為國際醫學培訓、研究及創新樞紐的方案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793705-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793705-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793705-20250228.htm)
 
 ---

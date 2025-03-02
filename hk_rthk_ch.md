@@ -1,3 +1,24 @@
+# 葵涌貨櫃碼頭附近有貨車疑失控翻側　司機自行爬出車外
+
+一輛貨車下午近2時，沿葵涌貨櫃碼頭南路行駛，駛至迴旋處失控翻側。車斗貨物散落一地，司機沒有受傷，自行爬出車外。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm)
+
+---
+
 # 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
 
 ![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm)
-
----
-
-# 鄧炳強到啟德體育園視察　有信心開幕禮運作暢順
-
-![鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793796_1_20250301170229.jpg&q=75)
-  
-
-啟德體育園傍晚舉行開幕典禮，保安局局長鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。他說經過多次演練，有信心今晚的整體運作會暢順，至於公眾不應攜帶的物品，工作人員能夠有效率處理，經宣傳後一些不應攜帶的物品，已很少人攜帶。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm)
 
 ---
