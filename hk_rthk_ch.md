@@ -1,4 +1,52 @@
+# 楊何蓓茵：約2千人已轉文書助理職系　現剩百多名打字員
+
+公務員事務局局長楊何蓓茵表示，現時政府編制內只剩100多名「打字員」，由於部分政府資料輸入工作，涉及機密或敏感個人資料，不可以外判，需要由公務員負責，由打字員處理相關工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm)
+
+---
+
+# 美國海軍航母訪韓　特朗普第二任期內首次
+
+![「卡爾文森」號核動力航空母艦駛入釜山港。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793878_1_20250302154526.jpg&q=90)
+  
+
+南韓海軍表示，美國核動力航空母艦「卡爾文森」號駛入釜山作戰基地，是繼去年6月「羅斯福」號核動力航母後，再有美軍航母訪韓，亦是美國總統特朗普展開第二個任期以來首次。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm)
+
+---
+
 # 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
+
+![丘應樺說，特區政府將繼續堅定支持多邊貿易體系，希望未來有更多貿易展覽和大型活動在香港舉行。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
+  
 
 商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
 
@@ -44,6 +92,9 @@
 ---
 
 # 葵涌貨櫃碼頭附近有貨車疑失控翻側　司機自行爬出車外
+
+![意外後，司機沒有受傷，自行爬出車外。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793876_1_20250302161307.jpg&q=90)
+  
 
 一輛貨車下午近2時，沿葵涌貨櫃碼頭南路行駛，駛至迴旋處失控翻側。車斗貨物散落一地，司機沒有受傷，自行爬出車外。
 
@@ -1385,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm)
-
----
-
-# 馬克龍：歐盟將對美國鋼鐵和鋁徵收「對等關稅」
-
-![馬克龍（左）與葡萄牙總理蒙特內格羅舉行聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793800_1_20250301173251.jpg&q=90)
-  
-
-法國總統馬克龍在葡萄牙訪問期間表示，如果美國對歐洲進口商品徵收25%關稅，歐盟將對美國鋼鐵和鋁徵收「對等關稅」，對其他產品亦將不得不「採取回應措施」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm)
-
----
-
-# 李頌恩視察啟德體育園一帶交通　了解港鐵客流管理措施
-
-![運輸署署長李頌恩視察啟德體育園交通配套和部署。（運輸署社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793799_1_20250301172540.jpg&q=90)
-  
-
-運輸署緊急事故交通協調中心自下午起，已提升至最高級別的聯合督導模式運作，監察啟德體育園區一帶交通及公共運輸服務情況，整體交通至今大致暢順。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm)
 
 ---

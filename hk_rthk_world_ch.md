@@ -1,3 +1,27 @@
+# 美國海軍航母訪韓　特朗普第二任期內首次
+
+![「卡爾文森」號核動力航空母艦駛入釜山港。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793878_1_20250302154526.jpg&q=90)
+  
+
+南韓海軍表示，美國核動力航空母艦「卡爾文森」號駛入釜山作戰基地，是繼去年6月「羅斯福」號核動力航母後，再有美軍航母訪韓，亦是美國總統特朗普展開第二個任期以來首次。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm)
+
+---
+
 # 哈馬斯拒絕延長停火協議第一階段　以色列暫停物資進入加沙地帶
 
 ![在加沙地帶拉法一處建築物廢墟，一批巴勒斯坦人參加齋戒月祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793877_1_20250302152852.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm)
-
----
-
-# 財政預算案2025｜羅淑佩稱留意有報道指國際歌星或到鄰近城市
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793659_1_20250228162014.jpg&q=80)
-  
-
-啟德體育園開幕典禮明晚6時半在啟德主場館舉行，文化體育及旅遊局局長羅淑佩表示，屆時會有簡單隆重的儀式，容許新聞界進行拍攝及剪輯成不多於3分鐘播出。至於開幕典禮則以轉播安排，希望以最美麗、宏偉及一氣呵成的角度播映給市民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793659-20250228.htm)
 
 ---

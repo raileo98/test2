@@ -1,4 +1,28 @@
+# 楊何蓓茵：約2千人已轉文書助理職系　現剩百多名打字員
+
+公務員事務局局長楊何蓓茵表示，現時政府編制內只剩100多名「打字員」，由於部分政府資料輸入工作，涉及機密或敏感個人資料，不可以外判，需要由公務員負責，由打字員處理相關工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm)
+
+---
+
 # 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
+
+![丘應樺說，特區政府將繼續堅定支持多邊貿易體系，希望未來有更多貿易展覽和大型活動在香港舉行。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
+  
 
 商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
 
@@ -20,6 +44,9 @@
 ---
 
 # 葵涌貨櫃碼頭附近有貨車疑失控翻側　司機自行爬出車外
+
+![意外後，司機沒有受傷，自行爬出車外。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793876_1_20250302161307.jpg&q=90)
+  
 
 一輛貨車下午近2時，沿葵涌貨櫃碼頭南路行駛，駛至迴旋處失控翻側。車斗貨物散落一地，司機沒有受傷，自行爬出車外。
 
@@ -1412,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm)
-
----
-
-# 洪水橋厦村及元朗南新發展區智慧綠色集體運輸項目接27份意向書
-
-![陳美寶形容反應踴躍，令人鼓舞。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793707_1_20250228203754.jpg&q=90)
-  
-
-政府就洪水橋/厦村及元朗南新發展區智慧綠色集體運輸系統項目，收到27份來自本地、內地及海外公司相關系統供應商及營運商意向書。運輸及物流局局長陳美寶形容反應踴躍，令人鼓舞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793707-20250228.htm)
 
 ---

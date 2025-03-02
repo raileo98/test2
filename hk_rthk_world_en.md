@@ -1,3 +1,27 @@
+# Israel suspends entry of supplies into Gaza
+
+![Israel is stopping the entry of goods and supplies into Gaza and warned of “additional consequences” if Hamas does not accept new ceasefire proposals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793880_1_20250302160735.jpg&q=80)
+  
+
+Hamas on Sunday slammed Israel's suspension of supplies and aid entering Gaza, describing it as a "war crime" and a violation of the ceasefire agreement.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm)
+
+---
+
 # Singer Angie Stone dies in car crash
 
 ![Stone, a native of South Carolina, was a member of female hip-hop trio The Sequence. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793852_1_20250302083135.jpg&q=80)
@@ -1411,29 +1435,5 @@ Vice Premier He Lifeng expressed concerns over US tariffs and trade restrictions
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm)
-
----
-
-# Pope reaches one-week mark in hospital for pneumonia
-
-![A bird sits on the statue of the late Pope John Paul II outside Gemelli Hospital, where Pope Francis continues treatment for a respiratory tract infection. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792640_1_20250221171223.jpg&q=90)
-  
-
-Pope Francis spent another night without incident, the Vatican said on Friday, marking a week in the hospital for the 88-year-old pontiff suffering from pneumonia in both lungs.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm)
 
 ---

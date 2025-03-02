@@ -1,3 +1,27 @@
+# Israel suspends entry of supplies into Gaza
+
+![Israel is stopping the entry of goods and supplies into Gaza and warned of “additional consequences” if Hamas does not accept new ceasefire proposals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793880_1_20250302160735.jpg&q=80)
+  
+
+Hamas on Sunday slammed Israel's suspension of supplies and aid entering Gaza, describing it as a "war crime" and a violation of the ceasefire agreement.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm)
+
+---
+
 # Ethiopia dominates Tokyo Marathon
 
 ![Ethiopia's Tadese Takele finishes in first place to win the men's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_1_20250302145335.jpg&q=80)
@@ -1413,29 +1437,5 @@ US President Donald Trump said on Thursday he would impose an added 10 percent t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm)
-
----
-
-# US slashes foreign development aid by more than 90pc
-
-![The Trump administration's review in part targeted multi-year foreign assistance contracts awarded by the US Agency for International Development (USAID). File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793539_1_20250227201224.jpg&q=85)
-  
-
-The United States has slashed its multi-year aid contracts by 92 percent, as it sought around US$60 billion in savings in development and overseas humanitarian programmes, the State Department said on Wednesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm)
 
 ---
