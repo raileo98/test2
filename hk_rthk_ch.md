@@ -1,3 +1,27 @@
+# 梵蒂岡：教宗方濟各周日病情穩定　毋須用呼吸機
+
+![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793913_1_20250303023405.jpg&q=90)
+  
+
+梵蒂岡表示，教宗方濟各星期日的病情全日穩定，不再需要用呼吸機，只是要高流量氧氣，亦沒有發燒。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm)
+
+---
+
 # 美方否認故意激怒澤連斯基　不清楚對方是否為和平做好準備
 
 ![沃爾茲說，美方需要一位能夠與美俄打交道，並結束戰爭的領導人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793912_1_20250303012133.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793837-20250302.htm)
-
----
-
-# 哈馬斯：戰後加沙管理由巴人決定　埃及稱加沙屬巴方不可分割領土
-
-![哈馬斯說，戰後加沙的管理必須由巴勒斯坦人自主決定。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793836_1_20250302002459.jpg&q=35)
-  
-
-阿拉伯國家緊急峰會將於星期二在埃及開羅舉行，討論巴勒斯坦問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm)
 
 ---

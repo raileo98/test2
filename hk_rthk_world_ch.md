@@ -1,3 +1,27 @@
+# 梵蒂岡：教宗方濟各周日病情穩定　毋須用呼吸機
+
+![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793913_1_20250303023405.jpg&q=90)
+  
+
+梵蒂岡表示，教宗方濟各星期日的病情全日穩定，不再需要用呼吸機，只是要高流量氧氣，亦沒有發燒。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm)
+
+---
+
 # 美方否認故意激怒澤連斯基　不清楚對方是否為和平做好準備
 
 ![沃爾茲說，美方需要一位能夠與美俄打交道，並結束戰爭的領導人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793912_1_20250303012133.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm)
-
----
-
-# 希臘最嚴重火車意外兩周年　全國多處有民眾上街為死者伸張正義
-
-![雅典示威者在議會大樓前與警方衝突，警方發射催淚彈驅散。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793708_1_20250228202321.jpg&q=50)
-  
-
-希臘歷來最嚴重火車相撞事故兩周年，全國各地有大批民眾上街，其中首都雅典的示威演變成警民衝突。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793708-20250228.htm)
 
 ---
