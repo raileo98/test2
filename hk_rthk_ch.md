@@ -1,3 +1,27 @@
+# 美方否認故意激怒澤連斯基　不清楚對方是否為和平做好準備
+
+![沃爾茲說，美方需要一位能夠與美俄打交道，並結束戰爭的領導人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793912_1_20250303012133.jpg&q=90)
+  
+
+白宮國家安全顧問沃爾茲表示，美國需要一位願意與美俄達成協議並結束戰爭的烏克蘭領導人，但不清楚烏克蘭總統澤連斯基是否已經為和平做好準備。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793912-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793912-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793912-20250303.htm)
+
+---
+
 # 美商務部長稱對墨加關稅稅率仍有待特朗普決定
 
 ![盧特尼克說，除非中國停止向美國販運芬太尼，否則特朗普預計上調對華關稅到兩成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793911_1_20250303002627.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm)
-
----
-
-# 澤連斯基：與美國對話艱難　冀美國更堅定站在烏克蘭一邊
-
-![澤連斯基在白宮與特朗普會談期間多次爭吵，最終不歡而散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793835_1_20250301235343.jpg&q=85)
-  
-
-與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，由華盛頓轉抵倫敦，將會與英國首相施紀賢會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm)
 
 ---
