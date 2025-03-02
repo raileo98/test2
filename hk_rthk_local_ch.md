@@ -1,3 +1,27 @@
+# 鄧炳強率青少年制服團隊領袖論壇成員參與澳門研學行程
+
+![研學團早前考察順德區無人機指揮調度中心，亦到訪當地智能製造科技園、創新研發中心和生產企業。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793888_1_20250302180100.jpg&q=45)
+  
+
+保安局局長鄧炳強率領「保安局青少年制服團隊領袖論壇」成員參與大灣區研學團在澳門的行程，完成三日兩夜認識國家歷史文化和不同領域發展的考察。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm)
+
+---
+
 # 調查：逾半受職場性騷擾女性沒處理問題　不足一半企業訂立指引
 
 ![調查發現，超過3成受訪女性表示，過去3年曾受職場性騷擾。（民建聯提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793884_1_20250302170158.jpg&q=70)
@@ -1417,30 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793716-20250228.htm)
-
----
-
-# 海關檢獲市值約85萬元懷疑冒牌藥物拘4人
-
-![海關檢獲約14000懷疑冒牌藥物，估計市值約85萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793715_3_20250228213357.jpg&q=80)
-![海關人員採取執法行動，突擊搜查三間位於大埔、銅鑼灣和佐敦的藥店。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793715_2_20250228213357.jpg&q=75)
-  
-
-海關在大埔、銅鑼灣和佐敦打擊售賣冒牌藥物，檢獲約14000懷疑冒牌藥物，估計市值約85萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm)
 
 ---

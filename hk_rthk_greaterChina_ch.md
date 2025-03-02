@@ -1,3 +1,27 @@
+# 鄧炳強率青少年制服團隊領袖論壇成員參與澳門研學行程
+
+![研學團早前考察順德區無人機指揮調度中心，亦到訪當地智能製造科技園、創新研發中心和生產企業。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793888_1_20250302180100.jpg&q=45)
+  
+
+保安局局長鄧炳強率領「保安局青少年制服團隊領袖論壇」成員參與大灣區研學團在澳門的行程，完成三日兩夜認識國家歷史文化和不同領域發展的考察。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm)
+
+---
+
 # 謝鋒：中美長期和平共存既是責任也是必須
 
 ![謝鋒在「杜克-北卡中國領導力峰會」上發表視像致辭。（中國駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793886_1_20250302171051.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793253-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波冀用者自付原則收回離境設施部分開支
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793305_1_20250226163059.jpg&q=90)
-  
-
-財政司司長陳茂波表示，政府財政要節流開源，節流方面要考慮和顧及本港競爭力，因本港招商引才，在開新種稅或加稅率時要小心考慮，避免影響競爭力，同時要盡可能減少對市民影響，但過程中有時難以避免，預算案提出研究向由陸路邊境管制站離境的私家車徵收邊境建設費，希望能朝著用者自付原則收回部分開支，有關建議會由相關政策局研究。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm)
 
 ---
