@@ -1,3 +1,27 @@
+# 韓媒：韓中日就本月22日在東京舉行外長會進行最終協調
+
+![對上一次中日韓外長會是2023年11月在南韓釜山舉行。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793883_1_20250302163004.jpg&q=90)
+  
+
+韓聯社引述外交消息報道，南韓、中國及日本的外交部門正就本月22日在東京舉行外長會的方案進行最終協調。若果成事，將是繼2023年11月在釜山後再次舉行三國外長會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm)
+
+---
+
 # 六旬男子被困將軍澳山坡兩日獲救　手部受傷送院治理
 
 一名約68歲男子在將軍澳被困一處山坡兩日後獲救。
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm)
-
----
-
-# 觀眾接受安檢進入啟德體育園主場館　有人攜帶水樽被收走
-
-![市民陸續經安檢後入場。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793802_1_20250301174455.jpg&q=60)
-  
-
-啟德體育園傍晚6時半舉行開幕禮，觀眾陸續入場，近5時人流越來越多，場地設有不少安檢櫃台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm)
 
 ---

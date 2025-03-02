@@ -1,3 +1,27 @@
+# 韓媒：韓中日就本月22日在東京舉行外長會進行最終協調
+
+![對上一次中日韓外長會是2023年11月在南韓釜山舉行。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793883_1_20250302163004.jpg&q=90)
+  
+
+韓聯社引述外交消息報道，南韓、中國及日本的外交部門正就本月22日在東京舉行外長會的方案進行最終協調。若果成事，將是繼2023年11月在釜山後再次舉行三國外長會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm)
+
+---
+
 # 美國海軍航母訪韓　特朗普第二任期內首次
 
 ![「卡爾文森」號核動力航空母艦駛入釜山港。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793878_1_20250302154526.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm)
-
----
-
-# 外交部堅決反對美方加徵關稅　促糾正錯誤回到磋商正確軌道
-
-![林劍強調，中方一再聲明，貿易戰和關稅戰沒有贏家。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793660_1_20250228154851.jpg&q=90)
-  
-
-中方強烈不滿和堅決反對美方再次以芬太尼問題為藉口，威脅對中國輸美產品額外加徵一成關稅，將採取一切必要措施，堅定維護自身的正當利益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm)
 
 ---
