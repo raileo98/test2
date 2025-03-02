@@ -1,3 +1,51 @@
+# Trump orders trade investigation into lumber
+
+![The probe also covers derivative products made from lumber which could include furniture such as kitchen cabinets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793855_1_20250302091515.jpg&q=50)
+  
+
+US President Donald Trump on Saturday ordered a new trade investigation that could heap more tariffs on imported lumber, adding to existing duties on Canadian softwood lumber and 25 percent tariffs on all Canadian and Mexican goods due next week.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm)
+
+---
+
+# CK Infrastructure 'considers bid for UK's Viridor'
+
+![Viridor is a British waste management firm. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793853_1_20250302084204.jpg&q=85)
+  
+
+CK Infrastructure Holdings is considering a bid for KKR-backed British waste management firm Viridor, Bloomberg News reported on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm)
+
+---
+
 # China's factory activity grows in February
 
 ![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=20)
@@ -1387,53 +1435,5 @@ Japanese auto giants Honda and Nissan on Thursday confirmed they had scrapped me
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791472-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791472-20250213.htm)
-
----
-
-# Dow, S&P 500 fall on higher US inflation data
-
-![Besides inflation, markets have also been on edge over President Trump's tariff plans. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791411_1_20250213062542.jpg&q=85)
-  
-
-Wall Street stocks mostly fell on Wednesday following US inflation data that further clouded the prospects for additional Federal Reserve interest rate cuts.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791411-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791411-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791411-20250213.htm)
-
----
-
-# Hong Kong stocks close higher
-
-![The Hang Seng Index finished up 2.6 percent at 21,857. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791347_1_20250212170346.jpg&q=60)
-  
-
-Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index up 2.6 percent at 21,857.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791347-20250212.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791347-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791347-20250212.htm)
 
 ---

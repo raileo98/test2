@@ -1,3 +1,24 @@
+# 財政預算案2025｜楊何蓓茵：與公務員開會後大都理解凍薪決定
+
+公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部份人都表示理解全體公務員凍薪的決定，有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm)
+
+---
+
 # 啟德體育園開幕典禮舉行　本港與內地歌手和體壇名將參與
 
 ![開幕典禮上，內地與香港運動員代表合唱歌曲。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793846_1_20250302051453.jpg&q=90)
@@ -266,7 +287,6 @@
 
 # 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
 
-![啟德體育園舉行開幕典禮。（李家超社交網頁)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_1_20250301202436.jpg&q=80)
 ![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=85)
 ![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
   
@@ -1418,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793693-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793693-20250228.htm)
-
----
-
-# 黎智英稱國安法生效後不會做違法行為　控方質疑被告「作口供」
-
-![被告黎智英繼續出庭自辯。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793690_1_20250228182359.jpg&q=80)
-  
-
-壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立，被告黎智英繼續出庭自辯。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793690-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793690-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793690-20250228.htm)
 
 ---

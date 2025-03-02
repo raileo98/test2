@@ -194,7 +194,6 @@
 
 # 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
 
-![啟德體育園舉行開幕典禮。（李家超社交網頁)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_1_20250301202436.jpg&q=80)
 ![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=85)
 ![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
   

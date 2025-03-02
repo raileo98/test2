@@ -1,3 +1,75 @@
+# Trump orders trade investigation into lumber
+
+![The probe also covers derivative products made from lumber which could include furniture such as kitchen cabinets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793855_1_20250302091515.jpg&q=50)
+  
+
+US President Donald Trump on Saturday ordered a new trade investigation that could heap more tariffs on imported lumber, adding to existing duties on Canadian softwood lumber and 25 percent tariffs on all Canadian and Mexican goods due next week.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm)
+
+---
+
+# CK Infrastructure 'considers bid for UK's Viridor'
+
+![Viridor is a British waste management firm. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793853_1_20250302084204.jpg&q=85)
+  
+
+CK Infrastructure Holdings is considering a bid for KKR-backed British waste management firm Viridor, Bloomberg News reported on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm)
+
+---
+
+# Singer Angie Stone dies in car crash
+
+![Stone, a native of South Carolina, was a member of female hip-hop trio The Sequence. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793852_1_20250302083135.jpg&q=80)
+  
+
+American singer Angie Stone, who was nominated for three Grammy Awards, died at 63 early on Saturday, a representative confirmed.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm)
+
+---
+
 # Man City beat giant killers Plymouth in FA Cup
 
 ![Manchester City's English midfielder Nico O'Reilly celebrates scoring the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793851_1_20250302075410.jpg&q=90)
@@ -1364,77 +1436,5 @@ Labour and welfare chief Chris Sun on Thursday said it will take time for the au
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm)
-
----
-
-# 40 Chinese nationals repatriated from Thailand
-
-![A group of Chinese nationals who was repatriated from Thailand reunites with their families. Photo: CCTV Weibo](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793533_1_20250227191335.jpg&q=90)
-  
-
-Forty Chinese nationals involved in illegal immigration were repatriated from Thailand on Thursday in a coordinated effort to combat cross-border crime and safeguard the legitimate rights of Chinese citizens, according to Ministry of Public Security.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm)
-
----
-
-# Lam Cheuk-ting, six others jailed over Yuen Long riot
-
-![The District Court jailed former lawmaker Lam Cheuk-ting and six others for rioting in Yuen Long in 2019. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793502_1_20250227171029.jpg&q=40)
-  
-
-Former lawmaker Lam Cheuk-ting and six others were on Thursday sentenced to between 25 and 37 months behind bars each, after earlier being found guilty of rioting in Yuen Long in 2019.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm)
-
----
-
-# Never a good time to scrap student grant: minister
-
-![Christine Choi cites the current financial situation for scrapping the HK$2,500 student grant. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793521_1_20250227180846.jpg&q=80)
-  
-
-Education Secretary Christine Choi on Thursday said there is "never a good time" to scrap the HK$2,500 student grant but the current financial situation makes it necessary.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm)
 
 ---

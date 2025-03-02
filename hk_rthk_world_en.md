@@ -1,3 +1,27 @@
+# Singer Angie Stone dies in car crash
+
+![Stone, a native of South Carolina, was a member of female hip-hop trio The Sequence. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793852_1_20250302083135.jpg&q=80)
+  
+
+American singer Angie Stone, who was nominated for three Grammy Awards, died at 63 early on Saturday, a representative confirmed.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm)
+
+---
+
 # Zelensky gets warm welcome in UK after Trump clash
 
 ![UK Prime Minister Keir Starmer meets Ukraine's President Volodymyr Zelensky in Downing Street. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793850_1_20250302074020.jpg&q=90)
@@ -1411,29 +1435,5 @@ Pope Francis spent another night without incident, the Vatican said on Friday, m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792640-20250221.htm)
-
----
-
-# Israel slams Hamas for not returning body of hostage
-
-![Israel condemned Hamas over the return of the hostages' remains, accusing the militant group of swapping the body of hostage Shiri Bibas for a Palestinian woman. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792628_1_20250221161509.jpg&q=25)
-  
-
-Israeli Prime Minister Benjamin Netanyahu accused Hamas on Friday of committing a "cruel and evil" violation of the Gaza ceasefire deal by failing to return the body of hostage Shiri Bibas.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792628-20250221.htm)
 
 ---

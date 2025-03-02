@@ -1,3 +1,24 @@
+# 財政預算案2025｜楊何蓓茵：與公務員開會後大都理解凍薪決定
+
+公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部份人都表示理解全體公務員凍薪的決定，有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm)
+
+---
+
 # 陳茂波：啟德體育園大大提升香港舉辦盛事容量和吸引力
 
 ![陳茂波說政府將繼續舉辦各類型大型體育、娛樂和文化盛事。（陳茂波社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793831_1_20250301230859.jpg&q=85)
@@ -24,7 +45,6 @@
 
 # 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
 
-![啟德體育園舉行開幕典禮。（李家超社交網頁)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_1_20250301202436.jpg&q=80)
 ![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=85)
 ![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
   
@@ -1414,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793654-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793654-20250228.htm)
-
----
-
-# 工貿署署長訪問印尼與東盟官員會面　推動香港加入RCEP
-
-![工業貿易署署長廖廣翔訪問印尼雅加達。（商經局社交網站圖片 ）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793652_1_20250228161159.jpg&q=85)
-  
-
-工業貿易署署長廖廣翔訪問印尼，與東盟官員會面，推動香港加入《區域全面經濟伙伴關係協定》(RCEP)。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
 
 ---

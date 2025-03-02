@@ -1,3 +1,24 @@
+# 財政預算案2025｜楊何蓓茵：與公務員開會後大都理解凍薪決定
+
+公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部份人都表示理解全體公務員凍薪的決定，有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm)
+
+---
+
 # 哈馬斯拒延長停火協議第一階段　以色列接納在齋戒月和逾越節停火
 
 ![以色列表示，將採納在齋戒月和逾越節在加沙暫時停火的建議。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793849_1_20250302065157.jpg&q=5)
@@ -626,7 +647,6 @@
 
 # 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
 
-![啟德體育園舉行開幕典禮。（李家超社交網頁)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_1_20250301202436.jpg&q=80)
 ![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=85)
 ![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
   
@@ -1417,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm)
-
----
-
-# 司機即日起可透過流動設備遙控泊車　陳美寶：更貼近用家需要
-
-![修訂包括擴闊可在快速公路上使用的電動車輛種類，讓電動商用車輛可以無需申請快速公路許可證，直接在快速公路上行駛。（陳美寶網誌圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793769_1_20250301113400.jpg&q=90)
-  
-
-駕駛獲運輸署批准使用遙控泊車系統的車輛即日起，司機可以在車外使用手機或汽車匙扣等流動設備，遙距控制車輛停泊及駛出。若遇到較窄車位，司機就可以先行下車再遙控泊車，整個過程中，司機必須站在車外附近，全程控制及監控。至於保險安排，運輸及物流局局長陳美寶說，如運輸署批准使用有關系統，保險業界一般亦會接受。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793769-20250301.htm)
 
 ---
