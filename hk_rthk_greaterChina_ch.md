@@ -1,3 +1,27 @@
+# 謝鋒：中美長期和平共存既是責任也是必須
+
+![謝鋒在「杜克-北卡中國領導力峰會」上發表視像致辭。（中美駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793886_1_20250302171051.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須，希望美方同中方相向而行，落實好兩國元首通話達成的重要共識，本著相互尊重、和平共處、合作共贏的原則，保持溝通、管控分歧、拓展合作，推動中美關係穩定、健康、可持續發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm)
+
+---
+
 # 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
 
 ![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793305-20250226.htm)
-
----
-
-# 財政預算案2025｜入境修訂規例已刊憲由今早11時起生效
-
-![各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793304_1_20250226165450.jpg&q=80)
-  
-
-新一份財政預算案公布，各項吸引人才與資本投資者的入境計劃會增設申請費用，並按簽證/入境證逗留期限長短，上調獲批申請的簽發費，以反映成本及體現「用者自付」原則。政府為實施有關收費，《2025年入境（修訂）規例》已刊憲，並由今早11時起生效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm)
 
 ---

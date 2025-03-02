@@ -1,3 +1,27 @@
+# 謝鋒：中美長期和平共存既是責任也是必須
+
+![謝鋒在「杜克-北卡中國領導力峰會」上發表視像致辭。（中美駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793886_1_20250302171051.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須，希望美方同中方相向而行，落實好兩國元首通話達成的重要共識，本著相互尊重、和平共處、合作共贏的原則，保持溝通、管控分歧、拓展合作，推動中美關係穩定、健康、可持續發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm)
+
+---
+
 # 韓媒：韓中日就本月22日在東京舉行外長會進行最終協調
 
 ![對上一次中日韓外長會是2023年11月在南韓釜山舉行。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793883_1_20250302163004.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm)
-
----
-
-# 財政預算案2025｜丘應樺稱本港擬於吉隆坡及利雅得開設經貿辦
-
-![丘應樺表示，就擴展經貿網絡，當局正分別與馬來西亞及沙特阿拉伯政府商討。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793661_1_20250228162051.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺表示，就擴展經貿網絡，當局正分別與馬來西亞及沙特阿拉伯政府商討，在吉隆坡及利雅得開設經濟貿易辦事處，加強特區與中東及東盟貿易夥伴的聯繫。本港正與沙特阿拉伯、孟加拉國、埃及及秘魯探討簽訂投資協定，並積極爭取盡早加入區域全面經濟夥伴關係協定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm)
 
 ---
