@@ -1,3 +1,27 @@
+# 聯合國促防止加沙恢復敵對行動　籲讓人道物資進入加沙
+
+![衛星圖片顯示，大量貨車在埃及等待進入加沙。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793915_1_20250303033448.jpg&q=25)
+  
+
+聯合國秘書長古特雷斯透過發言人發表聲明，敦促所有各方盡一切努力，防止加沙恢復敵對行動。他又呼籲讓人道主義援助進入加沙地帶，並釋放所有被扣押人員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm)
+
+---
+
 # 歐洲領導人就烏克蘭危機達成四點共識　英揆不認為美國非可靠盟友
 
 ![施紀賢說，不認為美國是不可靠的盟友，但歐洲必須在任何和平協議中承擔重任。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793914_1_20250303031753.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793710-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793710-20250228.htm)
-
----
-
-# 日本政府和執政黨據報考慮上調國際離境稅
-
-![有關稅項會包括在離境的機票及船票價格內。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793711_1_20250228210007.jpg&q=90)
-  
-
-日本政府和執政自民黨據報正考慮上調國際離境稅，收益將會用於作為應對過度旅遊的措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793711-20250228.htm)
 
 ---
