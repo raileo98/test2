@@ -1,3 +1,27 @@
+# Private US spaceship lands on Moon
+
+![A US company successfully landed its spacecraft on the Moon on Sunday, marking only the second private mission to achieve the milestone. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793887_1_20250302174506.jpg&q=80)
+  
+
+Firefly Aerospace became the second US company to land on the moon on Sunday with its debut Blue Ghost lander, kicking off a two-week research mission as one of a handful of private firms to reach the frontlines of a global moon race.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm)
+
+---
+
 # Israel suspends entry of supplies into Gaza
 
 ![Israel is stopping the entry of goods and supplies into Gaza and warned of “additional consequences” if Hamas does not accept new ceasefire proposals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793880_1_20250302160735.jpg&q=80)
@@ -1413,29 +1437,5 @@ US President Donald Trump and British Prime Minister Keir Starmer met at the Whi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm)
-
----
-
-# China faces additional levy, says Trump
-
-![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=65)
-  
-
-US President Donald Trump said on Thursday he would impose an added 10 percent tariff on Chinese imports while moving ahead with levies on Canada and Mexico next week, citing "unacceptable" fentanyl smuggling.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm)
 
 ---

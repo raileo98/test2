@@ -1,3 +1,27 @@
+# Private US spaceship lands on Moon
+
+![A US company successfully landed its spacecraft on the Moon on Sunday, marking only the second private mission to achieve the milestone. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793887_1_20250302174506.jpg&q=80)
+  
+
+Firefly Aerospace became the second US company to land on the moon on Sunday with its debut Blue Ghost lander, kicking off a two-week research mission as one of a handful of private firms to reach the frontlines of a global moon race.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm)
+
+---
+
 # Israel suspends entry of supplies into Gaza
 
 ![Israel is stopping the entry of goods and supplies into Gaza and warned of “additional consequences” if Hamas does not accept new ceasefire proposals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793880_1_20250302160735.jpg&q=80)
@@ -1411,29 +1435,5 @@ The US Senate passed a budget blueprint early on Friday that steamrolled past De
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792688-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792688-20250221.htm)
-
----
-
-# Beijing voices concerns in call with US treasury chief
-
-![Vice Premier He Lifeng spoke to US Treasury Secretary Scott Bessent via video call on Friday. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792684_1_20250221215124.jpg&q=85)
-  
-
-Vice Premier He Lifeng expressed concerns over US tariffs and trade restrictions on China during a video call with US Treasury Secretary Scott Bessent on Friday, state media reported.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm)
 
 ---
