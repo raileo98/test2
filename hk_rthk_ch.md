@@ -1,3 +1,27 @@
+# 烏拉圭總統稱願與中方不斷深化兩國全面戰略夥伴關係
+
+![奧爾西在烏拉圭首都出席總統就職儀式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793923_1_20250303062345.jpg&q=75)
+  
+
+烏拉圭新任總統奧爾西會見以國家主席習近平特使身份，出席總統就職儀式的農業農村部部長韓俊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm)
+
+---
+
 # 地產代理：上周末10大二手屋苑成交量創多個星期低位
 
 ![地產代理表示，多個新盤同步推售搶去大量購買力，上周末10大二手指標屋苑成交量創多個星期低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793922_1_20250303061023.jpg&q=20)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm)
-
----
-
-# 埃爾多安警告若庫爾德工人黨不信守承諾將重啟軍事行動
-
-![埃爾多安說，如果庫爾德工人黨試圖欺騙或採取拖延戰術，就要承擔責任。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793845_1_20250302041650.jpg&q=85)
-  
-
-土耳其總統埃爾多安警告，如果庫爾德工人黨不信守承諾，土耳其將會重啟軍事行動並予以打擊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm)
 
 ---
