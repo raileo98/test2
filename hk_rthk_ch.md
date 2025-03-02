@@ -1,3 +1,51 @@
+# 美軍增派近3000名士兵赴美墨邊境堵截非法移民
+
+![美國軍方將向美墨邊境增派近3000名士兵，圖為國民警衛隊士兵巡邏後返航。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793873_1_20250302141503.jpg&q=50)
+  
+
+美國軍方將向美墨邊境增派近3000名士兵，堵截非法移民，令在南部邊境的現役人員總數達到約9000 人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm)
+
+---
+
+# 特朗普下令對進口木材展開貿易調查　或開徵新關稅
+
+![特朗普下令展開一項可能對進口木材開徵更多關稅的新貿易調查。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793872_1_20250302141700.jpg&q=75)
+  
+
+路透社報道，美國總統特朗普下令展開一項可能對進口木材開徵更多關稅的新貿易調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm)
+
+---
+
 # 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
 
 ![楊何蓓茵表示，公務員職位空缺和削減編制是兩回事。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793869_1_20250302124303.jpg&q=85)
@@ -1391,55 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm)
-
----
-
-# 專業服務協進支援計劃接受新一輪申請　機構可提交建議項目
-
-![商務及經濟發展局表示，專業服務協進支援計劃下的主計劃邀請新一輪撥款申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793794_1_20250301165517.jpg&q=80)
-  
-
-專業服務協進支援計劃下的主計劃邀請新一輪撥款申請，專業團體、工商組織及研究院所等非分配利潤機構可提交建議項目。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm)
-
----
-
-# 持票市民陸續進場準備觀賞啟德體育園開幕禮
-
-![持門票市民下午4時起進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_2_20250301164258.jpg&q=35)
-![鄧竟成表示，經過多次演練，園方人員、安保和警方等不同單位有工作默契，互相配合得不錯。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_1_20250301164258.jpg&q=85)
-![有市民期待在開幕禮觀賞到參與節目的國家乒乓球手樊振東。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_3_20250301164258.jpg&q=35)
-  
-
-啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式。預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm)
 
 ---

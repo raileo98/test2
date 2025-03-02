@@ -1,3 +1,51 @@
+# 美軍增派近3000名士兵赴美墨邊境堵截非法移民
+
+![美國軍方將向美墨邊境增派近3000名士兵，圖為國民警衛隊士兵巡邏後返航。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793873_1_20250302141503.jpg&q=50)
+  
+
+美國軍方將向美墨邊境增派近3000名士兵，堵截非法移民，令在南部邊境的現役人員總數達到約9000 人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm)
+
+---
+
+# 特朗普下令對進口木材展開貿易調查　或開徵新關稅
+
+![特朗普下令展開一項可能對進口木材開徵更多關稅的新貿易調查。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793872_1_20250302141700.jpg&q=75)
+  
+
+路透社報道，美國總統特朗普下令展開一項可能對進口木材開徵更多關稅的新貿易調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm)
+
+---
+
 # 特朗普簽署行政命令指定英語為官方語言
 
 ![在美國有警告牌同時使用英語和西班牙語。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793865_1_20250302113623.jpg&q=35)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
-
----
-
-# 俄媒稱紹伊古抵京　將與習近平及王毅會晤
-
-![俄羅斯傳媒報道，紹伊古抵達北京訪問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793644_1_20250228134637.jpg&q=90)
-  
-
-俄羅斯傳媒報道，俄羅斯聯邦安全會議秘書紹伊古抵達北京，將與中國國家主席習近平和外長王毅會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm)
-
----
-
-# 中方駁斥比利時媒體和國家安全部門散布涉華虛假信息
-
-![中國駐比利時使館駁斥比利時媒體和國家安全部門散布涉華虛假信息。（中國駐比利時使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793643_1_20250228134011.jpg&q=90)
-  
-
-中國駐比利時使館駁斥比利時有關媒體和國家安全部門散布所謂中國黑客和中國威脅的虛假信息，敦促比利時有關媒體和部門停止反華政治操弄，客觀看待中國和兩國關係發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm)
 
 ---
