@@ -1,3 +1,69 @@
+# 陳茂波：加快AI落地應用　邁向AI+賦能產業發展目標
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793889_1_20250302183615.jpg&q=70)
+  
+
+財政司司長陳茂波說，本港要加快人工智能落地應用，邁向「人工智能+」賦能產業發展的目標。另外，《財政預算案》提出研究對經由陸路邊境管制站離境私家車，徵收邊境建設費，陳茂波說，建議仍在設想階段，可以商量。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm)
+
+---
+
+# 全國兩會 | 唐英年：提案包括進一步優化一簽多行等內容
+
+全國政協十四屆三次會議周二在北京召開。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm)
+
+---
+
+# 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
+
+世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
+
+---
+
 # 鄧炳強率青少年制服團隊領袖論壇成員參與澳門研學行程
 
 ![研學團早前考察順德區無人機指揮調度中心，亦到訪當地智能製造科技園、創新研發中心和生產企業。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793888_1_20250302180100.jpg&q=45)
@@ -1367,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm)
-
----
-
-# 烏媒：澤連斯基已離開美國前往英國
-
-![澤連斯基周五到白宮與特朗普會面時，兩人激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793813_1_20250301191516.jpg&q=90)
-  
-
-新華社引述烏克蘭媒體報道，烏克蘭總統澤連斯基當地周五晚結束在美國訪問後已飛往英國，他將與英國首相施紀賢會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm)
-
----
-
-# 李家超稱懷興奮心情見證啟德體育園開幕典禮
-
-![李家超表示，香港又一次衝上雲霄，再創高峰。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_2_20250301195833.jpg&q=80)
-  
-
-啟德體育園晚上舉行開幕典禮，行政長官李家超主持開幕儀式，他致辭表示，與大家一樣懷著興奮和期待的心情，見證啟德體育園，作為一個世界級香港新地標的開幕典禮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm)
-
----
-
-# 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
-
-![啟德體育園開幕典禮在主場館舉行。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793809_1_20250301190945.jpg&q=70)
-  
-
-啟德體育園開幕典禮晚上約6時半在主場館舉行，多位主禮嘉賓出席，包括李家超伉儷、鄭雁雄伉儷，政務司司長陳國基及立法會主席梁君彥等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm)
 
 ---

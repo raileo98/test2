@@ -1,3 +1,48 @@
+# 陳茂波：加快AI落地應用　邁向AI+賦能產業發展目標
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793889_1_20250302183615.jpg&q=70)
+  
+
+財政司司長陳茂波說，本港要加快人工智能落地應用，邁向「人工智能+」賦能產業發展的目標。另外，《財政預算案》提出研究對經由陸路邊境管制站離境私家車，徵收邊境建設費，陳茂波說，建議仍在設想階段，可以商量。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm)
+
+---
+
+# 全國兩會 | 唐英年：提案包括進一步優化一簽多行等內容
+
+全國政協十四屆三次會議周二在北京召開。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm)
+
+---
+
 # 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
 
 世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
@@ -1390,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793725-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793725-20250228.htm)
-
----
-
-# 衞生防護中心檢視做法　盡早公布特殊傳染病個案臨床情況重要轉變
-
-![徐樂堅表示，這宗個案的調查、控制、預防，以及宣傳教育的工作上沒有任何延遲，但中心會再檢視現行做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793719_1_20250228212858.jpg&q=80)
-  
-
-一名37歲男子被野生猴子襲擊後確診猴疱疹病毒，是本港首宗病例。昨日出版的《傳染病直擊》，當局披露，病人已於去年6月不治。衞生防護中心說，留意到有意見認為，在病人病逝當日，中心可再度發布新聞稿向市民公布消息。中心會檢視現行做法，在切實可行的情況下，盡早公布特殊傳染病個案臨床情況的重要轉變。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793719-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793719-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793719-20250228.htm)
-
----
-
-# 李家超出席藝術節開幕禮　指香港全力發展為中外文化藝術交流中心
-
-![李家超說，在國家「十四五」規劃下，香港全力發展成為中外文化藝術交流中心。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793717_1_20250228212932.jpg&q=80)
-  
-
-行政長官李家超在香港藝術節開幕典禮致辭時說，在國家「十四五」規劃下，香港全力發展成為中外文化藝術交流中心。政府已公布《文藝創意產業發展藍圖》，通過產業導向推動藝術發展，亦在《香港旅遊業發展藍圖2.0》訂下了「文化+旅遊」作為重點發展方向之一。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793717-20250228.htm)
 
 ---
