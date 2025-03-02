@@ -1,3 +1,27 @@
+# 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
+
+![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
+  
+
+人民銀行、全國工商聯、金融監管總局、中國證監會、國家外匯局前日聯合召開金融支持民營企業高質量發展座談會。會議強調，各方要增強協同聯動，推動完善融資配套機制，下大氣力解決民營企業融資難、融資貴問題，共同營造更優的民營企業發展環境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm)
+
+---
+
 # 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
 
 ![楊何蓓茵表示，公務員職位空缺和削減編制是兩回事。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793869_1_20250302124303.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793661-20250228.htm)
-
----
-
-# 外交部堅決反對美方加徵關稅　促糾正錯誤回到磋商正確軌道
-
-![林劍強調，中方一再聲明，貿易戰和關稅戰沒有贏家。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793660_1_20250228154851.jpg&q=90)
-  
-
-中方強烈不滿和堅決反對美方再次以芬太尼問題為藉口，威脅對中國輸美產品額外加徵一成關稅，將採取一切必要措施，堅定維護自身的正當利益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm)
 
 ---

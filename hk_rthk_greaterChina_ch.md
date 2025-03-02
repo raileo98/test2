@@ -1,3 +1,27 @@
+# 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
+
+![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
+  
+
+人民銀行、全國工商聯、金融監管總局、中國證監會、國家外匯局前日聯合召開金融支持民營企業高質量發展座談會。會議強調，各方要增強協同聯動，推動完善融資配套機制，下大氣力解決民營企業融資難、融資貴問題，共同營造更優的民營企業發展環境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm)
+
+---
+
 # 東深供水工程60年對港供水3百億立方米　佔港淡水總用量近八成
 
 ![東江源頭護林員巡護山林時經過小溪，這裡的溪水將與其他水源匯成東江源頭。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793838_1_20250302011506.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793304-20250226.htm)
-
----
-
-# 財政預算案2025｜經民聯稱官員等帶頭減輕政府負擔屬應有之義
-
-![經民聯立法會議員林健鋒認為，本港面對赤字，官員、立法會和全體公務員帶頭減輕政府負擔，是應有之義，亦符合社會整體期望。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793301_1_20250226163637.jpg&q=90)
-  
-
-經民聯認為新一份財政預算案的措施，有助香港全速發展、改革創新和招商引財等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793301-20250226.htm)
 
 ---

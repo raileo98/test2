@@ -1,3 +1,27 @@
+# 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
+
+![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
+  
+
+人民銀行、全國工商聯、金融監管總局、中國證監會、國家外匯局前日聯合召開金融支持民營企業高質量發展座談會。會議強調，各方要增強協同聯動，推動完善融資配套機制，下大氣力解決民營企業融資難、融資貴問題，共同營造更優的民營企業發展環境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm)
+
+---
+
 # 美軍增派近3000名士兵赴美墨邊境堵截非法移民
 
 ![美國軍方將向美墨邊境增派近3000名士兵，圖為國民警衛隊士兵巡邏後返航。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793873_1_20250302141503.jpg&q=50)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm)
-
----
-
-# 有市民及旅客換票遲到　啟德體育園職員彈性處理
-
-![啟德體育園傍晚舉行開幕禮，持門票觀眾下午陸續進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_2_20250301172827.jpg&q=70)
-  
-
-啟德體育園傍晚舉行開幕禮，已購買電子門券的市民需於下午3時前到場換領實體票。有市民遲到，奔跑過來換票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm)
 
 ---

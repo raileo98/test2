@@ -1,3 +1,28 @@
+# Ethiopia dominates Tokyo Marathon
+
+![Ethiopia's Tadese Takele finishes in first place to win the men's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_1_20250302145335.jpg&q=80)
+![Ethiopia's Sutume Asefa Kebede finishes in first place to win the women's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_2_20250302145335.jpg&q=80)
+  
+
+Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both the men's and women's categories.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm)
+
+---
+
 # 'Most civil servants understand need for pay freeze'
 
 ![Civil Service Secretary Ingrid Yeung said the move would not affect morale. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793871_1_20250302125453.jpg&q=85)
@@ -1412,29 +1437,5 @@ The United States has slashed its multi-year aid contracts by 92 percent, as it 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm)
-
----
-
-# EU 'wasn't formed to screw anyone', says Polish PM
-
-![Donald Tusk says the EU was formed to maintain peace and create free and fair trade, and "wasn’t formed to screw anyone". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793547_2_20250227221517.jpg&q=85)
-  
-
-The European Union on Thursday pushed back against allegations by US President Donald Trump that the 27-nation bloc was out to get the United States, and warned that it would fight any wholesale tariff of 25 percent on all EU products.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm)
 
 ---
