@@ -1,3 +1,27 @@
+# 以總理：若與哈馬斯談判無效　將重返加沙作戰
+
+![內塔尼亞胡說，如果哈馬斯不釋放更多人質，將會有進一步後果。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793910_1_20250303001058.jpg&q=85)
+  
+
+以色列總理內塔尼亞胡表示，以色列與美國協調後，提出把與巴勒斯坦武裝組織哈馬斯的停火協議第一階段再延長50日，如果哈馬斯同意，以色列將立即開始談判，但如果確信談判無效，以色列就會重返加沙作戰，如果哈馬斯不釋放更多人質，將會有進一步後果。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm)
+
+---
+
 # 俄外長：有歐洲國家想俄烏衝突延續　派維和部隊意味危機根源不除
 
 ![拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793909_1_20250302234729.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm)
-
----
-
-# 陳美寶：公共交通營運商全面提升運力　觀眾往返啟德體育園順利
-
-![陳美寶表示，觀眾往返啟德體育園十分順利。（運輸及物流局網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793833_1_20250301231102.jpg&q=80)
-  
-
-啟德體育園晚上舉行開幕典禮，運輸及物流局局長陳美寶表示，回想一百年前啟德首次成功試飛雙翼機，標誌香港航空歷史的起點，對於能夠與數萬名觀眾一同見證啟德機場搖身一變，成為本港最大型的體育園區，感到非常興奮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm)
 
 ---

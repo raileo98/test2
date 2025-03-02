@@ -1,3 +1,27 @@
+# 以總理：若與哈馬斯談判無效　將重返加沙作戰
+
+![內塔尼亞胡說，如果哈馬斯不釋放更多人質，將會有進一步後果。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793910_1_20250303001058.jpg&q=85)
+  
+
+以色列總理內塔尼亞胡表示，以色列與美國協調後，提出把與巴勒斯坦武裝組織哈馬斯的停火協議第一階段再延長50日，如果哈馬斯同意，以色列將立即開始談判，但如果確信談判無效，以色列就會重返加沙作戰，如果哈馬斯不釋放更多人質，將會有進一步後果。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm)
+
+---
+
 # 俄外長：有歐洲國家想俄烏衝突延續　派維和部隊意味危機根源不除
 
 ![拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793909_1_20250302234729.jpg&q=90)
@@ -1411,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm)
-
----
-
-# 胡英明率團訪沙特及阿聯酋　加強與中東反貪領域聯繫
-
-![胡英明到訪阿拉伯聯合酋長國問責局與主席會面，並簽訂合作諒解備忘錄，深化反貪合作。（廉署提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793686_1_20250228183711.jpg&q=80)
-![胡英明率領代表團訪問沙特阿拉伯和阿聯酋，加強香港與中東地區在反貪領域的聯繫。（廉署提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793686_2_20250228183711.jpg&q=70)
-  
-
-廉政專員胡英明率領代表團訪問沙特阿拉伯和阿聯酋，加強香港與中東地區在反貪領域的聯繫。胡英明亦以國際反貪局聯合會主席身份，在雙邊會議期間，與作為聯合會執行委員會委員的沙特監察與反腐敗署署長探討加快推進與廉署的合作項目。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793686-20250228.htm)
 
 ---
