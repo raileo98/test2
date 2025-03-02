@@ -1,3 +1,48 @@
+# 財政預算案2025｜楊何蓓茵：部分私人市場或會參考公務員薪調
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793858_1_20250302103032.jpg&q=85)
+  
+
+公務員事務局局長楊何蓓茵表示，受政府資助的機構，政府每年撥發的補助金都涵蓋一個公務員薪酬調整的「因子」，隨著今年公務員凍薪，相關「因子」也不會調整。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm)
+
+---
+
+# 財政預算案2025｜孫東冀人工智能研發院助將香港打造成數據港
+
+新一份《財政預算案》提出將人工智能發展為關鍵產業，創新科技及工業局局長孫東相信，人工智能將改變和重塑人類生活，特區政府在面臨公共財政挑戰下，仍然下決心推出舉措，反映當局對於未來高質量發展的責任和擔當。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm)
+
+---
+
 # 財政預算案2025｜楊何蓓茵：與公務員開會　大都理解凍薪決定
 
 ![楊何蓓茵表示，早前和公務員開會後，大部分人都表示理解全體公務員凍薪的決定。 （陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793854_1_20250302093308.jpg&q=85)
@@ -1389,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793655-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793655-20250228.htm)
-
----
-
-# 羅淑佩：啟德體育園開幕禮將為「盛匯超級三月」打響頭炮
-
-![啟德體育園開幕典禮明日傍晚6時半在啟德主場館舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793656_1_20250228161946.jpg&q=70)
-  
-
-文化體育及旅遊局局長羅淑佩表示，去年本港旅遊業繼續復蘇，訪港旅客人次穩步增長，中央政府推出多項惠港措施，亦令本港自從去年年底開始，整體市面人流暢旺，在剛過去的聖誕新年和農曆新年期間，零售、餐飲等行業都反映生意額是錄得增長。她期望今年可以迎來4900萬人次訪港旅客，相比去年增加約一成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm)
-
----
-
-# 日股低收近3%　晶片股向下
-
-![日經平均指數收市報37155點，跌1100點，跌幅2.88%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793654_1_20250228144505.jpg&q=85)
-  
-
-日本股市跌近3%收市，受晶片股下跌拖累。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793654-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793654-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793654-20250228.htm)
 
 ---

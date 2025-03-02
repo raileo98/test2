@@ -1,3 +1,93 @@
+# 財政預算案2025 | 謝展寰：第二季報告供冷系統檢視結果
+
+財政預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。環境及生態局局長謝展寰表示，現時除了使用中的啓德區域供冷系統，東涌和古洞北新發展區的區域供冷系統正在建設中，而洪水橋／厦村和新田科技城新發展區的區域供冷系統的工程則還是在初始或規劃階段。特別是洪水橋／厦村和新田科技城的區域供冷系統，按現時規劃將會是香港最大規模的區域供冷系統，政府工程費用達到數百億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm)
+
+---
+
+# 日本岩手縣山火持續　火場面積擴大至約1800公頃
+
+![日本消防部門出動直升機協助撲救山火。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793859_1_20250302102327.jpg&q=90)
+  
+
+日本岩手縣的山火已經持續燃燒4日，火場面積擴大至約1800公頃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm)
+
+---
+
+# 財政預算案2025｜楊何蓓茵：部分私人市場或會參考公務員薪調
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793858_1_20250302103032.jpg&q=85)
+  
+
+公務員事務局局長楊何蓓茵表示，受政府資助的機構，政府每年撥發的補助金都涵蓋一個公務員薪酬調整的「因子」，隨著今年公務員凍薪，相關「因子」也不會調整。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm)
+
+---
+
+# 財政預算案2025｜孫東冀人工智能研發院助將香港打造成數據港
+
+新一份《財政預算案》提出將人工智能發展為關鍵產業，創新科技及工業局局長孫東相信，人工智能將改變和重塑人類生活，特區政府在面臨公共財政挑戰下，仍然下決心推出舉措，反映當局對於未來高質量發展的責任和擔當。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm)
+
+---
+
 # 普京接見北韓訪問團　稱感謝北韓積極支持俄羅斯
 
 ![普京在克宮接見北韓勞動黨中央委員會政治局委員李熙用。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793856_1_20250302094653.jpg&q=90)
@@ -1344,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm)
-
----
-
-# 財政預算案2025｜孫玉菡稱會與社福機構商討資源運用拆牆鬆綁
-
-![孫玉菡表示，現有向社福機構提供的400多億元資助需要削減。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793780_1_20250301123735.jpg&q=80)
-  
-
-政府下星期一與社福機構開會，商討應對削減整筆撥款下，有無空間在資源運用上「拆牆鬆綁」，勞工及福利局局長孫玉菡表示，有空間調整機構提交服務協議書的安排。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波︰當局會持續造地　何時推出會有彈性
-
-![陳茂波說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793779_1_20250301123807.jpg&q=70)
-  
-
-財政司司長陳茂波再度回應不希望過分依賴地價收入時表示，過往當地價及樓價飆升，市民有很大壓力，因此不希望大家的住屋好似過往一樣供不應求時昂貴，但當局會持續造地，何時推出會有彈性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm)
-
----
-
-# 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
-
-![劉佩瓊說修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793778_1_20250301123915.jpg&q=55)
-  
-
-全國人大會議下周三開幕，議程包括審議有關人大代表法的修正草案，新增規定人大代表參加各項履職活動，出席會議前應聽取群眾意見和建議；同時提出為人大代表提供便利，加強履職。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：凍薪規模前所未有　顯示共同承擔
-
-![公務員事務局昨日下午在政府總部舉行簡介會。（楊何蓓茵社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793777_1_20250301123939.jpg&q=90)
-  
-
-公務員事務局局長楊何蓓茵在社交網頁表示，預算案明確指出香港經濟高質量發展之路，有不少措施與公務員、公共財政有關，公務員事務局昨日下午在政府總部舉行簡介會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm)
 
 ---

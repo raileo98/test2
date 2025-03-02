@@ -1,3 +1,69 @@
+# 財政預算案2025 | 謝展寰：第二季報告供冷系統檢視結果
+
+財政預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。環境及生態局局長謝展寰表示，現時除了使用中的啓德區域供冷系統，東涌和古洞北新發展區的區域供冷系統正在建設中，而洪水橋／厦村和新田科技城新發展區的區域供冷系統的工程則還是在初始或規劃階段。特別是洪水橋／厦村和新田科技城的區域供冷系統，按現時規劃將會是香港最大規模的區域供冷系統，政府工程費用達到數百億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm)
+
+---
+
+# 財政預算案2025｜楊何蓓茵：部分私人市場或會參考公務員薪調
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793858_1_20250302103032.jpg&q=85)
+  
+
+公務員事務局局長楊何蓓茵表示，受政府資助的機構，政府每年撥發的補助金都涵蓋一個公務員薪酬調整的「因子」，隨著今年公務員凍薪，相關「因子」也不會調整。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm)
+
+---
+
+# 財政預算案2025｜孫東冀人工智能研發院助將香港打造成數據港
+
+新一份《財政預算案》提出將人工智能發展為關鍵產業，創新科技及工業局局長孫東相信，人工智能將改變和重塑人類生活，特區政府在面臨公共財政挑戰下，仍然下決心推出舉措，反映當局對於未來高質量發展的責任和擔當。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm)
+
+---
+
 # 財政預算案2025｜楊何蓓茵：與公務員開會　大都理解凍薪決定
 
 ![楊何蓓茵表示，早前和公務員開會後，大部分人都表示理解全體公務員凍薪的決定。 （陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793854_1_20250302093308.jpg&q=85)
@@ -1369,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793696-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793696-20250228.htm)
-
----
-
-# 財政預算案2025｜羅淑佩：正爭取活動落戶　有巨星來港演出
-
-![啟德體育園明日傍晚6時半在主場館舉行開幕典禮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793692_1_20250228183828.jpg&q=75)
-  
-
-啟德體育園明日傍晚6時半在主場館舉行開幕典禮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793692-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793692-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793692-20250228.htm)
-
----
-
-# 財政預算案2025｜戒賭輔導機構憂籃球博彩致賭博年齡下降
-
-![伍淑萍認為，擔心參與賭博的年齡會持續下降。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793694_1_20250228215527.jpg&q=75)
-  
-
-《財政預算案》提出，邀請馬會提交建議，探討規範籃球博彩活動。消息人士表示，建議當局參照足球博彩徵收50%稅款的做法，估計馬會可吸納3至4成非法外圍賭注，稅收15億元。消息又說，期望立法會在9月三讀通過修例，明年開放籃球博彩。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793694-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793694-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793694-20250228.htm)
-
----
-
-# 財政預算案2025｜何永賢稱仍在檢討樂建居項目　將適時公布
-
-![何永賢說，綠置居是房屋階梯重要的組成部份。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793693_1_20250228183806.jpg&q=85)
-  
-
-位於柴灣祥民道的首個私人興建資助出售房屋先導計劃「樂建居」項目，去年7月流標後未有重啟。房屋局局長何永賢表示，項目仍在檢討中，有消息會適時公布，她說檢討的內容，包括房委會手上的用地，發展時間，地點，以及規模參數等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793693-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793693-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793693-20250228.htm)
 
 ---

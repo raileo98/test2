@@ -1,3 +1,27 @@
+# 日本岩手縣山火持續　火場面積擴大至約1800公頃
+
+![日本消防部門出動直升機協助撲救山火。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793859_1_20250302102327.jpg&q=90)
+  
+
+日本岩手縣的山火已經持續燃燒4日，火場面積擴大至約1800公頃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm)
+
+---
+
 # 普京接見北韓訪問團　稱感謝北韓積極支持俄羅斯
 
 ![普京在克宮接見北韓勞動黨中央委員會政治局委員李熙用。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793856_1_20250302094653.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793621-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793621-20250228.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱香港可協助海外企業進入內地市場
-
-![陳茂波說，特區政府在各方努力下，在吸引投資和人才方面取得相當成果。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793617_1_20250228123330.jpg&q=85)
-  
-
-美國總統特朗普表示，下星期二起，會對從中國進口美國的商品徵收額外10%關稅。財政司司長陳茂波出席本台英文節目《財政司司長熱線》，被問到相關措施對香港的影響，陳茂波說，地緣政治緊張局勢持續，強調許多海外企業仍然對內地市場非常感興趣，香港可以作為平台協助他們進入內地市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm)
 
 ---
