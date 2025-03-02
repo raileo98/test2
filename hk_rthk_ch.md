@@ -1,3 +1,27 @@
+# 澤連斯基稱感受到各方的強大支持　相信可挽救與特朗普的關係
+
+![歐洲多國領導人在倫敦舉行峰會，西班牙首相桑切斯與澤連斯基擁抱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793919_1_20250303052312.jpg&q=75)
+  
+
+歐洲多國領導人在倫敦舉行關於烏克蘭危機的峰會，與會的烏克蘭總統澤連斯基表示，感到各方對烏克蘭的強大支持，歐洲的團結處於極高水平，已經很久沒有見過，各方正共同努力，為與美國合作奠定基礎，以實現真正的和平及有保障的安全。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793919-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793919-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793919-20250303.htm)
+
+---
+
 # 跨部門舉行重大事故及反恐演習為全運會做準備
 
 ![警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。（警方圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793918_1_20250303043638.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm)
-
----
-
-# 洪都拉斯全國停電並影響拉美多國
-
-![洪都拉斯全國停電並影響拉美多國](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793842_1_20250302015023.jpg&q=90)
-  
-
-洪都拉斯國家電力公司表示，由於區域電力系統故障，洪都拉斯全國停電，並影響部分拉美國家，包括墨西哥、薩爾瓦多、危地馬拉、尼加拉瓜等，目前正緊急協調恢復供電。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm)
 
 ---
