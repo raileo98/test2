@@ -1,9 +1,30 @@
+# 甯漢豪：恐龍會客室兩個月已吸引逾4萬人次參觀
+
+香港新界東北水域的赤洲去年發現恐龍化石，發展局局長甯漢豪在網誌說，香港文物探知館其後設置「恐龍會客室」，短短兩個月經已吸引超過4萬人次參觀。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm)
+
+---
+
 # 特朗普簽署行政命令指定英語為官方語言
 
 ![在美國有警告牌同時使用英語和西班牙語。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793865_1_20250302113623.jpg&q=35)
   
 
-美國總統特朗普簽署行政命令，指定英語為美國官方語言，聲稱可以增強國家凝聚力。
+美國總統特朗普簽署行政命令，指定英語為美國官方語言，稱可以增強國家凝聚力。
 
   
 
@@ -23,6 +44,9 @@
 ---
 
 # 孫東今晚啟程訪問西班牙和葡萄牙　為香港創科界開拓商機
+
+![孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793864_1_20250302114257.jpg&q=85)
+  
 
 創新科技及工業局局長孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問，加強香港與兩國在創新科技等領域的聯繫和合作，推廣香港創科優勢，為香港創新科技業界在海外開拓商機。
 
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm)
-
----
-
-# 當局稱會彈性處理逾時換領啟德體育園開幕禮實體票
-
-![入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793787_1_20250301154124.jpg&q=50)
-  
-
-啟德體育園今日開幕，典禮晚上6時半在主場館舉行，將會有3萬多名觀眾可以入場觀看。入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止，但當局表示會彈性處理，不會立即停止換票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm)
 
 ---

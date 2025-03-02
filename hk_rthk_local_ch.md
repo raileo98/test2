@@ -1,4 +1,28 @@
+# 甯漢豪：恐龍會客室兩個月已吸引逾4萬人次參觀
+
+香港新界東北水域的赤洲去年發現恐龍化石，發展局局長甯漢豪在網誌說，香港文物探知館其後設置「恐龍會客室」，短短兩個月經已吸引超過4萬人次參觀。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm)
+
+---
+
 # 孫東今晚啟程訪問西班牙和葡萄牙　為香港創科界開拓商機
+
+![孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793864_1_20250302114257.jpg&q=85)
+  
 
 創新科技及工業局局長孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問，加強香港與兩國在創新科技等領域的聯繫和合作，推廣香港創科優勢，為香港創新科技業界在海外開拓商機。
 
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793700-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793700-20250228.htm)
-
----
-
-# 石偉雄退役　獲體院聘任為中國香港競技體操隊全職教練
-
-![石偉雄宣布退役，結束26年的運動生涯。（港協暨奧委會提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793703_1_20250228202512.jpg&q=90)
-  
-
-港隊體操代表石偉雄宣布退役，結束26年的運動生涯。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm)
 
 ---
