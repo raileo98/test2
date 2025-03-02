@@ -1,3 +1,27 @@
+# Ailing pope hails faithful's 'support' and 'affection'
+
+![Tourists and pilgrims visit St Peter's square in The Vatican as Pope Francis is still hospitalised with pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793898_1_20250302202730.jpg&q=80)
+  
+
+Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sunday thanked believers around the world for their "support" and "affection" as he missed delivering a third straight Angelus prayer in person.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm)
+
+---
+
 # Local delegate proposes plans to connect with GBA
 
 ![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=85)
@@ -1413,29 +1437,5 @@ Leicester sank closer to an immediate return to the Championship after West Ham 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
-
----
-
-# US stocks fall as Nvidia results hit AI shares
-
-![The Dow Jones Industrial Average finished down 0.5 percent at 43,239. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793576_1_20250228055119.jpg&q=85)
-  
-
-Wall Street stocks tumbled on Thursday, extending a rough period as disappointment with Nvidia earnings and fresh tariff rhetoric from US President Donald Trump pressured the market.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm)
 
 ---

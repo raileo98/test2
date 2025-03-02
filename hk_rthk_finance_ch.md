@@ -1,3 +1,24 @@
+# 財政預算案2025｜唐英年相信陳茂波有能力按量入為出原則辦事
+
+財政司司長陳茂波在財政預算案預計，本港將於2028/29年度恢復綜合盈餘，並計劃增加發債。全國政協常委、前財政司司長唐英年在北京見記者時表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。他又說，當然可用更短時間扭轉財赤，但時間愈快，痛楚愈大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm)
+
+---
+
 # 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
@@ -1413,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793665-20250228.htm)
-
----
-
-# 習近平：中國經濟運行仍面臨困難挑戰　中國經濟向好趨勢沒有變
-
-![文章指出，中國經濟運行仍然面臨不少困難和挑戰。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793662_1_20250228155924.jpg&q=90)
-  
-
-明日出版的新一期《求是》雜誌將發表中共中央總書記習近平的文章《經濟工作必須統籌好幾對重要關係》。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm)
 
 ---

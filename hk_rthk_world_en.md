@@ -1,3 +1,27 @@
+# Ailing pope hails faithful's 'support' and 'affection'
+
+![Tourists and pilgrims visit St Peter's square in The Vatican as Pope Francis is still hospitalised with pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793898_1_20250302202730.jpg&q=80)
+  
+
+Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sunday thanked believers around the world for their "support" and "affection" as he missed delivering a third straight Angelus prayer in person.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm)
+
+---
+
 # UK, France working with Ukraine on peace plan: Starmer
 
 ![British Prime Minister Keir Starmer and Ukrainian President Volodymyr Zelensky shake hands during a bilateral meeting ahead of a European leaders' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793890_1_20250302180719.jpg&q=80)
@@ -1411,29 +1435,5 @@ Apple said on Friday it could no longer offer full end-to-end encryption for Bri
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792699-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792699-20250222.htm)
-
----
-
-# 'Historic' G20 foreign ministers meeting concludes
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792700_1_20250222031652.jpg&q=85)
-  
-
-South Africa on Friday concluded the G20 Foreign Ministers' Meeting, after a range of global issues having been discussed.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm)
 
 ---
