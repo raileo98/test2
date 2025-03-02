@@ -1,3 +1,27 @@
+# 普京接見北韓訪問團　稱感謝北韓積極支持俄羅斯
+
+![普京在克宮接見北韓勞動黨中央委員會政治局委員李熙用。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793856_1_20250302094653.jpg&q=90)
+  
+
+朝中社報道，北韓勞動黨中央委員會政治局委員李熙用率領的代表團，上星期四在克里姆林宮同總統普京會面。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm)
+
+---
+
 # 哈馬斯拒延長停火協議第一階段　以色列接納在齋戒月和逾越節停火
 
 ![以色列表示，將採納在齋戒月和逾越節在加沙暫時停火的建議。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793849_1_20250302065157.jpg&q=5)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm)
-
----
-
-# 特朗普稱不敢相信自己曾說澤連斯基是「獨裁者」
-
-![澤連斯基據報已抵達美國，將與總統特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793615_1_20250228105536.jpg&q=80)
-  
-
-烏克蘭總統澤連斯基據報已抵達美國，將與總統特朗普會面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793615-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793615-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793615-20250228.htm)
 
 ---

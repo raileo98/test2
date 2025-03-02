@@ -1,6 +1,33 @@
-# 財政預算案2025｜楊何蓓茵：與公務員開會後大都理解凍薪決定
+# 普京接見北韓訪問團　稱感謝北韓積極支持俄羅斯
 
-公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部份人都表示理解全體公務員凍薪的決定，有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
+![普京在克宮接見北韓勞動黨中央委員會政治局委員李熙用。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793856_1_20250302094653.jpg&q=90)
+  
+
+朝中社報道，北韓勞動黨中央委員會政治局委員李熙用率領的代表團，上星期四在克里姆林宮同總統普京會面。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm)
+
+---
+
+# 財政預算案2025｜楊何蓓茵：與公務員開會　大都理解凍薪決定
+
+![楊何蓓茵表示，早前和公務員開會後，大部分人都表示理解全體公務員凍薪的決定。 （陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793854_1_20250302093308.jpg&q=85)
+  
+
+公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部分人均表示理解全體公務員凍薪的決定。有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
 
   
 
@@ -1413,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱私家車陸路邊境建設費並非定案
-
-![陳茂波強調，香港從來的基建都有正面回報，北都發展都會一樣。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793775_1_20250301124019.jpg&q=75)
-  
-
-預算案提出，未來5年每年發債1500億元至1950億元。財政司司長陳茂波出席一個電視節目時被問到，外界有意見指出，如果不計及發債，未來5個財政年度都會是赤字，質疑以發債減低赤字不恰當。陳茂波回應說，有關觀察是錯，他解釋，當局要推動工務工程，其中北部都會區發展是關鍵時期，若果能夠提早提供相關土地，於招商引資時落戶，日後可以貢獻本港經濟發展，因此一定要把握這個機會。他重申，5年後的發債水平約佔生產總值16.5%，在國際上任何先進經濟體而言都是穩健水平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm)
 
 ---
