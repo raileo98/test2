@@ -1,3 +1,27 @@
+# 'Most civil servants understand need for pay freeze'
+
+![Civil Service Secretary Ingrid Yeung said the move would not affect morale. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793871_1_20250302125453.jpg&q=85)
+  
+
+Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understood the need for a pay freeze given the government’s deficit.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm)
+
+---
+
 # 'Taxing boundary-crossing drivers won't affect many'
 
 ![Paul Chan said on TVB that around 15 percent of people head to the mainland in private vehicles, and taxing them would not affect a great amount of people.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793870_1_20250302124329.jpg&q=90)
@@ -1413,29 +1437,5 @@ A new law requiring child car seats or other extra restraints to be fitted in pr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793075-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793075-20250225.htm)
-
----
-
-# Improve HK's vocational training system: FTU
-
-![The FTU says improving the social status of skilled labour and more promotion of the industry is needed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793074_1_20250225125436.jpg&q=55)
-  
-
-Unionists on Tuesday said the government should allocate more resources to improve Hong Kong’s vocational training system to cultivate more locally skilled talent.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793074-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793074-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793074-20250225.htm)
 
 ---
