@@ -1,3 +1,27 @@
+# 山東出現大範圍雨雪　濟南市發布暴雪紅色預警明日停課
+
+![山東多個市縣出現降雪，其中濟南市區降雪量最大。（央視圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793895_1_20250302201617.jpg&q=45)
+  
+
+山東出現寒潮和大範圍雨雪天氣，當地氣象台表示，截至下午2時，全省多個市縣出現降雪，平均降雪量2.5毫米，其中濟南市區降雪量最大，達17.9毫米，濱州陽信錄得最大積雪深度，有13厘米。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm)
+
+---
+
 # 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793365-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱北都前期投入多　較後年份收回收益
-
-![陳茂波稱北都前期投入多，較後年份收回收益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793313_1_20250226170620.jpg&q=75)
-  
-
-財政司司長陳茂波表示，特區政府一直發短期債，因為短期債息口較便宜，加上特區政府財政狀況強，如要發債，隨時可發行並被市場吸納。他指出，針對北部都會區項目，前期投入會較多，收益在較後年份收回，當局會積極研究發長期債券。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793313-20250226.htm)
 
 ---
