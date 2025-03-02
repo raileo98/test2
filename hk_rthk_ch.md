@@ -1,3 +1,27 @@
+# 曼聯互射十二碼不敵富咸　英格蘭足總盃第五圈止步
+
+![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=35)
+  
+
+曼聯爭取衛冕英格蘭足總盃失敗，他們在第五圈主場互射十二碼不敵富咸出局。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm)
+
+---
+
 # 聯合國促防止加沙恢復敵對行動　籲讓人道物資進入加沙
 
 ![衛星圖片顯示，大量貨車在埃及等待進入加沙。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793915_1_20250303033448.jpg&q=25)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm)
-
----
-
-# 玻利維亞有長途巴士相撞至少37死
-
-![涉事的其中一輛巴士損毀嚴重。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793839_1_20250302012112.jpg&q=90)
-  
-
-玻利維亞西南部波托西省有長途巴士相撞，至少37人死亡，多人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793839-20250302.htm)
 
 ---

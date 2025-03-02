@@ -1,3 +1,27 @@
+# 曼聯互射十二碼不敵富咸　英格蘭足總盃第五圈止步
+
+![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=35)
+  
+
+曼聯爭取衛冕英格蘭足總盃失敗，他們在第五圈主場互射十二碼不敵富咸出局。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm)
+
+---
+
 # 楊德強：會檢討全運會三鐵測試賽流程　為年底舉辦正賽做好準備
 
 ![港隊在混合接力賽取得銅牌。（2025全運會香港賽區社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793901_1_20250302214044.jpg&q=80)
@@ -1423,26 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm)
-
----
-
-# 亞錦賽港隊單車男子青年組及女子精英組團體追逐賽均奪銅牌
-
-香港單車隊在亞洲場地錦標賽的男子青年組團體追逐賽及女子精英組團體追逐賽，分別奪得銅牌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792757-20250222.htm)
 
 ---
