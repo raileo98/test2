@@ -1,3 +1,24 @@
+# 英揆：將與法烏合作制訂結束俄烏衝突計劃　無美國支持將欠威懾力
+
+英國首相施紀賢表示，英國、法國及其他歐洲國家將與烏克蘭合作，制訂結束俄烏衝突的計劃，之後與美國討論，強調沒有美國的支持，結束俄烏衝突的計劃將欠缺威懾力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm)
+
+---
+
 # 克宮：加快改善俄美關係是有可能　但過程仍然漫長
 
 ![佩斯科夫表示，不應期待俄美合作能快速取得成果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793899_1_20250302210032.jpg&q=90)
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793675-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793675-20250228.htm)
-
----
-
-# 中方堅決反對美國參議院個別議員攻擊抹黑香港特區立法
-
-![林劍說，中方敦促美國個別議員立即停止插手香港事務、停止干涉中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793668_1_20250228161307.jpg&q=90)
-  
-
-中方對美國國會參議院個別議員攻擊抹黑香港特區立法，詆毀香港的人權法治，粗暴干涉香港事務，表示堅決反對。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm)
 
 ---
