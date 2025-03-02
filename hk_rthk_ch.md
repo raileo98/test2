@@ -1,3 +1,27 @@
+# 天文台料周二天氣變得不穩定　早上部分地區雨勢可能較大
+
+![天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持。（張連登攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793906_1_20250302215750.jpg&q=75)
+  
+
+天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持，而本港天氣將會在星期二有明顯變化，天氣將變得不穩定，會出現今年首場較明顯的降雨並有雷暴，早上部分地區雨勢可能較大，但仍有變數，呼籲市民星期二上班上學前帶備雨具。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm)
+
+---
+
 # 英揆：將與法烏合作制訂結束俄烏衝突計劃　無美國支持將欠威懾力
 
 英國首相施紀賢表示，英國、法國及其他歐洲國家將與烏克蘭合作，制訂結束俄烏衝突的計劃，之後與美國討論，強調沒有美國的支持，結束俄烏衝突的計劃將欠缺威懾力。
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm)
-
----
-
-# 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
-
-![警方調查香港仔發生的致命交通意外，一名女子死亡。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793828_1_20250301231603.jpg&q=25)
-  
-
-警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm)
 
 ---

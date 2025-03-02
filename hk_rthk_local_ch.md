@@ -1,3 +1,27 @@
+# 天文台料周二天氣變得不穩定　早上部分地區雨勢可能較大
+
+![天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持。（張連登攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793906_1_20250302215750.jpg&q=75)
+  
+
+天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持，而本港天氣將會在星期二有明顯變化，天氣將變得不穩定，會出現今年首場較明顯的降雨並有雷暴，早上部分地區雨勢可能較大，但仍有變數，呼籲市民星期二上班上學前帶備雨具。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm)
+
+---
+
 # 蕭澤頤：年輕人對警隊信心增強　去年大學招募投考申請大升逾3成
 
 ![蕭澤頤表示，「警察．大學招募快線」去年收到的投考申請大幅上升超過3成。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793902_1_20250302214311.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm)
-
----
-
-# 財政預算案2025｜孫玉菡冀與社福機構探討資源運用拆牆鬆綁
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793764_1_20250301114537.jpg&q=80)
-  
-
-預算案提出「強化版」的財政整合計劃，包括至2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，現有向社福機構提供的400多億元資助需要削減，局方下星期一會約見170多間社福機構商討，並研究有無空間在資源運用上「拆牆鬆綁」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm)
 
 ---
