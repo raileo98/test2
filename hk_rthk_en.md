@@ -1,3 +1,27 @@
+# 'Most civil servants understand need for pay freeze'
+
+![Civil Service Secretary Ingrid Yeung said the move would not affect morale. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793871_1_20250302125453.jpg&q=85)
+  
+
+Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understood the need for a pay freeze given the government’s deficit.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm)
+
+---
+
 # 'Taxing boundary-crossing drivers won't affect many'
 
 ![Paul Chan said on TVB that around 15 percent of people head to the mainland in private vehicles, and taxing them would not affect a great amount of people.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793870_1_20250302124329.jpg&q=90)
@@ -1412,29 +1436,5 @@ The European Union on Thursday pushed back against allegations by US President D
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm)
-
----
-
-# Legendary Irish trio to retire at end of Six Nations
-
-![Last year's Six Nations title-winning skipper Peter O'Mahony is as famous for his gardening skills as his rugby prowess. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793545_1_20250227214946.jpg&q=85)
-  
-
-Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six Nations title-winning skipper Peter O'Mahony and fellow Test centurion Conor Murray will retire from international rugby at the end of the Six Nations, they announced on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm)
 
 ---
