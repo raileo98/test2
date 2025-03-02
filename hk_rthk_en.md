@@ -49,7 +49,7 @@ Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both
 
 # 'Most civil servants understand need for pay freeze'
 
-![Civil Service Secretary Ingrid Yeung said the move would not affect morale. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793871_1_20250302125453.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793871_1_20250302125453.jpg&q=85)
   
 
 Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understood the need for a pay freeze given the government’s deficit.

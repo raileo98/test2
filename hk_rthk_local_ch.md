@@ -1,3 +1,24 @@
+# 六旬男子被困將軍澳山坡兩日獲救　手部受傷送院治理
+
+一名約68歲男子在將軍澳被困一處山坡兩日後獲救。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm)
+
+---
+
 # 楊何蓓茵：約2千人已轉文書助理職系　現剩百多名打字員
 
 公務員事務局局長楊何蓓茵表示，現時政府編制內只剩100多名「打字員」，由於部分政府資料輸入工作，涉及機密或敏感個人資料，不可以外判，需要由公務員負責，由打字員處理相關工作。
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm)
-
----
-
-# CEPA修訂協議二將實施　讓香港企業人才以更優惠待遇進入內地
-
-![當局表示，特區政府會繼續協助業界善用《修訂協議二》的優惠措施，助力香港利用好「一國兩制」下「背靠祖國、聯通世界」的獨特優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793713_1_20250228212603.jpg&q=80)
-  
-
-國家商務部與特區政府在《內地與香港關於建立更緊密經貿關係的安排》（CEPA）框架下簽署的《關於修訂〈CEPA服務貿易協議〉的協議二》，明日起實施。《修訂協議二》進一步對香港開放內地的服務業市場，讓香港企業和專業人才能以更優惠的待遇進入內地市場，同時帶來制度創新和加強對接。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793713-20250228.htm)
 
 ---

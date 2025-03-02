@@ -1,3 +1,24 @@
+# 六旬男子被困將軍澳山坡兩日獲救　手部受傷送院治理
+
+一名約68歲男子在將軍澳被困一處山坡兩日後獲救。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm)
+
+---
+
 # 楊何蓓茵：約2千人已轉文書助理職系　現剩百多名打字員
 
 公務員事務局局長楊何蓓茵表示，現時政府編制內只剩100多名「打字員」，由於部分政府資料輸入工作，涉及機密或敏感個人資料，不可以外判，需要由公務員負責，由打字員處理相關工作。
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm)
-
----
-
-# 大欖懲教所62歲男囚犯不治　死者生前有長期濫藥紀錄
-
-![大欖懲教所62歲男在囚人士不治，懲教署表示，死者生前有有長期濫藥紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793801_1_20250301174019.jpg&q=85)
-  
-
-大欖懲教所一名62歲男性在囚人士在公立醫院因病不治，懲教署已將事件通知警方，死因裁判法庭將進行死因研訊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm)
 
 ---
