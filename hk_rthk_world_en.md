@@ -22,7 +22,7 @@ The ministry of health in Hamas-run Gaza said four people were killed and six ot
 
 ---
 
-# Ailing pope hails faithful's 'support' and 'affection'
+# Ailing Pope hails faithful's 'support' and 'affection'
 
 ![Tourists and pilgrims visit St Peter's square in The Vatican as Pope Francis is still hospitalised with pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793898_1_20250302202730.jpg&q=80)
   

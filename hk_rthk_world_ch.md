@@ -1,3 +1,27 @@
+# 烏拉圭總統稱願與中方不斷深化兩國全面戰略夥伴關係
+
+![奧爾西在烏拉圭首都出席總統就職儀式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793923_1_20250303062345.jpg&q=75)
+  
+
+烏拉圭新任總統奧爾西會見以國家主席習近平特使身份，出席總統就職儀式的農業農村部部長韓俊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm)
+
+---
+
 # 澤連斯基稱感受到各方的強大支持　相信可挽救與特朗普的關係
 
 ![歐洲多國領導人在倫敦舉行峰會，西班牙首相桑切斯與澤連斯基擁抱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793919_1_20250303052312.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm)
-
----
-
-# 俄方稱於俄美會談提出恢復兩國直航
-
-![美國和俄羅斯的代表團，昨日在土耳其伊斯坦布爾會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793728_1_20250228224312.jpg&q=25)
-  
-
-美國和俄羅斯的代表團，昨日在土耳其伊斯坦布爾就雙邊關係舉行首輪會談，俄羅斯外交部說，會談內容豐富務實，雙方同意透過有關渠道繼續對話。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793728-20250228.htm)
 
 ---
