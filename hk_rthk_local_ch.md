@@ -1,3 +1,45 @@
+# 明愛醫院全日制護理學專業文憑課程提早在今日接受報名
+
+明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人，今日起至8月8日可以經醫管局網站遞交申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm)
+
+---
+
+# 麥美娟：上半年在油尖旺和深水埗等四區推行「聯廈聯管」試驗計劃
+
+政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，委聘非政府組織，接觸「三無大廈」和舊式單幢樓宇業主或法團，鼓勵及協助他們參加。明天將率先諮詢油尖旺區議會，計劃在界限街、彌敦道、鴉蘭街及塘尾道一帶推行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm)
+
+---
+
 # 跨部門舉行重大事故及反恐演習為全運會做準備
 
 ![警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。（警方圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793918_1_20250303043638.jpg&q=75)
@@ -1393,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：凍薪規模前所未有　顯示共同承擔
-
-![公務員事務局昨日下午在政府總部舉行簡介會。（楊何蓓茵社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793777_1_20250301123939.jpg&q=90)
-  
-
-公務員事務局局長楊何蓓茵在社交網頁表示，預算案明確指出香港經濟高質量發展之路，有不少措施與公務員、公共財政有關，公務員事務局昨日下午在政府總部舉行簡介會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱私家車陸路邊境建設費並非定案
-
-![陳茂波強調，香港從來的基建都有正面回報，北都發展都會一樣。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793775_1_20250301124019.jpg&q=75)
-  
-
-預算案提出，未來5年每年發債1500億元至1950億元。財政司司長陳茂波出席一個電視節目時被問到，外界有意見指出，如果不計及發債，未來5個財政年度都會是赤字，質疑以發債減低赤字不恰當。陳茂波回應說，有關觀察是錯，他解釋，當局要推動工務工程，其中北部都會區發展是關鍵時期，若果能夠提早提供相關土地，於招商引資時落戶，日後可以貢獻本港經濟發展，因此一定要把握這個機會。他重申，5年後的發債水平約佔生產總值16.5%，在國際上任何先進經濟體而言都是穩健水平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm)
 
 ---

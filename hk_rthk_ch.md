@@ -1,3 +1,45 @@
+# 明愛醫院全日制護理學專業文憑課程提早在今日接受報名
+
+明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人，今日起至8月8日可以經醫管局網站遞交申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm)
+
+---
+
+# 麥美娟：上半年在油尖旺和深水埗等四區推行「聯廈聯管」試驗計劃
+
+政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，委聘非政府組織，接觸「三無大廈」和舊式單幢樓宇業主或法團，鼓勵及協助他們參加。明天將率先諮詢油尖旺區議會，計劃在界限街、彌敦道、鴉蘭街及塘尾道一帶推行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm)
+
+---
+
 # 施紀賢：實現和平須獲美國支持　馬克龍倡烏克蘭空海停火一個月
 
 ![英國首相施紀賢與烏克蘭總統澤連斯基及法國總統馬克龍交談。（唁透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
@@ -1388,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm)
-
----
-
-# 哈馬斯拒延長停火協議第一階段　以色列接納在齋戒月和逾越節停火
-
-![以色列表示，將採納在齋戒月和逾越節在加沙暫時停火的建議。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793849_1_20250302065157.jpg&q=5)
-  
-
-為期六星期的加沙停火協議第一階段在星期六結束，巴勒斯坦武裝組織哈馬斯拒絕以色列希望延長第一階段的方案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm)
-
----
-
-# 英足盃曼城3:1反勝普利茅夫晉級
-
-![曼城年輕小將歷高奧懷利建兩功。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793848_1_20250302064149.jpg&q=80)
-  
-
-英格蘭足總盃第五圈，英超的曼城3:1反勝英冠的普利芧夫晉級。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm)
 
 ---
