@@ -1,3 +1,24 @@
+# 調查：逾半受職場性騷擾女性沒處理問題　不足一半企業訂立指引
+
+有調查發現，超過3成受訪女性表示，過去3年曾受職場性騷擾，包括涉及言語、文字訊息及身體接觸；但6成人沒有處理，其餘大多數傾向內部處理，不願張揚。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm)
+
+---
+
 # 韓媒：韓中日就本月22日在東京舉行外長會進行最終協調
 
 ![對上一次中日韓外長會是2023年11月在南韓釜山舉行。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793883_1_20250302163004.jpg&q=90)
@@ -1409,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
-
----
-
-# 梵蒂岡：教宗方濟各度過了平靜一晚
-
-![信眾在聖伯多祿廣場為教宗祈禱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793803_1_20250301174645.jpg&q=85)
-  
-
-教宗方濟各因肺炎住院已兩星期，梵蒂岡星期六表示，方濟各經歷呼吸危機後，度過了平靜的一晚，目前正在休息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm)
 
 ---

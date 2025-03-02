@@ -1,3 +1,24 @@
+# 調查：逾半受職場性騷擾女性沒處理問題　不足一半企業訂立指引
+
+有調查發現，超過3成受訪女性表示，過去3年曾受職場性騷擾，包括涉及言語、文字訊息及身體接觸；但6成人沒有處理，其餘大多數傾向內部處理，不願張揚。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm)
+
+---
+
 # 六旬男子被困將軍澳山坡兩日獲救　手部受傷送院治理
 
 一名約68歲男子在將軍澳被困一處山坡兩日後獲救。
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793715-20250228.htm)
-
----
-
-# 財委會通過批准中大醫院40億貸款首次還款日期順延至2028年
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793714_1_20250228212517.jpg&q=75)
-  
-
-立法會財委會在63票贊成、無人反對、9票棄權下，通過批准中大醫院40億貸款首次還款日期順延至2028年。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793714-20250228.htm)
 
 ---
