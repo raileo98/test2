@@ -1,3 +1,51 @@
+# 玻利維亞兩車相撞事故至少15人死亡
+
+![玻利維亞兩車相撞事故至少15人死亡](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794062_1_20250304004419.jpg&q=90)
+  
+
+玻利維亞西南部發生汽車相撞事故，至少15人死亡、19人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm)
+
+---
+
+# 德黑蘭稱國際原子能機構關於伊朗核計劃說法不實
+
+![伊朗外交部發言人巴加埃說，伊朗的核計劃已多次被證明是在全面保障監督協定和《核不擴散條約》的框架內進行。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794061_1_20250304003636.jpg&q=90)
+  
+
+伊朗外交部表示，國際原子能機構及總幹事格羅西關於伊朗核計劃性質的說法「不實」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm)
+
+---
+
 # 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
 
 ![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm)
-
----
-
-# 烏媒：澤連斯基已離開美國前往英國
-
-![澤連斯基周五到白宮與特朗普會面時，兩人激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793813_1_20250301191516.jpg&q=90)
-  
-
-新華社引述烏克蘭媒體報道，烏克蘭總統澤連斯基當地周五晚結束在美國訪問後已飛往英國，他將與英國首相施紀賢會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793813-20250301.htm)
-
----
-
-# 梵蒂岡：教宗方濟各度過了平靜一晚
-
-![信眾在聖伯多祿廣場為教宗祈禱。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793803_1_20250301174645.jpg&q=85)
-  
-
-教宗方濟各因肺炎住院已兩星期，梵蒂岡星期六表示，方濟各經歷呼吸危機後，度過了平靜的一晚，目前正在休息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793803-20250301.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 玻利維亞兩車相撞事故至少15人死亡
+
+![玻利維亞兩車相撞事故至少15人死亡](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794062_1_20250304004419.jpg&q=90)
+  
+
+玻利維亞西南部發生汽車相撞事故，至少15人死亡、19人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm)
+
+---
+
 # 德黑蘭稱國際原子能機構關於伊朗核計劃說法不實
 
 ![伊朗外交部發言人巴加埃說，伊朗的核計劃已多次被證明是在全面保障監督協定和《核不擴散條約》的框架內進行。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794061_1_20250304003636.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm)
-
----
-
-# 啟德體育園跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
-
-![啟德體育園表示，若調查發現有懷疑違法情況，會嚴正處理，並交警方或廉署跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793988_1_20250303154551.jpg&q=35)
-  
-
-對於有報道指啟德體育園開幕當日，懷疑有人收取每位過千元報酬，帶未有購票人士入場，並可攜帶長雨傘及專業攝影器材等違禁品入場，毋須安檢及驗票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
 
 ---
