@@ -1,3 +1,51 @@
+# Local stocks up slightly in morning trading
+
+![Hong Kong stocks post small gains after closing down more than three percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793946_1_20250303100414.jpg&q=30)
+  
+
+Hong Kong stocks rose 0.84 percent, or 193 points, to 23,135 on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm)
+
+---
+
+# Bitcoin surges as Trump talks of crypto reserve
+
+![US President Donald Trump has announced which of the five digital assets he expects to include in a new strategic reserve of cryptocurrencies, spiking the market value of each. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793933_1_20250303084127.jpg&q=90)
+  
+
+Asian share markets dithered on Monday as the threat of imminent tariffs lurked in the background, while bitcoin surged on news it would be included in a new US strategic reserve of cryptocurrencies.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm)
+
+---
+
 # Trump orders trade investigation into lumber
 
 ![The probe also covers derivative products made from lumber which could include furniture such as kitchen cabinets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793855_1_20250302091515.jpg&q=50)
@@ -1387,53 +1435,5 @@ A group representing China's steel industry has warned that a new 25 percent tar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm)
-
----
-
-# Hong Kong stocks close down
-
-![The Hang Seng Index finished down 0.2 percent at 21,814. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791497_1_20250213173009.jpg&q=60)
-  
-
-Hong Kong stocks ended lower on Thursday, with the benchmark Hang Seng Index down 0.2 percent at 21,814.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791497-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791497-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791497-20250213.htm)
-
----
-
-# Honda-Nissan merger talks called off
-
-![Japanese automakers Honda and Nissan say they are dropping their talks on business integration. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791472_1_20250213154051.jpg&q=90)
-  
-
-Japanese auto giants Honda and Nissan on Thursday confirmed they had scrapped merger talks announced in December, bringing an end to a tie-up that would have created the world's third-largest automaker.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791472-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791472-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791472-20250213.htm)
 
 ---

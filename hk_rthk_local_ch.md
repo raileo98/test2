@@ -1,3 +1,24 @@
+# 港大醫學院推出四年制第二學位醫學士課程　6.20截止申請
+
+港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm)
+
+---
+
 # 港股競價時段升193點
 
 ![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
@@ -46,12 +67,12 @@
 
 ---
 
-# 明愛醫院全日制護理學專業文憑課程提早在今日接受報名
+# 醫管局3間護士學校全日制護理學專業文憑課程提早在今日接受報名
 
-![明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793926_1_20250303080029.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793926_1_20250303080029.jpg&q=75)
   
 
-明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人，今日起至8月8日可以經醫管局網站遞交申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。
+醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課，每間學校名額100個。
 
   
 
@@ -72,7 +93,6 @@
 
 # 麥美娟：上半年在油尖旺和深水埗等四區推行「聯廈聯管」試驗計劃
 
-![麥美娟表示，期望約6月可以簽訂首份協議，推展計劃。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793925_1_20250303075942.jpg&q=50)
 ![麥美娟說，基於公平考慮，政府無打算為業主提供資助。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793925_2_20250303075942.jpg&q=85)
   
 
@@ -1418,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm)
-
----
-
-# 音樂人方大同離世　終年41歲
-
-![方大同上月21日離世，終年41歲。（方大同社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793784_1_20250301141344.jpg&q=90)
-  
-
-著名音樂人方大同上月21日離世，終年41歲。其創辦的音樂公司在社交網站發布帖文，指方大同面對頑疾5年，上月21日早上安詳離世。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm)
 
 ---

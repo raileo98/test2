@@ -1,3 +1,100 @@
+# Cavs beat Blazers in overtime for 10th straight win
+
+![Cavaliers forward De'Andre Hunter (12) drives to the basket against Portland Trail Blazers' Donovan Clingan. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_1_20250303100809.jpg&q=85)
+![Jaylen Brown scored 22 points to lead Boston to victory over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_2_20250303100809.jpg&q=85)
+  
+
+The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Blazers 133-129 in an NBA overtime thriller, boosting their league-best record with a 10th straight victory as Boston beat Denver in a clash of the past two champions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm)
+
+---
+
+# Israel blocks humanitarian aid into Gaza
+
+![Palestinians transport aid, provided by UNRWA, on a horse-drawn cart at Jabalia refugee camp in northern Gaza on Sunday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793937_1_20250303092111.jpg&q=40)
+  
+
+Israel on Sunday blocked aid flowing into Gaza, where a six-week truce enabled the entry of vital food, shelter and medical assistance, prompting the UN to call for an immediate restoration of humanitarian assistance.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm)
+
+---
+
+# Local stocks up slightly in morning trading
+
+![Hong Kong stocks post small gains after closing down more than three percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793946_1_20250303100414.jpg&q=30)
+  
+
+Hong Kong stocks rose 0.84 percent, or 193 points, to 23,135 on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm)
+
+---
+
+# Bitcoin surges as Trump talks of crypto reserve
+
+![US President Donald Trump has announced which of the five digital assets he expects to include in a new strategic reserve of cryptocurrencies, spiking the market value of each. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793933_1_20250303084127.jpg&q=90)
+  
+
+Asian share markets dithered on Monday as the threat of imminent tariffs lurked in the background, while bitcoin surged on news it would be included in a new US strategic reserve of cryptocurrencies.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm)
+
+---
+
 # Kyiv's allies embrace Zelensky at crisis talks
 
 ![Leaders gather at Lancaster House in London to discuss European security and Ukraine. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793931_1_20250303083142.jpg&q=55)
@@ -1341,101 +1438,5 @@ The Commerce Ministry on Friday said it opposed US President Donald Trump's late
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
-
----
-
-# Spectators urged to get sports park tickets early
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793634_1_20250228123827.jpg&q=80)
-  
-
-The government says people attending the opening ceremony for Kai Tak Sports Park on Saturday evening must get their tickets by 3pm on the day.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm)
-
----
-
-# Home prices drop to almost 8.5-year low
-
-![Home prices retreated for the second month in a row in January. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793618_1_20250228110317.jpg&q=10)
-  
-
-Hong Kong home prices retreated to their lowest level in nearly eight and a half years in January.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
-
----
-
-# HK must adapt to Trump tariffs, FS tells phone-in show
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793606_1_20250228095158.jpg&q=85)
-  
-
-Financial Secretary Paul Chan on Friday said overseas firms were still keen on the mainland market and on Hong Kong's position as a gateway to that, a day after US President Donald Trump said a further 10 percent levies on China would be going ahead.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm)
-
----
-
-# HSI dips at open on final trading day of February
-
-![The Hang Seng Index opened down 102 points, or 0.4 percent, at 23,616. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793607_1_20250228095650.jpg&q=25)
-  
-
-Hong Kong stocks opened lower on Friday, the final trading of February, after earnings from artificial intelligence chipmaking leader Nvidia failed to wow the market and US President Donald Trump launched fresh broadsides on trade.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Israel blocks humanitarian aid into Gaza
+
+![Palestinians transport aid, provided by UNRWA, on a horse-drawn cart at Jabalia refugee camp in northern Gaza on Sunday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793937_1_20250303092111.jpg&q=40)
+  
+
+Israel on Sunday blocked aid flowing into Gaza, where a six-week truce enabled the entry of vital food, shelter and medical assistance, prompting the UN to call for an immediate restoration of humanitarian assistance.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm)
+
+---
+
 # Kyiv's allies embrace Zelensky at crisis talks
 
 ![Leaders gather at Lancaster House in London to discuss European security and Ukraine. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793931_1_20250303083142.jpg&q=55)
@@ -1411,29 +1435,5 @@ Israel's Bibas family announced on Saturday that remains returned to Israel the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm)
-
----
-
-# Trump fires top-ranked US military officer
-
-![US President Trump's dismissal of top military officer General Charles "CQ" Brown is the latest in a series of major changes to the Pentagon. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792735_1_20250222120534.jpg&q=80)
-  
-
-US President Donald Trump fired top US military officer General Charles "CQ" Brown on Friday, as part of a major shake-up of the armed forces' leadership.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm)
 
 ---

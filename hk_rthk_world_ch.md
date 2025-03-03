@@ -1,3 +1,27 @@
+# 素兒蘇丹娜憑《艾美利亞變奏曲》奪奧卡最佳女配角
+
+![素兒蘇丹娜憑《艾美利亞變奏曲》奪奧卡最佳女配角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793944_1_20250303095444.jpg&q=90)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm)
+
+---
+
 # 謝鋒：中美長期和平共存既是責任也是必須
 
 ![謝鋒在「杜克-北卡中國領導力峰會」發表視像致辭。（中國駐美大使館）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793939_1_20250303093114.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793736-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793736-20250301.htm)
-
----
-
-# 特朗普晤澤連斯基　兩人白宮外握手並向傳媒微笑
-
-![澤連斯基（右）抵達白宮西翼入口外，特朗普（左）在場歡迎他。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793735_1_20250301003430.jpg&q=90)
-  
-
-美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793735-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793735-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793735-20250301.htm)
 
 ---

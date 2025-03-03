@@ -1,3 +1,28 @@
+# Cavs beat Blazers in overtime for 10th straight win
+
+![Cavaliers forward De'Andre Hunter (12) drives to the basket against Portland Trail Blazers' Donovan Clingan. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_1_20250303100809.jpg&q=85)
+![Jaylen Brown scored 22 points to lead Boston to victory over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_2_20250303100809.jpg&q=85)
+  
+
+The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Blazers 133-129 in an NBA overtime thriller, boosting their league-best record with a 10th straight victory as Boston beat Denver in a clash of the past two champions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm)
+
+---
+
 # Man Utd crash out of FA Cup as Fulham win shoot-out
 
 ![Manchester United's Joshua Zirkzee reacts after a penalty kick. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793920_1_20250303053151.jpg&q=90)
@@ -1420,29 +1445,5 @@ James Tarkowski struck in the 98th minute to salvage a 2-2 draw for Everton agai
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791408-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791408-20250213.htm)
-
----
-
-# Arsenal's Havertz out for season with torn hamstring
-
-![Havertz's injury is the latest blow to Arsenal's Premier League and European ambitions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791406_1_20250213060238.jpg&q=90)
-  
-
-Arsenal's bid to win the Premier League could suffer a major setback following reports Kai Havertz is set to be ruled out for the remainder of the season.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791406-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791406-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791406-20250213.htm)
 
 ---
