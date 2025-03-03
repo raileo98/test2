@@ -1,3 +1,27 @@
+# 李慧琼：為「十五五」規劃建言獻策
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
+  
+
+行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人大第三次會議開幕會。另外，全國人大常委李慧琼表示，今年兩會特別之處，是適逢「十四五」規劃收官之年，需要總結經驗，為準備「十五五」規劃積極建言獻策。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
+
+---
+
 # 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
 
 ![陳茂波表示，香港在國家發展中的獨特價值依然是「一國兩制」優勢，同時與內地及國際社會聯繫。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794006_1_20250303175756.jpg&q=25)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm)
-
----
-
-# 國防部：堅決反對美國任何形式的對台軍事聯繫
-
-![國防部強調，堅決反對美國任何形式的對台軍事聯繫。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793495_1_20250228115150.jpg&q=60)
-  
-
-有傳台灣當局計劃向美國購買70億至100億美元武器，在北京，國防部新聞發言人吳謙強調，台灣問題純屬中國內政，堅決反對美國任何形式的對台軍事聯繫。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm)
 
 ---

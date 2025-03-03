@@ -1,3 +1,51 @@
+# 歐元區2月製造業收縮速度減慢
+
+![歐元區2月製造業採購經理指數終值升至47.6，收縮速度減慢，製造業正回穩。（新華社圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794015_1_20250303181550.jpg&q=90)
+  
+
+歐元區2月製造業採購經理指數（PMI）終值升至47.6，高於初值的47.3，亦高於1月的46.6，指數自2022年中持續處於50以下收縮水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm)
+
+---
+
+# 李慧琼：為「十五五」規劃建言獻策
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
+  
+
+行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人大第三次會議開幕會。另外，全國人大常委李慧琼表示，今年兩會特別之處，是適逢「十四五」規劃收官之年，需要總結經驗，為準備「十五五」規劃積極建言獻策。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
+
+---
+
 # 小鵬汽車2月共交付智能電動汽車按年增長近6倍
 
 ![小鵬汽車2月共交付智能電動汽車30453輛，連續4個月交付量超過3萬輛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794016_1_20250303181941.jpg&q=90)

@@ -1,3 +1,27 @@
+# 歐元區2月製造業收縮速度減慢
+
+![歐元區2月製造業採購經理指數終值升至47.6，收縮速度減慢，製造業正回穩。（新華社圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794015_1_20250303181550.jpg&q=90)
+  
+
+歐元區2月製造業採購經理指數（PMI）終值升至47.6，高於初值的47.3，亦高於1月的46.6，指數自2022年中持續處於50以下收縮水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm)
+
+---
+
 # 小鵬汽車2月共交付智能電動汽車按年增長近6倍
 
 ![小鵬汽車2月共交付智能電動汽車30453輛，連續4個月交付量超過3萬輛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794016_1_20250303181941.jpg&q=90)
@@ -720,30 +744,6 @@
 
 ---
 
-# 港股競價時段升193點
-
-![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
-  
-
-港股在競價時段上升，恒生指數報23135點，升193點，升幅0.84%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
-
----
-
 # ASMPT：附屬公司訂立對價協議　獲A股公司股份及現金
 
 ![ASMPT公告顯示，對價協議涉及出售目標公司49%權股，代價為17.17億元人民幣，將收取A股上市公司2900萬股新股份，以及7.89億元人民幣現金對價。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793932_1_20250303083321.jpg&q=90)
@@ -765,6 +765,30 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
+
+---
+
+# 港股競價時段升193點
+
+![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
+  
+
+港股在競價時段上升，恒生指數報23135點，升193點，升幅0.84%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
 
 ---
 
@@ -1414,29 +1438,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm)
-
----
-
-# 財政預算案2025｜孫玉菡冀與社福機構探討資源運用拆牆鬆綁
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793764_1_20250301114537.jpg&q=80)
-  
-
-預算案提出「強化版」的財政整合計劃，包括至2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，現有向社福機構提供的400多億元資助需要削減，局方下星期一會約見170多間社福機構商討，並研究有無空間在資源運用上「拆牆鬆綁」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm)
 
 ---

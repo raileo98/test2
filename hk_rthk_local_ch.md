@@ -1,3 +1,48 @@
+# 黎智英案控方完成盤問　料於6月進行結案陳詞
+
+壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，控方盤問階段完畢，辯方需時準備覆問環節，案件押後至本周三。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm)
+
+---
+
+# 李慧琼：為「十五五」規劃建言獻策
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
+  
+
+行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人大第三次會議開幕會。另外，全國人大常委李慧琼表示，今年兩會特別之處，是適逢「十四五」規劃收官之年，需要總結經驗，為準備「十五五」規劃積極建言獻策。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
+
+---
+
 # 劉國勳倡北都採用多元模式發展　包括分期補地價及延長短期租約等
 
 預算案提出加快建設北部都會區，並預留土地用作發展不同產業。民建聯新界北立法會議員劉國勳建議推出「1.5級產業園」先導計劃，由政府推出已完成道路、基建及網絡建設等較成熟的土地，讓經營者建設非永久性的建構物，方便興建及遷拆，企業可以短期入駐，加快創科產業落地，同時亦為未來發展預留彈性。
@@ -1387,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：與公務員開會　大都理解凍薪決定
-
-![楊何蓓茵表示，早前和公務員開會後，大部分人都表示理解全體公務員凍薪的決定。 （陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793854_1_20250302093308.jpg&q=85)
-  
-
-公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部分人均表示理解全體公務員凍薪的決定。有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm)
-
----
-
-# 啟德體育園開幕典禮舉行　本港與內地歌手和體壇名將參與
-
-![開幕典禮上，內地與香港運動員代表合唱歌曲。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793846_1_20250302051453.jpg&q=90)
-  
-
-啟德體育園開幕典禮，昨晚在啟德體育園主場館舉行，歷時2小時，有3萬多名觀眾出席。行政長官李家超在開幕致辭說，懷著興奮心情見證啟德體育園開幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm)
 
 ---
