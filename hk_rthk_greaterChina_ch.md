@@ -1,3 +1,24 @@
+# 全國兩會｜港澳全國政協委員抵全國政協禮堂　據了解與夏寶龍會面
+
+全國政協十四屆三次會議，明日下午在北京開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm)
+
+---
+
 # 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
 
 全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
@@ -43,7 +64,7 @@
 
 ---
 
-# 李慧琼：為「十五五」規劃建言獻策
+# 全國兩會｜李慧琼：為「十五五」規劃建言獻策
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
   
@@ -1408,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm)
-
----
-
-# 內地發布綠色金融高質量發展實施方案　要求銀保機構支持低碳轉型
-
-![金管總局和人行發布綠色金融高質量發展實施方案，要求銀行保險機構聚焦傳統行業綠色低碳轉型。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793516_1_20250227180512.jpg&q=55)
-  
-
-金融監管總局和人民銀行發文，要求銀行保險機構大力發展綠色金融，支持產業結構優化升級、能源體系低碳轉型等，並支持碳市場建設。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm)
 
 ---

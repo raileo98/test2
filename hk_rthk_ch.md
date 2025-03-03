@@ -1,3 +1,48 @@
+# 全國兩會｜港澳全國政協委員抵全國政協禮堂　據了解與夏寶龍會面
+
+全國政協十四屆三次會議，明日下午在北京開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm)
+
+---
+
+# 外電指比亞迪股份配股集資最多52億美元　配售價折讓8.4%
+
+![路透引述銷售文件指，比亞迪股份配股集資最多52億美元，折讓最多8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794027_1_20250303191133.jpg&q=85)
+  
+
+路透引述銷售文件指，比亞迪股份配股集資最多52億美元，每股H股配售價介乎333至345元，比今日收市價折讓最多8.4%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm)
+
+---
+
 # 會展今明年舉辦多個展覽     料可展現「會展經濟效益」
 
 ![香港會展管理公司表示，今明兩年新增不少有關虛擬資產、商貿科技展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794007_1_20250303190340.jpg&q=80)
@@ -274,7 +319,7 @@
 
 ---
 
-# 李慧琼：為「十五五」規劃建言獻策
+# 全國兩會｜李慧琼：為「十五五」規劃建言獻策
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
   

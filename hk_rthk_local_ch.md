@@ -133,6 +133,27 @@
 
 ---
 
+# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
+
+全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
+
+---
+
 # 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
 
 ![「世界格蘭披治桌球大獎賽2025」獲頒授「M」品牌認可。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794021_1_20250303185402.jpg&q=90)
@@ -205,7 +226,7 @@
 
 ---
 
-# 李慧琼：為「十五五」規劃建言獻策
+# 全國兩會｜李慧琼：為「十五五」規劃建言獻策
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
   
@@ -1404,29 +1425,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm)
-
----
-
-# 葵涌貨櫃碼頭附近有貨車疑失控翻側　司機自行爬出車外
-
-![意外後，司機沒有受傷，自行爬出車外。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793876_1_20250302161307.jpg&q=90)
-  
-
-一輛貨車下午近2時，沿葵涌貨櫃碼頭南路行駛，駛至迴旋處失控翻側。車斗貨物散落一地，司機沒有受傷，自行爬出車外。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793876-20250302.htm)
 
 ---
