@@ -1,3 +1,28 @@
+# Sunbeam puts on a show for one last time
+
+![Theatre-goers flock to Sunbeam for its final show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_1_20250303213509.jpg&q=60)
+![Lana Wong, left, says she has many fond memories of Sunbeam. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_2_20250303213509.jpg&q=85)
+  
+
+Sunbeam Theatre – the North Point venue best known for its Cantonese opera performances – put on its last show on Monday night, bidding farewell to fans and opera lovers after more than half a century.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm)
+
+---
+
 # 'Hundreds of species at risk of local extinction'
 
 ![WWF-Hong Kong says it hopes to discuss its findings with government officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794010_1_20250303173647.jpg&q=90)
@@ -1413,29 +1438,5 @@ The government will increase its support for electric vehicles (EVs) by launchin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm)
-
----
-
-# HK$1.2 billion to be spent on attracting tourists
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793240_1_20250226123326.jpg&q=70)
-  
-
-The Hong Kong Tourism Board (HKTB) will get HK$1.2 billion from the government in the coming year to fund its efforts to attract visitors to the city and pursue the concept of "tourism is everywhere".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm)
 
 ---
