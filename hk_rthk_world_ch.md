@@ -1,3 +1,24 @@
+# 620多名中國籍涉詐犯罪嫌疑人從緬甸妙瓦底地區被遣返
+
+公安部表示，中國和緬甸、泰國有關部門近期開展一系列聯合打擊跨國電詐犯罪行動，在緬甸妙瓦底地區成功遣返620多名中國籍涉詐犯罪嫌疑人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm)
+
+---
+
 # 《阿諾拉》奪奧斯卡5獎包括最佳電影、最佳導演和影后
 
 ![出爐影帝艾哲倫保迪、影后米姬麥迪遜、最佳女配角素兒蘇丹娜及最佳男配角基雲高堅（左起）合照。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793976_1_20250303132443.jpg&q=85)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793749-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793749-20250301.htm)
-
----
-
-# 傳媒形容美烏領導人交流氣氛緊張　特朗普指澤連斯基未準備好和平
-
-![特朗普（右）說澤連斯基（左）覺得美方參與，會為烏方在談判中帶來很大優勢。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793742_1_20250301034011.jpg&q=85)
-  
-
-在美國白宮採訪總統特朗普與烏克蘭總統澤連斯基會面情況的傳媒形容，兩國領導人交流時一度氣氛緊張，這個情況在白宮橢圓形辦公室算是罕見。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793742-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793742-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793742-20250301.htm)
 
 ---

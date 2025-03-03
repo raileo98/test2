@@ -1,3 +1,24 @@
+# 620多名中國籍涉詐犯罪嫌疑人從緬甸妙瓦底地區被遣返
+
+公安部表示，中國和緬甸、泰國有關部門近期開展一系列聯合打擊跨國電詐犯罪行動，在緬甸妙瓦底地區成功遣返620多名中國籍涉詐犯罪嫌疑人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm)
+
+---
+
 # 全國兩會｜人大政協陸續到北京　市面保安加強有公安站崗
 
 ![長安街向西徒步往王府井及天安門方向行，每隔一段路都有公安站崗，每個街口都架設藍色帳篷。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793978_1_20250303134935.jpg&q=30)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm)
-
----
-
-# 40名中國偷渡人員從泰國遣返回國
-
-![被遣返人員在機場與家屬團聚。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793471_1_20250227141328.jpg&q=90)
-  
-
-40名中國偷渡人員從泰國遣返回國。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm)
 
 ---
