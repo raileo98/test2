@@ -1,3 +1,28 @@
+# Hong Kong's new taxi fleets unveiled
+
+![The taxis will feature a variety of colours beyond the usual red, blue and green. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793993_2_20250303160836.jpg&q=60)
+![Officials say the fleets will gradually arrive between the end of this month and July. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793993_1_20250303160836.jpg&q=55)
+  
+
+Taxis that offer a variety of ways to pay and come equipped with systems to keep an eye on the driver are about to arrive on the city's streets, with officials saying the only way is up when it comes to service quality.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm)
+
+---
+
 # CPPCC annual session to run for six days from Tuesday
 
 ![Session spokesman, Liu Jieyi, says 2025 will be a concluding year of the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303164627.jpg&q=90)
@@ -22,30 +47,6 @@ The annual session of China's top political advisory body will run from Tuesday 
 
 ---
 
-# ICAC sees three percent rise in graft allegations
-
-![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
-  
-
-The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
-
----
-
 # Govt operating account largely balanced: FS
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
@@ -67,6 +68,30 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+
+---
+
+# ICAC sees three percent rise in graft allegations
+
+![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
+  
+
+The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
 
 ---
 
@@ -1419,29 +1444,5 @@ Hong Kong's fencing king and two-time Olympic gold medallist Edgar Cheung has en
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm)
-
----
-
-# HK gymnast Stone Shek calls it a career
-
-![Stone Shek gives himself a full score of 10 for his gymnastics career. File photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793697_1_20250228183035.jpg&q=90)
-  
-
-Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirement from gymnastics.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
 
 ---
