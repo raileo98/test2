@@ -1,9 +1,9 @@
-# Govt operating account largely balanced: FS
+# CPPCC annual session to run for six days from Tuesday
 
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+![Session spokesman, Liu Jieyi, says 2025 will be a concluding year of the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303164627.jpg&q=90)
   
 
-Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+The annual session of China's top political advisory body will run from Tuesday to March 10, authorities announced on Monday.
 
   
 
@@ -11,14 +11,14 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 ---
 
 原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+<https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm>
 
 © rthk.hk
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm)
 
 ---
 
@@ -43,6 +43,30 @@ The ICAC on Monday said it received 2,058 reports of corruption last year, up th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
+
+---
+
+# Govt operating account largely balanced: FS
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+  
+
+Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
 
 ---
 
@@ -1419,29 +1443,5 @@ Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirem
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
-
----
-
-# Smaller housing plots in next land sale programme
-
-![Bernadette Linn said the plots in the coming financial year's land sale programme can house less than a thousand flats each. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793689_1_20250228180230.jpg&q=80)
-  
-
-The government said on Friday that eight residential plots it plans to roll out in the coming financial year can house around 4,450 flats, more than a fifth less than the figure from the current fiscal year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm)
 
 ---
