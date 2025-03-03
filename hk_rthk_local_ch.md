@@ -1,24 +1,3 @@
-# 本港9月舉辦「香港綠色周」 活動涵蓋可持續發展相關議題
-
-本港將於9月8至12日舉辦第二屆「香港綠色周」，主題為「共鑄可持續未來」，活動將廣泛涵蓋可持續發展相關議題，為不同地區和領域的持份者提供對話與合作的平台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793991-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793991-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793991-20250303.htm)
-
----
-
 # 香港9月再辦「香港綠色周」　金管局與國際金融公司合辦旗艦活動
 
 ![本屆綠色周將於9月8日至12日舉辦，金管局除了與國際金融公司合辦旗艦活動，亦將統籌其他活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793989_1_20250303153716.jpg&q=80)
@@ -93,7 +72,7 @@
 
 # 有的士車隊稱用人工智能「派單」有車隊著重司機培訓
 
-![各車隊展示新的士，包括6座位豪華版的士，車身顏色不一定局限於傳統顏色，包括有黑色、粉紅色、黃紅漸變色。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793986_1_20250303152828.jpg&q=55)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793986_1_20250303152828.jpg&q=55)
   
 
 政府舉行的士車隊啟動禮，有車隊本月底將投入服務，其餘會在本月至7月期間陸續「落地」。各車隊在啟動禮上展示新的士，包括6座位的豪華版的士，的士車身顏色亦不一定局限於傳統顏色，包括有黑色、粉紅色、黃紅漸變色。
@@ -1435,5 +1414,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm)
+
+---
+
+# 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
+
+![警方調查香港仔發生的致命交通意外，一名女子死亡。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793828_1_20250301231603.jpg&q=25)
+  
+
+警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm)
 
 ---
