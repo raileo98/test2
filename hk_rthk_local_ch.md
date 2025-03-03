@@ -1,3 +1,27 @@
+# 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
+
+![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
+  
+
+政府舉行的士車隊啟動禮，運輸及物流局局長陳美寶宣布，有車隊本月底將投入服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm)
+
+---
+
 # 醫管局3間護士學校今年招收3百人　 今年提早接受申請
 
 醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。明愛醫院護士學校說，近年在職人士報讀的比例增加，今年將報名日期提早至3月，希望方便他們及早規劃工作安排。
@@ -21,6 +45,9 @@
 
 # 政府上半年試行「聯廈聯管」　麥美娟：已預留700萬元推行
 
+![麥美娟表示，預留700萬元推行今次計劃。在甄選非政府組織的過程中，除了考慮價錢，亦著重有何嶄新方法，促成業主參與。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_1_20250303123718.jpg&q=80)
+  
+
 政府今年上半年會在油尖旺，深水埗，九龍城及荃灣，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，各委聘一個非政府組織接觸大廈業主或法團，鼓勵及協助他們參加試驗計劃。
 
   
@@ -42,6 +69,9 @@
 
 # SmartPLAY康體通系統明日凌晨零時至上午2時暫停服務
 
+![SmartPLAY康體通將於明日凌晨零時至上午2時暫停服務，以便進行系統維護。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793967_1_20250303123553.jpg&q=75)
+  
+
 康文署宣布，SmartPLAY康體通將於明日凌晨零時至上午2時暫停服務，以便進行系統維護。用戶如需於這段時間使用康體通，敬請預早安排，在服務暫停時段之前或後使用系統。
 
   
@@ -62,6 +92,9 @@
 ---
 
 # 天文台特別天氣提示：今晚午夜天氣不穩　明天大雨及局部雷暴
+
+![天文台預料今晚接近午夜珠江口一帶天氣會轉為不穩定，明日本港將出現今年首場較明顯的降雨，局部地區有雷暴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793966_1_20250303123459.jpg&q=90)
+  
 
 天文台表示，位於華中的冷鋒正逐漸向南移動，此外與高空擾動相關的驟雨及強雷暴正影響廣東內陸。預料今晚接近午夜珠江口一帶天氣會轉為不穩定，明日本港將出現今年首場較明顯的降雨，局部地區有雷暴，提醒市民明早上班上學前請留意最新天氣報告。
 
@@ -107,6 +140,9 @@
 ---
 
 # 廉署去年接獲2058宗貪污投訴　較前年增加3%
+
+![陳智思表示，去年本港貪污情況繼續有效受控。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793965_1_20250303123418.jpg&q=90)
+  
 
 廉署去年共接獲2058宗的貪污投訴，較2023年增加3%，當中480宗涉及政府部門、140宗涉及公共機構，其餘1438宗涉及私營機構。有1636宗貪污投訴屬可追查，去年共檢控207人，包括16名公務員，其中有119人被定罪。
 
@@ -1400,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm)
-
----
-
-# 有遲到市民和旅客滿意當局換領實體票安排
-
-![有觀眾表示，好期待開幕禮的表演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793808_1_20250301184040.jpg&q=80)
-  
-
-啟德體育園開幕禮的入場觀眾，需預先換領實體門票，當局原定今日下午3時為換票截止時間，但最後彈性安排給遲到的人兌換門票。有遲到的市民和旅客都滿意當局安排。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm)
 
 ---
