@@ -1,3 +1,27 @@
+# Trump signs order to further hike tariffs on China
+
+![The order raises a previously imposed 10 percent tariff on China to 20 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794081_1_20250304063119.jpg&q=90)
+  
+
+US President Donald Trump has signed an order to hike tariffs on Chinese imports further, the White House said Monday, citing what it called Beijing's failure to tackle the illicit fentanyl trade.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
+
+---
+
 # 'City should unite in supporting HK govt'
 
 ![Junius Ho, left, says Xia Baolong and CPPCC delegates discuss the global political and economic situation, while Ho Hon-kuen, right, quoted Xia as saying Hong Kong should work together as a whole. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794055_1_20250303231507.jpg&q=90)
@@ -1420,29 +1444,5 @@ US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matc
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm)
-
----
-
-# China pledges to train Pakistani astronauts
-
-![There are plans for a Pakistani astronaut to eventually take part in missions to the Tiangong space station. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793755_1_20250301082605.jpg&q=90)
-  
-
-China's space station will welcome its first foreign astronaut in the next few years, after China and Pakistan on Friday signed a cooperation agreement on the selection and training of astronauts.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm)
 
 ---

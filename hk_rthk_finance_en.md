@@ -1,3 +1,27 @@
+# Trump signs order to further hike tariffs on China
+
+![The order raises a previously imposed 10 percent tariff on China to 20 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794081_1_20250304063119.jpg&q=90)
+  
+
+US President Donald Trump has signed an order to hike tariffs on Chinese imports further, the White House said Monday, citing what it called Beijing's failure to tackle the illicit fentanyl trade.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
+
+---
+
 # Hong Kong stocks close higher
 
 ![The Hang Seng Index finished up 0.3 percent at 23,006. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794011_1_20250303173917.jpg&q=75)
@@ -1411,29 +1435,5 @@ President Xi Jinping on Monday called for efforts to promote the healthy and hig
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm)
-
----
-
-# OpenAI board rejects Elon Musk-led buyout offer
-
-![OpenAI's board said it has unanimously rejected an Elon Musk-led offer to purchase the company. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791762_1_20250215151723.jpg&q=90)
-  
-
-OpenAI's board chairman on Friday said it has unanimously rejected an Elon Musk-led offer to buy the hot artificial intelligence company for US$97.4 billion.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791762-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791762-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791762-20250215.htm)
 
 ---
