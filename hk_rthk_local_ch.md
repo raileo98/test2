@@ -1,3 +1,24 @@
+# 陳美寶：對的士車隊有期望　冀發揮「領頭羊」角色
+
+政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm)
+
+---
+
 # 恒指下午早段升逾300點
 
 ![恒生指數較早時報23255點，升313點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793975_1_20250303130913.jpg&q=1)
@@ -1418,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm)
-
----
-
-# 啟德體育園開幕典禮有舞蹈及歌星獻唱　亦有劍擊表演
-
-![巴黎奧運女子重劍金牌得主江旻憓與影星甄子丹表演劍擊。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793815_1_20250301194944.jpg&q=80)
-  
-
-啟德體育園舉行開幕典禮，先播放開場短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅表演。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm)
 
 ---
