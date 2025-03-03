@@ -1,3 +1,27 @@
+# 歐盟計劃放寬車企碳排放規則　允許獲更多時間達標
+
+![馮德萊恩說，排放總體目標保持不變，企業仍需達標，但將為行業提供更多緩衝空間。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794064_1_20250304014232.jpg&q=90)
+  
+
+歐盟委員會主席馮德萊恩表示，容許歐洲汽車製造商有額外時間達到2025年的減排目標，毋須面臨罰款，讓他們有 「喘息空間」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm)
+
+---
+
 # 德國曼海姆汽車撞人群增至2死　德國籍疑犯當場被捕
 
 ![法證人員在現場檢視涉及衝撞人群事件的汽車。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794063_1_20250304012819.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
-
----
-
-# 劉結一：2024年中國經濟穩中有進　高質量發展紮實推進
-
-![劉結一表示，2024年中國經濟穩中有進，全國國內生產總值超過134萬億元，增速達5%。（黃維波攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793992_1_20250303174714.jpg&q=75)
-  
-
-全國政協十四屆三次會議明天開幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm)
 
 ---
