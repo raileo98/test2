@@ -1,6 +1,6 @@
-# CPPCC annual session to run for six days from Tuesday
+# CPPCC annual session to run till March 10
 
-![Session spokesman, Liu Jieyi, says 2025 will be a concluding year of the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303164627.jpg&q=90)
+![Session spokesman, Liu Jieyi, says 2025 will be a concluding year of the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303172238.jpg&q=80)
   
 
 The annual session of China's top political advisory body will run from Tuesday to March 10, authorities announced on Monday.

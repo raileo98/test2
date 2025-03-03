@@ -1,3 +1,19 @@
+# 財政預算案2025｜孫玉菡稱容許社福機構盈餘暫存時間延長
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm)
+
+---
+
 # 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
 
 近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
@@ -1408,29 +1424,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793759-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱公僕凍薪體現政府社會一起面對財赤
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793758_1_20250301094626.jpg&q=65)
-  
-
-財政司司長陳茂波說，預算案提出公務員凍薪，財政是非常主要考慮原因，今年財赤處於高水平，明年稍為降低，後年經營賬目開始回復平衡，政府率先凍薪讓社會知道當局有決心，盡快將經營賬目恢復平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm)
 
 ---

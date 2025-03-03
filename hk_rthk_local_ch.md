@@ -1,3 +1,19 @@
+# 財政預算案2025｜孫玉菡稱容許社福機構盈餘暫存時間延長
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm)
+
+---
+
 # 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
 
 近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
@@ -1405,29 +1421,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm)
-
----
-
-# 陳美寶：公共交通營運商全面提升運力　觀眾往返啟德體育園順利
-
-![陳美寶表示，觀眾往返啟德體育園十分順利。（運輸及物流局網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793833_1_20250301231102.jpg&q=80)
-  
-
-啟德體育園晚上舉行開幕典禮，運輸及物流局局長陳美寶表示，回想一百年前啟德首次成功試飛雙翼機，標誌香港航空歷史的起點，對於能夠與數萬名觀眾一同見證啟德機場搖身一變，成為本港最大型的體育園區，感到非常興奮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm)
 
 ---
