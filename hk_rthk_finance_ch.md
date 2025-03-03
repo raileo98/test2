@@ -1,6 +1,6 @@
-# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
+# 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
 
-大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
+財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
 
   
 
@@ -8,14 +8,35 @@
 ---
 
 原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm>
 
 © rthk.hk
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
+
+---
+
+# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
+
+全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
 
 ---
 
@@ -43,6 +64,30 @@
 
 ---
 
+# 李慧琼：為「十五五」規劃建言獻策
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
+  
+
+行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人大第三次會議開幕會。另外，全國人大常委李慧琼表示，今年兩會特別之處，是適逢「十四五」規劃收官之年，需要總結經驗，為準備「十五五」規劃積極建言獻策。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
+
+---
+
 # 小鵬汽車2月共交付智能電動汽車按年增長近6倍
 
 ![小鵬汽車2月共交付智能電動汽車30453輛，連續4個月交付量超過3萬輛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794016_1_20250303181941.jpg&q=90)
@@ -64,6 +109,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm)
+
+---
+
+# 劉國勳倡北都採用多元模式發展　分期補地價及延長短期租約增彈性
+
+![劉國勳就北都發展提出5項倡議，提出建設1.5級園區，加快北都產業落地，並透過多元土地發展模式，配合企業實際需要，加快北都產業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794014_1_20250303183125.jpg&q=80)
+  
+
+預算案提出加快建設北部都會區，並預留土地用作發展不同產業。民建聯新界北立法會議員劉國勳建議推出「1.5級產業園」先導計劃，由政府推出已完成道路、基建及網絡建設等較成熟的土地，讓經營者建設非永久性的建構物，方便興建及遷拆，企業可以短期入駐，加快創科產業落地，同時亦為未來發展預留彈性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm)
 
 ---
 
@@ -117,7 +186,7 @@
 
 # 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
 
-![孫玉菡表示，容許社福機構的盈餘暫存時間延長。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
   
 
 財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。
@@ -1363,77 +1432,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：凍薪規模前所未有　顯示共同承擔
-
-![公務員事務局昨日下午在政府總部舉行簡介會。（楊何蓓茵社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793777_1_20250301123939.jpg&q=90)
-  
-
-公務員事務局局長楊何蓓茵在社交網頁表示，預算案明確指出香港經濟高質量發展之路，有不少措施與公務員、公共財政有關，公務員事務局昨日下午在政府總部舉行簡介會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793777-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱私家車陸路邊境建設費並非定案
-
-![陳茂波強調，香港從來的基建都有正面回報，北都發展都會一樣。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793775_1_20250301124019.jpg&q=75)
-  
-
-預算案提出，未來5年每年發債1500億元至1950億元。財政司司長陳茂波出席一個電視節目時被問到，外界有意見指出，如果不計及發債，未來5個財政年度都會是赤字，質疑以發債減低赤字不恰當。陳茂波回應說，有關觀察是錯，他解釋，當局要推動工務工程，其中北部都會區發展是關鍵時期，若果能夠提早提供相關土地，於招商引資時落戶，日後可以貢獻本港經濟發展，因此一定要把握這個機會。他重申，5年後的發債水平約佔生產總值16.5%，在國際上任何先進經濟體而言都是穩健水平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793775-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波：肥雞餐令能力較好人員流失
-
-![陳茂波提到，市場期望政府發長債，金融界亦認為會出現港元債務孳息曲綫，當局會積極研究。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793767_1_20250301112339.jpg&q=80)
-  
-
-預算案提出問責官員及全體公務員凍薪，今屆政府任內合共減1萬個職位。財政司司長陳茂波出席一個電台節目時表示，2003年推出涉及40億元的「肥雞餐」經驗顯示，離職的公務員當中，很多都是較易轉職到私人市場，不少都是能力較好，考慮到流失了這批人員，因此今次決定循序漸進，通過每年削減2%開支而減人手，包括善用科技或精簡流程。他又說，由於要減少開支，編外職位亦會因應開支限制，達到預期效果。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793767-20250301.htm)
 
 ---

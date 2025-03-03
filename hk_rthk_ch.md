@@ -1,3 +1,90 @@
+# 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
+
+財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
+
+---
+
+# 的士車隊啟動禮舉行　陳美寶冀發揮領頭羊角色
+
+政府舉行的士車隊啟動禮，有車隊於本月底投入服務，其餘會在本月至7月期間陸續「落地」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm)
+
+---
+
+# 的士車隊本月底開始陸續投入服務
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794019_1_20250303184302.jpg&q=70)
+  
+
+的士車隊將於本月底開始投入服務，運輸及物流局局長陳美寶在的士車隊啟動禮表示，的士業界近年面對風風雨雨和挑戰，必須要有破革和創新，否則與時代脫節。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm)
+
+---
+
+# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
+
+全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
+
+---
+
 # 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
 
 大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
@@ -210,7 +297,7 @@
 
 # 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
 
-![孫玉菡表示，容許社福機構的盈餘暫存時間延長。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
   
 
 財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。

@@ -1,3 +1,90 @@
+# 廉署去年控逾2百人　審查貪污舉報諮詢委員會指貪污情況續受控
+
+廉署去年共接獲2058宗的貪污投訴，較前年增加3%，當中600多宗涉及政府部門及公共機構。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm)
+
+---
+
+# 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
+
+財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
+
+---
+
+# 的士車隊啟動禮舉行　陳美寶冀發揮領頭羊角色
+
+政府舉行的士車隊啟動禮，有車隊於本月底投入服務，其餘會在本月至7月期間陸續「落地」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm)
+
+---
+
+# 的士車隊本月底開始陸續投入服務
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794019_1_20250303184302.jpg&q=70)
+  
+
+的士車隊將於本月底開始投入服務，運輸及物流局局長陳美寶在的士車隊啟動禮表示，的士業界近年面對風風雨雨和挑戰，必須要有破革和創新，否則與時代脫節。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm)
+
+---
+
 # 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
 
 大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
@@ -114,7 +201,7 @@
 
 # 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
 
-![孫玉菡表示，容許社福機構的盈餘暫存時間延長。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
   
 
 財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。
@@ -1335,102 +1422,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm)
-
----
-
-# 甯漢豪：恐龍會客室兩個月已吸引逾4萬人次參觀
-
-![發展局與中國科學院古脊椎動物與古人類研究所於2024年10月23日簽署《關於深化地層古生物及史前時期遺址領域交流與合作的框架協議》。（甯漢豪網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793866_1_20250302120751.jpg&q=75)
-![蕭麗娟介紹，香港首次發現恐龍化石的地點，是位於新界東北水域香港聯合國教科文組織世界地質公園範圍內的赤洲。（甯漢豪網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793866_2_20250302120751.jpg&q=80)
-  
-
-香港新界東北水域的赤洲去年發現恐龍化石，發展局局長甯漢豪在網誌說，香港文物探知館其後設置「恐龍會客室」，短短兩個月經已吸引超過4萬人次參觀。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793866-20250302.htm)
-
----
-
-# 孫東今晚啟程訪問西班牙和葡萄牙　為香港創科界開拓商機
-
-![孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793864_1_20250302114257.jpg&q=85)
-  
-
-創新科技及工業局局長孫東率領創新科技業界代表團，今晚啓程前往西班牙和葡萄牙訪問，加強香港與兩國在創新科技等領域的聯繫和合作，推廣香港創科優勢，為香港創新科技業界在海外開拓商機。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm)
-
----
-
-# 財政預算案2025｜陳茂波：全力發展人工智能為關鍵產業
-
-![陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業。（陳茂波網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793861_1_20250302105656.jpg&q=85)
-  
-
-財政司司長陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業，賦能傳統產業升級轉型；強調重視人工智能的發展，加大投入推進算力、算法、數據、人才及資金等5方面要素的提升，加強開拓新的應用場景，並已取得一定進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm)
-
----
-
-# 財政預算案2025｜謝展寰：第二季報告供冷系統檢視結果
-
-![預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。（謝展寰網誌圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793860_1_20250302105632.jpg&q=80)
-  
-
-財政預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。環境及生態局局長謝展寰表示，現時除了使用中的啓德區域供冷系統，東涌和古洞北新發展區的區域供冷系統正在建設中，而洪水橋／厦村和新田科技城新發展區的區域供冷系統的工程則還是在初始或規劃階段。特別是洪水橋／厦村和新田科技城的區域供冷系統，按現時規劃將會是香港最大規模的區域供冷系統，政府工程費用達到數百億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm)
 
 ---
