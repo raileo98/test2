@@ -1,3 +1,45 @@
+# 廉署去年接獲2058宗貪污投訴　較前年增加3%
+
+廉署去年共接獲2058宗的貪污投訴，較2023年增加3%，當中480宗涉及政府部門、140宗涉及公共機構，其餘1438宗涉及私營機構。有1636宗貪污投訴屬可追查，去年共檢控207人，包括16名公務員，其中有119人被定罪。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm)
+
+---
+
+# 星展估計3月內地製造業活動大機會保持擴張
+
+財新中國2月製造業採購經理指數（PMI）升至50.8，高於前一個月的50.1，為去年11月以來最高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm)
+
+---
+
 # 深證成指和創業板指數半日升逾1%至2%
 
 ![深證成份指數中午收市報10726點，升114點，升幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793961_1_20250303114341.jpg&q=80)
@@ -315,7 +357,7 @@
 ![港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793945_1_20250303110049.jpg&q=80)
   
 
-港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
+港大醫學院推出4年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
 
   
 
@@ -1387,53 +1429,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
-
----
-
-# 鄧炳強率青少年制服團隊領袖論壇成員參與澳門研學行程
-
-![研學團早前考察順德區無人機指揮調度中心，亦到訪當地智能製造科技園、創新研發中心和生產企業。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793888_1_20250302180100.jpg&q=45)
-  
-
-保安局局長鄧炳強率領「保安局青少年制服團隊領袖論壇」成員參與大灣區研學團在澳門的行程，完成三日兩夜認識國家歷史文化和不同領域發展的考察。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm)
-
----
-
-# 歐洲多國在倫敦舉行峰會　尋求加強安全合作及對烏克蘭支持
-
-![施紀賢（右）在安全峰會舉行前一日，在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793885_1_20250302170932.jpg&q=85)
-  
-
-歐洲多國領導人星期日在英國倫敦舉行安全峰會，尋求加強安全合作以及對烏克蘭的支持。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm)
 
 ---

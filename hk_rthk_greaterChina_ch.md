@@ -1,3 +1,24 @@
+# 星展估計3月內地製造業活動大機會保持擴張
+
+財新中國2月製造業採購經理指數（PMI）升至50.8，高於前一個月的50.1，為去年11月以來最高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm)
+
+---
+
 # 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
 
 ![港區全國人大代表及政協委員今日出發前往北京，準備出席即將召開的全國兩會。其中李慧琼(左二)表示，十分期待總理李強發表的政府工作報告，展望未來如何繼續推進中國式現代化進展。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_2_20250303115153.jpg&q=80)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
-
----
-
-# 中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳
-
-![中國駐歐盟使團要求歐方停止對香港事務說三道四、指手劃腳](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793401_1_20250227043410.jpg&q=90)
-  
-
-中國駐歐盟使團發言人回應歐方官員的涉港言論時，要求歐方切實尊重中國主權和領土完整，停止對香港事務說三道四、指手劃腳，停止干涉中國內政。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm)
 
 ---

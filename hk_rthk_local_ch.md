@@ -1,3 +1,24 @@
+# 廉署去年接獲2058宗貪污投訴　較前年增加3%
+
+廉署去年共接獲2058宗的貪污投訴，較2023年增加3%，當中480宗涉及政府部門、140宗涉及公共機構，其餘1438宗涉及私營機構。有1636宗貪污投訴屬可追查，去年共檢控207人，包括16名公務員，其中有119人被定罪。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm)
+
+---
+
 # 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
 
 ![港區全國人大代表及政協委員今日出發前往北京，準備出席即將召開的全國兩會。其中李慧琼(左二)表示，十分期待總理李強發表的政府工作報告，展望未來如何繼續推進中國式現代化進展。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_2_20250303115153.jpg&q=80)
@@ -147,7 +168,7 @@
 ![港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793945_1_20250303110049.jpg&q=80)
   
 
-港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
+港大醫學院推出4年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
 
   
 
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm)
-
----
-
-# 大欖懲教所25歲女囚犯疑體內藏毒　案件交警方跟進
-
-![這名25歲在囚女子上月18日因販運危險藥物罪而被還押。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793798_1_20250301174101.jpg&q=80)
-  
-
-大欖女懲教所一名還押在囚女子被發現涉嫌利用體內藏毒，將懷疑毒品偷運進入懲教院所，懲教署將案件轉介警方跟進。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm)
 
 ---
