@@ -1,3 +1,27 @@
+# 'City should unite in supporting HK govt'
+
+![Junius Ho, left, says Xia Baolong and CPPCC delegates discuss the global political and economic situation, while Ho Hon-kuen, right, quoted Xia as saying Hong Kong should work together as a whole. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794055_1_20250303231507.jpg&q=90)
+  
+
+Hong Kong delegates to the nation's top political advisory body who met with senior mainland official Xia Baolong in Beijing on Monday evening quoted him as saying the city should unite in supporting Chief Executive John Lee's administration.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
+
+---
+
 # Suspect held in deadly car-ramming in Germany
 
 ![Police in Mannheim investigate the car-ramming case. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794045_1_20250303221201.jpg&q=35)
@@ -1420,29 +1444,5 @@ China's space station will welcome its first foreign astronaut in the next few y
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm)
-
----
-
-# Beijing slams US tariff threat over fentanyl issue
-
-![China urges the US to preserve the progress in bilateral anti-drug cooperation and return to a path that it says benefits both nations. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793740_1_20250301022431.jpg&q=80)
-  
-
-A spokesperson for the Ministry of Public Security on Friday voiced firm opposition to the US threat of imposing an additional 10 per cent tariff on Chinese exports.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm)
 
 ---

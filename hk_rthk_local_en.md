@@ -1,3 +1,27 @@
+# 'City should unite in supporting HK govt'
+
+![Junius Ho, left, says Xia Baolong and CPPCC delegates discuss the global political and economic situation, while Ho Hon-kuen, right, quoted Xia as saying Hong Kong should work together as a whole. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794055_1_20250303231507.jpg&q=90)
+  
+
+Hong Kong delegates to the nation's top political advisory body who met with senior mainland official Xia Baolong in Beijing on Monday evening quoted him as saying the city should unite in supporting Chief Executive John Lee's administration.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
+
+---
+
 # Sunbeam puts on a show for one last time
 
 ![Theatre-goers flock to Sunbeam for its final show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_1_20250303213509.jpg&q=60)
@@ -1414,29 +1438,5 @@ The government said it will explore regulating basketball betting activities and
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793247-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793247-20250226.htm)
-
----
-
-# HK$300m earmarked for enhanced EV charging network
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793244_1_20250226124445.jpg&q=90)
-  
-
-The government will increase its support for electric vehicles (EVs) by launching a HK$300 million subsidy scheme in the middle of the year for a citywide charging network.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793244-20250226.htm)
 
 ---

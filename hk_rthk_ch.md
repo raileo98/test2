@@ -1,3 +1,51 @@
+# 美國2月ISM製造業指數跌至50.3遜預期
+
+![美國2月ISM製造業指數跌至50.3，低於預期，投入物價指數升至逾兩年半新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794054_1_20250303231137.jpg&q=90)
+  
+
+美國供應商管理協會(ISM)公布，2月製造業指數跌至50.3，低於預期的50.8，亦低於1月的50.9，反映製造業活動擴張步伐減慢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm)
+
+---
+
+# 美國1月建築開支按月跌0.2%
+
+![美國1月建築開支按月跌0.2%，市場原先估計持平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794053_1_20250303230448.jpg&q=90)
+  
+
+美國1月建築開支按月跌0.2%，市場原先估計持平；去年12月建築開支增長0.5%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm)
+
+---
+
 # 譚得志與支聯會有關人士罪成案件上訴至終院　周四宣判
 
 ![兩宗案件均由相同的5名本地法官審理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794052_1_20250303230419.jpg&q=85)

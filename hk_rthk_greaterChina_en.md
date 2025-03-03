@@ -1,3 +1,27 @@
+# 'City should unite in supporting HK govt'
+
+![Junius Ho, left, says Xia Baolong and CPPCC delegates discuss the global political and economic situation, while Ho Hon-kuen, right, quoted Xia as saying Hong Kong should work together as a whole. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794055_1_20250303231507.jpg&q=90)
+  
+
+Hong Kong delegates to the nation's top political advisory body who met with senior mainland official Xia Baolong in Beijing on Monday evening quoted him as saying the city should unite in supporting Chief Executive John Lee's administration.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
+
+---
+
 # CPPCC annual session to run till March 10
 
 ![Liu Jieyi says 2024 was a critical year for realising goals and tasks set forth in the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303172238.jpg&q=80)
@@ -1417,29 +1441,5 @@ Foreign Minister Wang Yi will visit Europe and the United Nations before attendi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm)
-
----
-
-# China grab six more golds at Asian Winter Games
-
-![Speed skater Gao Tingyu from China added to his trophycase with a gold in the 500 metre sprint. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791038_1_20250210165726.jpg&q=90)
-  
-
-Team China on Monday scooped up six gold medals on day three of the Harbin Asian Winter Games, with three of the top prizes coming in speed skating.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm)
 
 ---
