@@ -1,3 +1,45 @@
+# 醫管局3間護士學校今年招收3百人　 今年提早接受申請
+
+醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。明愛醫院護士學校說，近年在職人士報讀的比例增加，今年將報名日期提早至3月，希望方便他們及早規劃工作安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm)
+
+---
+
+# 政府上半年試行「聯廈聯管」　麥美娟：已預留700萬元推行
+
+政府今年上半年會在油尖旺，深水埗，九龍城及荃灣，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，各委聘一個非政府組織接觸大廈業主或法團，鼓勵及協助他們參加試驗計劃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm)
+
+---
+
 # SmartPLAY康體通系統明日凌晨零時至上午2時暫停服務
 
 康文署宣布，SmartPLAY康體通將於明日凌晨零時至上午2時暫停服務，以便進行系統維護。用戶如需於這段時間使用康體通，敬請預早安排，在服務暫停時段之前或後使用系統。
@@ -1382,53 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm)
-
----
-
-# 啟德體育園開幕禮傍晚舉行　鄧炳強：相信運作暢順
-
-![鄧炳強表示，啟德體育園經過多次演練，相信運作會暢順。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793807_1_20250301184315.jpg&q=80)
-  
-
-啟德體育園今日正式啟用，開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，持票觀眾已陸續進場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm)
-
----
-
-# 啟德體育園將舉行開幕典禮　行政長官李家超將主持開幕儀式
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793806_1_20250301183553.jpg&q=60)
-  
-
-啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
 
 ---

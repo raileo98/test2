@@ -1,3 +1,45 @@
+# 醫管局3間護士學校今年招收3百人　 今年提早接受申請
+
+醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。明愛醫院護士學校說，近年在職人士報讀的比例增加，今年將報名日期提早至3月，希望方便他們及早規劃工作安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm)
+
+---
+
+# 政府上半年試行「聯廈聯管」　麥美娟：已預留700萬元推行
+
+政府今年上半年會在油尖旺，深水埗，九龍城及荃灣，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，各委聘一個非政府組織接觸大廈業主或法團，鼓勵及協助他們參加試驗計劃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm)
+
+---
+
 # 全國兩會｜北京市面明顯加強保安　有市民稱感覺更安全
 
 全國政協十四屆三次會議明日開幕，新聞發布會今日下午在北京人民大會堂舉行，發言人劉結一將介紹大會情況並回答記者提問。
@@ -1372,53 +1414,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm)
-
----
-
-# 麥美娟聯同關愛隊探望元朗公路車禍死者家人　提供援助
-
-![麥美娟(左一)聯同關愛隊及區議員，探望死者家人，提供援助。（民青局社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793896_1_20250302213618.jpg&q=75)
-  
-
-元朗公路上星期四發生的7車連環相撞交通意外，導致一名貨車司機死亡。民政及青年事務局局長麥美娟聯同關愛隊及區議員，探望死者家人，提供援助。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793896-20250302.htm)
-
----
-
-# 山東出現大範圍雨雪　濟南市發布暴雪紅色預警明日停課
-
-![山東多個市縣出現降雪，其中濟南市區降雪量最大。（央視圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793895_1_20250302201617.jpg&q=45)
-  
-
-山東出現寒潮和大範圍雨雪天氣，當地氣象台表示，截至下午2時，全省多個市縣出現降雪，平均降雪量2.5毫米，其中濟南市區降雪量最大，達17.9毫米，濱州陽信錄得最大積雪深度，有13厘米。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm)
 
 ---
