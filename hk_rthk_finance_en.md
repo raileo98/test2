@@ -1,3 +1,27 @@
+# Govt operating account largely balanced: FS
+
+![Finance chief Paul Chan says the government's operating account remains largely balanced in the coming fiscal year.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+  
+
+Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+
+---
+
 # China factory activity grows at fastest pace in months
 
 ![The positive trend in the Caixin survey aligned with an official PMI released over the weekend. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793951_1_20250303101834.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong stocks surged more than three percent on Friday, in line with a global
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791651-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791651-20250214.htm)
-
----
-
-# Baidu to make latest Ernie AI model open-source
-
-![Baidu was among the first big Chinese companies to invest heavily in AI following the 2022 debut of OpenAI's ChatGPT. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791606_1_20250214121337.jpg&q=90)
-  
-
-Search engine giant Baidu said on Friday it would make its next-generation artificial intelligence model Ernie open-source from June 30, a major shift in strategy as competition heats up.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm)
 
 ---

@@ -1,3 +1,45 @@
+# 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
+
+全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
+
+---
+
+# 劉結一：2024年中國經濟穩中有進　高質量發展紮實推進
+
+全國政協十四屆三次會議明天開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm)
+
+---
+
 # 香港9月再辦「香港綠色周」　金管局與國際金融公司合辦旗艦活動
 
 ![本屆綠色周將於9月8日至12日舉辦，金管局除了與國際金融公司合辦旗艦活動，亦將統籌其他活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793989_1_20250303153716.jpg&q=80)
@@ -119,6 +161,9 @@
 ---
 
 # 全國政協會議明日下午開幕　會期6天　下周一上午閉幕
+
+![劉結一表示，今年是十四五規劃收官之年，全國政協將積極建言資政。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793984_1_20250303160554.jpg&q=90)
+  
 
 全國政協十四屆三次會議明日下午3時在北京人民大會堂開幕，會期6天，下周一上午閉幕。
 

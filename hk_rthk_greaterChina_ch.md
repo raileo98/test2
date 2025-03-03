@@ -1,4 +1,49 @@
+# 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
+
+全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
+
+---
+
+# 劉結一：2024年中國經濟穩中有進　高質量發展紮實推進
+
+全國政協十四屆三次會議明天開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm)
+
+---
+
 # 全國政協會議明日下午開幕　會期6天　下周一上午閉幕
+
+![劉結一表示，今年是十四五規劃收官之年，全國政協將積極建言資政。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793984_1_20250303160554.jpg&q=90)
+  
 
 全國政協十四屆三次會議明日下午3時在北京人民大會堂開幕，會期6天，下周一上午閉幕。
 
@@ -1381,53 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm)
-
----
-
-# 國防部：下階段中美兩軍交流已有一些初步計劃和安排
-
-![吳謙表示，中方希望美方與中方相向而行，加強溝通對話，妥處矛盾分歧。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793483_1_20250227152825.jpg&q=90)
-  
-
-在北京，國防部新聞發言人吳謙表示，關於中美兩軍關係，雙方通過軍事外交管道保持有效溝通。下階段兩軍交往，雙方已經有一些初步的計劃和安排，中方將適時發佈消息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793483-20250227.htm)
-
----
-
-# 全國兩會｜黃錦輝倡設「跨境投資聯合基金」專注科技創新產業
-
-![黃錦輝期望中央考慮推進國產人工智能DeepSeek進駐香港，促進在香港的廣泛應用。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793480_1_20250227152442.jpg&q=60)
-  
-
-全國政協會議即將在北京召開。全國政協委員、立法會議員黃錦輝表示，會提出成立專注於香港科技創新產業的「跨境投資聯合基金」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm)
 
 ---

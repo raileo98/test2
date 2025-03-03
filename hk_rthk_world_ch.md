@@ -1,3 +1,24 @@
+# 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
+
+全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
+
+---
+
 # 620多名中國籍涉詐犯罪嫌疑人從緬甸妙瓦底地區被遣返
 
 公安部表示，中國和緬甸、泰國有關部門近期開展一系列聯合打擊跨國電詐犯罪行動，在緬甸妙瓦底地區成功遣返620多名中國籍涉詐犯罪嫌疑人。
@@ -1408,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793750-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793750-20250301.htm)
-
----
-
-# 烏克蘭官員及歐洲聲援澤連斯基　馮德萊恩籲烏克蘭堅強及勇敢
-
-![馮德萊恩呼籲烏克蘭要堅強及勇敢。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793749_1_20250301072032.jpg&q=90)
-  
-
-美國總統特朗普與烏克蘭總統澤連斯基之間的會談不歡而散。澤連斯基在會談後表示感謝美國、美國國會及人民支持，亦感謝今次訪美行程，強調烏克蘭需要公正及持久和平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793749-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793749-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793749-20250301.htm)
 
 ---
