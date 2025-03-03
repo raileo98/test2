@@ -1,3 +1,45 @@
+# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
+
+全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
+
+---
+
+# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
+
+大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
+
+---
+
 # 李慧琼：為「十五五」規劃建言獻策
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
@@ -1387,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793516-20250227.htm)
-
----
-
-# 全國兩會｜李慧琼稱向李家超及團隊分享建議與想法
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793519_1_20250227183421.jpg&q=80)
-  
-
-全國兩會下星期在北京召開，行政長官李家超下午在政府總部，與大約30名港區全國人大代表會面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793519-20250227.htm)
-
----
-
-# 全國兩會｜李家超與港區人大政協交流意見
-
-![李家超舉行座談會，與約30位港區全國人大代表會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793514_1_20250227180936.jpg&q=85)
-  
-
-行政長官李家超前日及今日舉行座談會，分別與約100位港區全國政協委員及約30位港區全國人大代表會面，在他們下月初到北京出席第十四屆全國人民代表大會第三次會議和中國人民政治協商會議第十四屆全國委員會第三次會議前交流意見。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793514-20250227.htm)
 
 ---

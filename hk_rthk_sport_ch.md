@@ -1,3 +1,24 @@
+# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
+
+大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
+
+---
+
 # 啟德體育園跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
 
 ![啟德體育園表示，若調查發現有懷疑違法情況，會嚴正處理，並交警方或廉署跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793988_1_20250303154551.jpg&q=35)
@@ -1423,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm)
-
----
-
-# 啟德體藝館舉行全運會手球測試賽　港隊贏首場賽事隊長讚場地一流
-
-![隊長謝永輝指，啟德體藝館工作人員、場地配套及交通的安排一流。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792767_1_20250222185755.jpg&q=80)
-  
-
-第十五屆全國運動會手球（男子）項目測試賽今明兩日在啟德體育園的啟德體藝館舉行，首日比賽結束，江蘇對廣東以29比23勝出，香港對澳門就以33比19取勝。明天將舉行決賽。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm)
 
 ---

@@ -1,3 +1,24 @@
+# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
+
+大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
+
+---
+
 # 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
 
 ![陳茂波表示，香港在國家發展中的獨特價值依然是「一國兩制」優勢，同時與內地及國際社會聯繫。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794006_1_20250303175756.jpg&q=25)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793782-20250301.htm)
-
----
-
-# 美財長稱墨西哥已提議配合美國對中國加徵相同關稅
-
-![貝森特稱墨西哥已提議配合美國對中國加徵相同關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793762_1_20250301094603.jpg&q=85)
-  
-
-美國財長貝森特表示，墨西哥已提議對中國徵收與美國相同的關稅，形容做法「非常有意思」，加拿大也應該仿效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm)
 
 ---
