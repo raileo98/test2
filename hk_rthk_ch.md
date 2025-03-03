@@ -1,3 +1,27 @@
+# 玻利維亞長途巴士車禍後墜山谷至少25人死亡
+
+![波托西省一輛農夫車與巴士相撞，巴士墜入山谷，造成多人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794065_1_20250304015144.jpg&q=90)
+  
+
+玻利維亞一輛長途巴士與一輛農夫車相撞後墜入山谷，至少25人死亡、26人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm)
+
+---
+
 # 歐盟計劃放寬車企碳排放規則　允許獲更多時間達標
 
 ![馮德萊恩說，排放總體目標保持不變，企業仍需達標，但將為行業提供更多緩衝空間。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794064_1_20250304014232.jpg&q=90)
@@ -43,30 +67,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm)
-
----
-
-# 玻利維亞兩車相撞事故至少15人死亡
-
-![玻利維亞兩車相撞事故至少15人死亡](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794062_1_20250304004419.jpg&q=90)
-  
-
-玻利維亞西南部發生汽車相撞事故，至少15人死亡、19人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794062-20250304.htm)
 
 ---
 
