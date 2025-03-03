@@ -1,4 +1,4 @@
-# 德國曼海姆市有車撞人攎報最少1死　司機已被拘留
+# 德國曼海姆市有車撞人據報最少1死　司機已被拘留
 
 ![多輛緊急車輛趕到事發現場協助。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794042_1_20250303212037.jpg&q=60)
   
