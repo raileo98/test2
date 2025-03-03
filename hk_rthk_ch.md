@@ -1,3 +1,24 @@
+# 空襲敘利亞西北部一處軍事設施
+
+以色列軍方表示，星期一空襲敘利亞西北部，襲擊目標是位於拉塔基亞以東一處敘利亞軍事設施，這個設施用於儲存武器。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm)
+
+---
+
 # 教宗再次呼吸困難　要重新使用氧氣面罩
 
 ![方濟各已留院18天，是他教宗任內住院時間最長的一次。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794069_1_20250304033909.jpg&q=90)
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm)
-
----
-
-# 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
-
-![林劍形容「吹熄別人的燈不能讓自己更光明」。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794000_1_20250303172048.jpg&q=90)
-  
-
-在北京，外交部重申貿易戰、關稅戰無贏家。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
 
 ---
