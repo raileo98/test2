@@ -1,3 +1,27 @@
+# 德黑蘭稱國際原子能機構關於伊朗核計劃說法不實
+
+![伊朗外交部發言人巴加埃說，伊朗的核計劃已多次被證明是在全面保障監督協定和《核不擴散條約》的框架內進行。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794061_1_20250304003636.jpg&q=90)
+  
+
+伊朗外交部表示，國際原子能機構及總幹事格羅西關於伊朗核計劃性質的說法「不實」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm)
+
+---
+
 # 屹立北角逾半世紀新光戲院正式結業
 
 ![眾多市民在新光戲院外告別新光。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794060_2_20250304003122.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm)
-
----
-
-# 兩外籍男子涉嫌盜取他人手提電話被捕
-
-![兩名外籍男子涉嫌盜取他人手提電話，被警方拘捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793907_1_20250302224847.jpg&q=70)
-  
-
-警方在深水埗區拘捕兩名外籍男子，涉嫌盜取他人手提電話，其中一人以失明人士作為盜竊目標，警方予以強烈譴責。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm)
 
 ---

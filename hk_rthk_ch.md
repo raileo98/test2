@@ -1,3 +1,27 @@
+# 德黑蘭稱國際原子能機構關於伊朗核計劃說法不實
+
+![伊朗外交部發言人巴加埃說，伊朗的核計劃已多次被證明是在全面保障監督協定和《核不擴散條約》的框架內進行。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794061_1_20250304003636.jpg&q=90)
+  
+
+伊朗外交部表示，國際原子能機構及總幹事格羅西關於伊朗核計劃性質的說法「不實」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm)
+
+---
+
 # 屹立北角逾半世紀新光戲院正式結業
 
 ![眾多市民在新光戲院外告別新光。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794060_2_20250304003122.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
-
----
-
-# 去年約8萬6千人新參與大腸癌篩查計劃 　推行計劃以來最多一年
-
-![截至去年底，累計已有約51萬名合資格人士參與大腸癌篩查計劃，約3400人確診大腸癌。（網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793987_1_20250303153011.jpg&q=90)
-  
-
-衞生防護中心總監徐樂堅呼籲市民響應大腸癌關注月，透過實踐健康生活模式和定期進行篩查，預防患上大腸癌。他表示，大腸癌是本港第三常見的癌症，亦是致命癌症的第二位，在2022年，本港錄得5190宗新症，同期有2270宗因患上大腸癌而死亡的個案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm)
 
 ---
