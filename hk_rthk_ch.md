@@ -1,3 +1,27 @@
+# 特朗普提高對中國進口商品關稅至20%
+
+![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
+  
+
+美國白宮說，總統特朗普已簽署命令，進一步提高對中國進口商品的關稅，指中國政府未能解決芬太尼問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
+
+---
+
 # 國際油價跌約2%　創近3個月低位
 
 ![倫敦布蘭特期油收市跌1.6%，紐約期油跌約2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794073_1_20250304051751.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm)
-
----
-
-# 分析料歐洲央行本周減息0.25厘　年內仍要再減息刺激經濟
-
-![溫嘉煒預料歐洲央行本周減息0.25厘，年內仍可能再減息2至3次，因當地經濟疲弱需進一步放鬆政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794009_1_20250303172759.jpg&q=75)
-  
-
-歐洲央行本周四議息，市場預料減息0.25厘，連續5次會議減息，亦是今個減息周期第6次減息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 特朗普提高對中國進口商品關稅至20%
+
+![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
+  
+
+美國白宮說，總統特朗普已簽署命令，進一步提高對中國進口商品的關稅，指中國政府未能解決芬太尼問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
+
+---
+
 # 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm)
-
----
-
-# 全國兩會｜經濟增長目標或再定於約5%　聚焦促消費助民企推創科
-
-![市場普遍預料中央繼續保持寬鬆貨幣政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793597_1_20250228090751.jpg&q=35)
-  
-
-十四屆全國人大三次會議將於3月5日在北京開幕，政協會議則於3月4日召開。市場普遍預料，中央或會將今年經濟增長目標再度定於5%左右；財政赤字率有機會增至約4%，並繼續保持寬鬆貨幣政策。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm)
 
 ---
