@@ -1,4 +1,31 @@
+# 恒指下午升逾300點
+
+![恒生指數較早時報23255點，升313點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793975_1_20250303130913.jpg&q=1)
+  
+
+港股下午開市初段升逾300點，恒生指數較早時報23255點，升313點，升幅1.37%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm)
+
+---
+
 # 警務處與職訓局簽署合作備忘錄促進人才培訓
+
+![警務處與職訓局簽署合作備忘錄。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793974_1_20250303131628.jpg&q=80)
+  
 
 警務處與職訓局於上月28日簽署合作備忘錄，優化全日制「紀律服務管理高級文憑」課程內容，並為參與「警隊學長計劃」的職訓局學生提供實習機會，讓他們親身體驗警務工作。警務處亦會安排分享會，向學生講解專業知識和實務技巧，並舉辦講座，提高學生的防騙防罪意識。
 
@@ -215,7 +242,7 @@
 
 # 財政預算案2025｜陳茂波期望不失時機　加快北部都會區發展
 
-![陳茂波希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。（直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
   
 
 財政司司長陳茂波表示，即使政府財政有壓力，也要推動經濟發展，他認為近期股市比較暢旺，多了旅客，氣氛好了，希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。
@@ -1414,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm)
-
----
-
-# 李家超稱懷興奮心情見證啟德體育園開幕典禮
-
-![李家超表示，香港又一次衝上雲霄，再創高峰。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_2_20250301195833.jpg&q=80)
-  
-
-啟德體育園晚上舉行開幕典禮，行政長官李家超主持開幕儀式，他致辭表示，與大家一樣懷著興奮和期待的心情，見證啟德體育園，作為一個世界級香港新地標的開幕典禮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm)
 
 ---

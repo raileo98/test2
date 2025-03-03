@@ -1,4 +1,31 @@
+# 恒指下午升逾300點
+
+![恒生指數較早時報23255點，升313點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793975_1_20250303130913.jpg&q=1)
+  
+
+港股下午開市初段升逾300點，恒生指數較早時報23255點，升313點，升幅1.37%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm)
+
+---
+
 # 警務處與職訓局簽署合作備忘錄促進人才培訓
+
+![警務處與職訓局簽署合作備忘錄。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793974_1_20250303131628.jpg&q=80)
+  
 
 警務處與職訓局於上月28日簽署合作備忘錄，優化全日制「紀律服務管理高級文憑」課程內容，並為參與「警隊學長計劃」的職訓局學生提供實習機會，讓他們親身體驗警務工作。警務處亦會安排分享會，向學生講解專業知識和實務技巧，並舉辦講座，提高學生的防騙防罪意識。
 
@@ -356,7 +383,7 @@
 
 # 財政預算案2025｜陳茂波期望不失時機　加快北部都會區發展
 
-![陳茂波希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。（直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
   
 
 財政司司長陳茂波表示，即使政府財政有壓力，也要推動經濟發展，他認為近期股市比較暢旺，多了旅客，氣氛好了，希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。
@@ -1407,29 +1434,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm)
-
----
-
-# 荔枝角收押所一名懲教人員被在囚人士襲擊送院治理
-
-![一名懲教人員在荔枝角收押所遭一名61歲在囚人士襲擊受傷，需送院治理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793900_1_20250302213855.jpg&q=70)
-  
-
-一名懲教人員在荔枝角收押所遭一名61歲在囚人士襲擊受傷，需送院治理，事件已轉交警方調查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm)
 
 ---

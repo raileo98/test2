@@ -1,3 +1,32 @@
+# 'Anora' the big winner with 5 Oscars
+
+![“Anora” won best director, best picture, best actress and other Academy Awards at the Oscars on Sunday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_1_20250303124425.jpg&q=75)
+![Sean Baker claimed four of the five Oscars attributed to "Anora". Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_2_20250303124425.jpg&q=90)
+![Actress Mikey Madison helped complete a dominant performance for "Anora" at the Academy Awards. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_3_20250303124425.jpg&q=90)
+![Adrian Brody won the second Oscar of his career for his role in "The Brutalist". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_4_20250303124425.jpg&q=90)
+![Zoe Saldaña earned her first Academy Award for best supporting actress in “Emilia Pérez”. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_5_20250303124425.jpg&q=85)
+![Kieran Culkin received the best supporting actor award for playing one of two cousins who travel to Poland to study their family's roots in "A Real Pain". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_6_20250303124425.jpg&q=90)
+  
+
+"Anora", the story of a sex worker who gets a chance at a new life when she marries a wealthy client on a whim, won five Academy Awards on Sunday, including the coveted best picture Oscar.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm)
+
+---
+
 # Israel blocks humanitarian aid into Gaza
 
 ![Palestinians transport aid, provided by UNRWA, on a horse-drawn cart at Jabalia refugee camp in northern Gaza on Sunday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793937_1_20250303092111.jpg&q=40)
@@ -1411,29 +1440,5 @@ Pope Francis will miss the Angelus prayer on Sunday for the second straight week
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm)
-
----
-
-# New remains returned by Hamas are of Shiri Bibas
-
-![The Bibas family became symbols of the hostage ordeal suffered by Israel. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792747_1_20250222150603.jpg&q=70)
-  
-
-Israel's Bibas family announced on Saturday that remains returned to Israel the day before were identified to be of hostage Shiri Bibas, taken captive by Palestinian militants in October 2023.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792747-20250222.htm)
 
 ---
