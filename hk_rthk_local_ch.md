@@ -218,7 +218,8 @@
 
 # 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
 
-![港區全國人大代表及政協委員今日出發前往北京，準備出席即將召開的全國兩會。其中李慧琼(左二)表示，十分期待總理李強發表的政府工作報告，展望未來如何繼續推進中國式現代化進展。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_2_20250303115153.jpg&q=80)
+![李慧琼（左二）相信政府工作報告中有配套措施推出，讓更多民營企業投資國家，亦包括香港。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_2_20250303115153.jpg&q=80)
+![邵家輝（左）說今年提案希望大灣區另外8個城市盡快嘗試一周一行。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_3_20250303132713.jpg&q=85)
   
 
 港區全國人大代表及政協委員陸續出發前往北京，準備出席即將召開的全國兩會。
