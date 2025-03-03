@@ -1230,7 +1230,7 @@ Microsoft on Friday announced it was retiring Skype, the online voice and video 
 
 ---
 
-# Trump berates Zelensky in shock Oval office meeting
+# Trump berates Zelensky in shock Oval Office meeting
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793743_1_20250301034739.jpg&q=85)
   
