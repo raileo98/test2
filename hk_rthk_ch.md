@@ -1,3 +1,27 @@
+# 阿諾拉成奧斯卡大贏家米姬麥迪遜封后　艾哲倫保迪再做影帝
+
+![米姬麥迪遜憑電影《阿諾拉》在奧斯卡封后。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794017_1_20250303182841.jpg&q=90)
+  
+
+第97屆奧斯卡頒獎典禮，講述紐約一名性工作者遭遇的電影《阿諾拉》，橫掃5個奬項成為大贏家，包括最佳電影。憑這部戲封后的米姬麥迪遜在台上向性工作者群體致謝，承諾繼續做大家的伙伴。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm)
+
+---
+
 # 廉署去年控逾2百人　審查貪污舉報諮詢委員會指貪污情況續受控
 
 廉署去年共接獲2058宗的貪污投訴，較前年增加3%，當中600多宗涉及政府部門及公共機構。
@@ -107,6 +131,9 @@
 ---
 
 # 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
+
+![「世界格蘭披治桌球大獎賽2025」獲頒授「M」品牌認可。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794021_1_20250303185402.jpg&q=90)
+  
 
 大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
 
