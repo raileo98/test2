@@ -1,3 +1,27 @@
+# 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
+
+![何漢權引述夏寶龍指，穿在自己雙腳的鞋子，才是最適合的一雙鞋子，要更好利用一國兩制。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
+  
+
+全國政協十四屆三次會議，明日下午在北京開幕。中央港澳辦、國務院港澳辦主任夏寶龍，晚上在全國政協禮堂看望來自香港和澳門的全國政協委員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm)
+
+---
+
 # 投資推廣署部分電腦系統遭入侵　署方稱不涉及個人資料外洩
 
 投資推廣署部分電腦系統早前被惡意勒索軟件入侵，署方表示，根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況，電腦系統已於今日大致回復正常運作。
@@ -1411,29 +1435,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm)
-
----
-
-# 日股初段升1%　韓股休市
-
-![日經平均指數較早時報37548點，升393點，升幅1.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793927_1_20250303080907.jpg&q=90)
-  
-
-日本股市在開市初段升1%，日經平均指數較早時報37548點，升393點，升幅1.06%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm)
 
 ---

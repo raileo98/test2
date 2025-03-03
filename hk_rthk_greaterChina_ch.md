@@ -1,3 +1,27 @@
+# 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
+
+![何漢權引述夏寶龍指，穿在自己雙腳的鞋子，才是最適合的一雙鞋子，要更好利用一國兩制。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
+  
+
+全國政協十四屆三次會議，明日下午在北京開幕。中央港澳辦、國務院港澳辦主任夏寶龍，晚上在全國政協禮堂看望來自香港和澳門的全國政協委員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm)
+
+---
+
 # 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
 
 ![夏寶龍希望港澳委員認真履職盡責、積極參政議政。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_1_20250303233503.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793597-20250228.htm)
-
----
-
-# 回應加徵關稅　中方：中美就芬太尼問題合作取得明顯進展
-
-![回應加徵關稅　中方：中美就芬太尼問題合作取得明顯進展](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793590_1_20250228080034.jpg&q=90)
-  
-
-美國總統特朗普在社交平台表示，下星期二起會對從中國進口美國的商品，徵收額外10%關稅。他其後在白宮向傳媒說，相關關稅疊加在本月初對華徵收的10%關稅之上，即是累計徵收20%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm)
 
 ---
