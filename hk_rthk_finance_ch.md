@@ -1,3 +1,24 @@
+# 投資推廣署部分電腦系統遭入侵　署方稱不涉及個人資料外洩
+
+投資推廣署部分電腦系統早前被惡意勒索軟件入侵，署方表示，根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況，電腦系統已於今日大致回復正常運作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm)
+
+---
+
 # 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍晚上到全國政協禮堂，看望來京出席全國政協十四屆三次會議的香港、澳門地區全國政協委員。
@@ -1410,29 +1431,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm)
-
----
-
-# 地產代理：上周末10大二手屋苑成交量創多個星期低位
-
-![地產代理表示，多個新盤同步推售搶去大量購買力，上周末10大二手指標屋苑成交量創多個星期低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793922_1_20250303061023.jpg&q=20)
-  
-
-地產代理數據顯示，上周末10大二手指標屋苑成交量創多個星期低位，一手市場成焦點。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793922-20250303.htm)
 
 ---

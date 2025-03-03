@@ -1,3 +1,24 @@
+# 投資推廣署部分電腦系統遭入侵　署方稱不涉及個人資料外洩
+
+投資推廣署部分電腦系統早前被惡意勒索軟件入侵，署方表示，根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況，電腦系統已於今日大致回復正常運作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm)
+
+---
+
 # 涉社交平台發布煽動訊息　巴士電器技工還押案件五月再訊
 
 ![總裁判官蘇惠德將案件押後至5月8日，待辯方閱讀文件及索取指示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794057_1_20250303232502.jpg&q=65)
