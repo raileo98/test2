@@ -1,6 +1,6 @@
 # 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
 
-![何漢權引述夏寶龍指，穿在自己雙腳的鞋子，才是最適合的一雙鞋子，要更好利用一國兩制。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
   
 
 全國政協十四屆三次會議，明日下午在北京開幕。中央港澳辦、國務院港澳辦主任夏寶龍，晚上在全國政協禮堂看望來自香港和澳門的全國政協委員。
