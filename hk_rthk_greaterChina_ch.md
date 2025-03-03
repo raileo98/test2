@@ -1,4 +1,31 @@
+# 全國兩會｜分析指中央級財政赤字有提升空間
+
+![財政部主管媒體刊登的文章指，中央政府槓桿率不足30%，未來數年中央級財政赤字在力度上仍有空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794035_1_20250303204512.jpg&q=80)
+  
+
+財政部主管媒體刊登的文章指，從結構看，中央政府槓桿率較低，仍不足30%，未來數年中央級財政赤字在力度上仍有空間，但從長遠角度看，追求財政的周期性平衡仍是目標，否則財政赤字持續累積，將加重財政負擔、加劇通脹風險等一系列問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm)
+
+---
+
 # 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794039_1_20250303212759.jpg&q=75)
+  
 
 十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
 
@@ -1408,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793552-20250227.htm)
-
----
-
-# 特朗普：下周向墨西哥和加拿大加徵關稅　中國關稅再加一成
-
-![特朗普表示，將會如期從下星期二起，對墨西哥和加拿大加徵關稅，同日亦會再向中國徵收額外一成關稅。（特朗普社交平台截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793549_1_20250227224405.jpg&q=90)
-  
-
-美國總統特朗普表示，將會如期從下星期二起，對墨西哥和加拿大加徵關稅，同日亦會再向中國徵收額外一成關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm)
 
 ---

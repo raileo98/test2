@@ -1,3 +1,27 @@
+# 德國曼海姆市有汽車衝向人群　據報造成多人死傷
+
+![多輛緊急車輛趕到事發現場協助。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794042_1_20250303212037.jpg&q=60)
+  
+
+德國西部城市曼海姆有汽車衝向人群，多人受傷倒地，當地傳媒報道，事件造成至少1人死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm)
+
+---
+
 # 克宮：澤連斯基政權不希望和平　應要有人迫使他改變
 
 ![佩斯科夫表示，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794034_1_20250303204549.jpg&q=90)
@@ -44,6 +68,9 @@
 ---
 
 # 日本岩手山火持續　逾1200人被疏散至臨時安置點
+
+![山火自上月26日起焚燒，多座房屋及大片林木被焚毀。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794032_1_20250303212919.jpg&q=85)
+  
 
 日本岩手縣大船渡市的山火持續，火場面積已擴大至超過2千公頃。
 
@@ -1405,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793800-20250301.htm)
-
----
-
-# 哈馬斯拒絕以色列提出延長加沙停火協議第一階段
-
-![在加沙地帶汗尤尼斯，建築物經過多月戰火後成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793797_1_20250301170723.jpg&q=50)
-  
-
-哈馬斯發言人卡西姆接受傳媒採訪時表示，哈馬斯拒絕以色列希望延長加沙停火協議第一階段的方案，而目前沒有關於第二階段的相關談判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm)
 
 ---

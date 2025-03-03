@@ -1,3 +1,75 @@
+# 央視報道工行擬未來3年對民企投融資規模不少於6萬億元人民幣
+
+![央視新聞報道指，工商銀行計劃未來3年，為民企提供投融資規模不少於6萬億元人民幣，增加信用及中長期資金供應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794038_1_20250303210329.jpg&q=75)
+  
+
+央視新聞報道指，工商銀行計劃未來3年，為民企提供投融資規模不少於6萬億元人民幣，增加信用及中長期資金供應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm)
+
+---
+
+# 歐元區2月通脹率放緩至2.4%　市場對歐洲央行減息預期升溫
+
+![歐元區2月通脹率由2.5%放緩至2.4%，市場對歐洲央行本周四減息預期升溫。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794037_1_20250303205742.jpg&q=40)
+  
+
+歐元區2月通脹率由2.5%放緩至2.4%，跌向歐洲央行2%的目標，市場對歐洲央行本周四減息預期升溫。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm)
+
+---
+
+# 全國兩會｜分析指中央級財政赤字有提升空間
+
+![財政部主管媒體刊登的文章指，中央政府槓桿率不足30%，未來數年中央級財政赤字在力度上仍有空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794035_1_20250303204512.jpg&q=80)
+  
+
+財政部主管媒體刊登的文章指，從結構看，中央政府槓桿率較低，仍不足30%，未來數年中央級財政赤字在力度上仍有空間，但從長遠角度看，追求財政的周期性平衡仍是目標，否則財政赤字持續累積，將加重財政負擔、加劇通脹風險等一系列問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm)
+
+---
+
 # 鷹君去年虧損17.3億元　末期息維持50港仙
 
 ![鷹君派末期息每股50港仙，全年派息87港仙，兩者按年持平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794033_1_20250303203054.jpg&q=75)
@@ -24,6 +96,9 @@
 
 # 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794041_1_20250303213402.jpg&q=75)
+  
+
 屹立北角超過50年的新光戲院將於今日結業。有不少市民到場拍照留念。
 
   
@@ -44,6 +119,9 @@
 ---
 
 # 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794039_1_20250303212759.jpg&q=75)
+  
 
 十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
 
@@ -1359,77 +1437,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm)
-
----
-
-# 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
-
-![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
-  
-
-人民銀行、全國工商聯、金融監管總局、中國證監會、國家外匯局前日聯合召開金融支持民營企業高質量發展座談會。會議強調，各方要增強協同聯動，推動完善融資配套機制，下大氣力解決民營企業融資難、融資貴問題，共同營造更優的民營企業發展環境。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：公僕某些職位空缺可減人手
-
-![楊何蓓茵表示，公務員職位空缺和削減編制是兩回事。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793869_1_20250302124303.jpg&q=85)
-  
-
-公務員事務局局長楊何蓓茵表示，公務員職位空缺和削減編制是兩回事，某些職位空缺不能不填補，例如消防員、官校教師，某些職位空缺可以透過檢討工作安排、調職、退休自然流失等，達到減省人手。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm)
-
----
-
-# 財政預算案2025｜陳茂波：陸路離境稅仍在設想階段可再商量
-
-![陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793868_2_20250302135915.jpg&q=90)
-  
-
-新一份《財政預算案》提出多項開源節流的措施，財政司司長陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm)
 
 ---

@@ -1,5 +1,8 @@
 # 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794041_1_20250303213402.jpg&q=75)
+  
+
 屹立北角超過50年的新光戲院將於今日結業。有不少市民到場拍照留念。
 
   
@@ -20,6 +23,9 @@
 ---
 
 # 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794039_1_20250303212759.jpg&q=75)
+  
 
 十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
 

@@ -1,3 +1,28 @@
+# Sunbeam dazzles theatre-goers one last time
+
+![Theatre-goers flock to Sunbeam for its final show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_1_20250303213509.jpg&q=60)
+![Lana Wong, left, says she has many fond memories of Sunbeam. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_2_20250303213509.jpg&q=85)
+  
+
+Sunbeam Theatre – the North Point venue best known for its Cantonese opera performances – put on its last show on Monday night, bidding farewell to fans and opera lovers after more than half a century.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm)
+
+---
+
 # Haifa attacker was Israeli Druze minority
 
 ![Members of Israeli security and emergency services transport the body of the reported attacker in Haifa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794029_1_20250303192453.jpg&q=85)
@@ -1419,29 +1444,5 @@ Microsoft on Friday announced it was retiring Skype, the online voice and video 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm)
-
----
-
-# Trump berates Zelensky in shock Oval Office meeting
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793743_1_20250301034739.jpg&q=85)
-  
-
-US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday and said the Ukrainian leader is "not ready" for peace with Russia in an extraordinary meltdown in the Oval Office that threw question marks over chances for a truce.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm)
 
 ---

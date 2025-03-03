@@ -1,3 +1,99 @@
+# 德國曼海姆市有汽車衝向人群　據報造成多人死傷
+
+![多輛緊急車輛趕到事發現場協助。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794042_1_20250303212037.jpg&q=60)
+  
+
+德國西部城市曼海姆有汽車衝向人群，多人受傷倒地，當地傳媒報道，事件造成至少1人死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm)
+
+---
+
+# 央視報道工行擬未來3年對民企投融資規模不少於6萬億元人民幣
+
+![央視新聞報道指，工商銀行計劃未來3年，為民企提供投融資規模不少於6萬億元人民幣，增加信用及中長期資金供應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794038_1_20250303210329.jpg&q=75)
+  
+
+央視新聞報道指，工商銀行計劃未來3年，為民企提供投融資規模不少於6萬億元人民幣，增加信用及中長期資金供應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm)
+
+---
+
+# 歐元區2月通脹率放緩至2.4%　市場對歐洲央行減息預期升溫
+
+![歐元區2月通脹率由2.5%放緩至2.4%，市場對歐洲央行本周四減息預期升溫。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794037_1_20250303205742.jpg&q=40)
+  
+
+歐元區2月通脹率由2.5%放緩至2.4%，跌向歐洲央行2%的目標，市場對歐洲央行本周四減息預期升溫。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm)
+
+---
+
+# 全國兩會｜分析指中央級財政赤字有提升空間
+
+![財政部主管媒體刊登的文章指，中央政府槓桿率不足30%，未來數年中央級財政赤字在力度上仍有空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794035_1_20250303204512.jpg&q=80)
+  
+
+財政部主管媒體刊登的文章指，從結構看，中央政府槓桿率較低，仍不足30%，未來數年中央級財政赤字在力度上仍有空間，但從長遠角度看，追求財政的周期性平衡仍是目標，否則財政赤字持續累積，將加重財政負擔、加劇通脹風險等一系列問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm)
+
+---
+
 # 克宮：澤連斯基政權不希望和平　應要有人迫使他改變
 
 ![佩斯科夫表示，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794034_1_20250303204549.jpg&q=90)
@@ -48,6 +144,9 @@
 
 # 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794041_1_20250303213402.jpg&q=75)
+  
+
 屹立北角超過50年的新光戲院將於今日結業。有不少市民到場拍照留念。
 
   
@@ -89,6 +188,9 @@
 ---
 
 # 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794039_1_20250303212759.jpg&q=75)
+  
 
 十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
 
@@ -134,6 +236,9 @@
 ---
 
 # 日本岩手山火持續　逾1200人被疏散至臨時安置點
+
+![山火自上月26日起焚燒，多座房屋及大片林木被焚毀。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794032_1_20250303212919.jpg&q=85)
+  
 
 日本岩手縣大船渡市的山火持續，火場面積已擴大至超過2千公頃。
 
