@@ -1,3 +1,27 @@
+# 美股初段變動不大　道指曾重上44000點　納指偏軟
+
+![道瓊斯指數一度重上44000點水平，升至44033點，較早時報43926點，升85點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794051_1_20250303225000.jpg&q=90)
+  
+
+美股初段變動不大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm)
+
+---
+
 # 國安條例生效而被拒提早獲釋　法庭判馬俊文需支付一半訟費
 
 ![法官有見本案為首宗《維護國家安全條例》司法覆核，酌情下令馬俊文支付署方司法覆核一半訟費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794050_1_20250303224415.jpg&q=85)

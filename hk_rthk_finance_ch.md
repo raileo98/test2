@@ -1,3 +1,27 @@
+# 美股初段變動不大　道指曾重上44000點　納指偏軟
+
+![道瓊斯指數一度重上44000點水平，升至44033點，較早時報43926點，升85點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794051_1_20250303225000.jpg&q=90)
+  
+
+美股初段變動不大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm)
+
+---
+
 # 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
 
 ![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
@@ -1413,29 +1437,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm)
-
----
-
-# 全國兩會｜唐英年倡擴大一簽多行及推動金融自由行
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
-  
-
-全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm)
 
 ---
