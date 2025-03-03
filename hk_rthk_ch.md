@@ -1,3 +1,27 @@
+# 港股美國預託證券普遍較本港收市下跌
+
+![小米ADR較本港收市跌逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794080_1_20250304062512.jpg&q=90)
+  
+
+港股美國預託證券(ADR)普遍較本港收市下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm)
+
+---
+
 # 美元下跌　烏克蘭和談憧憬推動歐元上升
 
 ![美元指數失守107水平，歐元兌美元在紐約尾市升逾1%，受到烏克蘭和談憧憬推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794079_1_20250304061850.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm)
-
----
-
-# 全國兩會｜李慧琼：為「十五五」規劃建言獻策
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
-  
-
-行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人大第三次會議開幕會。另外，全國人大常委李慧琼表示，今年兩會特別之處，是適逢「十四五」規劃收官之年，需要總結經驗，為準備「十五五」規劃積極建言獻策。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
 
 ---

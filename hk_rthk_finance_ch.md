@@ -1,3 +1,27 @@
+# 港股美國預託證券普遍較本港收市下跌
+
+![小米ADR較本港收市跌逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794080_1_20250304062512.jpg&q=90)
+  
+
+港股美國預託證券(ADR)普遍較本港收市下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm)
+
+---
+
 # 美元下跌　烏克蘭和談憧憬推動歐元上升
 
 ![美元指數失守107水平，歐元兌美元在紐約尾市升逾1%，受到烏克蘭和談憧憬推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794079_1_20250304061850.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793941-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793941-20250303.htm)
-
----
-
-# 內地股市初段上升
-
-![滬深股市在開市初段上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793942_1_20250303093847.jpg&q=85)
-  
-
-滬深股市在開市初段上升。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793942-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793942-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793942-20250303.htm)
 
 ---
