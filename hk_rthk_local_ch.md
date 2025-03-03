@@ -1,5 +1,8 @@
 # 陳美寶：對的士車隊有期望　冀發揮「領頭羊」角色
 
+![陳美寶呼籲市民試用的士車隊，並反映意見，讓車隊精益求精。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793977_1_20250303135716.jpg&q=70)
+  
+
 政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
 
   
