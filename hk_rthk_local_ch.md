@@ -239,7 +239,6 @@
 
 # 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
 
-![李慧琼（左二）相信政府工作報告中有配套措施推出，讓更多民營企業投資國家，亦包括香港。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_2_20250303115153.jpg&q=80)
 ![邵家輝（左）說今年提案希望大灣區另外8個城市盡快嘗試一周一行。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_3_20250303132713.jpg&q=85)
   
 
