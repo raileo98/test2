@@ -222,10 +222,10 @@ European leaders closed ranks on Sunday in support of Kyiv at a London summit, w
 
 # HK to push for greater integration at Two Sessions
 
-![Members of the NPC and CPPCC will be joining the country's largest annual political gatherings in Beijing this week. Photo combo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=80)
+![Closewise from top right, Starry Lee, Ronick Chan, William Wong and Johnny Ng are among the delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=80)
   
 
-Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – on the development of artificial intelligence and a low-altitude economy, among other things – as the SAR seeks to further integrate into the nation's development.
+Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – from the development of artificial intelligence to a low-altitude economy – as the SAR seeks to further integrate into the nation's development.
 
   
 
