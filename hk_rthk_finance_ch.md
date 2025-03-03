@@ -1,3 +1,27 @@
+# 日股高收1.7%
+
+![日經指數收報37785點，升629點，升幅1.7%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793982_1_20250303143952.jpg&q=80)
+  
+
+日股顯著造好，日經指數收報37785點，升629點，升幅1.7%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm)
+
+---
+
 # 台股低收約1.3%
 
 ![台灣加權指數收市報22756點，跌296點，跌幅1.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793980_1_20250303142606.jpg&q=85)
@@ -358,30 +382,6 @@
 
 ---
 
-# ASMPT：附屬公司訂立對價協議　獲A股公司股份及現金
-
-![ASMPT公告顯示，對價協議涉及出售目標公司49%權股，代價為17.17億元人民幣，將收取A股上市公司2900萬股新股份，以及7.89億元人民幣現金對價。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793932_1_20250303083321.jpg&q=90)
-  
-
-ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市公司深圳至正高分子材料及正信同創就建議交易訂立對價確認協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
-
----
-
 # 港股競價時段升193點
 
 ![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
@@ -403,6 +403,30 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
+
+---
+
+# ASMPT：附屬公司訂立對價協議　獲A股公司股份及現金
+
+![ASMPT公告顯示，對價協議涉及出售目標公司49%權股，代價為17.17億元人民幣，將收取A股上市公司2900萬股新股份，以及7.89億元人民幣現金對價。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793932_1_20250303083321.jpg&q=90)
+  
+
+ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市公司深圳至正高分子材料及正信同創就建議交易訂立對價確認協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
 
 ---
 
@@ -1412,29 +1436,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793722-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793722-20250228.htm)
-
----
-
-# 美國上月核心PCE物價指數按月升0.3%　符合預期
-
-![美國上月核心PCE物價指數按月升0.3%，符合預期，重返去年10月的水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793723_1_20250228220530.jpg&q=55)
-  
-
-美國商務部經濟分析局公布，上月個人消費支出(PCE)物價指數按月升0.3%，符合市場預期，按年升2.5%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793723-20250228.htm)
 
 ---

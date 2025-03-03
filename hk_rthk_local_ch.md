@@ -1,3 +1,24 @@
+# 陳文宜將出任社聯行政總裁
+
+社聯宣布，聘請現任社聯業務總監陳文宜，為下任社聯行政總裁，下月1日履新。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm)
+
+---
+
 # 陳美寶：對的士車隊有期望　冀發揮「領頭羊」角色
 
 ![陳美寶呼籲市民試用的士車隊，並反映意見，讓車隊精益求精。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793977_1_20250303135716.jpg&q=70)
@@ -1416,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm)
-
----
-
-# 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
-
-![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=85)
-![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
-  
-
-行政長官李家超表示，啟德體育園開幕典禮今晚舉行，很高興親臨現場，與市民一同見證歷史性時刻。節目豐富多彩，香港和內地跨年齡、跨世代的體育、文化、演藝界精英傾情獻藝，為啟德體育園的啟用揭開精彩序幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm)
 
 ---

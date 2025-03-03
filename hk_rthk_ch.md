@@ -1,3 +1,48 @@
+# 陳文宜將出任社聯行政總裁
+
+社聯宣布，聘請現任社聯業務總監陳文宜，為下任社聯行政總裁，下月1日履新。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm)
+
+---
+
+# 日股高收1.7%
+
+![日經指數收報37785點，升629點，升幅1.7%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793982_1_20250303143952.jpg&q=80)
+  
+
+日股顯著造好，日經指數收報37785點，升629點，升幅1.7%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm)
+
+---
+
 # 台股低收約1.3%
 
 ![台灣加權指數收市報22756點，跌296點，跌幅1.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793980_1_20250303142606.jpg&q=85)
