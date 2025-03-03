@@ -1,3 +1,27 @@
+# Forest sink Ipswich on pens to reach FA Cup quarters
+
+![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=90)
+  
+
+Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cup quarter-finals after a 1-1 draw at the City Ground.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
+
+---
+
 # Cavs beat Blazers in overtime for 10th straight win
 
 ![Cavaliers forward De'Andre Hunter (12) drives to the basket against Portland Trail Blazers' Donovan Clingan. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_1_20250303100809.jpg&q=85)
@@ -1421,29 +1445,5 @@ Harry Kane was on target as Bayern Munich beat Celtic 2-1 in Glasgow in the firs
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791418-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791418-20250213.htm)
-
----
-
-# Everton strike late to hold Liverpool in thriller
-
-![Tarkowski struck late to salvage a 2-2 draw with Premier League-leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791408_1_20250213060806.jpg&q=90)
-  
-
-James Tarkowski struck in the 98th minute to salvage a 2-2 draw for Everton against Liverpool in a dramatic final Merseyside derby at Goodison Park.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791408-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791408-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791408-20250213.htm)
 
 ---

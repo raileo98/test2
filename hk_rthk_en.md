@@ -1,3 +1,27 @@
+# Forest sink Ipswich on pens to reach FA Cup quarters
+
+![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=90)
+  
+
+Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cup quarter-finals after a 1-1 draw at the City Ground.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
+
+---
+
 # Trump signs order to further hike tariffs on China
 
 ![The order raises a previously imposed 10 percent tariff on China to 20 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794081_1_20250304063119.jpg&q=90)
@@ -1420,29 +1444,5 @@ Users will be able to check the remaining number of discounted trips using an Oc
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm)
-
----
-
-# Chinese embassy warns against coercion in tariff hikes
-
-![The Chinese embassy in Washington said unilateral tariff hikes by the US severely violate World Trade Organization rules and harm interests for China, the US and the world. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793757_1_20250301083308.jpg&q=90)
-  
-
-US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matching US tariffs on China in a move that he described as "very interesting" and one that Canada should match.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm)
 
 ---
