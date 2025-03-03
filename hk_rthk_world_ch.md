@@ -1,3 +1,27 @@
+# 特朗普：台積電將在美國新投資至少1000億美元
+
+![特朗普與商務部長盧特尼克（左）及魏哲家（右）陪同下在白宮會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794075_1_20250304052431.jpg&q=90)
+  
+
+美國總統特朗普說，晶片製造商台積電將在美國再投資至少1000億美元，興建尖端晶片製造設施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm)
+
+---
+
 # 德國曼海姆汽車撞人群2死多人傷　當局稱疑犯有精神病
 
 ![法證人員檢視一輛涉案汽車蒐證。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794071_1_20250304043807.jpg&q=65)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793842-20250302.htm)
-
----
-
-# 北約秘書長稱已告知澤連斯基須修復與特朗普的關係
-
-![呂特形容，澤連斯基與特朗普的會晤令人遺憾。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793841_1_20250302014133.jpg&q=90)
-  
-
-北約秘書長呂特表示，已經告知烏克蘭總統澤連斯基，需要尋找方法修復與美國總統特朗普的關係。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm)
 
 ---

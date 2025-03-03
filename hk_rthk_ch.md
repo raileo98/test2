@@ -1,3 +1,27 @@
+# 特朗普：台積電將在美國新投資至少1000億美元
+
+![特朗普與商務部長盧特尼克（左）及魏哲家（右）陪同下在白宮會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794075_1_20250304052431.jpg&q=90)
+  
+
+美國總統特朗普說，晶片製造商台積電將在美國再投資至少1000億美元，興建尖端晶片製造設施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm)
+
+---
+
 # 德國曼海姆汽車撞人群2死多人傷　當局稱疑犯有精神病
 
 ![法證人員檢視一輛涉案汽車蒐證。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794071_1_20250304043807.jpg&q=65)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm)
-
----
-
-# 專營巴士交通意外傷亡人數去年2434人　長者佔約一半
-
-![專營巴士交通意外傷亡人數由2020年的1735人，上升至去年的2434人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794004_1_20250303175423.jpg&q=80)
-  
-
-運輸署表示，根據統計，專營巴士交通意外傷亡人數由2020年的1735人，上升至2024年的2434人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm)
 
 ---
