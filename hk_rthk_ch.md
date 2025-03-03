@@ -1,3 +1,27 @@
+# 特朗普：澤連斯基應對美國更加感激
+
+![特朗普暗示若果澤連斯基不想達成協議，不會在位很久。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794078_1_20250304055436.jpg&q=90)
+  
+
+美國總統特朗普表示，俄烏戰事爆發後，美國一直支持烏克蘭，澤連斯基應該對美國提供的軍事援助「更加感激」。對於有報道說，美國可能停止對烏克蘭的軍事援助，特朗普說，現在未有討論，又不認為兩國之間的礦產協議已經告吹。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm)
+
+---
+
 # 特朗普提高對中國進口商品關稅至20%
 
 ![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm)
-
----
-
-# 在岸人民幣兌美元低收93點子　創近3星期新低
-
-![在岸人民幣收報7.2931兌1美元，跌幅0.13%，創近3星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794013_1_20250303180926.jpg&q=40)
-  
-
-在岸人民幣收報7.2931兌1美元，較上星期五收市價跌93點子，跌幅0.13%，創近3星期新低。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm)
 
 ---

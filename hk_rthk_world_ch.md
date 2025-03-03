@@ -1,3 +1,27 @@
+# 特朗普：澤連斯基應對美國更加感激
+
+![特朗普暗示若果澤連斯基不想達成協議，不會在位很久。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794078_1_20250304055436.jpg&q=90)
+  
+
+美國總統特朗普表示，俄烏戰事爆發後，美國一直支持烏克蘭，澤連斯基應該對美國提供的軍事援助「更加感激」。對於有報道說，美國可能停止對烏克蘭的軍事援助，特朗普說，現在未有討論，又不認為兩國之間的礦產協議已經告吹。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm)
+
+---
+
 # 特朗普提高對中國進口商品關稅至20%
 
 ![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm)
-
----
-
-# 梵蒂岡稱教宗方濟各情況穩定
-
-![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793843_1_20250302022219.jpg&q=65)
-  
-
-教宗方濟各因肺炎住院兩星期，梵蒂岡星期六晚表示，方濟各經歷呼吸危機後，臨床情況保持穩定，仍然需要吸氧氣，但沒有發燒，亦沒有出現支氣管痙攣。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793843-20250302.htm)
 
 ---
