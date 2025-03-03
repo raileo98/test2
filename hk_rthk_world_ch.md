@@ -1,3 +1,27 @@
+# 《阿諾拉》奪奧斯卡5獎包括最佳電影、最佳導演和影后
+
+![出爐影帝艾哲倫保迪、影后米姬麥迪遜、最佳女配角素兒蘇丹娜及最佳男配角基雲高堅（左起）合照。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793976_1_20250303132443.jpg&q=85)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm)
+
+---
+
 # 《阿諾拉》奪奧斯卡最佳電影、最佳導演及影后
 
 ![《阿諾拉》奪得奧斯卡最佳電影。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793962_1_20250303114758.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793742-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793742-20250301.htm)
-
----
-
-# 特朗普形容以三戰為籌碼　澤連斯基稱和議不應與普京妥協
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793741_1_20250301024159.jpg&q=90)
-  
-
-美國總統特朗普與到訪的烏克蘭總統澤連斯基，在白宮橢圓形辦公室舉行會談。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793741-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793741-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793741-20250301.htm)
 
 ---

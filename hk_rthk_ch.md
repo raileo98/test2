@@ -1,3 +1,27 @@
+# 《阿諾拉》奪奧斯卡5獎包括最佳電影、最佳導演和影后
+
+![出爐影帝艾哲倫保迪、影后米姬麥迪遜、最佳女配角素兒蘇丹娜及最佳男配角基雲高堅（左起）合照。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793976_1_20250303132443.jpg&q=85)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm)
+
+---
+
 # 恒指下午早段升逾300點
 
 ![恒生指數較早時報23255點，升313點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793975_1_20250303130913.jpg&q=1)
@@ -669,30 +693,6 @@
 
 ---
 
-# 港股競價時段升193點
-
-![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
-  
-
-港股在競價時段上升，恒生指數報23135點，升193點，升幅0.84%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
-
----
-
 # ASMPT：附屬公司訂立對價協議　獲A股公司股份及現金
 
 ![ASMPT公告顯示，對價協議涉及出售目標公司49%權股，代價為17.17億元人民幣，將收取A股上市公司2900萬股新股份，以及7.89億元人民幣現金對價。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793932_1_20250303083321.jpg&q=90)
@@ -714,6 +714,30 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
+
+---
+
+# 港股競價時段升193點
+
+![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
+  
+
+港股在競價時段上升，恒生指數報23135點，升193點，升幅0.84%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
 
 ---
 
@@ -1410,29 +1434,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793902-20250302.htm)
-
----
-
-# 楊德強：會檢討全運會三鐵測試賽流程　為年底舉辦正賽做好準備
-
-![港隊在混合接力賽取得銅牌。（2025全運會香港賽區社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793901_1_20250302214044.jpg&q=80)
-  
-
-一連兩日在中環海濱及維港舉行的全運會三項鐵人測試賽結束。全運會統籌辦主任楊德強表示，會與各相關機構及政府部門檢討賽事流程和各項細節，為今年年底舉辦的正賽做好準備。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm)
 
 ---
