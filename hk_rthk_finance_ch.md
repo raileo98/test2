@@ -1,3 +1,27 @@
+# 北都公路勘查研究展開　目標25個月內優先完成新田段工作
+
+![路政署目標讓北都公路新田段具備技術條件可在2027年招標。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794036_1_20250303205559.jpg&q=55)
+  
+
+路政署展開北都公路的勘查研究，目標於25個月內優先完成北都公路新田段的工作，在2027年具備技術條件為主體建造工程進行招標，當中包括優化走線及接駁位置、進行環境影響評估研究，以及進行刊憲，並會同步完成新田段的工地勘測工作、其他影響評估及初步設計工作，務求加快項目推展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm)
+
+---
+
 # 分析料本港零售銷售第2季或下半年回復增長
 
 ![吳卓殷表示，本港零售銷售面對不少挑戰，估計零售銷售可能要到第2季，甚至下半年，才會回復增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794030_1_20250303193120.jpg&q=75)
@@ -96,6 +120,9 @@
 
 # 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
 
+![陳茂波強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794024_1_20250303205802.jpg&q=30)
+  
+
 財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
 
   
@@ -116,6 +143,9 @@
 ---
 
 # 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
+
+![劉結一表示，全國政協將持續支持大灣區建設，助力港澳在融入國家發展大局中，實現自身更好發展。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794022_1_20250303205623.jpg&q=90)
+  
 
 全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
 
@@ -1407,29 +1437,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：與公務員開會　大都理解凍薪決定
-
-![楊何蓓茵表示，早前和公務員開會後，大部分人都表示理解全體公務員凍薪的決定。 （陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793854_1_20250302093308.jpg&q=85)
-  
-
-公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部分人均表示理解全體公務員凍薪的決定。有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm)
 
 ---
