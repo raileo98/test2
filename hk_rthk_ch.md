@@ -1,4 +1,28 @@
-# 財政預算案2025｜蔡海偉稱應對削減資源社福或需減人手減薪酬
+# 會展今明年舉辦多個展覽     料可展現「會展經濟效益」
+
+![香港會展管理公司表示，今明兩年新增不少有關虛擬資產、商貿科技展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794007_1_20250303190340.jpg&q=80)
+  
+
+香港會展管理公司董事總經理梅李玉霞表示，今明兩年新增不少有關虛擬資產、商貿科技展覽，包括今年8月在會展中心舉行的「Bitcoin Asia 2025香港比特幣大會」，預期會吸引更多金融界人士的興趣。至於「亞洲計算機圖形學與交互技術會議及展覽SIGGRAPH Asia 2025」將於年底舉行，相隔11年重臨香港。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm)
+
+---
+
+# 財政預算案2025｜蔡海偉稱社福機構或選擇減人手減薪酬
 
 ![蔡海偉說，社福機構會盡力不影響服務使用者。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794026_1_20250303190110.jpg&q=80)
   
