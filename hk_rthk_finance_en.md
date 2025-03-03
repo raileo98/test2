@@ -1,3 +1,27 @@
+# China factory activity grows at fastest pace in months
+
+![The positive trend in the Caixin survey aligned with an official PMI released over the weekend. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793951_1_20250303101834.jpg&q=90)
+  
+
+China's factory activity grew at a faster pace in February, driven by stronger supply and demand, a private-sector survey showed on Monday, partly due to seasonal factors related to the holiday period.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm)
+
+---
+
 # China bubble tea giant soars on HK trading debut
 
 ![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=80)
@@ -1411,29 +1435,5 @@ Search engine giant Baidu said on Friday it would make its next-generation artif
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm)
-
----
-
-# Tech stocks help lift US markets
-
-![Wall Street ended the session higher. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791555_1_20250214052642.jpg&q=80)
-  
-
-US markets ended higher on Thursday, powered by gains in tech related stocks, with the S&P 500 leading the charge.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791555-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791555-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791555-20250214.htm)
 
 ---

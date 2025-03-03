@@ -1,3 +1,27 @@
+# China factory activity grows at fastest pace in months
+
+![The positive trend in the Caixin survey aligned with an official PMI released over the weekend. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793951_1_20250303101834.jpg&q=90)
+  
+
+China's factory activity grew at a faster pace in February, driven by stronger supply and demand, a private-sector survey showed on Monday, partly due to seasonal factors related to the holiday period.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm)
+
+---
+
 # CE to travel to Beijing for NPC opening
 
 ![John Lee will head to Beijing to attend the annual opening meeting of the National People’s Congress. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793957_1_20250303111954.jpg&q=80)
@@ -1414,29 +1438,5 @@ President Xi Jinping said China's economic fundamentals remain solid despite the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm)
-
----
-
-# Ethnic minority advocacy group Unison to wind up
-
-![The executive committee chair of Hong Kong Unison, Alice Chong, middle, says its “historical mission has been successfully accomplished”. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793653_2_20250228164445.jpg&q=85)
-  
-
-Hong Kong Unison, a group advocating the rights of the city's ethnic minorities, on Friday announced it was starting its dissolution process, saying its “historical mission has been successfully accomplished.”
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm)
 
 ---
