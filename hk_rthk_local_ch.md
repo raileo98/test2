@@ -1,3 +1,27 @@
+# 分析料本港零售銷售第2季或下半年回復增長
+
+![吳卓殷表示，本港零售銷售面對不少挑戰，估計零售銷售可能要到第2季，甚至下半年，才會回復增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794030_1_20250303193120.jpg&q=75)
+  
+
+本港1月零售業總銷貨價值臨時估計353億元，按年下跌3.2%，連跌11個月，但跌幅低於去年12月的9.6%，創3個月以來最小跌幅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm)
+
+---
+
 # 會展今明年舉辦多個展覽     料可展現「會展經濟效益」
 
 ![香港會展管理公司表示，今明兩年新增不少有關虛擬資產、商貿科技展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794007_1_20250303190340.jpg&q=80)
@@ -1401,29 +1425,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793881-20250302.htm)
-
----
-
-# 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm)
 
 ---

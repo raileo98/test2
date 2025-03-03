@@ -1,3 +1,27 @@
+# 分析料本港零售銷售第2季或下半年回復增長
+
+![吳卓殷表示，本港零售銷售面對不少挑戰，估計零售銷售可能要到第2季，甚至下半年，才會回復增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794030_1_20250303193120.jpg&q=75)
+  
+
+本港1月零售業總銷貨價值臨時估計353億元，按年下跌3.2%，連跌11個月，但跌幅低於去年12月的9.6%，創3個月以來最小跌幅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm)
+
+---
+
 # 全國兩會｜港澳全國政協委員抵全國政協禮堂　據了解與夏寶龍會面
 
 全國政協十四屆三次會議，明日下午在北京開幕。
