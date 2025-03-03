@@ -1,3 +1,45 @@
+# 涉兒童及青少年脂肪肝病例趨增　團體籲從小培養良好生活運動習慣
+
+香港肥胖學會及香港亞洲肝炎會指出，涉及兒童及青少年的脂肪肝病例增加，肥胖被視為「代謝性脂肪肝」的主要危險因素，估計一般兒童人口有關患病率約3%至一成，但肥胖兒童患病率可高達近三至四成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm)
+
+---
+
+# 專營巴士交通意外傷亡人數去年2434人長者佔約一半
+
+運輸署表示，根據統計，專營巴士交通意外傷亡人數由2020年的1735人，上升至2024年的2434人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm)
+
+---
+
 # 本港1月零售銷售按年跌幅收窄至3.2%　連續11個月下跌
 
 ![本港1月零售業總銷貨價值臨時估計按年跌幅收窄至3.2%，連跌11個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793997_1_20250303163656.jpg&q=80)
@@ -1387,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm)
-
----
-
-# 教育局對有學生交流活動期間離世感十分難過
-
-![教育局說，全力為涉事的學校及師生提供支援，又指事件並不涉及考察活動行程，其他考察團不受影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793830_1_20250301225314.jpg&q=80)
-  
-
-聖保羅書院一名中五學生，參與內地交流活動期間死亡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793830-20250301.htm)
-
----
-
-# 衞生防護中心調查外地傳入麻疹個案涉及一名38歲男子　情況穩定
-
-![衞生防護中心提醒市民外遊前應確保完成接種兩劑麻疹疫苗，以減低感染風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793829_1_20250301225517.jpg&q=80)
-  
-
-衞生署衞生防護中心調查一宗由外地傳入的麻疹個案，涉及一名過往健康良好的38歲男子，現時仍然留院，情況穩定。他的家居接觸者目前沒有病徵。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm)
 
 ---

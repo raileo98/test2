@@ -1,3 +1,24 @@
+# 中方堅決反對美卿謊言謬論　已向美方嚴正交涉
+
+在北京，外交部發言人林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論，已向美方提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm)
+
+---
+
 # 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
 
 在北京，外交部重申貿易戰、關稅戰無贏家。
@@ -1396,29 +1417,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
-
----
-
-# 國防部：削減核武庫和軍費開支美方應做到「美國優先」
-
-![吳謙說，美國作為擁有最大核武庫的國家，應切實履行核裁軍特殊、優先責任，進一步大幅、實質削減其核武庫。（國防部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793490_1_20250227163607.jpg&q=90)
-  
-
-美國總統特朗普近日主動提及計劃同中俄討論削減核武問題，並稱將提議將三國的國防預算削減一半。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm)
 
 ---

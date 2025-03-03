@@ -1,3 +1,24 @@
+# 中方堅決反對美卿謊言謬論　已向美方嚴正交涉
+
+在北京，外交部發言人林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論，已向美方提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm)
+
+---
+
 # 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
 
 在北京，外交部重申貿易戰、關稅戰無贏家。
@@ -1402,29 +1423,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm)
-
----
-
-# 澤連斯基：毋須向特朗普道歉　有信心挽回彼此關係
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793754_1_20250301183115.jpg&q=75)
-  
-
-美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，原定的兩國總統記者會取消，美方提出的礦產協議亦未簽署。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm)
 
 ---
