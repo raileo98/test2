@@ -1,3 +1,51 @@
+# 英格蘭足總盃　諾定咸森林互射12碼淘汰葉士域治
+
+![森林門將撲出最後一個12碼，與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794084_1_20250304071736.jpg&q=75)
+  
+
+英格蘭足總盃第五圈，諾定咸森林互射12碼淘汰葉士域治，取得最後一個8強席位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm)
+
+---
+
+# 意甲聯賽　祖雲達斯主場2:0擊敗維羅納
+
+![祖雲達斯擊敗維羅納，連勝5場。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794083_1_20250304071938.jpg&q=85)
+  
+
+意大利甲組足球聯賽，祖雲達斯主場2:0擊敗維羅納。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm)
+
+---
+
 # 全國兩會 | 何漢權引述夏寶龍：政協委員要成為監察者及局中人
 
 ![何漢權引述夏寶龍說，政協委員除了做監察者，更重要是成為局中人，就像球賽上一名積極的運動員。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794082_1_20250304065419.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
-
----
-
-# 涉藏約410萬元大麻花及另類吸煙產品　泰國抵港旅客被捕
-
-![海關檢獲市值約410萬元的大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794020_1_20250303185330.jpg&q=75)
-  
-
-一名從泰國抵港旅客的寄艙行李懷疑藏有市值約410萬元的大麻花，隨身袋被發現藏有一支懷疑另類吸煙產品，被機場海關拘捕。他被控以一項販運危險藥物和一項進口另類吸煙產品罪，明日在西九龍裁判法院提堂。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794020-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794020-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794020-20250303.htm)
-
----
-
-# 黎智英案控方完成盤問　料於6月進行結案陳詞
-
-![控方盤問階段完畢，辯方需時準備覆問環節，案件押後至本周三。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794018_1_20250303183948.jpg&q=85)
-  
-
-壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，控方盤問階段完畢，辯方需時準備覆問環節，案件押後至本周三。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 英格蘭足總盃　諾定咸森林互射12碼淘汰葉士域治
+
+![森林門將撲出最後一個12碼，與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794084_1_20250304071736.jpg&q=75)
+  
+
+英格蘭足總盃第五圈，諾定咸森林互射12碼淘汰葉士域治，取得最後一個8強席位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm)
+
+---
+
+# 意甲聯賽　祖雲達斯主場2:0擊敗維羅納
+
+![祖雲達斯擊敗維羅納，連勝5場。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794083_1_20250304071938.jpg&q=85)
+  
+
+意大利甲組足球聯賽，祖雲達斯主場2:0擊敗維羅納。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm)
+
+---
+
 # 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
 
 ![「世界格蘭披治桌球大獎賽2025」獲頒授「M」品牌認可。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794021_1_20250303185402.jpg&q=90)
@@ -1398,54 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm)
-
----
-
-# 英超阿士東維拉2:1反勝車路士
-
-![阿辛斯奧建兩功，助維拉取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792789_1_20250223042642.jpg&q=80)
-  
-
-英格蘭超級足球聯賽，阿士東維拉主場2:1擊敗車路士。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792789-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792789-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792789-20250223.htm)
-
----
-
-# 英超阿仙奴0:1不敵韋斯咸　曼聯2:2逼和愛華頓
-
-![兵工廠的路易斯史基利領紅，球隊無法平反敗局。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792783_1_20250223012412.jpg&q=85)
-![曼聯球員圍著愛華頓的達高斯基理論。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792783_2_20250223012908.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，阿仙奴爭標路途遇到挫折，下半場中段之後十人應戰下，主場0:1不敵韋斯咸。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792783-20250223.htm)
 
 ---
