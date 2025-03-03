@@ -1,3 +1,114 @@
+# 克宮：澤連斯基政權不希望和平　應要有人迫使他改變
+
+![佩斯科夫表示，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794034_1_20250303204549.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，烏克蘭總統澤連斯基的政權不希望和平，希望俄烏戰爭繼續下去。俄方認為，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm)
+
+---
+
+# 鷹君去年虧損17.3億元　末期息維持50港仙
+
+![鷹君派末期息每股50港仙，全年派息87港仙，兩者按年持平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794033_1_20250303203054.jpg&q=75)
+  
+
+鷹君去年業績由盈轉虧，虧損17.3億元，前年盈利7.6億元；按法定會計準則計，收入升2%至108.8億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm)
+
+---
+
+# 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
+
+屹立北角超過50年的新光戲院將於今日結業。有不少市民到場拍照留念。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm)
+
+---
+
+# 澤連斯基稱烏克蘭需和平而非戰爭　指歐洲所有人將形成共同立場
+
+烏克蘭總統澤連斯基在網上發布片段，表示烏克蘭需要和平，而非無休止的戰爭，強調安全保障是實現這個目標的關鍵。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm)
+
+---
+
+# 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
+
+十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm)
+
+---
+
 # 北都公路勘查研究展開　目標25個月內優先完成新田段工作
 
 ![路政署目標讓北都公路新田段具備技術條件可在2027年招標。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794036_1_20250303205559.jpg&q=55)
@@ -68,6 +179,9 @@
 ---
 
 # 全國兩會｜港澳全國政協委員抵全國政協禮堂　據了解與夏寶龍會面
+
+![據了解，他們與中央港澳辦、國務院港澳辦主任夏寶龍會面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794028_1_20250303211244.jpg&q=85)
+  
 
 全國政協十四屆三次會議，明日下午在北京開幕。
 

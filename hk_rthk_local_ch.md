@@ -1,3 +1,45 @@
+# 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
+
+屹立北角超過50年的新光戲院將於今日結業。有不少市民到場拍照留念。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm)
+
+---
+
+# 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
+
+十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm)
+
+---
+
 # 北都公路勘查研究展開　目標25個月內優先完成新田段工作
 
 ![路政署目標讓北都公路新田段具備技術條件可在2027年招標。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794036_1_20250303205559.jpg&q=55)
@@ -1389,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm)
-
----
-
-# 調查：逾半受職場性騷擾女性沒處理問題　不足一半企業訂立指引
-
-![調查發現，超過3成受訪女性表示，過去3年曾受職場性騷擾。（民建聯提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793884_1_20250302170158.jpg&q=70)
-  
-
-有調查發現，超過3成受訪女性表示，過去3年曾受職場性騷擾，包括涉及言語、文字訊息及身體接觸；但6成人沒有處理，其餘大多數傾向內部處理，不願張揚。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793884-20250302.htm)
-
----
-
-# 六旬男子被困將軍澳山坡兩日獲救　手部受傷送院治理
-
-![一名約68歲男子在將軍澳被困一處山坡兩日後獲救，送往將軍澳醫院治理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793882_1_20250302171303.jpg&q=75)
-  
-
-一名約68歲男子在將軍澳被困一處山坡兩日後獲救。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793882-20250302.htm)
 
 ---

@@ -1,4 +1,28 @@
+# 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
+
+十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm)
+
+---
+
 # 全國兩會｜港澳全國政協委員抵全國政協禮堂　據了解與夏寶龍會面
+
+![據了解，他們與中央港澳辦、國務院港澳辦主任夏寶龍會面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794028_1_20250303211244.jpg&q=85)
+  
 
 全國政協十四屆三次會議，明日下午在北京開幕。
 
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793549-20250227.htm)
-
----
-
-# 解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查
-
-![解放軍和中國海警在黃岩島及周邊展開戰備警巡和執法巡查](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793535_1_20250227200016.jpg&q=90)
-  
-
-解放軍南部戰區和中國海警，今日在黃岩島及周邊區域展開戰備警巡和執法巡查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793535-20250227.htm)
 
 ---

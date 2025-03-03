@@ -1,3 +1,48 @@
+# 克宮：澤連斯基政權不希望和平　應要有人迫使他改變
+
+![佩斯科夫表示，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794034_1_20250303204549.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，烏克蘭總統澤連斯基的政權不希望和平，希望俄烏戰爭繼續下去。俄方認為，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm)
+
+---
+
+# 澤連斯基稱烏克蘭需和平而非戰爭　指歐洲所有人將形成共同立場
+
+烏克蘭總統澤連斯基在網上發布片段，表示烏克蘭需要和平，而非無休止的戰爭，強調安全保障是實現這個目標的關鍵。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm)
+
+---
+
 # 日本岩手山火持續　逾1200人被疏散至臨時安置點
 
 日本岩手縣大船渡市的山火持續，火場面積已擴大至超過2千公頃。
@@ -1384,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793797-20250301.htm)
-
----
-
-# 教宗方濟各支氣管痙攣要用呼吸機　吸氧後情況好轉
-
-![教宗方濟各繼續住院，信眾在聖伯多祿廣場參加祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793792_1_20250301161122.jpg&q=90)
-  
-
-梵蒂岡表示，因肺炎住院的教宗方濟各，星期五出現呼吸危機，導致嘔吐，吸氧後反應良好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793792-20250301.htm)
-
----
-
-# 庫爾德工人黨宣布即日起與土耳其停火
-
-![日前在土耳其一場集會上，有民眾手持厄賈蘭的肖像。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793785_1_20250301150623.jpg&q=85)
-  
-
-庫爾德工人黨宣布，遵守領導人厄賈蘭的呼籲，與土耳其停火，即日生效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm)
 
 ---
