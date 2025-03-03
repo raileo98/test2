@@ -1,3 +1,27 @@
+# China bubble tea giant soars on HK trading debut
+
+![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=80)
+  
+
+Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 30 per cent on their first day of trading on the Hong Kong Stock Exchange on Monday after the firm raised HK$444 million in an initial public offering (IPO).
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm)
+
+---
+
 # Cavs beat Blazers in overtime for 10th straight win
 
 ![Cavaliers forward De'Andre Hunter (12) drives to the basket against Portland Trail Blazers' Donovan Clingan. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_1_20250303100809.jpg&q=85)
@@ -1414,29 +1438,5 @@ Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm)
-
----
-
-# China vows response to latest US tariffs
-
-![China vowed to take "all necessary countermeasures" after US President Donald Trump said he would impose an additional 10 percent tariff on Chinese imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793657_1_20250228151408.jpg&q=85)
-  
-
-The Commerce Ministry on Friday said it opposed US President Donald Trump's latest threat to impose an additional 10 percent tariff on Chinese imports and vowed to take "all necessary countermeasures" if Chinese entities got caught up in the levies.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
 
 ---

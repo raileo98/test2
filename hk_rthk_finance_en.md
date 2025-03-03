@@ -1,3 +1,27 @@
+# China bubble tea giant soars on HK trading debut
+
+![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=80)
+  
+
+Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 30 per cent on their first day of trading on the Hong Kong Stock Exchange on Monday after the firm raised HK$444 million in an initial public offering (IPO).
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm)
+
+---
+
 # Local stocks up slightly in morning trading
 
 ![Hong Kong stocks post small gains after closing down more than three percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793946_1_20250303100414.jpg&q=30)
@@ -1411,29 +1435,5 @@ US markets ended higher on Thursday, powered by gains in tech related stocks, wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791555-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791555-20250214.htm)
-
----
-
-# China steel warns of 'adverse impact' of US tariffs
-
-![China's Iron and Steel Association said the tariff rise on steel and aluminum imports to the US would adversely impact the supply chain of the global steel industry. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791504_1_20250213181713.jpg&q=80)
-  
-
-A group representing China's steel industry has warned that a new 25 percent tariff on imports of the product into the United States would have an "adverse impact" on the sector, state media reported on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm)
 
 ---

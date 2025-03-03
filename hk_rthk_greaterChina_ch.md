@@ -1,3 +1,51 @@
+# 全國兩會｜行政會議明日及下周二不舉行會議　本月18日復會
+
+![部分行政會議成員需出席北京舉行的全國兩會，行政會議期間不舉行會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793952_1_20250303102408.jpg&q=80)
+  
+
+行政會議秘書處表示，由於身兼港區全國人大代表和港區全國政協委員的行政會議成員，需分別出席於北京舉行的第十四屆全國人大三次會議，以及全國政協第十四屆三次會議，按一貫做法，行政會議明日及下星期二不舉行會議，本月18日復會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm)
+
+---
+
+# 全國兩會｜李家超明日赴北京列席全國人大會議開幕
+
+![李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793950_1_20250303102742.jpg&q=80)
+  
+
+行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。行政長官辦公室主任葉文娟將隨行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm)
+
+---
+
 # 謝鋒：中美長期和平共存既是責任也是必須
 
 ![謝鋒在「杜克-北卡中國領導力峰會」發表視像致辭。（中國駐美大使館）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793939_1_20250303093114.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm)
-
----
-
-# 特朗普相信美中關係會是好的關係
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793398_1_20250227034730.jpg&q=85)
-  
-
-美國總統特朗普在召開第一次內閣會議上表示，與國家主席習近平有很好的關係，期望中國企業會到美國投資。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793398-20250227.htm)
-
----
-
-# 王毅晤新西蘭副總理　指雙方可透過對話妥善處理分歧
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793383_1_20250226230025.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京與新西蘭副總理兼外長彼得斯會談。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm)
 
 ---

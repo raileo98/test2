@@ -1,3 +1,99 @@
+# 港股升幅擴大至逾400點
+
+![恒生指數曾見43405點，較早時報23342點，升400點，升幅1.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793954_1_20250303103902.jpg&q=30)
+  
+
+港股反彈逾400點，恒生指數曾見43405點，較早時報23342點，升400點，升幅1.75%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm)
+
+---
+
+# 全國兩會｜行政會議明日及下周二不舉行會議　本月18日復會
+
+![部分行政會議成員需出席北京舉行的全國兩會，行政會議期間不舉行會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793952_1_20250303102408.jpg&q=80)
+  
+
+行政會議秘書處表示，由於身兼港區全國人大代表和港區全國政協委員的行政會議成員，需分別出席於北京舉行的第十四屆全國人大三次會議，以及全國政協第十四屆三次會議，按一貫做法，行政會議明日及下星期二不舉行會議，本月18日復會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm)
+
+---
+
+# 全國兩會｜李家超明日赴北京列席全國人大會議開幕
+
+![李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793950_1_20250303102742.jpg&q=80)
+  
+
+行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。行政長官辦公室主任葉文娟將隨行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm)
+
+---
+
+# 財政預算案2025｜陳美寶稱會研究創新方法紓緩泊車位不足
+
+![陳美寶指，當局希望通過調整收費，加快咪錶位流轉，同時會研究以創新方法紓緩泊車位不足問題。（節目截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793949_1_20250303102215.jpg&q=90)
+  
+
+《財政預算案》提出研究徵收200元的私家車陸路離境稅，對於有報導指相關建議引起內地不滿，運輸及物流局局長陳美寶出席一個電台節目表示，明白社會上有不同聲音，特區政府一直致力推動大灣區融合，《預算案》提出有關研究建議時已考慮兩地融合的問題。經過深思熟慮，市民現時到內地亦有不同方法，包括高鐵、陸路口岸、私家車、跨境巴士等，期望以「用者自付、能者多付」的原則，開拓政府收入來源，平衡支出。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm)
+
+---
+
 # 港大醫學院推出四年制第二學位醫學士課程　6.20截止申請
 
 港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
@@ -1340,103 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm)
-
----
-
-# 專業服務協進支援計劃接受新一輪申請　機構可提交建議項目
-
-![商務及經濟發展局表示，專業服務協進支援計劃下的主計劃邀請新一輪撥款申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793794_1_20250301165517.jpg&q=80)
-  
-
-專業服務協進支援計劃下的主計劃邀請新一輪撥款申請，專業團體、工商組織及研究院所等非分配利潤機構可提交建議項目。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793794-20250301.htm)
-
----
-
-# 持票市民陸續進場準備觀賞啟德體育園開幕禮
-
-![持門票市民下午4時起進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_2_20250301164258.jpg&q=35)
-![鄧竟成表示，經過多次演練，園方人員、安保和警方等不同單位有工作默契，互相配合得不錯。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_1_20250301164258.jpg&q=85)
-![有市民期待在開幕禮觀賞到參與節目的國家乒乓球手樊振東。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793793_3_20250301164258.jpg&q=35)
-  
-
-啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式。預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793793-20250301.htm)
-
----
-
-# 逾千名學童於維園為花卉展覽鑲嵌花壇
-
-![超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793789_1_20250301160502.jpg&q=55)
-  
-
-超過1100名來自38間幼稚園、中小學和特殊學校的學生，於維園參與「賽馬會學童鑲嵌花壇」活動，在約140名綠化義工指導下，協助鑲嵌大型花壇「非洲獵奇」。花壇為即將舉行的香港花卉展覽的主要特色景點之一。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793789-20250301.htm)
-
----
-
-# 當局稱會彈性處理逾時換領啟德體育園開幕禮實體票
-
-![入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793787_1_20250301154124.jpg&q=50)
-  
-
-啟德體育園今日開幕，典禮晚上6時半在主場館舉行，將會有3萬多名觀眾可以入場觀看。入場觀眾需先到啟德體藝館的換領處換取實體票，換領時間下午3時截止，但當局表示會彈性處理，不會立即停止換票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793787-20250301.htm)
 
 ---
