@@ -1,3 +1,27 @@
+# 德國曼海姆汽車撞人群增至2死　德國籍疑犯當場被捕
+
+![法證人員在現場檢視涉及衝撞人群事件的汽車。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794063_1_20250304012819.jpg&q=90)
+  
+
+德國西南部城市曼海姆汽車衝撞人群事件，增至兩人死亡，數人重傷，一名40歲德國籍疑犯當場被捕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm)
+
+---
+
 # 玻利維亞兩車相撞事故至少15人死亡
 
 ![玻利維亞兩車相撞事故至少15人死亡](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794062_1_20250304004419.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm)
-
----
-
-# 香港9月再辦「香港綠色周」　金管局與國際金融公司合辦旗艦活動
-
-![本屆綠色周將於9月8日至12日舉辦，金管局除了與國際金融公司合辦旗艦活動，亦將統籌其他活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793989_1_20250303153716.jpg&q=80)
-  
-
-香港將於9月8日至12日舉辦第二屆「香港綠色周」，主題是「共鑄可持續未來」，活動將廣泛涵蓋可持續發展相關議題，為不同地區及領域的持份者提供對話與合作平台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm)
 
 ---

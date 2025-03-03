@@ -1,3 +1,27 @@
+# 德國曼海姆汽車撞人群增至2死　德國籍疑犯當場被捕
+
+![法證人員在現場檢視涉及衝撞人群事件的汽車。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794063_1_20250304012819.jpg&q=90)
+  
+
+德國西南部城市曼海姆汽車衝撞人群事件，增至兩人死亡，數人重傷，一名40歲德國籍疑犯當場被捕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm)
+
+---
+
 # 玻利維亞兩車相撞事故至少15人死亡
 
 ![玻利維亞兩車相撞事故至少15人死亡](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794062_1_20250304004419.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793822-20250301.htm)
-
----
-
-# 英國首相府：施紀賢將於周六與澤連斯基會面
-
-![畫面顯示，一架相信載著澤連斯基的飛機在倫敦以北斯坦斯特德機場降落。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793816_1_20250301200953.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基結束在美國訪問後，據報已飛抵英國。英國首相辦公室說，首相施紀賢將於當地星期六下午與澤連斯基會面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793816-20250301.htm)
 
 ---
