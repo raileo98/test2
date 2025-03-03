@@ -1,3 +1,24 @@
+# 日本岩手山火持續　逾1200人被疏散至臨時安置點
+
+日本岩手縣大船渡市的山火持續，火場面積已擴大至超過2千公頃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm)
+
+---
+
 # 分析料本港零售銷售第2季或下半年回復增長
 
 ![吳卓殷表示，本港零售銷售面對不少挑戰，估計零售銷售可能要到第2季，甚至下半年，才會回復增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794030_1_20250303193120.jpg&q=75)

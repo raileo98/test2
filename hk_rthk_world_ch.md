@@ -1,3 +1,24 @@
+# 日本岩手山火持續　逾1200人被疏散至臨時安置點
+
+日本岩手縣大船渡市的山火持續，火場面積已擴大至超過2千公頃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm)
+
+---
+
 # 阿諾拉成奧斯卡大贏家米姬麥迪遜封后　艾哲倫保迪再做影帝
 
 ![米姬麥迪遜憑電影《阿諾拉》在奧斯卡封后。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794017_1_20250303182841.jpg&q=90)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793785-20250301.htm)
-
----
-
-# 特朗普：澤連斯基須意識到正輸掉戰爭　沒美國支持烏克蘭將失敗
-
-![特朗普不點名指澤連斯基企圖讓美國加入並繼續戰鬥，美國不會這麼做。(路透社)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793783_1_20250301134345.jpg&q=85)
-  
-
-美國總統特朗普在白宮會見到訪的烏克蘭總統澤連斯基不歡而散，美方提出的礦產協議亦未簽署。他重申希望俄烏立即停火，並警告澤連斯基一是實現和平，否則失去美國的支持。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793783-20250301.htm)
 
 ---
