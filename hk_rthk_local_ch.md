@@ -1,3 +1,27 @@
+# 屹立北角逾半世紀新光戲院正式結業
+
+![眾多市民在新光戲院外告別新光。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794060_2_20250304003122.jpg&q=80)
+  
+
+屹立北角超過50年的新光戲院正式拉閘結業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm)
+
+---
+
 # 投資推廣署部分電腦系統遭入侵　署方稱不涉及個人資料外洩
 
 ![投資推廣署說，根據調查，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794058_1_20250303234955.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm)
-
----
-
-# 天文台料周二天氣變得不穩定　早上部分地區雨勢可能較大
-
-![天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持。（張連登攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793906_1_20250302215750.jpg&q=75)
-  
-
-天文台預料，潮濕有霧及相當溫暖的天氣會在明天維持，而本港天氣將會在星期二有明顯變化，天氣將變得不穩定，會出現今年首場較明顯的降雨並有雷暴，早上部分地區雨勢可能較大，但仍有變數，呼籲市民星期二上班上學前帶備雨具。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793906-20250302.htm)
 
 ---

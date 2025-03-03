@@ -1,3 +1,27 @@
+# 屹立北角逾半世紀新光戲院正式結業
+
+![眾多市民在新光戲院外告別新光。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794060_2_20250304003122.jpg&q=80)
+  
+
+屹立北角超過50年的新光戲院正式拉閘結業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm)
+
+---
+
 # 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm)
-
----
-
-# 滬股全日跌3點　創業板指數升逾1%
-
-![內地股市3大指數個別發展，上證指數先升後回，收報3316點，跌3點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793985_1_20250303151623.jpg&q=50)
-  
-
-內地股市下午轉弱，3大指數收市個別發展，電池、能源、金屬股上升；飲品製造、存儲晶片股下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm)
 
 ---
