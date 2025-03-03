@@ -1,3 +1,27 @@
+# 轉載帖文煽惑投白票　前中大學生會會長就罪行合憲性被駁回上訴
+
+![判詞指出，煽動他人不要投票明顯是不利於一場有效的選舉，更會浪費社會資源。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794047_1_20250303222205.jpg&q=80)
+  
+
+前中大學生會會長蘇浚鋒於2021年立法會換屆選舉期間，轉載前立法會議員許智峯的社交平台帖文，被廉署控告一項煽惑他人投白票罪，在原審裁判官裁定條例合憲後認罪、判監2個月，緩刑18個月。蘇浚鋒早前向高等法院以案件呈述方式針對罪行合憲性提出上訴，暫委法官姚勳智今午頒下判詞、駁回上訴。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm)
+
+---
+
 # 口岸爆炸案警員稱於被告住所檢兩支硫酸　辯方指包裝標示為通渠水
 
 ![口岸爆炸案高等法院踏入第62天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794046_1_20250303221537.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm)
-
----
-
-# 全國兩會 | 唐英年：提案包括進一步優化一簽多行等內容
-
-![唐英年表示，會有一系列提案，包括進一步優化一簽多行措施，以及金融自由行等內容。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793892_1_20250302183821.jpg&q=75)
-  
-
-全國政協十四屆三次會議周二在北京召開。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm)
 
 ---
