@@ -27,7 +27,7 @@ China's factory activity grew at a faster pace in February, driven by stronger s
 ![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=80)
   
 
-Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 30 per cent on their first day of trading on the Hong Kong Stock Exchange on Monday after the firm raised HK$444 million in an initial public offering (IPO).
+Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 30 percent on their first day of trading on the Hong Kong Stock Exchange on Monday after the firm raised HK$444 million in an initial public offering (IPO).
 
   
 
