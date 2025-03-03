@@ -1,3 +1,27 @@
+# 回應日本制裁　俄羅斯宣布禁止日本外相等9人入境
+
+![俄方宣布，對日本外相岩屋毅等9人採取無限期禁止入境措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794066_1_20250304022945.jpg&q=90)
+  
+
+俄羅斯外交部發布公告稱，作為日本政府禁止9名俄羅斯公民入境決定的回應，俄方對包括日本外相岩屋毅以及日本駐烏克蘭大使等9人採取無限期禁止入境措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm)
+
+---
+
 # 玻利維亞長途巴士車禍後墜山谷至少25人死亡
 
 ![波托西省一輛農夫車與巴士相撞，巴士墜入山谷，造成多人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794065_1_20250304015144.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm)
-
----
-
-# 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
-
-![劉結一表示，發展新質生產力是推進高質量發展的內在要求和重要著力點。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793994_1_20250303174928.jpg&q=90)
-  
-
-全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
 
 ---

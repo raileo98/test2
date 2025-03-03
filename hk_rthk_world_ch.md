@@ -1,3 +1,27 @@
+# 回應日本制裁　俄羅斯宣布禁止日本外相等9人入境
+
+![俄方宣布，對日本外相岩屋毅等9人採取無限期禁止入境措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794066_1_20250304022945.jpg&q=90)
+  
+
+俄羅斯外交部發布公告稱，作為日本政府禁止9名俄羅斯公民入境決定的回應，俄方對包括日本外相岩屋毅以及日本駐烏克蘭大使等9人採取無限期禁止入境措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm)
+
+---
+
 # 玻利維亞長途巴士車禍後墜山谷至少25人死亡
 
 ![波托西省一輛農夫車與巴士相撞，巴士墜入山谷，造成多人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794065_1_20250304015144.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm)
-
----
-
-# 俄國防部：烏克蘭無人機襲擊俄境內天然氣壓縮站設施
-
-![俄方說，烏克蘭出動無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793823_1_20250301212656.jpg&q=90)
-  
-
-俄羅斯國防部通報，烏克蘭周五夜間使用無人機襲擊俄境內向「土耳其溪」天然氣管道供氣的壓縮站設施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793823-20250301.htm)
 
 ---
