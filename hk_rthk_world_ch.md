@@ -1,3 +1,27 @@
+# 特朗普：不會再容忍澤連斯基言論
+
+![特朗普上星期五在白宮與澤連斯基會面時，兩人在傳媒前激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794067_1_20250304024702.jpg&q=90)
+  
+
+美國總統特朗普稱，對烏克蘭總統澤連斯基的言論「不會再容忍下去」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm)
+
+---
+
 # 回應日本制裁　俄羅斯宣布禁止日本外相等9人入境
 
 ![俄方宣布，對日本外相岩屋毅等9人採取無限期禁止入境措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794066_1_20250304022945.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793836-20250302.htm)
-
----
-
-# 澤連斯基：與美國對話艱難　冀美國更堅定站在烏克蘭一邊
-
-![澤連斯基在白宮與特朗普會談期間多次爭吵，最終不歡而散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793835_1_20250301235343.jpg&q=85)
-  
-
-與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，由華盛頓轉抵倫敦，將會與英國首相施紀賢會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793835-20250302.htm)
 
 ---

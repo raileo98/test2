@@ -1,3 +1,27 @@
+# 特朗普：不會再容忍澤連斯基言論
+
+![特朗普上星期五在白宮與澤連斯基會面時，兩人在傳媒前激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794067_1_20250304024702.jpg&q=90)
+  
+
+美國總統特朗普稱，對烏克蘭總統澤連斯基的言論「不會再容忍下去」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm)
+
+---
+
 # 回應日本制裁　俄羅斯宣布禁止日本外相等9人入境
 
 ![俄方宣布，對日本外相岩屋毅等9人採取無限期禁止入境措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794066_1_20250304022945.jpg&q=90)
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm)
-
----
-
-# 港股高收64點　險守23000點　蜜雪首日掛牌升43%收市
-
-![港股收市險守23000點，恒生指數收報23006點，升64點，升幅約0.3%，主板成交額約3019億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793995_1_20250303161617.jpg&q=1)
-![蜜雪集團首日掛牌，收市升43%，未計手續費一手100股賺8750元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793995_2_20250303161617.jpg&q=75)
-  
-
-港股開市重上23000點關口，恒生指數最多曾升逾460點，高見23405點，但下午走勢明顯轉弱，曾倒跌80點，恒指收市險守23000點，收報23006點，升64點，升幅約0.3%，主板成交額約3019億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm)
 
 ---
