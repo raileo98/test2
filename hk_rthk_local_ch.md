@@ -118,30 +118,6 @@
 
 ---
 
-# 陳美寶：對的士車隊有期望　冀發揮「領頭羊」角色
-
-![陳美寶呼籲市民試用的士車隊，並反映意見，讓車隊精益求精。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793977_1_20250303135716.jpg&q=70)
-  
-
-政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm)
-
----
-
 # 恒指下午早段升逾300點
 
 ![恒生指數較早時報23255點，升313點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793975_1_20250303130913.jpg&q=1)
@@ -1438,5 +1414,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm)
+
+---
+
+# 啟德體育園發放煙花　有觀眾感震撼稱表演精彩
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)
+  
+
+歷時約2小時的啟德體育園開幕典禮，晚上約8時40分結束。接近典禮完結時，啟德體育園上蓋發放煙花，有觀眾說感覺震撼，又說節目緊湊，看見很多本地明星，表演精彩。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm)
 
 ---
