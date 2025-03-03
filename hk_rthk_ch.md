@@ -1,24 +1,3 @@
-# 陳美寶：的士車隊設監察系統及電子支付　讓乘客坐得舒適安心
-
-政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm)
-
----
-
 # 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
 
 ![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
@@ -70,6 +49,7 @@
 # 政府上半年試行「聯廈聯管」　麥美娟：已預留700萬元推行
 
 ![麥美娟表示，預留700萬元推行今次計劃。在甄選非政府組織的過程中，除了考慮價錢，亦著重有何嶄新方法，促成業主參與。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_1_20250303123718.jpg&q=80)
+![政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_2_20250303124734.jpg&q=60)
   
 
 政府今年上半年會在油尖旺，深水埗，九龍城及荃灣，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，各委聘一個非政府組織接觸大廈業主或法團，鼓勵及協助他們參加試驗計劃。
@@ -1429,5 +1409,29 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm)
+
+---
+
+# 克宮：加快改善俄美關係是有可能　但過程仍然漫長
+
+![佩斯科夫表示，不應期待俄美合作能快速取得成果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793899_1_20250302210032.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，美國新政府正迅速改變外交政策佈局，很大程度上與俄方立場契合，在兩國總統具備政治意願的情況下，加快改善俄美之間的關係是有可能，但由於美國前政府的行為，即使俄美正試圖改善雙邊關係，有關進程都將會漫長。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm)
 
 ---
