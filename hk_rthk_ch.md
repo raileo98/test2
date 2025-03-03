@@ -1,3 +1,51 @@
+# 拍攝東區裁判法院走廊並上載「小紅書」男子認罪判罰4000元
+
+![被告於警誡下承認因出於好奇而拍攝法院大樓內的情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794049_1_20250303223348.jpg&q=80)
+  
+
+一名男子在去年拍攝東區裁判法院的走廊，並將拍攝影像上傳到「小紅書」。涉案30歲男子在東區裁判法院承認「在法庭內攝影等」等兩項傳票控罪，被判4000元罰款。暫委裁判官朱仲強質疑被告早前缺席提訊，被告解釋指因身體抱恙及高鐵班次延誤而未能準時抵達法庭。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm)
+
+---
+
+# 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
+
+![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
+  
+
+勞工及福利局局長孫玉菡說，由2022年底至今年1月底，各項人才入境計劃共收到超過44萬宗申請，當中超過28萬宗獲批，高才通計劃佔三分一。他又表示，為確保只有符合要求的人才獲批，申請人須提交由指定第三方認證機構或頒授院校就學歷發出的認證文件。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm)
+
+---
+
 # 轉載帖文煽惑投白票　前中大學生會會長就罪行合憲性被駁回上訴
 
 ![判詞指出，煽動他人不要投票明顯是不利於一場有效的選舉，更會浪費社會資源。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794047_1_20250303222205.jpg&q=80)
