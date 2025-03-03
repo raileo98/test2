@@ -1,3 +1,24 @@
+# 本港9月舉辦「香港綠色周」 活動涵蓋可持續發展相關議題
+
+本港將於9月8至12日舉辦第二屆「香港綠色周」，主題為「共鑄可持續未來」，活動將廣泛涵蓋可持續發展相關議題，為不同地區和領域的持份者提供對話與合作的平台。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793991-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793991-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793991-20250303.htm)
+
+---
+
 # 香港9月再辦「香港綠色周」　金管局與國際金融公司合辦旗艦活動
 
 ![本屆綠色周將於9月8日至12日舉辦，金管局除了與國際金融公司合辦旗艦活動，亦將統籌其他活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793989_1_20250303153716.jpg&q=80)
@@ -22,7 +43,10 @@
 
 ---
 
-# 啟德體育園正跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
+# 啟德體育園跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
+
+![啟德體育園表示，若調查發現有懷疑違法情況，會嚴正處理，並交警方或廉署跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793988_1_20250303154551.jpg&q=35)
+  
 
 對於有報道指啟德體育園開幕當日，懷疑有人收取每位過千元報酬，帶未有購票人士入場，並可攜帶長雨傘及專業攝影器材等違禁品入場，毋須安檢及驗票。
 
@@ -335,7 +359,7 @@
 
 # 廉署去年接獲2058宗貪污投訴　較前年增加3%
 
-![陳智思表示，去年本港貪污情況繼續有效受控。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793965_1_20250303123418.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793965_1_20250303123418.jpg&q=90)
   
 
 廉署去年共接獲2058宗的貪污投訴，較2023年增加3%，當中480宗涉及政府部門、140宗涉及公共機構，其餘1438宗涉及私營機構。有1636宗貪污投訴屬可追查，去年共檢控207人，包括16名公務員，其中有119人被定罪。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793829-20250301.htm)
-
----
-
-# 警方調查香港仔致命交通意外一名女子死亡　小巴司機被捕
-
-![警方調查香港仔發生的致命交通意外，一名女子死亡。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793828_1_20250301231603.jpg&q=25)
-  
-
-警方調查今早在香港仔發生的致命交通意外，意外中一名女子死亡，呼籲目擊者提供線索。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793828-20250301.htm)
 
 ---
