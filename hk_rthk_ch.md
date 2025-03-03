@@ -1,3 +1,27 @@
+# 國安條例生效而被拒提早獲釋　法庭判馬俊文需支付一半訟費
+
+![法官有見本案為首宗《維護國家安全條例》司法覆核，酌情下令馬俊文支付署方司法覆核一半訟費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794050_1_20250303224415.jpg&q=85)
+  
+
+被稱為「第二代美國隊長」的馬俊文，早前被裁定煽動分裂國家罪成，判囚5年，因為行為良好原獲准於去年3月提早獲釋，但獲釋前兩天《維護國家安全條例》刊憲生效轉而被拒。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm)
+
+---
+
 # 拍攝東區裁判法院走廊並上載「小紅書」男子認罪判罰4000元
 
 ![被告於警誡下承認因出於好奇而拍攝法院大樓內的情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794049_1_20250303223348.jpg&q=80)
