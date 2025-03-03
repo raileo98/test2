@@ -1,3 +1,19 @@
+# 全國政協會議明日下午開幕　會期6天　下周一上午閉幕
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm)
+
+---
+
 # 陳文宜將出任社聯行政總裁
 
 社聯宣布，聘請現任社聯業務總監陳文宜，為下任社聯行政總裁，下月1日履新。

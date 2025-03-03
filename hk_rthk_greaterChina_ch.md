@@ -1,3 +1,19 @@
+# 全國政協會議明日下午開幕　會期6天　下周一上午閉幕
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm)
+
+---
+
 # 620多名中國籍涉詐犯罪嫌疑人從緬甸妙瓦底地區被遣返
 
 公安部表示，中國和緬甸、泰國有關部門近期開展一系列聯合打擊跨國電詐犯罪行動，在緬甸妙瓦底地區成功遣返620多名中國籍涉詐犯罪嫌疑人。
@@ -1408,29 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793480-20250227.htm)
-
----
-
-# 劉凱旋稱香港具備強大專業服務能力　為內企走出去提供全面支援
-
-![劉凱旋在主辦的研討會活動上致辭，宣傳香港的營商新機遇。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793478_1_20250227152339.jpg&q=75)
-  
-
-投資推廣署署長劉凱旋說，香港具備強大的專業服務能力，在法律，金融和人才方面，能為湖北企業「走出去」提供全面支援。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793478-20250227.htm)
 
 ---
