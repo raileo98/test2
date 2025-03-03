@@ -1,3 +1,27 @@
+# 口岸爆炸案警員稱於被告住所檢兩支硫酸　辯方指包裝標示為通渠水
+
+![口岸爆炸案高等法院踏入第62天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794046_1_20250303221537.jpg&q=90)
+  
+
+8名男女涉2020年初口岸爆炸案，高等法院踏入第62天審訊。證物警員供稱，自己當年3月隨隊前往女被告楊怡斯位於油塘住所，警方爆門入屋及後拘捕楊怡斯，警員稱在單位內檢獲一面美國國旗、一面印有「光時」口號的黑色旗幟、34支生理鹽水及兩支硫酸等。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm)
+
+---
+
 # 財政預算案2025｜中大第二學位醫科課程5月30日前接受申請
 
 ![四年制第二學位醫科課程將於今年9月入學，首輪面試將於4月9日舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794044_1_20250303215336.jpg&q=75)

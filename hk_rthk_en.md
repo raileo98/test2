@@ -1,3 +1,27 @@
+# Suspect held in deadly car-ramming in Germany
+
+![Police in Mannheim investigate the car-ramming case. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794045_1_20250303221201.jpg&q=35)
+  
+
+A car driven into a crowd in the German city of Mannheim on Monday killed one person and injured several, police said, adding that one person had been arrested.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm)
+
+---
+
 # Sunbeam puts on a show for one last time
 
 ![Theatre-goers flock to Sunbeam for its final show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_1_20250303213509.jpg&q=60)
@@ -1420,29 +1444,5 @@ A spokesperson for the Ministry of Public Security on Friday voiced firm opposit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm)
-
----
-
-# Microsoft to shut Skype in favour of Teams
-
-![The president of Microsoft 365 collaborative apps and platforms says the company "can deliver more innovation faster just by being focused on Teams." File Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793738_1_20250301070354.jpg&q=90)
-  
-
-Microsoft on Friday announced it was retiring Skype, the online voice and video call pioneer that the tech titan acquired in 2011.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm)
 
 ---

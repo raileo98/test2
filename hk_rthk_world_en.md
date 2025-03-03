@@ -1,3 +1,27 @@
+# Suspect held in deadly car-ramming in Germany
+
+![Police in Mannheim investigate the car-ramming case. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794045_1_20250303221201.jpg&q=35)
+  
+
+A car driven into a crowd in the German city of Mannheim on Monday killed one person and injured several, police said, adding that one person had been arrested.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm)
+
+---
+
 # Haifa attacker was Israeli Druze minority
 
 ![Members of Israeli security and emergency services transport the body of the reported attacker in Haifa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794029_1_20250303192453.jpg&q=85)
@@ -1416,29 +1440,5 @@ Hamas paraded five Israeli hostages, some looking dazed and others elated, befor
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm)
-
----
-
-# Syrian suspect in Berlin attack wanted 'to kill Jews'
-
-![Friday's stabbing at the Holocaust memorial left one man fighting for his life and six witnesses needing counselling. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792775_1_20250222204259.jpg&q=80)
-  
-
-A Syrian man arrested after a stabbing attack at Berlin's Holocaust memorial that wounded a Spanish man had been harbouring a "plan to kill Jews," police and prosecutors said on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm)
 
 ---
