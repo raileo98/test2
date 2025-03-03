@@ -1,3 +1,69 @@
+# SmartPLAY康體通系統明日凌晨零時至上午2時暫停服務
+
+康文署宣布，SmartPLAY康體通將於明日凌晨零時至上午2時暫停服務，以便進行系統維護。用戶如需於這段時間使用康體通，敬請預早安排，在服務暫停時段之前或後使用系統。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm)
+
+---
+
+# 天文台特別天氣提示：今晚午夜天氣不穩　明天大雨及局部雷暴
+
+天文台表示，位於華中的冷鋒正逐漸向南移動，此外與高空擾動相關的驟雨及強雷暴正影響廣東內陸。預料今晚接近午夜珠江口一帶天氣會轉為不穩定，明日本港將出現今年首場較明顯的降雨，局部地區有雷暴，提醒市民明早上班上學前請留意最新天氣報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm)
+
+---
+
+# 恒指半日升277點
+
+![恒指中午收市報23218點，升277點，升幅1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793964_1_20250303121421.jpg&q=1)
+  
+
+港股今早反彈，恒生指數高見23405點，升逾460點，其後升幅收窄，中午收市報23218點，升277點，升幅1.2%，半日主板成交額1796億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm)
+
+---
+
 # 廉署去年接獲2058宗貪污投訴　較前年增加3%
 
 廉署去年共接獲2058宗的貪污投訴，較2023年增加3%，當中480宗涉及政府部門、140宗涉及公共機構，其餘1438宗涉及私營機構。有1636宗貪污投訴屬可追查，去年共檢控207人，包括16名公務員，其中有119人被定罪。
@@ -1364,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
-
----
-
-# 觀眾接受安檢進入啟德體育園主場館　有人攜帶水樽被收走
-
-![市民陸續經安檢後入場。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793802_1_20250301174455.jpg&q=60)
-  
-
-啟德體育園傍晚6時半舉行開幕禮，觀眾陸續入場，近5時人流越來越多，場地設有不少安檢櫃台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm)
-
----
-
-# 大欖懲教所62歲男囚犯不治　死者生前有長期濫藥紀錄
-
-![大欖懲教所62歲男在囚人士不治，懲教署表示，死者生前有有長期濫藥紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793801_1_20250301174019.jpg&q=85)
-  
-
-大欖懲教所一名62歲男性在囚人士在公立醫院因病不治，懲教署已將事件通知警方，死因裁判法庭將進行死因研訊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793801-20250301.htm)
-
----
-
-# 李頌恩視察啟德體育園一帶交通　了解港鐵客流管理措施
-
-![運輸署署長李頌恩視察啟德體育園交通配套和部署。（運輸署社交網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793799_1_20250301172540.jpg&q=90)
-  
-
-運輸署緊急事故交通協調中心自下午起，已提升至最高級別的聯合督導模式運作，監察啟德體育園區一帶交通及公共運輸服務情況，整體交通至今大致暢順。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793799-20250301.htm)
 
 ---

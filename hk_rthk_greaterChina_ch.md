@@ -1,3 +1,24 @@
+# 全國兩會｜北京市面明顯加強保安　有市民稱感覺更安全
+
+全國政協十四屆三次會議明日開幕，新聞發布會今日下午在北京人民大會堂舉行，發言人劉結一將介紹大會情況並回答記者提問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm)
+
+---
+
 # 星展估計3月內地製造業活動大機會保持擴張
 
 財新中國2月製造業採購經理指數（PMI）升至50.8，高於前一個月的50.1，為去年11月以來最高。
@@ -1408,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm)
-
----
-
-# 財政預算案2025｜孫東稱高度重視及投入資源推動人工智能發展
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793446_1_20250227123241.jpg&q=80)
-  
-
-世界數字科學院將在香港數碼港籌建「亞太研究院」，聚焦亞太地區的AI治理及相關標準制定。創新科技及工業局局長孫東在成立儀式暨國際人工智能論壇致辭表示，人工智慧是全球科學、經濟和社會發展的關鍵引擎，特區政府高度重視，並投入大量資源推動AI發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793446-20250227.htm)
 
 ---

@@ -1,3 +1,90 @@
+# 全國兩會｜北京市面明顯加強保安　有市民稱感覺更安全
+
+全國政協十四屆三次會議明日開幕，新聞發布會今日下午在北京人民大會堂舉行，發言人劉結一將介紹大會情況並回答記者提問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm)
+
+---
+
+# SmartPLAY康體通系統明日凌晨零時至上午2時暫停服務
+
+康文署宣布，SmartPLAY康體通將於明日凌晨零時至上午2時暫停服務，以便進行系統維護。用戶如需於這段時間使用康體通，敬請預早安排，在服務暫停時段之前或後使用系統。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm)
+
+---
+
+# 天文台特別天氣提示：今晚午夜天氣不穩　明天大雨及局部雷暴
+
+天文台表示，位於華中的冷鋒正逐漸向南移動，此外與高空擾動相關的驟雨及強雷暴正影響廣東內陸。預料今晚接近午夜珠江口一帶天氣會轉為不穩定，明日本港將出現今年首場較明顯的降雨，局部地區有雷暴，提醒市民明早上班上學前請留意最新天氣報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm)
+
+---
+
+# 恒指半日升277點
+
+![恒指中午收市報23218點，升277點，升幅1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793964_1_20250303121421.jpg&q=1)
+  
+
+港股今早反彈，恒生指數高見23405點，升逾460點，其後升幅收窄，中午收市報23218點，升277點，升幅1.2%，半日主板成交額1796億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm)
+
+---
+
 # 廉署去年接獲2058宗貪污投訴　較前年增加3%
 
 廉署去年共接獲2058宗的貪污投訴，較2023年增加3%，當中480宗涉及政府部門、140宗涉及公共機構，其餘1438宗涉及私營機構。有1636宗貪污投訴屬可追查，去年共檢控207人，包括16名公務員，其中有119人被定罪。
@@ -1333,101 +1420,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm)
-
----
-
-# 全國兩會｜唐英年倡擴大一簽多行及推動金融自由行
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
-  
-
-全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm)
-
----
-
-# 陳茂波：加快AI落地應用　邁向AI+賦能產業發展目標
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793889_1_20250302183615.jpg&q=70)
-  
-
-財政司司長陳茂波說，本港要加快人工智能落地應用，邁向「人工智能+」賦能產業發展的目標。另外，《財政預算案》提出研究對經由陸路邊境管制站離境私家車，徵收邊境建設費，陳茂波說，建議仍在設想階段，可以商量。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm)
-
----
-
-# 全國兩會 | 唐英年：提案包括進一步優化一簽多行等內容
-
-![唐英年表示，會有一系列提案，包括進一步優化一簽多行措施，以及金融自由行等內容。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793892_1_20250302183821.jpg&q=75)
-  
-
-全國政協十四屆三次會議周二在北京召開。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm)
-
----
-
-# 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793891_1_20250302214621.jpg&q=55)
-  
-
-世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
 
 ---
