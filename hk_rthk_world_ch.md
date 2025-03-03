@@ -1,3 +1,51 @@
+# 《阿諾拉》奪奧斯卡最佳電影、最佳導演及影后
+
+![《阿諾拉》奪得奧斯卡最佳電影。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793962_1_20250303114758.jpg&q=80)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm)
+
+---
+
+# 米姬麥迪遜憑《阿諾拉》贏得奧斯卡最佳女主角
+
+![米姬麥迪遜憑《阿諾拉》贏得奧斯卡最佳女主角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793960_1_20250303114339.jpg&q=85)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm)
+
+---
+
 # 艾哲倫保迪憑《粗獷派建築師》勇奪奧斯卡影帝
 
 ![艾哲倫保迪憑《粗獷派建築師》勇奪奧斯卡影帝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793959_1_20250303112525.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793741-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793741-20250301.htm)
-
----
-
-# Skype今年5月停運　微軟稱可簡化旗下通訊產品線
-
-![分析指Skype面臨被淘汰的命運，是因為基礎技術未能追上智能手機時代。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793739_1_20250301015132.jpg&q=90)
-  
-
-微軟宣布，旗下網上語音及視像通信服務Skype將於今年5月停止運作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793739-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793739-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793739-20250301.htm)
-
----
-
-# 石破茂據報已著手探討終戰80周年談話內容　認為要有新見解
-
-![石破茂認為談話內容需要展示新的見解。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793737_1_20250301005103.jpg&q=90)
-  
-
-日本共同社報道，首相石破茂為配合今年8月的終戰80周年紀念時刻，已著手探討將發表的談話內容，希望展現認識歷史及令國家和平的決心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793737-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793737-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793737-20250301.htm)
 
 ---
