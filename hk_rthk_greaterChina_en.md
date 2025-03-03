@@ -1,3 +1,27 @@
+# HK to push for greater integration at Two Sessions
+
+![Members of the NPC and CPPCC will be joining the country's largest annual political gatherings in Beijing this week. Photo combo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=80)
+  
+
+Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – on the development of artificial intelligence and a low-altitude economy, among other things – as the SAR seeks to further integrate into the nation's development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
+
+---
+
 # Local delegate proposes plans to connect with GBA
 
 ![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=85)
@@ -1417,31 +1441,5 @@ World Athletics President Sebastian Coe has praised China's exceptional capabili
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790947-20250210.htm)
-
----
-
-# China puts on a show in Harbin
-
-![Bayani Jialin dominates in women’s 5km free cross-country skiing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790921_1_20250209175540.jpg&q=90)
-![Li Xinpeng soars to victory in the men’s freestyle skiing aerials. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790921_2_20250209175540.jpg&q=30)
-![Wu Yu secures gold in the men’s 5,000m speed skating event. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790921_3_20250209175540.jpg&q=90)
-  
-
-China unleashed an impressive display at the 9th Asian Winter Games in Harbin on Sunday, reinforcing its dominance in the overall medal standings.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm](https://news.rthk.hk/rthk/en/component/k2/1790921-20250209.htm)
 
 ---

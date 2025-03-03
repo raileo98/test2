@@ -1,3 +1,75 @@
+# Kyiv's allies embrace Zelensky at crisis talks
+
+![Leaders gather at Lancaster House in London to discuss European security and Ukraine. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793931_1_20250303083142.jpg&q=55)
+  
+
+European leaders closed ranks on Sunday in support of Kyiv at a London summit, where they pledged to spend more on security and assemble a coalition to defend any truce in Ukraine.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm)
+
+---
+
+# HK to push for greater integration at Two Sessions
+
+![Members of the NPC and CPPCC will be joining the country's largest annual political gatherings in Beijing this week. Photo combo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=80)
+  
+
+Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – on the development of artificial intelligence and a low-altitude economy, among other things – as the SAR seeks to further integrate into the nation's development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
+
+---
+
+# 'Kai Tak Stadium makes Hong Kong a hot destination'
+
+![Lawmaker Adrian Ho says Saturday's opening ceremony for the Kai Tak Sports Park went smoothly. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793928_1_20250303081026.jpg&q=30)
+  
+
+A lawmaker on Monday said the Kai Tak Stadium places Hong Kong on the map as a "hot destination" for major concerts and events, after the Kai Tak Sports Park officially opened over the weekend.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm)
+
+---
+
 # Man Utd crash out of FA Cup as Fulham win shoot-out
 
 ![Manchester United's Joshua Zirkzee reacts after a penalty kick. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793920_1_20250303053151.jpg&q=90)
@@ -1365,77 +1437,5 @@ Hong Kong stocks opened lower on Friday, the final trading of February, after ea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm)
-
----
-
-# Argentina agency blasted over disability scale
-
-![Argentina's President Javier Milei says he is trying to clamp down on disability fraud. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793586_1_20250228072938.jpg&q=85)
-  
-
-Argentina's state disability agency apologised on Thursday following a furore over the use of the terms "idiot", "imbecile" and "mentally retarded" to describe people with disabilities.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm)
-
----
-
-# HK condemns US politicians' slander of NSL
-
-![The government says it remains committed to enforcing national security laws while safeguarding the rights of residents under One Country, Two Systems. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793567_1_20250228014146.jpg&q=90)
-  
-
-The SAR government has condemned members of the US Senate Committee on Foreign Affairs, accusing them of making baseless allegations against Hong Kong's national security law.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm)
-
----
-
-# 'Private sector growth high on Two Sessions agenda'
-
-!['Private sector growth high on Two Sessions agenda'](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793553_2_20250228075850.jpg&q=80)
-  
-
-Support for private businesses is a very important area that will be addressed during the upcoming "Two Sessions" meetings in Beijing, according to Hong Kong's sole delegate to the country's top legislature.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
 
 ---

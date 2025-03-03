@@ -1,3 +1,27 @@
+# 謝鋒：中美長期和平共存既是責任也是必須
+
+![謝鋒在「杜克-北卡中國領導力峰會」發表視像致辭。（中國駐美大使館）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793939_1_20250303093114.jpg&q=90)
+  
+
+中國駐美國大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm)
+
+---
+
 # 新一輪寒潮南下　受強對流影響湖南岳陽落冰雹
 
 ![湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793917_1_20250303042931.jpg&q=25)
@@ -46,7 +70,7 @@
 
 ---
 
-# 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+# 全國兩會｜唐英年倡擴大一簽多行及推動金融自由行
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793383-20250226.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱自駕到内地的市民符合能者多付原則
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793368_1_20250226214637.jpg&q=80)
-  
-
-預算案提出，研究向由陸路邊境管制站離境的私家車徵收邊境建設費。財政司司長陳茂波表示，政府過往在港珠澳大橋建設上投入了不少金錢，基於用者自付的角度，認為可考慮向市民收回一些費用，又認為自駕到内地的市民都是比較有能力，符合能者多付的原則。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793368-20250226.htm)
 
 ---

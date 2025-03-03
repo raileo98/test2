@@ -1,3 +1,51 @@
+# 謝鋒：中美長期和平共存既是責任也是必須
+
+![謝鋒在「杜克-北卡中國領導力峰會」發表視像致辭。（中國駐美大使館）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793939_1_20250303093114.jpg&q=90)
+  
+
+中國駐美國大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm)
+
+---
+
+# 《深痛導賞團》基雲高堅奪得奧斯卡最佳男配角
+
+![《深痛導賞團》基雲高堅奪得奧斯卡最佳男配角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793934_1_20250303085603.jpg&q=90)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm)
+
+---
+
 # 施紀賢：實現和平須獲美國支持　馬克龍倡烏克蘭空海停火一個月
 
 ![英國首相施紀賢與烏克蘭總統澤連斯基及法國總統馬克龍交談。（唁透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793735-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793735-20250301.htm)
-
----
-
-# 達爾奇耶夫近期啟程前往美國擔任俄羅斯駐美大使
-
-![俄羅斯外交部表示達爾奇耶夫將於近期赴任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793733_1_20250301002135.jpg&q=80)
-  
-
-莫斯科公布，達爾奇耶夫近期會啟程前往美國，擔任俄羅斯駐美大使。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793733-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793733-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793733-20250301.htm)
-
----
-
-# 日本岩手縣大船渡市山火擴大　石破茂指示做到應對工作萬無一失
-
-![山火至今造成一人死亡，超過80棟房屋焚毀。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793731_1_20250228225525.jpg&q=85)
-  
-
-日本岩手縣大船渡市的山火焚燒三日，火場面積擴大至最少1200公頃，超越1992年北海道釧路市山火的紀錄。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793731-20250228.htm)
 
 ---

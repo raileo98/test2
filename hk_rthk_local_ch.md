@@ -1,4 +1,55 @@
+# 港股競價時段升193點
+
+![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
+  
+
+港股在競價時段上升，恒生指數報23135點，升193點，升幅0.84%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
+
+---
+
+# 海事處提醒香港部分水域能見度低於兩海里　航行須以安全航速
+
+![海事處提醒香港部分水域能見度低於兩海里　航行須以安全航速](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793929_1_20250303081248.jpg&q=85)
+  
+
+海事處提醒船長、本地船長和船舶負責人，現時香港部分水域能見度低於兩海里，在香港水域航行必須以安全航速並極度謹慎地駕駛。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm)
+
+---
+
 # 明愛醫院全日制護理學專業文憑課程提早在今日接受報名
+
+![明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793926_1_20250303080029.jpg&q=75)
+  
 
 明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人，今日起至8月8日可以經醫管局網站遞交申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。
 
@@ -20,6 +71,10 @@
 ---
 
 # 麥美娟：上半年在油尖旺和深水埗等四區推行「聯廈聯管」試驗計劃
+
+![麥美娟表示，期望約6月可以簽訂首份協議，推展計劃。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793925_1_20250303075942.jpg&q=50)
+![麥美娟說，基於公平考慮，政府無打算為業主提供資助。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793925_2_20250303075942.jpg&q=85)
+  
 
 政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，委聘非政府組織，接觸「三無大廈」和舊式單幢樓宇業主或法團，鼓勵及協助他們參加。明天將率先諮詢油尖旺區議會，計劃在界限街、彌敦道、鴉蘭街及塘尾道一帶推行。
 
@@ -232,7 +287,7 @@
 
 ---
 
-# 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+# 全國兩會｜唐英年倡擴大一簽多行及推動金融自由行
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
   
@@ -472,7 +527,7 @@
 
 ---
 
-# 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
+# 財政預算案2025｜楊何蓓茵：公僕某些職位空缺可減人手
 
 ![楊何蓓茵表示，公務員職位空缺和削減編制是兩回事。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793869_1_20250302124303.jpg&q=85)
   
@@ -593,7 +648,7 @@
 
 ---
 
-# 財政預算案2025 | 謝展寰：第二季報告供冷系統檢視結果
+# 財政預算案2025｜謝展寰：第二季報告供冷系統檢視結果
 
 ![預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。（謝展寰網誌圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793860_1_20250302105632.jpg&q=80)
   
@@ -1387,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793784-20250301.htm)
-
----
-
-# 財政預算案2025｜孫玉菡稱會與社福機構商討資源運用拆牆鬆綁
-
-![孫玉菡表示，現有向社福機構提供的400多億元資助需要削減。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793780_1_20250301123735.jpg&q=80)
-  
-
-政府下星期一與社福機構開會，商討應對削減整筆撥款下，有無空間在資源運用上「拆牆鬆綁」，勞工及福利局局長孫玉菡表示，有空間調整機構提交服務協議書的安排。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波︰當局會持續造地　何時推出會有彈性
-
-![陳茂波說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793779_1_20250301123807.jpg&q=70)
-  
-
-財政司司長陳茂波再度回應不希望過分依賴地價收入時表示，過往當地價及樓價飆升，市民有很大壓力，因此不希望大家的住屋好似過往一樣供不應求時昂貴，但當局會持續造地，何時推出會有彈性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm)
 
 ---

@@ -1,3 +1,147 @@
+# ASMPT：附屬公司訂立對價協議　獲A股公司股份及現金
+
+![ASMPT公告顯示，對價協議涉及出售目標公司49%權股，代價為17.17億元人民幣，將收取A股上市公司2900萬股新股份，以及7.89億元人民幣現金對價。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793932_1_20250303083321.jpg&q=90)
+  
+
+ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市公司深圳至正高分子材料及正信同創就建議交易訂立對價確認協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
+
+---
+
+# 港股競價時段升193點
+
+![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
+  
+
+港股在競價時段上升，恒生指數報23135點，升193點，升幅0.84%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
+
+---
+
+# 人民幣兌美元中間價創近1個半月低位
+
+![人民幣中間價報7.1745兌1美元，跌7點子，創近1個半月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793938_1_20250303092313.jpg&q=75)
+  
+
+人民幣中間價報7.1745兌1美元，較上周五中間價跌7點子，創近1個半月低位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm)
+
+---
+
+# 新世界發展擬今年內推售杭州甲級寫字樓　市值約10億元人民幣
+
+![新世界發展計劃年內推售「 FRONT　TOWER 壹山」，市值約 10 億元人民幣。（公司提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793935_1_20250303090641.jpg&q=40)
+  
+
+新世界發展旗下杭州項目「新世界．城市藝術中心」計劃今年內推售甲級寫字樓「FRONT TOWER 壹山」，市值約10億元人民幣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm)
+
+---
+
+# 台股初段跌逾1%
+
+![台灣加權指數較早時報22738點，跌314點，跌幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793936_1_20250303090707.jpg&q=85)
+  
+
+台灣股市在開市初段跌逾1%，加權指數較早時報22738點，跌314點，跌幅1.37%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm)
+
+---
+
+# 日股初段升1%　韓股休市
+
+![日經平均指數較早時報37548點，升393點，升幅1.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793927_1_20250303080907.jpg&q=90)
+  
+
+日本股市在開市初段升1%，日經平均指數較早時報37548點，升393點，升幅1.06%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm)
+
+---
+
 # 地產代理：上周末10大二手屋苑成交量創多個星期低位
 
 ![地產代理表示，多個新盤同步推售搶去大量購買力，上周末10大二手指標屋苑成交量創多個星期低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793922_1_20250303061023.jpg&q=20)
@@ -94,6 +238,78 @@
 
 ---
 
+# 全國兩會｜唐英年倡擴大一簽多行及推動金融自由行
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
+  
+
+全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm)
+
+---
+
+# 陳茂波：加快AI落地應用　邁向AI+賦能產業發展目標
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793889_1_20250302183615.jpg&q=70)
+  
+
+財政司司長陳茂波說，本港要加快人工智能落地應用，邁向「人工智能+」賦能產業發展的目標。另外，《財政預算案》提出研究對經由陸路邊境管制站離境私家車，徵收邊境建設費，陳茂波說，建議仍在設想階段，可以商量。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm)
+
+---
+
+# 全國兩會 | 唐英年：提案包括進一步優化一簽多行等內容
+
+![唐英年表示，會有一系列提案，包括進一步優化一簽多行措施，以及金融自由行等內容。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793892_1_20250302183821.jpg&q=75)
+  
+
+全國政協十四屆三次會議周二在北京召開。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm)
+
+---
+
 # 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
@@ -142,7 +358,7 @@
 
 ---
 
-# 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
+# 財政預算案2025｜楊何蓓茵：公僕某些職位空缺可減人手
 
 ![楊何蓓茵表示，公務員職位空缺和削減編制是兩回事。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793869_1_20250302124303.jpg&q=85)
   
@@ -1221,221 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793681-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793681-20250228.htm)
-
----
-
-# 財政預算案2025｜何永賢稱未來五年有19萬個公營房屋單位
-
-![何永賢說，未來10年有足夠土地，滿足30萬8千個公營房屋單位的供應，再加上3萬個簡約公屋落成。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793685_1_20250228183220.jpg&q=80)
-  
-
-房屋局局長何永賢說，未來10年有足夠土地，滿足30萬8千個公營房屋單位的供應，再加上3萬個簡約公屋落成，接下來5年會有19萬個單位，較本屆政府上任時的5年期增加約八成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793685-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793685-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793685-20250228.htm)
-
----
-
-# 財政預算案2025｜消息：爭取9月通過籃球博彩法例
-
-![消息人士表示，建議參照現時足球博彩的做法規範籃球博彩，包括從收益中徵收一半稅款。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793682_1_20250228183255.jpg&q=90)
-  
-
-新一份《財政預算案》提出積極探討規範籃球博彩活動，並邀請馬會提交建議。消息人士表示，建議參照現時足球博彩的做法規範，包括從收益當中徵收50%稅款，修例只需將字眼由足球改成籃球，估計規範後，可吸納3至4成的非法賭注，每年大約300億元，馬會收益大約10至11% ，即約30至33億元，稅收15億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793682-20250228.htm)
-
----
-
-# 本港1月新申請住宅按揭貸款按月升逾3%　新批貸款跌逾2%
-
-![金管局公布住宅按揭數據，1月新申請貸款6516宗，按月增加3.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793678_1_20250228165645.jpg&q=80)
-  
-
-金管局公布住宅按揭數據，1月新申請貸款6516宗，按月增加3.3%。新批出按揭貸款額250億元，按月減少2.1%。當中，一手相關貸款增加15.5%至100億元，二手相關貸款減少11.7%至122億元，涉及轉按交易所批出的貸款減少8.8%至29億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793678-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793678-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793678-20250228.htm)
-
----
-
-# 本港今個財政年度首10個月赤字599億元
-
-![政府公布，今個財政年度首10個月赤字599億元，計及餘下兩個月預期收入及開支，預計2024/25年度赤字將為872億元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793676_1_20250228165207.jpg&q=65)
-  
-
-政府公布，今個財政年度首10個月赤字599億元，當中已計入發行政府債券所得1181億元，以及償還政府債券219億元本金。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793676-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793676-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793676-20250228.htm)
-
----
-
-# 中原城市領先指數按星期跌0.27%　連跌兩星期
-
-![中原認為，預算案放寬印花稅措施可望刺激細價樓成交樓增加，樓市氣氛有望改善，預料第2季CCL或逐步見底回升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793673_1_20250228164806.jpg&q=75)
-  
-
-反映二手樓價走勢的中原城市領先指數(CCL)最新報137.02，按星期跌0.27%，連跌兩星期累計跌約1.1%，處於近8年半低位，今年累計跌0.45%。指數反映本港大型銀行2月初維持港元最優惠利率不變、內地推出關稅反制措施的當星期市況。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793673-20250228.htm)
-
----
-
-# 財政預算案2025｜爭取今年完成檢討交通收費罰款並分批提建議
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793679_1_20250228183026.jpg&q=80)
-  
-
-運輸及物流局將檢視數項與交通相關的收費和罰款，包括停車收費錶收費、交通違例事項定額罰款，隧道收費，以及電動私家車牌照費。運輸及物流局局長陳美寶表示，爭取今年完成檢討，預計分批提出建議，將諮詢立法會交通事務委員會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793679-20250228.htm)
-
----
-
-# 新世界發展中期虧損逾66億元　去年底淨負債逾1246億元
-
-![新世界發展截至去年底，中期虧損66.3億元，不派中期息。截至去年底，集團綜合債務淨額達1246.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793677_1_20250228165351.jpg&q=90)
-  
-
-新世界發展公布，截至去年底，中期虧損66.3億元，按年收窄10%，不派中期息。當中，來自持續經營業務虧損66.3億元，而前年同期為盈利5億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793677-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793677-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793677-20250228.htm)
-
----
-
-# 財政預算案2025｜下年度賣8幅住宅地規模均建少於1千個單位
-
-![甯漢豪表示，位置鄰近輕鐵站，交通便利、配套成熟，相信對市場有一定吸引力。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793672_1_20250228165527.jpg&q=80)
-  
-
-發展局公布2025/26年度賣地計劃，有8幅住宅用地，其中3幅為本財政年度的滾存用地，其餘5幅新增住宅地分別位於筲箕灣東大街、佐敦谷彩興路、牛頭角彩霞道、屯門海珠路、荃灣永順街，每幅規模均興建少於1000個單位，總共可提供約4450個單位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793672-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793672-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793672-20250228.htm)
-
----
-
-# 港股低收776點　本周挫2.3%　2月累計升逾13%
-
-![恒生指數跌穿23000點，尾市最多跌近920點，低見22798點，收市報22941點，跌776點，跌幅約3.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793670_1_20250228161731.jpg&q=1)
-  
-
-港股午後跌勢加劇，恒生指數跌穿23000點，尾市最多跌近920點，低見22798點，收市報22941點，跌776點，跌幅約3.3%，全日主板成交額約4063億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793670-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793670-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793670-20250228.htm)
 
 ---

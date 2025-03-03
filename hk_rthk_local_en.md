@@ -1,3 +1,51 @@
+# HK to push for greater integration at Two Sessions
+
+![Members of the NPC and CPPCC will be joining the country's largest annual political gatherings in Beijing this week. Photo combo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=80)
+  
+
+Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – on the development of artificial intelligence and a low-altitude economy, among other things – as the SAR seeks to further integrate into the nation's development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
+
+---
+
+# 'Kai Tak Stadium makes Hong Kong a hot destination'
+
+![Lawmaker Adrian Ho says Saturday's opening ceremony for the Kai Tak Sports Park went smoothly. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793928_1_20250303081026.jpg&q=30)
+  
+
+A lawmaker on Monday said the Kai Tak Stadium places Hong Kong on the map as a "hot destination" for major concerts and events, after the Kai Tak Sports Park officially opened over the weekend.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm)
+
+---
+
 # Local delegate proposes plans to connect with GBA
 
 ![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=85)
@@ -1389,53 +1437,5 @@ The Cross-Harbour Tunnel was forced to shut partially for more than an hour on T
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm)
-
----
-
-# HK Disneyland sees record profit, visitor numbers
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793096_1_20250225153745.jpg&q=80)
-  
-
-Hong Kong Disneyland on Tuesday said it enjoyed its strongest ever business performance in the last fiscal year, with a record net profit of more than HK$830 million and highest ever attendance figure of 7.7 million.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793096-20250225.htm)
-
----
-
-# Drug warehouse raid finds HK$430m of cocaine
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793077_1_20250225131959.jpg&q=80)
-  
-
-Police arrested two men following a raid on a drug warehouse, where officers seized approximately 520 kilogrammes of suspected cocaine, valued at over HK$430 million.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793077-20250225.htm)
 
 ---

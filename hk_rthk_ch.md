@@ -1,4 +1,223 @@
+# ASMPT：附屬公司訂立對價協議　獲A股公司股份及現金
+
+![ASMPT公告顯示，對價協議涉及出售目標公司49%權股，代價為17.17億元人民幣，將收取A股上市公司2900萬股新股份，以及7.89億元人民幣現金對價。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793932_1_20250303083321.jpg&q=90)
+  
+
+ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市公司深圳至正高分子材料及正信同創就建議交易訂立對價確認協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
+
+---
+
+# 港股競價時段升193點
+
+![恒生指數競價時段報23135點，升193點，升幅0.84%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793940_1_20250303092711.jpg&q=20)
+  
+
+港股在競價時段上升，恒生指數報23135點，升193點，升幅0.84%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
+
+---
+
+# 謝鋒：中美長期和平共存既是責任也是必須
+
+![謝鋒在「杜克-北卡中國領導力峰會」發表視像致辭。（中國駐美大使館）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793939_1_20250303093114.jpg&q=90)
+  
+
+中國駐美國大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm)
+
+---
+
+# 人民幣兌美元中間價創近1個半月低位
+
+![人民幣中間價報7.1745兌1美元，跌7點子，創近1個半月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793938_1_20250303092313.jpg&q=75)
+  
+
+人民幣中間價報7.1745兌1美元，較上周五中間價跌7點子，創近1個半月低位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm)
+
+---
+
+# 新世界發展擬今年內推售杭州甲級寫字樓　市值約10億元人民幣
+
+![新世界發展計劃年內推售「 FRONT　TOWER 壹山」，市值約 10 億元人民幣。（公司提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793935_1_20250303090641.jpg&q=40)
+  
+
+新世界發展旗下杭州項目「新世界．城市藝術中心」計劃今年內推售甲級寫字樓「FRONT TOWER 壹山」，市值約10億元人民幣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm)
+
+---
+
+# 台股初段跌逾1%
+
+![台灣加權指數較早時報22738點，跌314點，跌幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793936_1_20250303090707.jpg&q=85)
+  
+
+台灣股市在開市初段跌逾1%，加權指數較早時報22738點，跌314點，跌幅1.37%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm)
+
+---
+
+# 《深痛導賞團》基雲高堅奪得奧斯卡最佳男配角
+
+![《深痛導賞團》基雲高堅奪得奧斯卡最佳男配角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793934_1_20250303085603.jpg&q=90)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm)
+
+---
+
+# 日股初段升1%　韓股休市
+
+![日經平均指數較早時報37548點，升393點，升幅1.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793927_1_20250303080907.jpg&q=90)
+  
+
+日本股市在開市初段升1%，日經平均指數較早時報37548點，升393點，升幅1.06%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793927-20250303.htm)
+
+---
+
+# 海事處提醒香港部分水域能見度低於兩海里　航行須以安全航速
+
+![海事處提醒香港部分水域能見度低於兩海里　航行須以安全航速](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793929_1_20250303081248.jpg&q=85)
+  
+
+海事處提醒船長、本地船長和船舶負責人，現時香港部分水域能見度低於兩海里，在香港水域航行必須以安全航速並極度謹慎地駕駛。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm)
+
+---
+
 # 明愛醫院全日制護理學專業文憑課程提早在今日接受報名
+
+![明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793926_1_20250303080029.jpg&q=75)
+  
 
 明愛醫院護士學校提供全日制護理學專業文憑課程，每年招生100人，今日起至8月8日可以經醫管局網站遞交申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。
 
@@ -20,6 +239,10 @@
 ---
 
 # 麥美娟：上半年在油尖旺和深水埗等四區推行「聯廈聯管」試驗計劃
+
+![麥美娟表示，期望約6月可以簽訂首份協議，推展計劃。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793925_1_20250303075942.jpg&q=50)
+![麥美娟說，基於公平考慮，政府無打算為業主提供資助。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793925_2_20250303075942.jpg&q=85)
+  
 
 政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，委聘非政府組織，接觸「三無大廈」和舊式單幢樓宇業主或法團，鼓勵及協助他們參加。明天將率先諮詢油尖旺區議會，計劃在界限街、彌敦道、鴉蘭街及塘尾道一帶推行。
 
@@ -664,7 +887,7 @@
 
 ---
 
-# 全國兩會 | 唐英年倡擴大一簽多行及推動金融自由行
+# 全國兩會｜唐英年倡擴大一簽多行及推動金融自由行
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
   
@@ -1096,7 +1319,7 @@
 
 ---
 
-# 財政預算案2025 | 楊何蓓茵：公僕某些職位空缺可減人手
+# 財政預算案2025｜楊何蓓茵：公僕某些職位空缺可減人手
 
 ![楊何蓓茵表示，公務員職位空缺和削減編制是兩回事。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793869_1_20250302124303.jpg&q=85)
   
@@ -1214,221 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793864-20250302.htm)
-
----
-
-# 華府加快向以色列提供約40億美元軍事援助
-
-![華府加快向以色列提供約40億美元軍事援助](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793863_1_20250302110943.jpg&q=90)
-  
-
-美國政府加快對以色列的軍事援助。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm)
-
----
-
-# 奧爾西宣誓就任烏拉圭總統
-
-![奧爾西在蒙得維的亞獨立廣場出總統權力交接儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793862_1_20250302110640.jpg&q=85)
-  
-
-烏拉圭當選總統奧爾西在國會宣誓就職，開啟為期5年的任期。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm)
-
----
-
-# 財政預算案2025｜陳茂波：全力發展人工智能為關鍵產業
-
-![陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業。（陳茂波網誌）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793861_1_20250302105656.jpg&q=85)
-  
-
-財政司司長陳茂波表示，新一份《財政預算案》提出，全力發展人工智能為關鍵產業，賦能傳統產業升級轉型；強調重視人工智能的發展，加大投入推進算力、算法、數據、人才及資金等5方面要素的提升，加強開拓新的應用場景，並已取得一定進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793861-20250302.htm)
-
----
-
-# 財政預算案2025 | 謝展寰：第二季報告供冷系統檢視結果
-
-![預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。（謝展寰網誌圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793860_1_20250302105632.jpg&q=80)
-  
-
-財政預算案提出檢視新發展區區域供冷系統，估計可節省不少於 400億元的工程開支。環境及生態局局長謝展寰表示，現時除了使用中的啓德區域供冷系統，東涌和古洞北新發展區的區域供冷系統正在建設中，而洪水橋／厦村和新田科技城新發展區的區域供冷系統的工程則還是在初始或規劃階段。特別是洪水橋／厦村和新田科技城的區域供冷系統，按現時規劃將會是香港最大規模的區域供冷系統，政府工程費用達到數百億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793860-20250302.htm)
-
----
-
-# 日本岩手縣山火持續　火場面積擴大至約1800公頃
-
-![日本消防部門出動直升機協助撲救山火。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793859_1_20250302102327.jpg&q=90)
-  
-
-日本岩手縣的山火已經持續燃燒4日，火場面積擴大至約1800公頃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793859-20250302.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：部分私人市場或會參考公務員薪調
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793858_1_20250302103032.jpg&q=85)
-  
-
-公務員事務局局長楊何蓓茵表示，受政府資助的機構，政府每年撥發的補助金都涵蓋一個公務員薪酬調整的「因子」，隨著今年公務員凍薪，相關「因子」也不會調整。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793858-20250302.htm)
-
----
-
-# 財政預算案2025｜孫東冀人工智能研發院助將香港打造成數據港
-
-![孫東說，《預算案》提出預留10億元設立香港人工智能研發院。（商台提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793857_1_20250302104430.jpg&q=90)
-  
-
-新一份《財政預算案》提出將人工智能發展為關鍵產業，創新科技及工業局局長孫東相信，人工智能將改變和重塑人類生活，特區政府在面臨公共財政挑戰下，仍然下決心推出舉措，反映當局對於未來高質量發展的責任和擔當。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793857-20250302.htm)
-
----
-
-# 普京接見北韓訪問團　稱感謝北韓積極支持俄羅斯
-
-![普京在克宮接見北韓勞動黨中央委員會政治局委員李熙用。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793856_1_20250302094653.jpg&q=90)
-  
-
-朝中社報道，北韓勞動黨中央委員會政治局委員李熙用率領的代表團，上星期四在克里姆林宮同總統普京會面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793856-20250302.htm)
-
----
-
-# 財政預算案2025｜楊何蓓茵：與公務員開會　大都理解凍薪決定
-
-![楊何蓓茵表示，早前和公務員開會後，大部分人都表示理解全體公務員凍薪的決定。 （陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793854_1_20250302093308.jpg&q=85)
-  
-
-公務員事務局局長楊何蓓茵表示，早前和公務員開會後，大部分人均表示理解全體公務員凍薪的決定。有公務員向她反映是預料之內，亦有工會指不會影響士氣，她欣賞同事的理解。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793854-20250302.htm)
 
 ---

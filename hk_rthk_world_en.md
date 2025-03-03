@@ -1,3 +1,27 @@
+# Kyiv's allies embrace Zelensky at crisis talks
+
+![Leaders gather at Lancaster House in London to discuss European security and Ukraine. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793931_1_20250303083142.jpg&q=55)
+  
+
+European leaders closed ranks on Sunday in support of Kyiv at a London summit, where they pledged to spend more on security and assemble a coalition to defend any truce in Ukraine.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm)
+
+---
+
 # Gaza health ministry says 4 killed in Israel attacks
 
 ![Relatives mourn two Palestinians killed in a reported Israeli strike in the northern Gaza Strip, as a truce hangs in the balance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793904_1_20250302212847.jpg&q=85)
@@ -1411,29 +1435,5 @@ US President Donald Trump fired top US military officer General Charles "CQ" Bro
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792735-20250222.htm)
-
----
-
-# Scholz hits back at US over Ukraine, free speech
-
-![Chancellor Olaf Scholz on stage at the SPD's election campaign finale in the Westfalenhallen, Germany. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792716_1_20250222072303.jpg&q=90)
-  
-
-Chancellor Olaf Scholz on Friday stressed his support for Ukraine's sovereignty and defended Germany's commitment to free speech in a push-back against recent broadsides from the Trump administration.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792716-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792716-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792716-20250222.htm)
 
 ---
