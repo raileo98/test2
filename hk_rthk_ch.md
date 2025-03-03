@@ -1,3 +1,24 @@
+# 警務處與職訓局簽署合作備忘錄促進人才培訓
+
+警務處與職訓局於上月28日簽署合作備忘錄，優化全日制「紀律服務管理高級文憑」課程內容，並為參與「警隊學長計劃」的職訓局學生提供實習機會，讓他們親身體驗警務工作。警務處亦會安排分享會，向學生講解專業知識和實務技巧，並舉辦講座，提高學生的防騙防罪意識。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm)
+
+---
+
 # 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
 
 ![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
@@ -1409,29 +1430,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm)
-
----
-
-# 克宮：加快改善俄美關係是有可能　但過程仍然漫長
-
-![佩斯科夫表示，不應期待俄美合作能快速取得成果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793899_1_20250302210032.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，美國新政府正迅速改變外交政策佈局，很大程度上與俄方立場契合，在兩國總統具備政治意願的情況下，加快改善俄美之間的關係是有可能，但由於美國前政府的行為，即使俄美正試圖改善雙邊關係，有關進程都將會漫長。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm)
 
 ---

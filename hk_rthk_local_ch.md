@@ -1,3 +1,24 @@
+# 警務處與職訓局簽署合作備忘錄促進人才培訓
+
+警務處與職訓局於上月28日簽署合作備忘錄，優化全日制「紀律服務管理高級文憑」課程內容，並為參與「警隊學長計劃」的職訓局學生提供實習機會，讓他們親身體驗警務工作。警務處亦會安排分享會，向學生講解專業知識和實務技巧，並舉辦講座，提高學生的防騙防罪意識。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm)
+
+---
+
 # 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
 
 ![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
@@ -1416,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm)
-
----
-
-# 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
-
-![啟德體育園開幕典禮在主場館舉行。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793809_1_20250301190945.jpg&q=70)
-  
-
-啟德體育園開幕典禮晚上約6時半在主場館舉行，多位主禮嘉賓出席，包括李家超伉儷、鄭雁雄伉儷，政務司司長陳國基及立法會主席梁君彥等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm)
 
 ---
