@@ -1,5 +1,9 @@
 # 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
 
+![夏寶龍希望港澳委員認真履職盡責、積極參政議政。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_1_20250303233503.jpg&q=90)
+![夏寶龍晚上到全國政協禮堂，看望來京出席會議的港澳地區全國政協委員。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_2_20250303233503.jpg&q=90)
+  
+
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍晚上到全國政協禮堂，看望來京出席全國政協十四屆三次會議的香港、澳門地區全國政協委員。
 
   
