@@ -1,4 +1,31 @@
+# 教宗再次呼吸困難　要重新使用氧氣面罩
+
+![方濟各已留院18天，是他教宗任內住院時間最長的一次。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794069_1_20250304033909.jpg&q=90)
+  
+
+梵蒂岡表示，因肺炎住院的教宗方濟各周一出現兩次呼吸困難，需要進行支氣管鏡檢查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794069-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794069-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794069-20250304.htm)
+
+---
+
 # 特朗普：可能4月2日對進口農產品徵收關稅
+
+![特朗普告訴美國農民準備好開始生產大量的農產品，並在美國境內銷售。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794068_1_20250304033600.jpg&q=90)
+  
 
 美國總統特朗普表示，可能在4月2日對進口農產品徵收關稅。
 
@@ -1409,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
-
----
-
-# 本港1月零售銷售按年跌幅收窄至3.2%　連續11個月下跌
-
-![本港1月零售業總銷貨價值臨時估計按年跌幅收窄至3.2%，連跌11個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793997_1_20250303163656.jpg&q=80)
-  
-
-本港1月零售業總銷貨價值臨時估計為353億元，按年下跌3.2%，連跌11個月，但跌幅低於去年12月的9.6%，創3個月以來最小跌幅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm)
 
 ---
