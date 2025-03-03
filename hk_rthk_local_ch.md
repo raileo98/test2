@@ -1,7 +1,31 @@
-# 財政預算案2025｜孫玉菡稱容許社福機構盈餘暫存時間延長
+# 劉國勳倡北都採用多元模式發展　包括分期補地價及延長短期租約等
+
+預算案提出加快建設北部都會區，並預留土地用作發展不同產業。民建聯新界北立法會議員劉國勳建議推出「1.5級產業園」先導計劃，由政府推出已完成道路、基建及網絡建設等較成熟的土地，讓經營者建設非永久性的建構物，方便興建及遷拆，企業可以短期入駐，加快創科產業落地，同時亦為未來發展預留彈性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm)
+
+---
+
+# 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
 
 ![孫玉菡表示，容許社福機構的盈餘暫存時間延長。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
   
+
+財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。
+
   
 
 
@@ -44,6 +68,9 @@
 ---
 
 # 涉兒童及青少年脂肪肝病例趨增　團體籲從小培養良好生活運動習慣
+
+![團體呼籲市民做好體重管理，從小培養良好生活及運動習慣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794005_1_20250303180147.jpg&q=35)
+  
 
 香港肥胖學會及香港亞洲肝炎會指出，涉及兒童及青少年的脂肪肝病例增加，肥胖被視為「代謝性脂肪肝」的主要危險因素，估計一般兒童人口有關患病率約3%至一成，但肥胖兒童患病率可高達近三至四成。
 
@@ -1408,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm)
-
----
-
-# 東深供水工程60年對港供水3百億立方米　佔港淡水總用量近八成
-
-![東江源頭護林員巡護山林時經過小溪，這裡的溪水將與其他水源匯成東江源頭。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793838_1_20250302011506.jpg&q=85)
-  
-
-昨日是東江—深圳供水工程正式通水、暨廣東對香港供水60周年，廣東省水利廳表示，60年來工程累計供水達671億立方米，其中對香港供水達300億立方米，佔香港淡水總用量近八成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm)
 
 ---

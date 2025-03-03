@@ -1,7 +1,82 @@
-# 財政預算案2025｜孫玉菡稱容許社福機構盈餘暫存時間延長
+# 小鵬汽車2月共交付智能電動汽車按年增長近6倍
+
+![小鵬汽車2月共交付智能電動汽車30453輛，連續4個月交付量超過3萬輛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794016_1_20250303181941.jpg&q=90)
+  
+
+小鵬汽車2月共交付智能電動汽車30453輛，按年增長5.7倍，連續4個月交付量超過3萬輛。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm)
+
+---
+
+# 在岸人民幣兌美元低收93點子　創近3星期新低
+
+![在岸人民幣收報7.2931兌1美元，跌幅0.13%，創近3星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794013_1_20250303180926.jpg&q=40)
+  
+
+在岸人民幣收報7.2931兌1美元，較上星期五收市價跌93點子，跌幅0.13%，創近3星期新低。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm)
+
+---
+
+# 分析料歐洲央行本周減息0.25厘　年內仍要再減息刺激經濟
+
+![溫嘉煒預料歐洲央行本周減息0.25厘，年內仍可能再減息2至3次，因當地經濟疲弱需進一步放鬆政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794009_1_20250303172759.jpg&q=75)
+  
+
+歐洲央行本周四議息，市場預料減息0.25厘，連續5次會議減息，亦是今個減息周期第6次減息。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm)
+
+---
+
+# 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
 
 ![孫玉菡表示，容許社福機構的盈餘暫存時間延長。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
   
+
+財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。
+
   
 
 
@@ -1363,77 +1438,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793764-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱創科有不同舉措需穩中求進
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793763_1_20250301102213.jpg&q=70)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍早前南下考察時表示，期望特區政府繼續勇於改革，敢於破局。財政司司長陳茂波出席本台節目《星期六問責》時被問到，有否按夏寶龍的想法去做財政預算案。陳茂波回應說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破，亦要鞏固好傳統優勢才開展新領域，例如創科方面有不同舉措，強調要穩中求進，令社會在升級轉型過程中順利，將可能出現的影響減到最低。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm)
-
----
-
-# 啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播
-
-![啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793761_1_20250301094658.jpg&q=75)
-  
-
-啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm)
-
----
-
-# 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
-
-![劉佩瓊說，修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793760_2_20250301085619.jpg&q=55)
-  
-
-全國人大會議將於本月5日開幕，議程之一是審議《全國人大和地方各級人大代表法修正草案》，草案增加規定人大代表參加各項履職活動，明確人大代表出席會議前，應透過多種形式聽取群眾意見和建議，研讀計劃提交大會審議的議案和報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm)
 
 ---

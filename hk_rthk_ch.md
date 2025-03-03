@@ -1,7 +1,103 @@
-# 財政預算案2025｜孫玉菡稱容許社福機構盈餘暫存時間延長
+# 小鵬汽車2月共交付智能電動汽車按年增長近6倍
+
+![小鵬汽車2月共交付智能電動汽車30453輛，連續4個月交付量超過3萬輛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794016_1_20250303181941.jpg&q=90)
+  
+
+小鵬汽車2月共交付智能電動汽車30453輛，按年增長5.7倍，連續4個月交付量超過3萬輛。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm)
+
+---
+
+# 劉國勳倡北都採用多元模式發展　包括分期補地價及延長短期租約等
+
+預算案提出加快建設北部都會區，並預留土地用作發展不同產業。民建聯新界北立法會議員劉國勳建議推出「1.5級產業園」先導計劃，由政府推出已完成道路、基建及網絡建設等較成熟的土地，讓經營者建設非永久性的建構物，方便興建及遷拆，企業可以短期入駐，加快創科產業落地，同時亦為未來發展預留彈性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm)
+
+---
+
+# 在岸人民幣兌美元低收93點子　創近3星期新低
+
+![在岸人民幣收報7.2931兌1美元，跌幅0.13%，創近3星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794013_1_20250303180926.jpg&q=40)
+  
+
+在岸人民幣收報7.2931兌1美元，較上星期五收市價跌93點子，跌幅0.13%，創近3星期新低。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm)
+
+---
+
+# 分析料歐洲央行本周減息0.25厘　年內仍要再減息刺激經濟
+
+![溫嘉煒預料歐洲央行本周減息0.25厘，年內仍可能再減息2至3次，因當地經濟疲弱需進一步放鬆政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794009_1_20250303172759.jpg&q=75)
+  
+
+歐洲央行本周四議息，市場預料減息0.25厘，連續5次會議減息，亦是今個減息周期第6次減息。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm)
+
+---
+
+# 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
 
 ![孫玉菡表示，容許社福機構的盈餘暫存時間延長。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
   
+
+財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。
+
   
 
 
@@ -44,6 +140,9 @@
 ---
 
 # 涉兒童及青少年脂肪肝病例趨增　團體籲從小培養良好生活運動習慣
+
+![團體呼籲市民做好體重管理，從小培養良好生活及運動習慣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794005_1_20250303180147.jpg&q=35)
+  
 
 香港肥胖學會及香港亞洲肝炎會指出，涉及兒童及青少年的脂肪肝病例增加，肥胖被視為「代謝性脂肪肝」的主要危險因素，估計一般兒童人口有關患病率約3%至一成，但肥胖兒童患病率可高達近三至四成。
 
@@ -1509,7 +1608,7 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 
 # 施紀賢：實現和平須獲美國支持　馬克龍倡烏克蘭空海停火一個月
 
-![英國首相施紀賢與烏克蘭總統澤連斯基及法國總統馬克龍交談。（唁透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
   
 
 歐洲多國領導人在倫敦就烏克蘭危機召開峰會，英國首相施紀賢在會後說，各方達成四點共識，包括繼續軍援烏克蘭、讓基輔參與和平談判、阻止俄羅斯未來再入侵烏克蘭，以及組建聯盟來保證烏克蘭的和平。

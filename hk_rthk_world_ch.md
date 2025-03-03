@@ -288,7 +288,7 @@
 
 # 施紀賢：實現和平須獲美國支持　馬克龍倡烏克蘭空海停火一個月
 
-![英國首相施紀賢與烏克蘭總統澤連斯基及法國總統馬克龍交談。（唁透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
   
 
 歐洲多國領導人在倫敦就烏克蘭危機召開峰會，英國首相施紀賢在會後說，各方達成四點共識，包括繼續軍援烏克蘭、讓基輔參與和平談判、阻止俄羅斯未來再入侵烏克蘭，以及組建聯盟來保證烏克蘭的和平。
