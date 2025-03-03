@@ -1,3 +1,24 @@
+# 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍晚上到全國政協禮堂，看望來京出席全國政協十四屆三次會議的香港、澳門地區全國政協委員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm)
+
+---
+
 # 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
 
 ![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793590-20250228.htm)
-
----
-
-# 特朗普指新對華關稅措施疊加月初關稅上　即累計徵收20%關稅
-
-![特朗普說將對從中國進口美國的商品，徵收額外10%關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793571_1_20250228044815.jpg&q=85)
-  
-
-美國總統特朗普在社交平台表示，下星期二起會對從中國進口美國的商品，徵收額外10%關稅。他其後在白宮向傳媒說，相關關稅疊加在本月初對華徵收的10%關稅之上，即是累計徵收20%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793571-20250228.htm)
 
 ---

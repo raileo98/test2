@@ -1,3 +1,48 @@
+# 涉社交平台發布煽動訊息　巴士電器技工還押案件五月再訊
+
+![總裁判官蘇惠德將案件押後至5月8日，待辯方閱讀文件及索取指示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794057_1_20250303232502.jpg&q=65)
+  
+
+一名巴士電器技工涉嫌在10個月內，透過社交平台發布具煽動意圖的訊息，被控明知而發布具煽動意圖的刊物罪。案件在西九龍裁判法院再訊，總裁判官蘇惠德將案件押後至5月8日，待辯方閱讀文件及索取指示，期間被告還押候訊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm)
+
+---
+
+# 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍晚上到全國政協禮堂，看望來京出席全國政協十四屆三次會議的香港、澳門地區全國政協委員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm)
+
+---
+
 # 美國2月ISM製造業指數跌至50.3遜預期
 
 ![美國2月ISM製造業指數跌至50.3，低於預期，投入物價指數升至逾兩年半新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794054_1_20250303231137.jpg&q=90)
