@@ -93,7 +93,7 @@
 
 # 財政預算案2025｜蔡海偉稱社福機構或選擇減人手減薪酬
 
-![蔡海偉說，社福機構會盡力不影響服務使用者。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794026_1_20250303190110.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794026_1_20250303190110.jpg&q=80)
   
 
 財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，中小型社福機構只需要削減3%資源，其餘4%由社署承擔；至於50多間獲得超過5000萬元撥款的大型社福機構，就需要在27/28年度累計削減7%開支。
