@@ -1,3 +1,27 @@
+# CPPCC annual session to run for six days from Tuesday
+
+![Session spokesman, Liu Jieyi, says 2025 will be a concluding year of the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303164627.jpg&q=90)
+  
+
+The annual session of China's top political advisory body will run from Tuesday to March 10, authorities announced on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm)
+
+---
+
 # China factory activity grows at fastest pace in months
 
 ![The positive trend in the Caixin survey aligned with an official PMI released over the weekend. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793951_1_20250303101834.jpg&q=90)
@@ -1417,29 +1441,5 @@ Team China on Monday scooped up six gold medals on day three of the Harbin Asian
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791038-20250210.htm)
-
----
-
-# Asean tour groups can visit Xishuangbanna visa-free
-
-![Tour groups from the 10 Asean members will be allowed to visit Xishuangbanna without a visa for up to six days. File photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1790994_1_20250210122533.jpg&q=90)
-  
-
-China is further relaxing its visa-free programmes by allowing tour groups from Asean members to visit Xishuangbanna in Yunnan province for up to six days.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1790994-20250210.htm)
 
 ---

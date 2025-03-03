@@ -1,3 +1,45 @@
+# 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
+
+在北京，外交部重申貿易戰、關稅戰無贏家。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
+
+---
+
+# 全國兩會｜劉結一稱香港融入國家發展大局持續走深走實
+
+全國政協新聞發言人劉結一表示，香港融入國家發展大局持續走深走實，粵港澳大灣區高質量發展不斷豐富一國兩制的生動實踐，港珠澳大橋客流車流再創新高，深中通道、黃茅海跨海通道建成通車，大灣區城市群「硬聯通」進一步完善，「軟聯通」持續提升，一系列便民利企措施相繼落地，人員、貨物、資金、數據流動更高效便捷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm)
+
+---
+
 # 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
 
 全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
@@ -1378,53 +1420,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793490-20250227.htm)
-
----
-
-# 外交部：美方對中俄關係挑撥離間完全是徒勞
-
-![林劍指美方對中俄關係挑撥離間完全是徒勞的。（外交部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793489_1_20250227163716.jpg&q=90)
-  
-
-在北京，外交部發言人林劍指，中俄作為兩個大國，彼此的關係具有強大的內生動力，不受任何第三方影響。中俄兩國的發展戰略和外交政策是很長遠的，任憑國際風雲變幻，中俄關係都將從容前行。他指美方對中俄關係挑撥離間完全是徒勞的。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793489-20250227.htm)
-
----
-
-# 商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅
-
-![商務部：中美對口部門一直保持溝通　中方堅決反對美方單邊關稅](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793488_1_20250227164810.jpg&q=90)
-  
-
-對於美國總統特朗普日前表示，期待中國國家主席習近平訪問美國，又表示美中有可能達成新的貿易協議。在北京，商務部新聞發言人何亞東說，中美雙方對口部門一直保持溝通，中方堅決反對美方單邊關稅措施，將堅定維護自身合法正當權益，也願意通過對話協商解決問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793488-20250227.htm)
 
 ---

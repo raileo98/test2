@@ -1,3 +1,24 @@
+# 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
+
+在北京，外交部重申貿易戰、關稅戰無贏家。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
+
+---
+
 # 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
 
 全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
@@ -1405,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793754-20250301.htm)
-
----
-
-# 俄官員形容澤連斯基於白宮遭訓斥　俄外交部指澤連斯基說謊
-
-![梅德韋傑夫（圖）形容澤連斯基在白宮遭到嚴厲訓斥。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793750_1_20250301072537.jpg&q=90)
-  
-
-美國總統特朗普與烏克蘭總統澤連斯基在白宮會談期間，氣氛緊張。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793750-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793750-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793750-20250301.htm)
 
 ---
