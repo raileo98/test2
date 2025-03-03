@@ -1,3 +1,27 @@
+# 財政預算案2025｜中大推出四年制第二學位醫科課程名額25個
+
+![四年制第二學位醫科課程將於今年9月入學，首輪面試將於4月9日舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794044_1_20250303215336.jpg&q=75)
+  
+
+中大醫學院公布推出四年制第二學位醫科課程，名額25個，將於今年9月入學，首輪面試將於4月9日舉行，有興趣報讀人士最遲可於5月30日前提出申請。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm)
+
+---
+
 # 央視報道工行擬未來3年對民企投融資規模不少於6萬億元人民幣
 
 ![央視新聞報道指，工商銀行計劃未來3年，為民企提供投融資規模不少於6萬億元人民幣，增加信用及中長期資金供應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794038_1_20250303210329.jpg&q=75)
@@ -1056,6 +1080,30 @@
 
 ---
 
+# 財政預算案2025｜港大第二學位醫學士課程6.20截止申請
+
+![港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793945_1_20250303110049.jpg&q=80)
+  
+
+港大醫學院推出4年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm)
+
+---
+
 # 人行開展970億元人民幣逆回購操作
 
 ![人民銀行公開市場開展970億元人民幣7日期逆回購操作，單日轉為淨回籠1955億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793941_1_20250303093503.jpg&q=50)
@@ -1389,53 +1437,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793889-20250302.htm)
-
----
-
-# 全國兩會 | 唐英年：提案包括進一步優化一簽多行等內容
-
-![唐英年表示，會有一系列提案，包括進一步優化一簽多行措施，以及金融自由行等內容。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793892_1_20250302183821.jpg&q=75)
-  
-
-全國政協十四屆三次會議周二在北京召開。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793892-20250302.htm)
-
----
-
-# 丘應樺：香港支持自由貿易　不認同不必要關稅及貿易壁壘
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793879_1_20250302161402.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺表示，當前全球經濟環境面臨不確定性，保護主義再度抬頭，影響貿易、供應鏈、現金流及投資市場情緒，雖然對香港經濟韌性造成考驗，但讓香港更加堅定於改革、創新和提升自我。他強調香港支持自由貿易，不認同不必要的關稅和貿易壁壘，因為會影響全球貿易及資本流動，削弱投資信心，並減慢全球經濟發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793879-20250302.htm)
 
 ---

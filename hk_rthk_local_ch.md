@@ -1,3 +1,27 @@
+# 財政預算案2025｜中大推出四年制第二學位醫科課程名額25個
+
+![四年制第二學位醫科課程將於今年9月入學，首輪面試將於4月9日舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794044_1_20250303215336.jpg&q=75)
+  
+
+中大醫學院公布推出四年制第二學位醫科課程，名額25個，將於今年9月入學，首輪面試將於4月9日舉行，有興趣報讀人士最遲可於5月30日前提出申請。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm)
+
+---
+
 # 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794041_1_20250303213402.jpg&q=75)
@@ -1008,7 +1032,7 @@
 
 ---
 
-# 港大醫學院推出四年制第二學位醫學士課程　6.20截止申請
+# 財政預算案2025｜港大第二學位醫學士課程6.20截止申請
 
 ![港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793945_1_20250303110049.jpg&q=80)
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
-
----
-
-# 鄧炳強率青少年制服團隊領袖論壇成員參與澳門研學行程
-
-![研學團早前考察順德區無人機指揮調度中心，亦到訪當地智能製造科技園、創新研發中心和生產企業。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793888_1_20250302180100.jpg&q=45)
-  
-
-保安局局長鄧炳強率領「保安局青少年制服團隊領袖論壇」成員參與大灣區研學團在澳門的行程，完成三日兩夜認識國家歷史文化和不同領域發展的考察。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793888-20250302.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 財政預算案2025｜中大推出四年制第二學位醫科課程名額25個
+
+![四年制第二學位醫科課程將於今年9月入學，首輪面試將於4月9日舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794044_1_20250303215336.jpg&q=75)
+  
+
+中大醫學院公布推出四年制第二學位醫科課程，名額25個，將於今年9月入學，首輪面試將於4月9日舉行，有興趣報讀人士最遲可於5月30日前提出申請。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm)
+
+---
+
 # 德國曼海姆市有車撞人據報最少1死　司機已被拘留
 
 ![多輛緊急車輛趕到事發現場協助。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794042_1_20250303212037.jpg&q=60)
