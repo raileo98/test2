@@ -1,3 +1,64 @@
+# 啟德體育園正跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
+
+---
+
+# 滬股全日跌3點　創業板指數升逾1%
+
+![內地股市3大指數個別發展，上證指數先升後回，收報3316點，跌3點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793985_1_20250303151623.jpg&q=50)
+  
+
+內地股市下午轉弱，3大指數收市個別發展，電池、能源、金屬股上升；飲品製造、存儲晶片股下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm)
+
+---
+
+# 有的士車隊稱用人工智能「派單」有車隊著重司機培訓
+
+政府舉行的士車隊啟動禮，有車隊本月底將投入服務，其餘會在本月至7月期間陸續「落地」。各車隊在啟動禮上展示新的士，包括6座位的豪華版的士，的士車身顏色亦不一定局限於傳統顏色，包括有黑色、粉紅色、黃紅漸變色。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm)
+
+---
+
 # 日股高收1.7%
 
 ![日經指數收報37785點，升629點，升幅1.7%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793982_1_20250303143952.jpg&q=80)
@@ -1364,77 +1425,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793744-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793744-20250301.htm)
-
----
-
-# 美國上月商品貿易逆差升近26%　加徵關稅前提早進口
-
-![美國1月商品貿易逆差上升25.6%至1533億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793730_1_20250228225430.jpg&q=80)
-  
-
-美國1月貨物貿易逆差急劇擴大，企業在加徵關稅前提前進口貨物。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793730-20250228.htm)
-
----
-
-# 美股初段個別發展
-
-![道瓊斯指數較早時報43332點，升92點，升幅0.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793729_1_20250228224550.jpg&q=90)
-  
-
-美股在開市初段個別發展，美國上月核心個人消費開支(PCE)物價指數符合預期。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793729-20250228.htm)
-
----
-
-# 中興通訊去年盈利按年跌約10%
-
-![中興通訊公布，去年度盈利按年減少約10%至84.2億元人民幣，派息每股0.617元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793722_1_20250228215125.jpg&q=85)
-  
-
-中興通訊公布，去年度盈利按年減少約10%至84.2億元人民幣，派息每股0.617元人民幣。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793722-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793722-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793722-20250228.htm)
 
 ---

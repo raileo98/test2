@@ -1,4 +1,91 @@
+# 啟德體育園正跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
+
+---
+
+# 去年約8萬6千人新參與大腸癌篩查計劃 　推行計劃以來最多一年
+
+衞生防護中心總監徐樂堅呼籲市民響應大腸癌關注月，透過實踐健康生活模式和定期進行篩查，預防患上大腸癌。他表示，大腸癌是本港第三常見的癌症，亦是致命癌症的第二位，在2022年，本港錄得5190宗新症，同期有2270宗因患上大腸癌而死亡的個案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm)
+
+---
+
+# 滬股全日跌3點　創業板指數升逾1%
+
+![內地股市3大指數個別發展，上證指數先升後回，收報3316點，跌3點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793985_1_20250303151623.jpg&q=50)
+  
+
+內地股市下午轉弱，3大指數收市個別發展，電池、能源、金屬股上升；飲品製造、存儲晶片股下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm)
+
+---
+
+# 有的士車隊稱用人工智能「派單」有車隊著重司機培訓
+
+政府舉行的士車隊啟動禮，有車隊本月底將投入服務，其餘會在本月至7月期間陸續「落地」。各車隊在啟動禮上展示新的士，包括6座位的豪華版的士，的士車身顏色亦不一定局限於傳統顏色，包括有黑色、粉紅色、黃紅漸變色。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm)
+
+---
+
 # 全國政協會議明日下午開幕　會期6天　下周一上午閉幕
+
+全國政協十四屆三次會議明日下午3時在北京人民大會堂開幕，會期6天，下周一上午閉幕。
+
+  
+
 
 ---
 
@@ -16,7 +103,10 @@
 
 # 陳文宜將出任社聯行政總裁
 
-社聯宣布，聘請現任社聯業務總監陳文宜，為下任社聯行政總裁，下月1日履新。
+![陳文宜獲聘為下任社聯行政總裁，下月1日履新。（社聯提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793983_1_20250303152638.jpg&q=85)
+  
+
+社聯宣布聘請現任社聯業務總監陳文宜為下任社聯行政總裁，下月1日履新。
 
   
 

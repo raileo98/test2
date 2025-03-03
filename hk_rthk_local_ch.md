@@ -1,6 +1,67 @@
+# 啟德體育園正跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
+
+---
+
+# 去年約8萬6千人新參與大腸癌篩查計劃 　推行計劃以來最多一年
+
+衞生防護中心總監徐樂堅呼籲市民響應大腸癌關注月，透過實踐健康生活模式和定期進行篩查，預防患上大腸癌。他表示，大腸癌是本港第三常見的癌症，亦是致命癌症的第二位，在2022年，本港錄得5190宗新症，同期有2270宗因患上大腸癌而死亡的個案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm)
+
+---
+
+# 有的士車隊稱用人工智能「派單」有車隊著重司機培訓
+
+政府舉行的士車隊啟動禮，有車隊本月底將投入服務，其餘會在本月至7月期間陸續「落地」。各車隊在啟動禮上展示新的士，包括6座位的豪華版的士，的士車身顏色亦不一定局限於傳統顏色，包括有黑色、粉紅色、黃紅漸變色。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm)
+
+---
+
 # 陳文宜將出任社聯行政總裁
 
-社聯宣布，聘請現任社聯業務總監陳文宜，為下任社聯行政總裁，下月1日履新。
+![陳文宜獲聘為下任社聯行政總裁，下月1日履新。（社聯提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793983_1_20250303152638.jpg&q=85)
+  
+
+社聯宣布聘請現任社聯業務總監陳文宜為下任社聯行政總裁，下月1日履新。
 
   
 
@@ -1363,79 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm)
-
----
-
-# 啟德體育園開幕典禮歷時2小時　合唱歌曲「壯志驕陽」並發放煙花
-
-![啟德體育園傍晚舉行開幕典禮，歷時2小時，並發放煙花。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793824_1_20250301214727.jpg&q=75)
-  
-
-啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm)
-
----
-
-# 影星劉德華壓軸現身啟德體育園開幕禮　與觀眾大合照
-
-![影星劉德華現身啟德體育園開幕禮。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_1_20250301204611.jpg&q=75)
-![啟德體育園開幕典禮歷時2小時，結束前有大合唱及煙花匯演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_2_20250301205816.jpg&q=80)
-  
-
-啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm)
-
----
-
-# 鄧俊文謝影雪向觀眾拋出羽毛球　樊振東以巨型乒乓球拍打波
-
-![鄧俊文和謝影雪等向觀眾拋出親筆簽名羽毛球。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_1_20250301203326.jpg&q=80)
-![樊振東以巨型乒乓球拍打波，觀眾高呼喝采。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_2_20250301203326.jpg&q=75)
-  
-
-啟德體育園開幕禮傍晚6時半舉行，先後有多位奧運名將等上台表演。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm)
 
 ---

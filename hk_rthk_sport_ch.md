@@ -1,3 +1,19 @@
+# 啟德體育園正跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
+
+---
+
 # 曼聯互射十二碼不敵富咸　英格蘭足總盃第五圈止步
 
 ![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=35)
@@ -1423,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792767-20250222.htm)
-
----
-
-# 全運會男子手球測試賽　有內地球員指啟德體藝館場地媲美歐洲
-
-![有內地球員認為，場地專業可媲美歐洲場地。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792766_1_20250222192137.jpg&q=70)
-  
-
-全運會男子手球項目測試賽，今日起一連兩日在啟德體育園啟德體藝館舉行，今明兩日分別舉行兩場賽事。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm](https://news.rthk.hk/rthk/ch/component/k2/1792766-20250222.htm)
 
 ---
