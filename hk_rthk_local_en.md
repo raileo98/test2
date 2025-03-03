@@ -48,7 +48,6 @@ Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking th
 
 # Hong Kong's new taxi fleets unveiled
 
-![The taxis will feature a variety of colours beyond the usual red, blue and green. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793993_2_20250303160836.jpg&q=60)
 ![Officials say the fleets will gradually arrive between the end of this month and July. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793993_1_20250303160836.jpg&q=55)
   
 

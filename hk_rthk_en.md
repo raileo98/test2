@@ -1,3 +1,27 @@
+# Haifa attacker was Israeli Druze minority
+
+![Members of Israeli security and emergency services transport the body of the reported attacker in Haifa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794029_1_20250303192453.jpg&q=85)
+  
+
+Israel's police said the perpetrator of a stabbing attack in the northern city of Haifa on Monday was a member of Israel's Druze Arab minority who recently returned from abroad.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm)
+
+---
+
 # Hong Kong stocks close higher
 
 ![The Hang Seng Index finished up 0.3 percent at 23,006. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794011_1_20250303173917.jpg&q=75)
@@ -72,7 +96,6 @@ Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking th
 
 # Hong Kong's new taxi fleets unveiled
 
-![The taxis will feature a variety of colours beyond the usual red, blue and green. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793993_2_20250303160836.jpg&q=60)
 ![Officials say the fleets will gradually arrive between the end of this month and July. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793993_1_20250303160836.jpg&q=55)
   
 
@@ -97,7 +120,7 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
 
 # CPPCC annual session to run till March 10
 
-![Session spokesman, Liu Jieyi, says 2025 will be a concluding year of the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303172238.jpg&q=80)
+![Liu Jieyi says 2024 was a critical year for realising goals and tasks set forth in the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303172238.jpg&q=80)
   
 
 The annual session of China's top political advisory body will run from Tuesday to March 10, authorities announced on Monday.
@@ -1420,29 +1443,5 @@ US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm)
-
----
-
-# Basketball betting 'could be legalised by September'
-
-![It is believed that basketball betting activities could be legalised within this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793724_1_20250228221320.jpg&q=90)
-  
-
-Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the way for basketball betting will be passed by lawmakers by September this year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm)
 
 ---

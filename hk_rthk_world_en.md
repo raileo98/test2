@@ -1,3 +1,27 @@
+# Haifa attacker was Israeli Druze minority
+
+![Members of Israeli security and emergency services transport the body of the reported attacker in Haifa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794029_1_20250303192453.jpg&q=85)
+  
+
+Israel's police said the perpetrator of a stabbing attack in the northern city of Haifa on Monday was a member of Israel's Druze Arab minority who recently returned from abroad.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm)
+
+---
+
 # 'Anora' the big winner with 5 Oscars
 
 ![“Anora” won best director, best picture, best actress and other Academy Awards at the Oscars on Sunday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_1_20250303124425.jpg&q=75)
@@ -1416,29 +1440,5 @@ A Syrian man arrested after a stabbing attack at Berlin's Holocaust memorial tha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792775-20250222.htm)
-
----
-
-# Hospitalised pope to skip Angelus prayer again
-
-![An update from the Vatican said Pope Francis had rested well. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792768_1_20250222190209.jpg&q=80)
-  
-
-Pope Francis will miss the Angelus prayer on Sunday for the second straight week as the 88-year-old is treated in hospital for pneumonia, the Vatican said.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792768-20250222.htm)
 
 ---
