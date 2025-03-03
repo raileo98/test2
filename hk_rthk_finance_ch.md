@@ -1,3 +1,27 @@
+# 財政預算案2025｜蔡海偉稱社福機構或選擇減人手減薪酬
+
+![蔡海偉說，社福機構會盡力不影響服務使用者。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794026_1_20250303190110.jpg&q=80)
+  
+
+財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，中小型社福機構只需要削減3%資源，其餘4%由社署承擔；至於50多間獲得超過5000萬元撥款的大型社福機構，就需要在27/28年度累計削減7%開支。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm)
+
+---
+
 # 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
 
 財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
@@ -1408,29 +1432,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793780-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波︰當局會持續造地　何時推出會有彈性
-
-![陳茂波說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793779_1_20250301123807.jpg&q=70)
-  
-
-財政司司長陳茂波再度回應不希望過分依賴地價收入時表示，過往當地價及樓價飆升，市民有很大壓力，因此不希望大家的住屋好似過往一樣供不應求時昂貴，但當局會持續造地，何時推出會有彈性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793779-20250301.htm)
 
 ---

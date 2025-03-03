@@ -1,3 +1,27 @@
+# 財政預算案2025｜蔡海偉稱社福機構或選擇減人手減薪酬
+
+![蔡海偉說，社福機構會盡力不影響服務使用者。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794026_1_20250303190110.jpg&q=80)
+  
+
+財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，中小型社福機構只需要削減3%資源，其餘4%由社署承擔；至於50多間獲得超過5000萬元撥款的大型社福機構，就需要在27/28年度累計削減7%開支。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm)
+
+---
+
 # 廉署去年控逾2百人　審查貪污舉報諮詢委員會指貪污情況續受控
 
 廉署去年共接獲2058宗的貪污投訴，較前年增加3%，當中600多宗涉及政府部門及公共機構。
@@ -1404,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793869-20250302.htm)
-
----
-
-# 財政預算案2025｜陳茂波：陸路離境稅仍在設想階段可再商量
-
-![陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793868_2_20250302135915.jpg&q=90)
-  
-
-新一份《財政預算案》提出多項開源節流的措施，財政司司長陳茂波表示，要考慮三個原則，包括不影響相對競爭力、能者多付及用者自付，以及盡可能減低對一般市民的影響。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793868-20250302.htm)
 
 ---
