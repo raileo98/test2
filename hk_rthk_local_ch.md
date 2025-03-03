@@ -1,3 +1,27 @@
+# 譚得志與支聯會有關人士罪成案件上訴至終院　周四宣判
+
+![兩宗案件均由相同的5名本地法官審理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794052_1_20250303230419.jpg&q=85)
+  
+
+人民力量前副主席譚得志「快必」於2020年多次在街站叫喊「光時」等口號，經審訊後被裁定7項發表煽動文字等共11罪成，判監40個月及罰款5000元。另外，已解散的支聯會前副主席鄒幸彤與兩名前常委鄧岳君、徐漢光，2021年沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成，判囚4個半月。譚得志與支聯會案人士上訴至終審庭，兩宗案件將於星期四，一同宣判。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm)
+
+---
+
 # 國安條例生效而被拒提早獲釋　法庭判馬俊文需支付一半訟費
 
 ![法官有見本案為首宗《維護國家安全條例》司法覆核，酌情下令馬俊文支付署方司法覆核一半訟費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794050_1_20250303224415.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm)
-
----
-
-# 財政預算案2025｜唐英年相信陳茂波有能力按量入為出原則辦事
-
-![唐英年表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793897_1_20250302213746.jpg&q=85)
-  
-
-財政司司長陳茂波在財政預算案預計，本港將於2028/29年度恢復綜合盈餘，並計劃增加發債。全國政協常委、前財政司司長唐英年在北京見記者時表示，新一份財政預算案以穩健為主，再謀發展和投資未來，是可取做法。他又說，當然可用更短時間扭轉財赤，但時間愈快，痛楚愈大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793897-20250302.htm)
 
 ---

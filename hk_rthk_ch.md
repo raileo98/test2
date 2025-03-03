@@ -1,3 +1,27 @@
+# 譚得志與支聯會有關人士罪成案件上訴至終院　周四宣判
+
+![兩宗案件均由相同的5名本地法官審理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794052_1_20250303230419.jpg&q=85)
+  
+
+人民力量前副主席譚得志「快必」於2020年多次在街站叫喊「光時」等口號，經審訊後被裁定7項發表煽動文字等共11罪成，判監40個月及罰款5000元。另外，已解散的支聯會前副主席鄒幸彤與兩名前常委鄧岳君、徐漢光，2021年沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成，判囚4個半月。譚得志與支聯會案人士上訴至終審庭，兩宗案件將於星期四，一同宣判。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm)
+
+---
+
 # 美股初段變動不大　道指曾重上44000點　納指偏軟
 
 ![道瓊斯指數一度重上44000點水平，升至44033點，較早時報43926點，升85點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794051_1_20250303225000.jpg&q=90)
