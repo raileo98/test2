@@ -1,3 +1,24 @@
+# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
+
+近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
+
+---
+
 # 中方堅決反對美卿謊言謬論　已向美方嚴正交涉
 
 在北京，外交部發言人林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論，已向美方提出嚴正交涉。
@@ -41,6 +62,9 @@
 ---
 
 # 全國兩會｜劉結一稱香港融入國家發展大局持續走深走實
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793996_1_20250303171439.jpg&q=90)
+  
 
 全國政協新聞發言人劉結一表示，香港融入國家發展大局持續走深走實，粵港澳大灣區高質量發展不斷豐富一國兩制的生動實踐，港珠澳大橋客流車流再創新高，深中通道、黃茅海跨海通道建成通車，大灣區城市群「硬聯通」進一步完善，「軟聯通」持續提升，一系列便民利企措施相繼落地，人員、貨物、資金、數據流動更高效便捷。
 
@@ -1393,29 +1417,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793495-20250227.htm)
-
----
-
-# 全國兩會｜李家超與港區人大代表座談　陳曼琪稱提及婦女權益
-
-![陳曼琪表示，李家超主要聽取與會人士提出的建議，政府如何作出配合，讓人大代表更好履職。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793492_1_20250227163451.jpg&q=75)
-  
-
-行政長官李家超在政府總部與港區人大代表舉行座談會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793492-20250227.htm)
 
 ---

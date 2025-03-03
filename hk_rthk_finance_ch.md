@@ -1,3 +1,24 @@
+# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
+
+近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
+
+---
+
 # 本港1月零售銷售按年跌幅收窄至3.2%　連續11個月下跌
 
 ![本港1月零售業總銷貨價值臨時估計按年跌幅收窄至3.2%，連跌11個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793997_1_20250303163656.jpg&q=80)
@@ -23,6 +44,9 @@
 ---
 
 # 全國兩會｜劉結一稱香港融入國家發展大局持續走深走實
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793996_1_20250303171439.jpg&q=90)
+  
 
 全國政協新聞發言人劉結一表示，香港融入國家發展大局持續走深走實，粵港澳大灣區高質量發展不斷豐富一國兩制的生動實踐，港珠澳大橋客流車流再創新高，深中通道、黃茅海跨海通道建成通車，大灣區城市群「硬聯通」進一步完善，「軟聯通」持續提升，一系列便民利企措施相繼落地，人員、貨物、資金、數據流動更高效便捷。
 
@@ -1408,29 +1432,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793758-20250301.htm)
-
----
-
-# 港股美國預託證券較本港收市普遍向好
-
-![滙控美國預託證券較本港收市升逾4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793751_1_20250301061727.jpg&q=90)
-  
-
-滙控美國預託證券折合93.2港元，較本港收市升逾4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793751-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793751-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793751-20250301.htm)
 
 ---

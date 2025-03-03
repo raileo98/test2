@@ -1,3 +1,24 @@
+# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
+
+近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
+
+---
+
 # 涉兒童及青少年脂肪肝病例趨增　團體籲從小培養良好生活運動習慣
 
 香港肥胖學會及香港亞洲肝炎會指出，涉及兒童及青少年的脂肪肝病例增加，肥胖被視為「代謝性脂肪肝」的主要危險因素，估計一般兒童人口有關患病率約3%至一成，但肥胖兒童患病率可高達近三至四成。
@@ -65,6 +86,9 @@
 ---
 
 # 全國兩會｜劉結一稱香港融入國家發展大局持續走深走實
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793996_1_20250303171439.jpg&q=90)
+  
 
 全國政協新聞發言人劉結一表示，香港融入國家發展大局持續走深走實，粵港澳大灣區高質量發展不斷豐富一國兩制的生動實踐，港珠澳大橋客流車流再創新高，深中通道、黃茅海跨海通道建成通車，大灣區城市群「硬聯通」進一步完善，「軟聯通」持續提升，一系列便民利企措施相繼落地，人員、貨物、資金、數據流動更高效便捷。
 
@@ -1405,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793833-20250301.htm)
-
----
-
-# 陳茂波：啟德體育園大大提升香港舉辦盛事容量和吸引力
-
-![陳茂波說政府將繼續舉辦各類型大型體育、娛樂和文化盛事。（陳茂波社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793831_1_20250301230859.jpg&q=85)
-  
-
-啟德體育園舉行開幕典禮，財政司司長陳茂波表示，表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm)
 
 ---

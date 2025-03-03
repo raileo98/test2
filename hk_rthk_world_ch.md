@@ -1,3 +1,24 @@
+# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
+
+近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
+
+---
+
 # 中方堅決反對美卿謊言謬論　已向美方嚴正交涉
 
 在北京，外交部發言人林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論，已向美方提出嚴正交涉。
@@ -1399,29 +1420,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm)
-
----
-
-# 《環看天下》：DeepSeek觸發環球資金轉向
-
-![Deep Seek 核心成員均來自中國的大學，並沒有海外背景。（法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793756_1_20250301083234.jpg&q=90)
-  
-
-中國人工智能模型DeepSeek使用較低端及較少數目晶片，但運算速度及得出的生成式文字結果，與使用大量高端晶片運算的Open AI大模型大致相同，引發全球關注。由於DeepSeek的成本相對便宜，觸發資產市場對中美相關企業重新估值，導致環球資金短時間內轉向。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm)
 
 ---
