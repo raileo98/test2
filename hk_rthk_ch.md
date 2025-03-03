@@ -1,3 +1,27 @@
+# 美元下跌　烏克蘭和談憧憬推動歐元上升
+
+![美元指數失守107水平，歐元兌美元在紐約尾市升逾1%，受到烏克蘭和談憧憬推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794079_1_20250304061850.jpg&q=85)
+  
+
+歐元反彈，受到烏克蘭和談憧憬推動。歐元兌美元在紐約尾市升逾1%，報1.0484美元。有分析指，烏克蘭可能達成和平協議，歐元區國家可能增加財政支出，都將推動未來經濟增長，從而支持歐元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794079-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794079-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794079-20250304.htm)
+
+---
+
 # 道指低收649點　納指跌近3%　關稅憂慮及製造業指數下跌
 
 ![道瓊斯指數先高後低，尾市最多曾跌逾920點，收市報43191點，跌649點，跌幅約1.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794077_1_20250304055354.jpg&q=90)
@@ -46,7 +70,7 @@
 
 ---
 
-# 特朗普提高對中國進口商品關稅至20%
+# 特朗普提高對中國商品關稅至20%　對加墨關稅周二生效
 
 ![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
-
----
-
-# 小鵬汽車2月共交付智能電動汽車按年增長近6倍
-
-![小鵬汽車2月共交付智能電動汽車30453輛，連續4個月交付量超過3萬輛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794016_1_20250303181941.jpg&q=90)
-  
-
-小鵬汽車2月共交付智能電動汽車30453輛，按年增長5.7倍，連續4個月交付量超過3萬輛。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm)
 
 ---
