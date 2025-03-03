@@ -1,3 +1,51 @@
+# Hong Kong stocks close higher
+
+![The Hang Seng Index finished up 0.3 percent at 23,006. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794011_1_20250303173917.jpg&q=75)
+  
+
+Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0.3 percent at 23,006.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm)
+
+---
+
+# 'Hundreds of species at risk of local extinction'
+
+![WWF-Hong Kong says it hopes to discuss its findings with government officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794010_1_20250303173647.jpg&q=90)
+  
+
+Conservation groups are warning that around a quarter of almost 900 different species assessed in Hong Kong are at risk of local extinction, with types of birds and freshwater fish among the most in danger of disappearing from the territory.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm)
+
+---
+
 # HK's retail sales drop 3.2 percent in January
 
 ![Hong Kong's retail sales dropped for the 11th consecutive month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794002_1_20250303165314.jpg&q=80)
@@ -1396,53 +1444,5 @@ Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm)
-
----
-
-# 'Not enough separation for planes after take-off'
-
-![The Civil Aviation Department says air traffic control staff involved in the incident near Hong Kong International Airport have been removed from frontline duties temporarily. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793718_1_20250228212309.jpg&q=80)
-  
-
-An unspecified number of air traffic control staff have been suspended over an incident involving two cargo planes that triggered an alert after take-off.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm)
-
----
-
-# Review on tolls, traffic penalties to finish this year
-
-![Mable Chan says the review by her bureau will focus on traffic charges that have not gone up for years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793702_1_20250228192045.jpg&q=80)
-  
-
-The Transport and Logistics Bureau is aiming to complete a review on the fixed penalties for traffic-related offences and various fees and tolls this year, its chief said on Friday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm)
 
 ---

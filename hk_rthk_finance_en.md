@@ -1,3 +1,27 @@
+# Hong Kong stocks close higher
+
+![The Hang Seng Index finished up 0.3 percent at 23,006. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794011_1_20250303173917.jpg&q=75)
+  
+
+Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0.3 percent at 23,006.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm)
+
+---
+
 # HK's retail sales drop 3.2 percent in January
 
 ![Hong Kong's retail sales dropped for the 11th consecutive month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794002_1_20250303165314.jpg&q=80)
@@ -1411,29 +1435,5 @@ OpenAI's board chairman on Friday said it has unanimously rejected an Elon Musk-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791762-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791762-20250215.htm)
-
----
-
-# US markets close mixed on tariff news, retail data
-
-![Wall Street closed mixed, with the S&P 500 barely changed, but the Nasdaq Composite gained 0.4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791725_1_20250215072352.jpg&q=70)
-  
-
-Gains in tech stocks boosted the Nasdaq Composite on Friday, but other major indices were either down or barely changed as investors digested President Trump's latest tariff announcement, economic data and earnings.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791725-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791725-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791725-20250215.htm)
 
 ---

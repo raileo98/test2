@@ -1,3 +1,27 @@
+# 'Hundreds of species at risk of local extinction'
+
+![WWF-Hong Kong says it hopes to discuss its findings with government officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794010_1_20250303173647.jpg&q=90)
+  
+
+Conservation groups are warning that around a quarter of almost 900 different species assessed in Hong Kong are at risk of local extinction, with types of birds and freshwater fish among the most in danger of disappearing from the territory.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm)
+
+---
+
 # HK's retail sales drop 3.2 percent in January
 
 ![Hong Kong's retail sales dropped for the 11th consecutive month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794002_1_20250303165314.jpg&q=80)
@@ -47,30 +71,6 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
 
 ---
 
-# Govt operating account largely balanced: FS
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
-  
-
-Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
-
----
-
 # ICAC sees three percent rise in graft allegations
 
 ![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
@@ -92,6 +92,30 @@ The ICAC on Monday said it received 2,058 reports of corruption last year, up th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
+
+---
+
+# Govt operating account largely balanced: FS
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+  
+
+Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
 
 ---
 
@@ -1414,29 +1438,5 @@ The Hong Kong Tourism Board (HKTB) will get HK$1.2 billion from the government i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793240-20250226.htm)
-
----
-
-# AI key to realising HK's aspirations as I&T hub: FS
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793223_1_20250226120300.jpg&q=90)
-  
-
-Artificial intelligence will be at the heart of the government's efforts to turn the city into an Innovation and Technology (I&T) and science centre for Asia, according to the financial secretary.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793223-20250226.htm)
 
 ---
