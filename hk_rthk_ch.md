@@ -1,3 +1,27 @@
+# 全國兩會 | 何漢權引述夏寶龍：政協委員要成為監察者及局中人
+
+![何漢權引述夏寶龍說，政協委員除了做監察者，更重要是成為局中人，就像球賽上一名積極的運動員。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794082_1_20250304065419.jpg&q=90)
+  
+
+港澳辦主任夏寶龍在全國政協會議召開前夕，看望來自香港、澳門的全國政協委員，希望大家更好發揮「雙重積極作用」，加快推動香港由治及興，助力強國建設、民族復興作出新的更大貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![小米ADR較本港收市跌逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794080_1_20250304062512.jpg&q=90)
@@ -70,7 +94,7 @@
 
 ---
 
-# 特朗普：澤連斯基應對美國更加感激
+# 特朗普：澤連斯基應該對美國更加感激
 
 ![特朗普暗示若果澤連斯基不想達成協議，不會在位很久。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794078_1_20250304055436.jpg&q=90)
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794018-20250303.htm)
-
----
-
-# 歐元區2月製造業收縮速度減慢
-
-![歐元區2月製造業採購經理指數終值升至47.6，收縮速度減慢，製造業正回穩。（新華社圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794015_1_20250303181550.jpg&q=90)
-  
-
-歐元區2月製造業採購經理指數（PMI）終值升至47.6，高於初值的47.3，亦高於1月的46.6，指數自2022年中持續處於50以下收縮水平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 全國兩會 | 何漢權引述夏寶龍：政協委員要成為監察者及局中人
+
+![何漢權引述夏寶龍說，政協委員除了做監察者，更重要是成為局中人，就像球賽上一名積極的運動員。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794082_1_20250304065419.jpg&q=90)
+  
+
+港澳辦主任夏寶龍在全國政協會議召開前夕，看望來自香港、澳門的全國政協委員，希望大家更好發揮「雙重積極作用」，加快推動香港由治及興，助力強國建設、民族復興作出新的更大貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm)
+
+---
+
 # 屹立北角逾半世紀新光戲院正式結業
 
 ![眾多市民在新光戲院外告別新光。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794060_2_20250304003122.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm)
-
----
-
-# 兩外籍男子涉嫌盜取他人手提電話被捕
-
-![兩名外籍男子涉嫌盜取他人手提電話，被警方拘捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793907_1_20250302224847.jpg&q=70)
-  
-
-警方在深水埗區拘捕兩名外籍男子，涉嫌盜取他人手提電話，其中一人以失明人士作為盜竊目標，警方予以強烈譴責。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793907-20250302.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 全國兩會 | 何漢權引述夏寶龍：政協委員要成為監察者及局中人
+
+![何漢權引述夏寶龍說，政協委員除了做監察者，更重要是成為局中人，就像球賽上一名積極的運動員。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794082_1_20250304065419.jpg&q=90)
+  
+
+港澳辦主任夏寶龍在全國政協會議召開前夕，看望來自香港、澳門的全國政協委員，希望大家更好發揮「雙重積極作用」，加快推動香港由治及興，助力強國建設、民族復興作出新的更大貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm)
+
+---
+
 # 特朗普提高對中國商品關稅至20%　對加墨關稅周二生效
 
 ![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm)
-
----
-
-# 中國駐澳大使：澳洲應客觀理性看待中澳關係和中國軍艦活動
-
-![肖千接受央視新聞訪問。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793603_1_20250228093156.jpg&q=90)
-  
-
-中國駐澳洲大使肖千表示，澳洲應該以客觀理性的眼光看待中澳關係、中國軍艦在塔斯曼海的活動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793603-20250228.htm)
 
 ---
