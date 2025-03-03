@@ -1,3 +1,75 @@
+# 國際油價跌約2%　創近3個月低位
+
+![倫敦布蘭特期油收市跌1.6%，紐約期油跌約2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794073_1_20250304051751.jpg&q=90)
+  
+
+國際期油價格低收約2%，創近3個月收市低位，據報石油輸出國組織及其盟友(OPEC+)將按計劃在4月增產，加上市場憂慮美國關稅可能會損害經濟增長和石油需求。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm)
+
+---
+
+# 金價反彈逾1%　因美元疲弱及關稅憂慮
+
+![現貨金較早時報每盎司2890.88美元，升幅1.1%。紐約期金高收1.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794074_1_20250304052412.jpg&q=75)
+  
+
+金價反彈逾1%，因美元疲弱，加上關稅憂慮引發避險買盤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm)
+
+---
+
+# 英德股市創收市新高
+
+![德國DAX指數創收市新高，報23147點，升595點，升幅2.6%，創逾2年最大單日升幅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794072_1_20250304051053.jpg&q=90)
+  
+
+歐洲主要股市收市上升，德國和英國股市創收市新高，受國防股升勢帶動，因歐洲軍費開支增加的預期升溫。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm)
+
+---
+
 # 特朗普：台積電將在美國新投資至少1000億美元
 
 ![特朗普與商務部長盧特尼克（左）及魏哲家（右）陪同下在白宮會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794075_1_20250304052431.jpg&q=90)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm)
-
----
-
-# 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
-  
-
-財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
-
-![陳茂波表示，香港在國家發展中的獨特價值依然是「一國兩制」優勢，同時與內地及國際社會聯繫。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794006_1_20250303175756.jpg&q=25)
-  
-
-近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
-
----
-
-# 涉兒童及青少年脂肪肝病例趨增　團體籲從小培養良好生活運動習慣
-
-![團體呼籲市民做好體重管理，從小培養良好生活及運動習慣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794005_1_20250303180147.jpg&q=35)
-  
-
-香港肥胖學會及香港亞洲肝炎會指出，涉及兒童及青少年的脂肪肝病例增加，肥胖被視為「代謝性脂肪肝」的主要危險因素，估計一般兒童人口有關患病率約3%至一成，但肥胖兒童患病率可高達近三至四成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794005-20250303.htm)
 
 ---

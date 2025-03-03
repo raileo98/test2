@@ -1,3 +1,75 @@
+# 國際油價跌約2%　創近3個月低位
+
+![倫敦布蘭特期油收市跌1.6%，紐約期油跌約2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794073_1_20250304051751.jpg&q=90)
+  
+
+國際期油價格低收約2%，創近3個月收市低位，據報石油輸出國組織及其盟友(OPEC+)將按計劃在4月增產，加上市場憂慮美國關稅可能會損害經濟增長和石油需求。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm)
+
+---
+
+# 金價反彈逾1%　因美元疲弱及關稅憂慮
+
+![現貨金較早時報每盎司2890.88美元，升幅1.1%。紐約期金高收1.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794074_1_20250304052412.jpg&q=75)
+  
+
+金價反彈逾1%，因美元疲弱，加上關稅憂慮引發避險買盤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm)
+
+---
+
+# 英德股市創收市新高
+
+![德國DAX指數創收市新高，報23147點，升595點，升幅2.6%，創逾2年最大單日升幅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794072_1_20250304051053.jpg&q=90)
+  
+
+歐洲主要股市收市上升，德國和英國股市創收市新高，受國防股升勢帶動，因歐洲軍費開支增加的預期升溫。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm)
+
+---
+
 # 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
@@ -1366,77 +1438,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
-
----
-
-# 人民幣兌美元中間價創近1個半月低位
-
-![人民幣中間價報7.1745兌1美元，跌7點子，創近1個半月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793938_1_20250303092313.jpg&q=75)
-  
-
-人民幣中間價報7.1745兌1美元，較上周五中間價跌7點子，創近1個半月低位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793938-20250303.htm)
-
----
-
-# 新世界發展擬今年內推售杭州甲級寫字樓　市值約10億元人民幣
-
-![新世界發展計劃年內推售「 FRONT　TOWER 壹山」，市值約 10 億元人民幣。（公司提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793935_1_20250303090641.jpg&q=40)
-  
-
-新世界發展旗下杭州項目「新世界．城市藝術中心」計劃今年內推售甲級寫字樓「FRONT TOWER 壹山」，市值約10億元人民幣。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793935-20250303.htm)
-
----
-
-# 台股初段跌逾1%
-
-![台灣加權指數較早時報22738點，跌314點，跌幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793936_1_20250303090707.jpg&q=85)
-  
-
-台灣股市在開市初段跌逾1%，加權指數較早時報22738點，跌314點，跌幅1.37%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793936-20250303.htm)
 
 ---
