@@ -1013,7 +1013,7 @@
 
 # 涉售啟德體育園開幕禮門票　兩女一男涉企圖詐騙被捕
 
-![警方拘捕兩女一男涉嫌企圖詐騙，涉及啟德體育園開幕禮門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793088_1_20250225153754.jpg&q=1)
+![警方拘捕兩女一男涉嫌企圖詐騙，涉及啟德體育園開幕禮門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793088_1_20250225153754.jpg&q=15)
   
 
 警方拘捕兩女一男涉嫌企圖詐騙，涉及啟德體育園開幕禮門票。警方稍後將交代案件詳情，文化體育及旅遊局亦有官員出席。

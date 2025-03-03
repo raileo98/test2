@@ -22,6 +22,7 @@
 # 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
 
 ![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
+![5支的士車隊共提供超過3500輛的士，佔全港的士近兩成，當中約1500輛為全新的士。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_2_20250303125556.jpg&q=60)
   
 
 政府舉行的士車隊啟動禮，運輸及物流局局長陳美寶宣布，有車隊本月底將投入服務。
