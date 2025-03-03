@@ -1,3 +1,24 @@
+# 全國兩會｜人大政協陸續到北京　市面保安加強有公安站崗
+
+全國人大和政協會議未來兩日分別在北京開幕，當地市面近日已加強保安。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm)
+
+---
+
 # 全國兩會｜北京市面明顯加強保安　有市民稱感覺更安全
 
 全國政協十四屆三次會議明日開幕，新聞發布會今日下午在北京人民大會堂舉行，發言人劉結一將介紹大會情況並回答記者提問。
@@ -1409,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793471-20250227.htm)
-
----
-
-# 全國兩會｜逾三千名中外記者報名採訪　新聞中心即日起啟用
-
-![在北京梅地亞中心的全國兩會新聞中心今日正式啟用。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793457_1_20250227125952.jpg&q=90)
-  
-
-新華社報道，在全國兩會即將召開之際，在北京梅地亞中心的全國兩會新聞中心今日正式啟用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793457-20250227.htm)
 
 ---
