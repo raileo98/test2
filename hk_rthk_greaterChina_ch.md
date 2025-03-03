@@ -1,3 +1,24 @@
+# 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
+
+港區全國人大代表及政協委員陸續出發前往北京，準備出席即將召開的全國兩會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm)
+
+---
+
 # 全國兩會｜行政會議明日及下周二不舉行會議　本月18日復會
 
 ![部分行政會議成員需出席北京舉行的全國兩會，行政會議期間不舉行會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793952_1_20250303102408.jpg&q=80)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793401-20250227.htm)
-
----
-
-# 歐盟對俄制裁將部分中國企業列入清單　中方提出嚴正交涉
-
-![中國駐歐盟使團發言人批評歐方的做法於理無憑、於法無據，十分錯誤。（中國駐歐盟使團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793400_1_20250227042334.jpg&q=90)
-  
-
-中國駐歐盟使團強烈不滿和堅決反對歐盟日前宣布新一輪對俄制裁中，將部分中國企業和個人列入清單，已向歐盟提出嚴正交涉。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793400-20250227.htm)
 
 ---

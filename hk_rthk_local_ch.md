@@ -1,9 +1,54 @@
-# 港股升幅擴大至逾400點
+# 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
 
-![恒生指數曾見43405點，較早時報23342點，升400點，升幅1.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793954_1_20250303103902.jpg&q=30)
+港區全國人大代表及政協委員陸續出發前往北京，準備出席即將召開的全國兩會。
+
   
 
-港股反彈逾400點，恒生指數曾見43405點，較早時報23342點，升400點，升幅1.75%。
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm)
+
+---
+
+# 財政預算案2025｜陳茂波期望不失時機　加快北部都會區發展
+
+![陳茂波希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。（直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
+  
+
+財政司司長陳茂波表示，即使政府財政有壓力，也要推動經濟發展，他認為近期股市比較暢旺，多了旅客，氣氛好了，希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm)
+
+---
+
+# 港股曾升逾400點　新世界發展急升逾12%
+
+![恒生指數較早時報23342點，升400點，升幅1.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793954_1_20250303103902.jpg&q=30)
+  
+
+港股反彈逾400點，恒生指數曾見23405點，較早時報23342點，升400點，升幅1.75%。
 
   
 
@@ -72,7 +117,7 @@
 
 # 財政預算案2025｜陳美寶稱會研究創新方法紓緩泊車位不足
 
-![陳美寶指，當局希望通過調整收費，加快咪錶位流轉，同時會研究以創新方法紓緩泊車位不足問題。（節目截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793949_1_20250303102215.jpg&q=90)
+![陳美寶指，當局希望通過調整收費，加快咪錶位流轉，同時會研究以創新方法紓緩泊車位不足問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793949_2_20250303104853.jpg&q=80)
   
 
 《財政預算案》提出研究徵收200元的私家車陸路離境稅，對於有報導指相關建議引起內地不滿，運輸及物流局局長陳美寶出席一個電台節目表示，明白社會上有不同聲音，特區政府一直致力推動大灣區融合，《預算案》提出有關研究建議時已考慮兩地融合的問題。經過深思熟慮，市民現時到內地亦有不同方法，包括高鐵、陸路口岸、私家車、跨境巴士等，期望以「用者自付、能者多付」的原則，開拓政府收入來源，平衡支出。
@@ -95,6 +140,9 @@
 ---
 
 # 港大醫學院推出四年制第二學位醫學士課程　6.20截止申請
+
+![港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793945_1_20250303110049.jpg&q=80)
+  
 
 港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
 
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793798-20250301.htm)
-
----
-
-# 鄧炳強到啟德體育園視察　有信心開幕禮運作暢順
-
-![鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793796_1_20250301170229.jpg&q=75)
-  
-
-啟德體育園傍晚舉行開幕典禮，保安局局長鄧炳強下午到場視察，他表示現時時間尚早，暫時一切運作暢順。他說經過多次演練，有信心今晚的整體運作會暢順，至於公眾不應攜帶的物品，工作人員能夠有效率處理，經宣傳後一些不應攜帶的物品，已很少人攜帶。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793796-20250301.htm)
-
----
-
-# 有市民及旅客換票遲到　啟德體育園職員彈性處理
-
-![啟德體育園傍晚舉行開幕禮，持門票觀眾下午陸續進場。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793795_2_20250301172827.jpg&q=70)
-  
-
-啟德體育園傍晚舉行開幕禮，已購買電子門券的市民需於下午3時前到場換領實體票。有市民遲到，奔跑過來換票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793795-20250301.htm)
 
 ---

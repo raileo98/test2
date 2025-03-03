@@ -1,3 +1,27 @@
+# CE to travel to Beijing for NPC opening
+
+![John Lee will head to Beijing to attend the annual opening meeting of the National People’s Congress. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793957_1_20250303111954.jpg&q=80)
+  
+
+Chief Executive John Lee will head to Beijing on Tuesday to attend the annual opening meeting of the National People’s Congress (NPC).
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm)
+
+---
+
 # China bubble tea giant soars on HK trading debut
 
 ![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=80)
@@ -1414,29 +1438,5 @@ Hong Kong Unison, a group advocating the rights of the city's ethnic minorities,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm)
-
----
-
-# 'Preparations for sports park opening in final stage'
-
-![Rosanna Law says preparations for the opening of Kai Tak Sports Park are in the final stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793663_1_20250228160057.jpg&q=90)
-  
-
-Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of the Kai Tak Sports Park is only the beginning of many mega events in March, adding that preparations are in the final stage.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm)
 
 ---

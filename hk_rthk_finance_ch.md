@@ -1,3 +1,27 @@
+# 財政預算案2025｜陳茂波期望不失時機　加快北部都會區發展
+
+![陳茂波希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。（直播截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
+  
+
+財政司司長陳茂波表示，即使政府財政有壓力，也要推動經濟發展，他認為近期股市比較暢旺，多了旅客，氣氛好了，希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm)
+
+---
+
 # 日股半日升逾1%
 
 ![日經平均指數上午收市報37580點，升424點，升幅1.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793955_1_20250303104116.jpg&q=40)
@@ -22,12 +46,12 @@
 
 ---
 
-# 港股升幅擴大至逾400點
+# 港股曾升逾400點　新世界發展急升逾12%
 
-![恒生指數曾見43405點，較早時報23342點，升400點，升幅1.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793954_1_20250303103902.jpg&q=30)
+![恒生指數較早時報23342點，升400點，升幅1.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793954_1_20250303103902.jpg&q=30)
   
 
-港股反彈逾400點，恒生指數曾見43405點，較早時報23342點，升400點，升幅1.75%。
+港股反彈逾400點，恒生指數曾見23405點，較早時報23342點，升400點，升幅1.75%。
 
   
 
@@ -72,7 +96,7 @@
 
 # 財政預算案2025｜陳美寶稱會研究創新方法紓緩泊車位不足
 
-![陳美寶指，當局希望通過調整收費，加快咪錶位流轉，同時會研究以創新方法紓緩泊車位不足問題。（節目截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793949_1_20250303102215.jpg&q=90)
+![陳美寶指，當局希望通過調整收費，加快咪錶位流轉，同時會研究以創新方法紓緩泊車位不足問題。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793949_2_20250303104853.jpg&q=80)
   
 
 《財政預算案》提出研究徵收200元的私家車陸路離境稅，對於有報導指相關建議引起內地不滿，運輸及物流局局長陳美寶出席一個電台節目表示，明白社會上有不同聲音，特區政府一直致力推動大灣區融合，《預算案》提出有關研究建議時已考慮兩地融合的問題。經過深思熟慮，市民現時到內地亦有不同方法，包括高鐵、陸路口岸、私家車、跨境巴士等，期望以「用者自付、能者多付」的原則，開拓政府收入來源，平衡支出。
@@ -1412,29 +1436,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793691-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793691-20250228.htm)
-
----
-
-# 外匯基金1月總資產增加295億元　外幣及港元資產都有增加
-
-![金管局數據顯示，至1月底，外匯基金總資產41119億港元，按月增加295億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793687_1_20250228172955.jpg&q=75)
-  
-
-金管局數據顯示，至1月底，外匯基金總資產41119億港元，按月增加295億元。其中，外幣資產增加208億元，港元資產增加87億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793687-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793687-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793687-20250228.htm)
 
 ---

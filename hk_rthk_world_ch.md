@@ -1,3 +1,27 @@
+# 艾哲倫保迪憑《粗獷派建築師》勇奪奧斯卡影帝
+
+![艾哲倫保迪憑《粗獷派建築師》勇奪奧斯卡影帝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793959_1_20250303112525.jpg&q=90)
+  
+
+第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm)
+
+---
+
 # 素兒蘇丹娜憑《艾美利亞變奏曲》奪奧卡最佳女配角
 
 ![素兒蘇丹娜憑《艾美利亞變奏曲》奪奧卡最佳女配角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793944_1_20250303095444.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793737-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793737-20250301.htm)
-
----
-
-# 哈馬斯籲斡旋方及國際間向以色列施壓促其進入加沙停火協議次階段
-
-![以方據報提議延長首階段停火協議，繼續釋放雙方被扣押人員，以及人道主義物資進入加沙（圖）。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793736_1_20250301005330.jpg&q=40)
-  
-
-巴勒斯坦武裝組織哈馬斯發表聲明，呼籲斡旋方向以色列施壓，促使以色列進入加沙地帶停火協議第二階段。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793736-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793736-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793736-20250301.htm)
 
 ---

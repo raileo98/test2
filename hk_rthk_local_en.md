@@ -1,3 +1,27 @@
+# CE to travel to Beijing for NPC opening
+
+![John Lee will head to Beijing to attend the annual opening meeting of the National People’s Congress. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793957_1_20250303111954.jpg&q=80)
+  
+
+Chief Executive John Lee will head to Beijing on Tuesday to attend the annual opening meeting of the National People’s Congress (NPC).
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm)
+
+---
+
 # HK to push for greater integration at Two Sessions
 
 ![Members of the NPC and CPPCC will be joining the country's largest annual political gatherings in Beijing this week. Photo combo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=80)
@@ -1413,29 +1437,5 @@ Police have arrested three people for allegedly claiming they had spare tickets 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793116-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793116-20250225.htm)
-
----
-
-# Harbour crossing briefly shut after concrete hits car
-
-![The Hong Kong Island-bound fast lane of the Cross-Harbour Tunnel was partially shut for emergency repair works. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793103_1_20250225162200.jpg&q=40)
-  
-
-The Cross-Harbour Tunnel was forced to shut partially for more than an hour on Tuesday after a piece of concrete fell from the ceiling and hit a vehicle.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793103-20250225.htm)
 
 ---
