@@ -24,7 +24,7 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 
 # ICAC sees three percent rise in graft allegations
 
-![The ICAC said there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303154231.jpg&q=85)
+![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
   
 
 The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.

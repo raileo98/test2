@@ -1,6 +1,30 @@
+# Govt operating account largely balanced: FS
+
+![Finance chief Paul Chan says the government's operating account remains largely balanced in the coming fiscal year.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+  
+
+Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+
+---
+
 # ICAC sees three percent rise in graft allegations
 
-![The ICAC said there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303154231.jpg&q=85)
+![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
   
 
 The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
@@ -1413,29 +1437,5 @@ With the government facing a budget shortfall of almost HK$100 billion, all eyes
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793106-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793106-20250226.htm)
-
----
-
-# Man gets 14 months for stashing 0.3g cocaine in shoe
-
-![The trace amount of cocaine was found under the insole of the man's sneaker. Photo courtesy of the Customs and Excise Department](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793138_1_20250225213622.jpg&q=85)
-  
-
-A man on Tuesday was sentenced to 14 months in prison for trafficking in a dangerous drug last year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793138-20250225.htm)
 
 ---
