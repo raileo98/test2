@@ -1,3 +1,24 @@
+# 陳美寶：的士車隊設監察系統及電子支付　讓乘客坐得舒適安心
+
+政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm)
+
+---
+
 # 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
 
 ![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
@@ -23,6 +44,9 @@
 ---
 
 # 醫管局3間護士學校今年招收3百人　 今年提早接受申請
+
+![三間護士學校提供的全日制護理學文憑課程提早於今日起接受申請，課程去年起已由4年縮短為3年半。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793970_1_20250303124209.jpg&q=80)
+  
 
 醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。明愛醫院護士學校說，近年在職人士報讀的比例增加，今年將報名日期提早至3月，希望方便他們及早規劃工作安排。
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm)
-
----
-
-# 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
-
-![啟德體育園開幕典禮在主場館舉行。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793809_1_20250301190945.jpg&q=70)
-  
-
-啟德體育園開幕典禮晚上約6時半在主場館舉行，多位主禮嘉賓出席，包括李家超伉儷、鄭雁雄伉儷，政務司司長陳國基及立法會主席梁君彥等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm)
 
 ---

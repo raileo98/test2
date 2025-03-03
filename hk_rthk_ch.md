@@ -1,3 +1,24 @@
+# 陳美寶：的士車隊設監察系統及電子支付　讓乘客坐得舒適安心
+
+政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793972-20250303.htm)
+
+---
+
 # 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
 
 ![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
@@ -23,6 +44,9 @@
 ---
 
 # 醫管局3間護士學校今年招收3百人　 今年提早接受申請
+
+![三間護士學校提供的全日制護理學文憑課程提早於今日起接受申請，課程去年起已由4年縮短為3年半。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793970_1_20250303124209.jpg&q=80)
+  
 
 醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。明愛醫院護士學校說，近年在職人士報讀的比例增加，今年將報名日期提早至3月，希望方便他們及早規劃工作安排。
 
@@ -185,6 +209,9 @@
 ---
 
 # 星展估計3月內地製造業活動大機會保持擴張
+
+![周洪禮表示，憧憬本周召開的兩會將有鼓勵製造業生產的措施出台，若果內地經濟持續穩定，估計3月製造業PMI大機會繼續企穩在50以上。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793963_1_20250303124248.jpg&q=75)
+  
 
 財新中國2月製造業採購經理指數（PMI）升至50.8，高於前一個月的50.1，為去年11月以來最高。
 
@@ -1402,29 +1429,5 @@ ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793900-20250302.htm)
-
----
-
-# 克宮：加快改善俄美關係是有可能　但過程仍然漫長
-
-![佩斯科夫表示，不應期待俄美合作能快速取得成果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793899_1_20250302210032.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，美國新政府正迅速改變外交政策佈局，很大程度上與俄方立場契合，在兩國總統具備政治意願的情況下，加快改善俄美之間的關係是有可能，但由於美國前政府的行為，即使俄美正試圖改善雙邊關係，有關進程都將會漫長。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm)
 
 ---
