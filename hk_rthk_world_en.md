@@ -317,7 +317,7 @@ Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey followin
 
 # Pope spends 'peaceful night' after breathing crisis
 
-![Candles and flowers adorn the statue of John Paul II at the Gemelli University Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793810_1_20250301183956.jpg&q=90)
+![Well-wishers send their greetings to the pope at the Gemelli University Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793810_1_20250301183956.jpg&q=90)
   
 
 Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a peaceful night after suffering a breathing crisis, the Vatican said on Saturday.
