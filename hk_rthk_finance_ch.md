@@ -1,3 +1,27 @@
+# 道指低收649點　納指跌近3%　關稅憂慮及製造業指數下跌
+
+![道瓊斯指數先高後低，尾市最多曾跌逾920點，收市報43191點，跌649點，跌幅約1.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794077_1_20250304055354.jpg&q=90)
+  
+
+美股3大指數收市跌逾1%至近3%。美國總統特朗普表示，墨西哥和加拿大已沒有機會阻止25%的關稅於周二生效，並表示從下月2日起徵收對等關稅。此外，美國2月供應管理協會(ISM)製造業指數跌至50.3差過預期，新訂單指數由擴張轉為收縮亦反映關稅憂慮，都拖累大市表現。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm)
+
+---
+
 # 國際油價跌約2%　創近3個月低位
 
 ![倫敦布蘭特期油收市跌1.6%，紐約期油跌約2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794073_1_20250304051751.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
-
----
-
-# ASMPT：附屬公司訂立對價協議　獲A股公司股份及現金
-
-![ASMPT公告顯示，對價協議涉及出售目標公司49%權股，代價為17.17億元人民幣，將收取A股上市公司2900萬股新股份，以及7.89億元人民幣現金對價。（網上截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793932_1_20250303083321.jpg&q=90)
-  
-
-ASMPT公布，旗下全資附屬公司先進香港控股，與內地A股上市公司深圳至正高分子材料及正信同創就建議交易訂立對價確認協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793932-20250303.htm)
 
 ---

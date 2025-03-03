@@ -1,3 +1,27 @@
+# 道指低收649點　納指跌近3%　關稅憂慮及製造業指數下跌
+
+![道瓊斯指數先高後低，尾市最多曾跌逾920點，收市報43191點，跌649點，跌幅約1.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794077_1_20250304055354.jpg&q=90)
+  
+
+美股3大指數收市跌逾1%至近3%。美國總統特朗普表示，墨西哥和加拿大已沒有機會阻止25%的關稅於周二生效，並表示從下月2日起徵收對等關稅。此外，美國2月供應管理協會(ISM)製造業指數跌至50.3差過預期，新訂單指數由擴張轉為收縮亦反映關稅憂慮，都拖累大市表現。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm)
+
+---
+
 # 特朗普：澤連斯基應對美國更加感激
 
 ![特朗普暗示若果澤連斯基不想達成協議，不會在位很久。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794078_1_20250304055436.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm)
-
----
-
-# 劉國勳倡北都採用多元模式發展　分期補地價及延長短期租約增彈性
-
-![劉國勳就北都發展提出5項倡議，提出建設1.5級園區，加快北都產業落地，並透過多元土地發展模式，配合企業實際需要，加快北都產業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794014_1_20250303183125.jpg&q=80)
-  
-
-預算案提出加快建設北部都會區，並預留土地用作發展不同產業。民建聯新界北立法會議員劉國勳建議推出「1.5級產業園」先導計劃，由政府推出已完成道路、基建及網絡建設等較成熟的土地，讓經營者建設非永久性的建構物，方便興建及遷拆，企業可以短期入駐，加快創科產業落地，同時亦為未來發展預留彈性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm)
 
 ---
