@@ -1,3 +1,27 @@
+# 德國曼海姆汽車撞人群2死多人傷　當局稱疑犯有精神病
+
+![法證人員檢視一輛涉案汽車蒐證。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794071_1_20250304043807.jpg&q=65)
+  
+
+德國西南部城市曼海姆汽車撞向人群事件，造成兩人死亡，11人受傷，一名40歲德國籍疑犯當場被捕。警方說，暫時未發現政治動機，檢察官說，有具體跡象顯示疑犯有精神病。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm)
+
+---
+
 # 以軍空襲敘利亞西北部一處軍事設施
 
 ![以軍空襲敘利亞西北部一處軍事設施](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794070_1_20250304040945.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm)
-
----
-
-# 中方堅決反對美卿謊言謬論　已向美方嚴正交涉
-
-![林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794003_1_20250303172128.jpg&q=90)
-  
-
-在北京，外交部發言人林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論，已向美方提出嚴正交涉。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm)
 
 ---

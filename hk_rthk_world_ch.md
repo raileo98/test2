@@ -1,3 +1,27 @@
+# 德國曼海姆汽車撞人群2死多人傷　當局稱疑犯有精神病
+
+![法證人員檢視一輛涉案汽車蒐證。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794071_1_20250304043807.jpg&q=65)
+  
+
+德國西南部城市曼海姆汽車撞向人群事件，造成兩人死亡，11人受傷，一名40歲德國籍疑犯當場被捕。警方說，暫時未發現政治動機，檢察官說，有具體跡象顯示疑犯有精神病。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm)
+
+---
+
 # 以軍空襲敘利亞西北部一處軍事設施
 
 ![以軍空襲敘利亞西北部一處軍事設施](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794070_1_20250304040945.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793841-20250302.htm)
-
----
-
-# 澤連斯基與英國首相會晤　施紀賢重申一直支持烏克蘭
-
-![烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793840_1_20250302013232.jpg&q=90)
-  
-
-與美國總統特朗普會面時不歡而散的烏克蘭總統澤連斯基，星期六由華盛頓轉抵倫敦，在唐寧街與英國首相施紀賢會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793840-20250302.htm)
 
 ---
