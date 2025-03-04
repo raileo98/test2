@@ -1,3 +1,26 @@
+# 國家禁毒辦：芬太尼類物質整類列管後未查獲向境外走私案件
+
+  
+
+國家禁毒辦負責人說，中方發布《中國的芬太尼類物質管控》白皮書，目的是讓各界人士和國際社會能夠更加全面、深入地了解中國的芬太尼類物質管控立場、舉措和成效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm)
+
+---
+
 # 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
 
 ![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
-
----
-
-# 全國兩會｜李慧琼：為「十五五」規劃建言獻策
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794012_1_20250303182159.jpg&q=80)
-  
-
-行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人大第三次會議開幕會。另外，全國人大常委李慧琼表示，今年兩會特別之處，是適逢「十四五」規劃收官之年，需要總結經驗，為準備「十五五」規劃積極建言獻策。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
 
 ---
