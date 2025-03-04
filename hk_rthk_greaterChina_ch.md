@@ -1,4 +1,54 @@
+# 全國兩會 |北京協和醫院院長張抒揚：與香港科技大學有科研合作
+
+  
+
+全國人大代表、北京協和醫院院長張抒揚接受本台訪問表示，該醫院與香港科技大學在科技、科研有合作，雙方亦在醫學項目、醫學教育、醫生培養等有合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm)
+
+---
+
+# 全國兩會｜常委會續審議各方意見　推動民營經濟促進法盡快出台
+
+  
+
+在北京，全國人大會議新聞發言人婁勤儉回應《民營經濟促進法》立法進展時表示，將根據常委會繼續審議情況和各方面的意見建議，認真做好草案修改完善工作，推動法律盡快出台。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm)
+
+---
+
 # 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
+
+  
+  
+
 
 ---
 
@@ -39,6 +89,8 @@
 ---
 
 # 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+
+  
 
 行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
 
@@ -1377,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm)
-
----
-
-# 習近平：中國經濟運行仍面臨困難挑戰　中國經濟向好趨勢沒有變
-
-![文章指出，中國經濟運行仍然面臨不少困難和挑戰。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793662_1_20250228155924.jpg&q=90)
-  
-
-明日出版的新一期《求是》雜誌將發表中共中央總書記習近平的文章《經濟工作必須統籌好幾對重要關係》。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793662-20250228.htm)
-
----
-
-# 外交部堅決反對美方加徵關稅　促糾正錯誤回到磋商正確軌道
-
-![林劍強調，中方一再聲明，貿易戰和關稅戰沒有贏家。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793660_1_20250228154851.jpg&q=90)
-  
-
-中方強烈不滿和堅決反對美方再次以芬太尼問題為藉口，威脅對中國輸美產品額外加徵一成關稅，將採取一切必要措施，堅定維護自身的正當利益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 全國兩會 |北京協和醫院院長張抒揚：與香港科技大學有科研合作
+
+  
+
+全國人大代表、北京協和醫院院長張抒揚接受本台訪問表示，該醫院與香港科技大學在科技、科研有合作，雙方亦在醫學項目、醫學教育、醫生培養等有合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm)
+
+---
+
 # 恒指下午初段跌幅收窄
 
 ![恒生指數較早時報22931點，跌75點，跌幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794136_1_20250304130638.jpg&q=30)
@@ -23,6 +46,8 @@
 ---
 
 # 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+
+  
 
 行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
 
@@ -1410,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm)
-
----
-
-# 政府上半年試行「聯廈聯管」　麥美娟：已預留700萬元推行
-
-![麥美娟表示，預留700萬元推行今次計劃。在甄選非政府組織的過程中，除了考慮價錢，亦著重有何嶄新方法，促成業主參與。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_1_20250303123718.jpg&q=80)
-![政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_2_20250303124734.jpg&q=60)
-  
-
-政府今年上半年會在油尖旺，深水埗，九龍城及荃灣，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，各委聘一個非政府組織接觸大廈業主或法團，鼓勵及協助他們參加試驗計劃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm)
 
 ---

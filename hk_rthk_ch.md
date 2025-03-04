@@ -1,3 +1,26 @@
+# 全國兩會｜常委會續審議各方意見　推動民營經濟促進法盡快出台
+
+  
+
+在北京，全國人大會議新聞發言人婁勤儉回應《民營經濟促進法》立法進展時表示，將根據常委會繼續審議情況和各方面的意見建議，認真做好草案修改完善工作，推動法律盡快出台。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm)
+
+---
+
 # 恒指下午初段跌幅收窄
 
 ![恒生指數較早時報22931點，跌75點，跌幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794136_1_20250304130638.jpg&q=30)
@@ -48,6 +71,10 @@
 
 # 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
 
+  
+  
+
+
 ---
 
 原始網址 Original URL：
@@ -87,6 +114,8 @@
 ---
 
 # 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+
+  
 
 行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
 
