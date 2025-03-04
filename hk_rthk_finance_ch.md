@@ -1,3 +1,27 @@
+# 長和向貝萊德財團出售巴拿馬港口9成權益、和記港口非中國資產
+
+![長和發公告指，向貝萊德等公司合組的財團，出售巴拿馬港口9成權益，以及和記港口8成實際權益，但不包括位於中國的港口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794239_1_20250304232315.jpg&q=90)
+  
+
+長和發公告指，向貝萊德、美國投資管理公司Global Infrastructure Partners及Terminal Investment Limited合組的BlackRock-TiL財團，就出售和記港口持有的巴拿馬港口90%權益，達成原則性協議；有關港口為巴拿馬巴爾博亞及克里斯托瓦爾港口。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm)
+
+---
+
 # 美股初段跌約1%或以上　金融股急挫　美元指數失守106
 
 ![美股初段沽壓大，3大指數跌約1%或以上，金融股跌幅較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794238_1_20250304224748.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm)
-
----
-
-# 恒指曾跌逾400點　汽車股下挫
-
-![恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794116_1_20250304104110.jpg&q=10)
-  
-
-港股開市失守23000點，恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm)
 
 ---
