@@ -1,3 +1,27 @@
+# 美國對華商品加徵關稅　中方促美方收起霸凌嘴臉並回到對話合作
+
+![林劍說，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794165_1_20250304155829.jpg&q=90)
+  
+
+在北京，外交部回應美國政府對所有中國輸美商品進一步加徵關稅，發言人林劍表示，中國人民從來不信邪、不怕鬼，從來不吃霸道霸凌那一套，施壓、脅迫和威脅不是同中方打交道的正確方式。對中國搞極限施壓，是找錯了對象，打錯了算盤，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm)
+
+---
+
 # 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
 
   
@@ -189,7 +213,7 @@
 
 ---
 
-# 美國對中國產品提高關稅　丘應樺稱是否包括香港貨品仍不清晰
+# 美國對中國產品提高關稅　丘應樺稱對香港影響不是很大
 
 ![丘應樺說今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794107_1_20250304103736.jpg&q=75)
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm)
-
----
-
-# 謝鋒：中美長期和平共存既是責任也是必須
-
-![謝鋒在「杜克-北卡中國領導力峰會」上發表視像致辭。（中國駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793886_1_20250302171051.jpg&q=90)
-  
-
-中國駐美大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須，希望美方同中方相向而行，落實好兩國元首通話達成的重要共識，本著相互尊重、和平共處、合作共贏的原則，保持溝通、管控分歧、拓展合作，推動中美關係穩定、健康、可持續發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm)
 
 ---

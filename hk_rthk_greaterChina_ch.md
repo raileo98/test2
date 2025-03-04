@@ -1,7 +1,57 @@
+# 全國兩會｜王滬寧稱今年要為實現「十五五」良好開局打牢基礎
+
+  
+
+全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧表示，今年是「十四五」規劃收官之年，也是進一步全面深化改革的重要一年；要助力高品質完成「十四五」規劃目標任務、為實現「十五五」良好開局打牢基礎。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm)
+
+---
+
+# 美國對華商品加徵關稅　中方促美方收起霸凌嘴臉並回到對話合作
+
+![林劍說，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794165_1_20250304155829.jpg&q=90)
+  
+
+在北京，外交部回應美國政府對所有中國輸美商品進一步加徵關稅，發言人林劍表示，中國人民從來不信邪、不怕鬼，從來不吃霸道霸凌那一套，施壓、脅迫和威脅不是同中方打交道的正確方式。對中國搞極限施壓，是找錯了對象，打錯了算盤，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm)
+
+---
+
 # 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
 
 ![王滬寧表示，以習近平為核心帶領沉著應變，順利完成目標任務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794164_1_20250304155025.jpg&q=85)
   
+
+全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧發表工作報告提到，去年是中華人民共和國成立75周年，是實現「十四五」規劃目標任務的關鍵一年。以習近平為核心的中共中央團結帶領全黨全國各族人民，沉著應變、綜合施策，順利完成全年經濟社會發展主要目標任務，中國式現代化取得新的重大成就，堅定全黨全國各族人民奪取新時代中國特色社會主義新勝利的決心和信心。
+
   
 
 
@@ -1383,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm)
-
----
-
-# 全國兩會｜全國政協十四屆三次會議下星期二北京召開
-
-![新華社報道，全國政協十四屆三次會議下星期二在北京召開。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793765_1_20250301102958.jpg&q=55)
-  
-
-新華社報道，今日召開的全國政協常委會會議決定，全國政協十四屆三次會議下星期二在北京召開。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793765-20250301.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱創科有不同舉措需穩中求進
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793763_1_20250301102213.jpg&q=70)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍早前南下考察時表示，期望特區政府繼續勇於改革，敢於破局。財政司司長陳茂波出席本台節目《星期六問責》時被問到，有否按夏寶龍的想法去做財政預算案。陳茂波回應說，改革需要謹慎考慮亦是必要的，在制度、思想或具體範疇工作方面要先立後破，亦要鞏固好傳統優勢才開展新領域，例如創科方面有不同舉措，強調要穩中求進，令社會在升級轉型過程中順利，將可能出現的影響減到最低。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm)
 
 ---
