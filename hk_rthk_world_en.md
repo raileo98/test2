@@ -1,3 +1,51 @@
+# SpaceX calls off Starship test flight at last minute
+
+![The latest test flight was to include another attempt to catch the booster stage using the launch tower's "chopstick" arms. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794109_1_20250304101337.jpg&q=85)
+  
+
+Elon Musk's SpaceX called off the latest test flight of its Starship rocket just before its scheduled launch on Monday, citing an unspecified problem with the behemoth spacecraft.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm)
+
+---
+
+# UN sets new date for talks on global plastics treaty
+
+![Previous talks on a legally binding treaty broke down in December following opposition from a bloc of mainly oil-producing countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794100_2_20250304101336.jpg&q=90)
+  
+
+A new round of negotiations for an international treaty on reducing global plastics pollution will be held in Geneva in August, the United Nations Environment Programme (Unep) said on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm)
+
+---
+
 # Study paints grim picture of obesity
 
 ![Researchers estimate that 3.8 billion adults will be overweight or obese in 15 years. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794096_1_20250304090417.jpg&q=85)
@@ -1392,53 +1440,5 @@ London will unveil a significant package of sanctions against Russia on Monday, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm)
-
----
-
-# Trump revels in mass firings before adoring crowd
-
-![President Trump addresses the Conservative Political Action Conference (CPAC) annual meeting in National Harbor, Maryland. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792795_1_20250223075752.jpg&q=80)
-  
-
-US President Donald Trump said on Saturday that “nobody's ever seen anything" like his administration's sweeping effort to fire thousands of federal employees and shrink the size of government, congratulating himself for “dominating” Washington and sending bureaucrats “packing.”
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792795-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792795-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792795-20250223.htm)
-
----
-
-# Knife attack in France is 'Islamist terrorism': Macron
-
-![French president Emmanuel Macron says the government is determined to continue doing "everything to eradicate terrorism on our soil." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792791_1_20250223045529.jpg&q=90)
-  
-
-One person died, and two police officers were seriously injured on Saturday in a knife attack in eastern France that President Emmanuel Macron said was an "Islamist terror act."
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm)
 
 ---
