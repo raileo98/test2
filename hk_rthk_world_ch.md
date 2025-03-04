@@ -1,3 +1,27 @@
+# 墨西哥總統：將採取措施應對美國加徵關稅
+
+![辛鮑姆強調，美方指責墨西哥打擊販毒不力的言論「非常無理、純屬誹謗、毫無依據」。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794247_1_20250305024652.jpg&q=90)
+  
+
+墨西哥總統辛鮑姆表示，墨西哥將採取措施應對美國加徵關稅，措施將於周日宣佈。她強調，美方指責墨西哥打擊販毒不力的言論「非常無理、純屬誹謗、毫無依據」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm)
+
+---
+
 # 特朗普威脅將進一步提高針對加拿大商品關稅
 
 ![特朗普說，當杜魯多對美國徵收報復性關稅時，美國的對等關稅將以相同幅度上調。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794246_1_20250305024041.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm)
-
----
-
-# 《阿諾拉》奪奧斯卡最佳電影、最佳導演及影后
-
-![《阿諾拉》奪得奧斯卡最佳電影。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793962_1_20250303114758.jpg&q=80)
-  
-
-第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm)
 
 ---
