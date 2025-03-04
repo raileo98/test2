@@ -1,3 +1,27 @@
+# Octopus to speed up work for changing HK$2 scheme
+
+![Jeny Yeung said Octopus will try to complete its adaptation to the HK$2 scheme adjustment in less than 18 months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794167_1_20250304161513.jpg&q=80)
+  
+
+The firm which operates the Octopus Card on Tuesday said it hopes to shorten the process needed to implement the government's plans to scale back the HK$2 elderly transport subsidy scheme.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm)
+
+---
+
 # Trump in action as World Snooker Grand Prix begins
 
 ![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=85)
@@ -718,30 +742,6 @@ The annual session of China's top political advisory body will run from Tuesday 
 
 ---
 
-# ICAC sees three percent rise in graft allegations
-
-![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
-  
-
-The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
-
----
-
 # Govt operating account largely balanced: FS
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
@@ -763,6 +763,30 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+
+---
+
+# ICAC sees three percent rise in graft allegations
+
+![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
+  
+
+The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
 
 ---
 
@@ -1418,29 +1442,5 @@ British Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm)
-
----
-
-# Man hospitalised with measles after Vietnam trip
-
-![The 38-year-old man is now stable in Queen Elizabeth Hospital. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793847_1_20250302054528.jpg&q=40)
-  
-
-The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old, who travelled to the country in early February, is now stable at Queen Elizabeth Hospital.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm)
 
 ---

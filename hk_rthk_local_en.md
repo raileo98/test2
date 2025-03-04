@@ -1,3 +1,27 @@
+# Octopus to speed up work for changing HK$2 scheme
+
+![Jeny Yeung said Octopus will try to complete its adaptation to the HK$2 scheme adjustment in less than 18 months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794167_1_20250304161513.jpg&q=80)
+  
+
+The firm which operates the Octopus Card on Tuesday said it hopes to shorten the process needed to implement the government's plans to scale back the HK$2 elderly transport subsidy scheme.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm)
+
+---
+
 # Trump in action as World Snooker Grand Prix begins
 
 ![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=85)
@@ -1413,29 +1437,5 @@ Efforts to contain government spending didn't stop Financial Secretary Paul Chan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm)
-
----
-
-# Airport departure tax, govt fees to go up
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793258_1_20250226132546.jpg&q=65)
-  
-
-Financial Secretary Paul Chan proposed in his budget blueprint on Wednesday an increase in air passenger departure tax and certain government fees and charges to help generate revenue, amid a budget deficit.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793258-20250226.htm)
 
 ---

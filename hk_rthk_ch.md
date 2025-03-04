@@ -1,3 +1,27 @@
+# 前藝人王賢誌入稟申請破產　法庭正式頒布破產令
+
+![聆案官核對所需文件，確認沒有任何人反對，正式頒令王賢誌破產。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794178_1_20250304165814.jpg&q=85)
+  
+
+前藝人王賢誌去年入稟申請破產，案件上月開庭處理時有債權人到庭旁聽，懷疑王賢誌向其借貸時隱瞞負債，聆案官當時已清晰表示此非反對破產令的理由。破產案今日在高等法院再訊，聆案官黃健棠核對所需文件，確認沒有任何人反對王賢誌破產後，正式頒令王賢誌破產。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm)
+
+---
+
 # 陳美寶：空運物流帶動香港貿易和經濟發展屬本港重要支柱
 
 ![陳美寶表示，希望簡化中轉貨物規管架構和法例法規，盡量發揮香港自由港特色。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794175_1_20250304165325.jpg&q=30)
