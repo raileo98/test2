@@ -1,3 +1,19 @@
+# 全國兩會｜全國人大會議明早開幕　下周二下午閉幕
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm)
+
+---
+
 # 全國兩會 |全國人大預備會議通過大會議程
 
 十四屆全國人大三次會議上午舉行預備會議，通過今次大會議程。
@@ -20,6 +36,9 @@
 ---
 
 # 青島市委書記曾贊榮：自由行實施近一年　情況非常好
+
+![曾贊榮表示，青島與港澳有很多來往，包括科技創新、金融和航運。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794121_1_20250304120217.jpg&q=80)
+  
 
 青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
 
@@ -1406,29 +1425,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm)
-
----
-
-# 中方駁斥比利時媒體和國家安全部門散布涉華虛假信息
-
-![中國駐比利時使館駁斥比利時媒體和國家安全部門散布涉華虛假信息。（中國駐比利時使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793643_1_20250228134011.jpg&q=90)
-  
-
-中國駐比利時使館駁斥比利時有關媒體和國家安全部門散布所謂中國黑客和中國威脅的虛假信息，敦促比利時有關媒體和部門停止反華政治操弄，客觀看待中國和兩國關係發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm)
 
 ---

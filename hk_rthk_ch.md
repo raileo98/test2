@@ -1,3 +1,19 @@
+# 全國兩會｜全國人大會議明早開幕　下周二下午閉幕
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm)
+
+---
+
 # 全國兩會 |全國人大預備會議通過大會議程
 
 十四屆全國人大三次會議上午舉行預備會議，通過今次大會議程。
@@ -93,6 +109,9 @@
 
 # 青島市委書記曾贊榮：自由行實施近一年　情況非常好
 
+![曾贊榮表示，青島與港澳有很多來往，包括科技創新、金融和航運。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794121_1_20250304120217.jpg&q=80)
+  
+
 青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
 
   
@@ -138,7 +157,7 @@
 
 # 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
 
-![羅淑佩說初步發現有人不合規地將一些沒有門票的觀眾帶入場。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
   
 
 啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
@@ -1406,29 +1425,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm)
-
----
-
-# 美股初段變動不大　道指曾重上44000點　納指偏軟
-
-![道瓊斯指數一度重上44000點水平，升至44033點，較早時報43926點，升85點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794051_1_20250303225000.jpg&q=90)
-  
-
-美股初段變動不大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm)
 
 ---
