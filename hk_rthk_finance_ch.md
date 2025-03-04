@@ -1,3 +1,27 @@
+# 內地股市半日偏軟　創業板指數跌近1%
+
+![滬深股市半日偏軟。創業板指數報2175點，跌20點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794120_1_20250304114228.jpg&q=85)
+  
+
+滬深股市半日偏軟，創業板指數跌近1%。白酒和零售股向下，軍工裝備、人形機器人和貴金屬相關股份上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm)
+
+---
+
 # 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
 
 ![羅淑佩說初步發現有人不合規地將一些沒有門票的觀眾帶入場。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm)
-
----
-
-# 台股低收約1.3%
-
-![台灣加權指數收市報22756點，跌296點，跌幅1.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793980_1_20250303142606.jpg&q=85)
-  
-
-台灣股市下跌。加權指數收市報22756點，跌296點，跌幅1.29%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm)
 
 ---

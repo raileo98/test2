@@ -1,3 +1,27 @@
+# 美國據報暫停對烏軍援　直至烏方表現和平誠意
+
+![特朗普上周與澤連斯基激烈爭吵後，據報決定暫停美國對烏克蘭的軍事援助。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794119_1_20250304114441.jpg&q=90)
+  
+
+美國傳媒引述白宮官員表示，總統特朗普決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm)
+
+---
+
 # 加拿大擬周二起對美商品徵收25%報復性關稅
 
 ![杜魯道說，關稅措施將一直維持到美國撤銷行動為止。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794114_1_20250304111218.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm)
-
----
-
-# 華府加快向以色列提供約40億美元軍事援助
-
-![華府加快向以色列提供約40億美元軍事援助](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793863_1_20250302110943.jpg&q=90)
-  
-
-美國政府加快對以色列的軍事援助。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm)
 
 ---

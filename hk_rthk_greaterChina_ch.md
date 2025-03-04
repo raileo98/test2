@@ -1,3 +1,24 @@
+# 青島市委書記曾贊榮：自由行實施近一年　情況非常好
+
+青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
+
+---
+
 # 全國兩會 | 全國政協會議下午開幕　王滬寧發表工作報告
 
 ![王滬寧將發表全國政協常委會工作報告。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794112_1_20250304105301.jpg&q=85)
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm)
-
----
-
-# 全國兩會｜市場料中央會將經濟增長目標再定於約5%
-
-![市場普遍預計，中央會將經濟增長目標再度定在5%左右。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793635_1_20250228134047.jpg&q=75)
-  
-
-十四屆全國人大三次會議將於3月5日在北京開幕，政協會議則於3月4日召開。市場預計，中央會將經濟增長目標再度定在5%左右，並關注財政政策加碼規模。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm)
 
 ---

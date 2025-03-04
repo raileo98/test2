@@ -1,3 +1,24 @@
+# 青島市委書記曾贊榮：自由行實施近一年　情況非常好
+
+青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
+
+---
+
 # 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
 
 ![羅淑佩有信心香港的啟德體育園會很受歡迎。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794118_1_20250304113156.jpg&q=75)
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm)
-
----
-
-# 財政預算案2025｜陳茂波期望不失時機　加快北部都會區發展
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
-  
-
-財政司司長陳茂波表示，即使政府財政有壓力，也要推動經濟發展，他認為近期股市比較暢旺，多了旅客，氣氛好了，希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm)
 
 ---

@@ -1,3 +1,72 @@
+# 美國據報暫停對烏軍援　直至烏方表現和平誠意
+
+![特朗普上周與澤連斯基激烈爭吵後，據報決定暫停美國對烏克蘭的軍事援助。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794119_1_20250304114441.jpg&q=90)
+  
+
+美國傳媒引述白宮官員表示，總統特朗普決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm)
+
+---
+
+# 內地股市半日偏軟　創業板指數跌近1%
+
+![滬深股市半日偏軟。創業板指數報2175點，跌20點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794120_1_20250304114228.jpg&q=85)
+  
+
+滬深股市半日偏軟，創業板指數跌近1%。白酒和零售股向下，軍工裝備、人形機器人和貴金屬相關股份上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm)
+
+---
+
+# 青島市委書記曾贊榮：自由行實施近一年　情況非常好
+
+青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
+
+---
+
 # 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
 
 ![羅淑佩有信心香港的啟德體育園會很受歡迎。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794118_1_20250304113156.jpg&q=75)
@@ -1364,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm)
-
----
-
-# 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
-
-![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡說，由2022年底至今年1月底，各項人才入境計劃共收到超過44萬宗申請，當中超過28萬宗獲批，高才通計劃佔三分一。他又表示，為確保只有符合要求的人才獲批，申請人須提交由指定第三方認證機構或頒授院校就學歷發出的認證文件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm)
-
----
-
-# 轉載帖文煽惑投白票　前中大學生會會長就罪行合憲性被駁回上訴
-
-![判詞指出，煽動他人不要投票明顯是不利於一場有效的選舉，更會浪費社會資源。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794047_1_20250303222205.jpg&q=80)
-  
-
-前中大學生會會長蘇浚鋒於2021年立法會換屆選舉期間，轉載前立法會議員許智峯的社交平台帖文，被廉署控告一項煽惑他人投白票罪，在原審裁判官裁定條例合憲後認罪、判監2個月，緩刑18個月。蘇浚鋒早前向高等法院以案件呈述方式針對罪行合憲性提出上訴，暫委法官姚勳智今午頒下判詞、駁回上訴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm)
-
----
-
-# 口岸爆炸案警員稱於被告住所檢兩支硫酸　辯方指包裝標示為通渠水
-
-![口岸爆炸案高等法院踏入第62天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794046_1_20250303221537.jpg&q=90)
-  
-
-8名男女涉2020年初口岸爆炸案，高等法院踏入第62天審訊。證物警員供稱，自己當年3月隨隊前往女被告楊怡斯位於油塘住所，警方爆門入屋及後拘捕楊怡斯，警員稱在單位內檢獲一面美國國旗、一面印有「光時」口號的黑色旗幟、34支生理鹽水及兩支硫酸等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm)
 
 ---
