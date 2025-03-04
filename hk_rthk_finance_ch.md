@@ -22,6 +22,30 @@
 
 ---
 
+# 中方發布多項對美反制措施　下周一起對美國部分商品加徵關稅
+
+![商務部、國務院關稅稅則委員會接連發布多項對美反制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794150_1_20250304142600.jpg&q=30)
+  
+
+美國將對中國產品加徵的關稅，由之前的10%提高到20%。在北京，商務部、國務院關稅稅則委員會接連發布多項對美反制措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
+
+---
+
 # 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
 
 ![白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794145_1_20250304140145.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794013-20250303.htm)
-
----
-
-# 分析料歐洲央行本周減息0.25厘　年內仍要再減息刺激經濟
-
-![溫嘉煒預料歐洲央行本周減息0.25厘，年內仍可能再減息2至3次，因當地經濟疲弱需進一步放鬆政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794009_1_20250303172759.jpg&q=75)
-  
-
-歐洲央行本周四議息，市場預料減息0.25厘，連續5次會議減息，亦是今個減息周期第6次減息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm)
 
 ---
