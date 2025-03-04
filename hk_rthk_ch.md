@@ -1,3 +1,27 @@
+# 美國暫停軍事援助　烏總理：絕對冷靜地與美方合作
+
+![什梅加爾強調，沒有烏方參與，就不可能在烏克蘭實現和平。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794244_1_20250305013625.jpg&q=90)
+  
+
+針對美國暫停對烏克蘭軍事援助，烏克蘭總理什梅加爾說，烏方將「絕對冷靜地」繼續通過一切可用的外交渠道與美方開展合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm)
+
+---
+
 # 國家禁毒辦：芬太尼類物質整類列管後未查獲向境外走私案件
 
 ![國家禁毒辦：芬太尼類物質整類列管後未查獲向境外走私案件](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794243_1_20250305012725.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm)
-
----
-
-# 前藝人王賢誌入稟申請破產　法庭正式頒布破產令
-
-![聆案官核對所需文件，確認沒有任何人反對，正式頒令王賢誌破產。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794178_1_20250304165814.jpg&q=85)
-  
-
-前藝人王賢誌去年入稟申請破產，案件上月開庭處理時有債權人到庭旁聽，懷疑王賢誌向其借貸時隱瞞負債，聆案官當時已清晰表示此非反對破產令的理由。破產案今日在高等法院再訊，聆案官黃健棠核對所需文件，確認沒有任何人反對王賢誌破產後，正式頒令王賢誌破產。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm)
 
 ---

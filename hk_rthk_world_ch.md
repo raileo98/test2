@@ -1,3 +1,27 @@
+# 美國暫停軍事援助　烏總理：絕對冷靜地與美方合作
+
+![什梅加爾強調，沒有烏方參與，就不可能在烏克蘭實現和平。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794244_1_20250305013625.jpg&q=90)
+  
+
+針對美國暫停對烏克蘭軍事援助，烏克蘭總理什梅加爾說，烏方將「絕對冷靜地」繼續通過一切可用的外交渠道與美方開展合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm)
+
+---
+
 # 澤連斯基：上周與特朗普衝突令人遺憾
 
 ![澤連斯基說，事情發展成這樣令人遺憾，現在是糾正事情的時候。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794242_1_20250305005153.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm)
-
----
-
-# 素兒蘇丹娜憑《艾美利亞變奏曲》奪奧卡最佳女配角
-
-![素兒蘇丹娜憑《艾美利亞變奏曲》奪奧卡最佳女配角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793944_1_20250303095444.jpg&q=90)
-  
-
-第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm)
 
 ---
