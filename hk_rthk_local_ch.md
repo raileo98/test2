@@ -1,3 +1,27 @@
+# 全國兩會｜曾偉雄稱23條實施一年有達到原本效果
+
+![曾偉雄認為，23條法律條文與很多地方比較並「不辣」。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794227_1_20250304212105.jpg&q=75)
+  
+
+在北京，警務處前處長曾偉雄說，基本法23條實施一年，有達到原本的效果，法律條文與很多地方比較並「不辣」，應該對法院有信心，法庭一直運作良好，並具有國際聲譽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm)
+
+---
+
 # 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
 
   
@@ -1415,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm)
-
----
-
-# 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
-
-![夏寶龍希望港澳委員認真履職盡責、積極參政議政。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_1_20250303233503.jpg&q=90)
-![夏寶龍晚上到全國政協禮堂，看望來京出席會議的港澳地區全國政協委員。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_2_20250303233503.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍晚上到全國政協禮堂，看望來京出席全國政協十四屆三次會議的香港、澳門地區全國政協委員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm)
 
 ---

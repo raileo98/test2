@@ -1,3 +1,51 @@
+# 東電已拆除福島核電站污水排海後空出的一個儲罐
+
+![東電已拆除福島核電站污水排海後空出的一個儲罐。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794228_1_20250304213006.jpg&q=90)
+  
+
+日本東京電力公司宣布，已完成福島第一核電站污水排海後空出來的一個儲罐的拆除工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm)
+
+---
+
+# 全國兩會｜曾偉雄稱23條實施一年有達到原本效果
+
+![曾偉雄認為，23條法律條文與很多地方比較並「不辣」。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794227_1_20250304212105.jpg&q=75)
+  
+
+在北京，警務處前處長曾偉雄說，基本法23條實施一年，有達到原本的效果，法律條文與很多地方比較並「不辣」，應該對法院有信心，法庭一直運作良好，並具有國際聲譽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm)
+
+---
+
 # 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
 
   
