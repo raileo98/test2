@@ -1,3 +1,27 @@
+# India advance to Champions Trophy final
+
+![India's KL Rahul, left, celebrates with Ravindra Jadeja after their semi-final win over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794259_1_20250305053559.jpg&q=90)
+  
+
+Virat Kohli produced a trademark innings with a polished 84 as India pulled off a tense chase to beat Australia by four wickets in the first semi-final of the Champions Trophy.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm)
+
+---
+
 # Trump wins opening match at World Snooker Grand Prix
 
 ![Trump beat Gary Wilson 4-2 in an all-English affair at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_1_20250304224416.jpg&q=85)
@@ -1422,29 +1446,5 @@ Shenzhen Bay Port will be closed from 2am to 11am on February 23rd for a cross-b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm)
-
----
-
-# SAR men's curling team make semifinals in Harbin
-
-![The SAR men's curling squad will go up against South Korea next. Photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791496_1_20250213173012.jpg&q=80)
-  
-
-Hong Kong, China is one step closer to potentially securing its first medal at the Harbin Asian Winter Games, with the men’s curling team moving on to the semifinals on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791496-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791496-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791496-20250213.htm)
 
 ---

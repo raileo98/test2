@@ -1,3 +1,27 @@
+# India advance to Champions Trophy final
+
+![India's KL Rahul, left, celebrates with Ravindra Jadeja after their semi-final win over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794259_1_20250305053559.jpg&q=90)
+  
+
+Virat Kohli produced a trademark innings with a polished 84 as India pulled off a tense chase to beat Australia by four wickets in the first semi-final of the Champions Trophy.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm)
+
+---
+
 # Beijing files complaint with WTO over Trump tariffs
 
 ![The move comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
@@ -1418,29 +1442,5 @@ A local delegate to the country’s top advisory body plans to ask for measures 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
-
----
-
-# UK, France working with Ukraine on peace plan: Starmer
-
-![British Prime Minister Keir Starmer and Ukrainian President Volodymyr Zelensky shake hands during a bilateral meeting ahead of a European leaders' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793890_1_20250302180719.jpg&q=80)
-  
-
-Britain and France will work with Ukraine on a plan to end the fighting with Russia, which will later be presented to the United States, Prime Minister Keir Starmer said on Sunday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm)
 
 ---
