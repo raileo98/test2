@@ -1,3 +1,26 @@
+# 全國兩會｜婁勤儉：2024年2萬億元置換債券額度全部發行完畢
+
+  
+
+在北京，全國人大會議新聞發言人婁勤儉表示，去年11月，人大常委會會議批准增加6萬億元地方政府債務限額置換存量隱性債務。截至去年底，2024年的2萬億元置換債券額度已全部發行完畢，大部分地區已完成置換。今年的2萬億元置換債券發行相關工作已經啟動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm)
+
+---
+
 # 中方發布多項對美反制措施　下周一起對美國部分商品加徵關稅
 
 ![商務部、國務院關稅稅則委員會接連發布多項對美反制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794150_1_20250304142600.jpg&q=30)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm)
-
----
-
-# 何立峰：歡迎美國企業續投資中國　為推動中美關係穩定發展作貢獻
-
-![何立峰表示，歡迎美國企業繼續投資中國，共享發展機遇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793727_1_20250228223700.jpg&q=90)
-  
-
-中共中央政治局委員、國務院副總理何立峰應邀在北京出席中國美國商會年度答謝晚宴並致辭。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm)
 
 ---

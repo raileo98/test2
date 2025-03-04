@@ -1,3 +1,50 @@
+# 日股低收1.2%
+
+![日經指數收報37331點，跌454點，跌幅1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794153_1_20250304143521.jpg&q=65)
+  
+
+日股偏軟，日經指數收報37331點，跌454點，跌幅1.2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794153-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794153-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794153-20250304.htm)
+
+---
+
+# 全國兩會｜婁勤儉：2024年2萬億元置換債券額度全部發行完畢
+
+  
+
+在北京，全國人大會議新聞發言人婁勤儉表示，去年11月，人大常委會會議批准增加6萬億元地方政府債務限額置換存量隱性債務。截至去年底，2024年的2萬億元置換債券額度已全部發行完畢，大部分地區已完成置換。今年的2萬億元置換債券發行相關工作已經啟動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm)
+
+---
+
 # 台股低收0.7%
 
 ![台灣加權指數收市報22596點，跌159點，跌幅0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794149_1_20250304141130.jpg&q=85)

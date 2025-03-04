@@ -1,4 +1,28 @@
-# HKUST told to consider plan to build medical school
+# China's economy solid amid challenges: NPC spokesman
+
+![Lou Qinjian, spokesman for the third session of the 14th National People's Congress, speaks during a press conference at the Great Hall of the People in Beijing. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
+  
+
+China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
+
+---
+
+# HKUST urged to fully consider medical school plan
 
 ![Zhang Shuyang said she was unaware of HKUST's plan to start a medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794137_1_20250304140631.jpg&q=80)
   
@@ -1416,29 +1440,5 @@ Team Hong Kong, China secured a spot in the play-offs for the men's curling comp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm)
-
----
-
-# China signs communique calling for open, inclusive AI
-
-![Vice Premier Zhang Guoqing, second left, meets French President Emmanuel Macron, second right, on the sidelines of the Artificial Intelligence Action Summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791290_1_20250212113559.jpg&q=30)
-  
-
-China and around 60 other countries on Tuesday signed the final statement of a French-hosted artificial intelligence summit that said AI should be inclusive, open, ethical and safe.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm)
 
 ---

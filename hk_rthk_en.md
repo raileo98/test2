@@ -1,4 +1,28 @@
-# HKUST told to consider plan to build medical school
+# China's economy solid amid challenges: NPC spokesman
+
+![Lou Qinjian, spokesman for the third session of the 14th National People's Congress, speaks during a press conference at the Great Hall of the People in Beijing. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
+  
+
+China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
+
+---
+
+# HKUST urged to fully consider medical school plan
 
 ![Zhang Shuyang said she was unaware of HKUST's plan to start a medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794137_1_20250304140631.jpg&q=80)
   
@@ -1419,29 +1443,5 @@ A fencing duel between movie star Donnie Yen and Olympic gold medallist Vivian K
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm)
-
----
-
-# Hamas says 'no progress' on second phase of ceasefire
-
-![Ramadan ornaments go on sale against the backdrop of destroyed buildings. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793821_1_20250301204524.jpg&q=90)
-  
-
-The latest round of talks on the second phase of the ceasefire between Israel and Hamas has made no progress so far, and it was unclear whether the talks would resume on Saturday, a senior Hamas official said.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm)
 
 ---
