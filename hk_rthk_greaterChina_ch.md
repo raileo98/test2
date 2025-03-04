@@ -1,3 +1,24 @@
+# 全國兩會 |全國人大預備會議通過大會議程
+
+十四屆全國人大三次會議上午舉行預備會議，通過今次大會議程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm)
+
+---
+
 # 青島市委書記曾贊榮：自由行實施近一年　情況非常好
 
 青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
@@ -1409,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793643-20250228.htm)
-
----
-
-# 回應美國對華產品加徵關稅　商務部：甩鍋推責無益於解決自身問題
-
-![商務部稱，中方希望美方盡快回到通過平等對話妥善解決分歧的正確軌道。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793641_1_20250228131753.jpg&q=90)
-  
-
-在北京，商務部回應美國下星期二起對從中國進口美國的商品徵收額外10%關稅，發言人說，中方對此堅決反對。美方這種行為純屬「甩鍋推責」，無益於解決自身問題，還會加劇美國企業和消費者負擔，並破壞全球產業鏈穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793641-20250228.htm)
 
 ---

@@ -1,3 +1,24 @@
+# 全國兩會 |全國人大預備會議通過大會議程
+
+十四屆全國人大三次會議上午舉行預備會議，通過今次大會議程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm)
+
+---
+
 # 金與正譴責美航母訪南韓釜山　強調北韓考慮採行動增強威脅
 
 ![美國海軍核動力航空母艦「卡爾文森」號日前抵達南韓釜山訪問。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794122_1_20250304115552.jpg&q=90)
@@ -1409,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm)
-
----
-
-# 國安條例生效而被拒提早獲釋　法庭判馬俊文需支付一半訟費
-
-![法官有見本案為首宗《維護國家安全條例》司法覆核，酌情下令馬俊文支付署方司法覆核一半訟費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794050_1_20250303224415.jpg&q=85)
-  
-
-被稱為「第二代美國隊長」的馬俊文，早前被裁定煽動分裂國家罪成，判囚5年，因為行為良好原獲准於去年3月提早獲釋，但獲釋前兩天《維護國家安全條例》刊憲生效轉而被拒。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm)
 
 ---
