@@ -37,13 +37,13 @@ print('222')
 
 # ------------------------
 # 設置環境變數
-os.environ["NIQUESTS_STRICT_OCSP"] = "1"
+# os.environ["NIQUESTS_STRICT_OCSP"] = "1"
 
-if os.environ.get("NIQUESTS_STRICT_OCSP") == "1":
-    print("NIQUESTS_STRICT_OCSP is enabled")
+# if os.environ.get("NIQUESTS_STRICT_OCSP") == "1":
+#     print("NIQUESTS_STRICT_OCSP is enabled")
 
-else:
-    print("NIQUESTS_STRICT_OCSP is not enabled")
+# else:
+#     print("NIQUESTS_STRICT_OCSP is not enabled")
 
 # ------------------------
 # 自定一個 CachedSession
@@ -73,7 +73,7 @@ session.mount("http://", adapter=adapter)
 session.trust_env = False
 
 session.quic_cache_layer.add_domain('mozilla.cloudflare-dns.com')
-session.quic_cache_layer.add_domain('ocsp1.ecert.gov.hk')
+# session.quic_cache_layer.add_domain('ocsp1.ecert.gov.hk')
 
 userAgent = [
     'Mozilla/5.0 (Windows NT 10.0; Win64; x64; rv:132.0) Gecko/20100101 Firefox/132.0',
