@@ -1,3 +1,26 @@
+# 全國兩會｜余國樑：港隊目標在今屆全運會乒乓球項目可打入八強
+
+  
+
+在北京，全國政協委員、中國香港乒乓總會主席余國樑說，今屆全運會乒乓球項目在澳門舉行，各省市都會派出精英參與，港隊暫時未有心水名單，但目標可以打入八強。他說，港隊的黃鎮廷與杜凱琹年紀漸長，有計劃推動年青運動員，認為他們成績理想，但需要累積更多經驗。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794208-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794208-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794208-20250304.htm)
+
+---
+
 # 全國兩會｜劉永好：如何適應新形勢為民企最大挑戰
 
 ![劉永好表示，目前民營企業面對的最大挑戰是如何適應新形勢。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794206_1_20250304182907.jpg&q=75)
@@ -500,7 +523,7 @@
 
 # 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
 
-![盧沙野說中國政府對烏克蘭危機政策清楚，形容都寫在紙上。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794186_1_20250304181409.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794186_1_20250304181409.jpg&q=75)
   
 
 在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。

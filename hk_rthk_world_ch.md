@@ -97,7 +97,7 @@
 
 # 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
 
-![盧沙野說中國政府對烏克蘭危機政策清楚，形容都寫在紙上。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794186_1_20250304181409.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794186_1_20250304181409.jpg&q=75)
   
 
 在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。
