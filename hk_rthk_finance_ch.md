@@ -1,26 +1,3 @@
-# 全國兩會｜甄子丹稱電影行業需重新評估市場及題材
-
-  
-
-本港接連有戲院結業，全國政協委員、影星甄子丹在北京表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
-
----
-
 # 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
 
   
@@ -1437,5 +1414,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm)
+
+---
+
+# 人行開展382億元人民幣逆回購
+
+![人民銀行公開市場開展382億元人民幣7日期逆回購操作，單日淨回籠2803億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794102_1_20250304092909.jpg&q=25)
+  
+
+人民銀行公開市場開展382億元人民幣7日期逆回購操作，利率維持於1.5厘。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm)
 
 ---

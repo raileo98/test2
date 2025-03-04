@@ -1,3 +1,27 @@
+# EU chief unveils $US840 billion 'rearm' plan
+
+![EU chief Ursula von der Leyen has called for the Europe to 'rearm'. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794224_1_20250304205503.jpg&q=90)
+  
+
+EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise some $US844 billion for Europe's defence, and help provide "immediate" military support for Ukraine after Washington suspended military aid.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm)
+
+---
+
 # HKUST founding president dies at 87
 
 ![Woo Chia-wai was credited for setting up the world-class HKUST Business School during his tenure. Photo courtesy: HKUST](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794219_1_20250304203731.jpg&q=90)
@@ -1418,29 +1442,5 @@ Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm)
-
----
-
-# 'Taxing boundary-crossing drivers won't affect many'
-
-![Paul Chan said on TVB that around 15 percent of people head to the mainland in private vehicles, and taxing them would not affect a great amount of people.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793870_1_20250302124329.jpg&q=90)
-  
-
-Financial Secretary Paul Chan on Sunday said officials plan to go ahead with a proposed land departure tax for private cars, saying this represented a wealthier demographic in society.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793870-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793870-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793870-20250302.htm)
 
 ---

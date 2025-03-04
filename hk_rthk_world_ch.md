@@ -1,3 +1,27 @@
+# 中國暫停進口美國原木
+
+![海關總署即日起暫停美國原木進口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794225_1_20250304210049.jpg&q=20)
+  
+
+海關總署發布公告說，中國海關近期在進口的美國原木中檢出小蠹、天牛等檢疫性林木害蟲。為防止有害生物傳入，保護國家農林業生產和生態安全，根據《中華人民共和國生物安全法》、《中華人民共和國進出境動植物檢疫法》及其實施條例、國際植物檢疫措施標準等相關規定，海關總署決定即日起暫停美國原木進口。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm)
+
+---
+
 # 商務部對原產美國進口相關光纖產品發起反規避調查
 
 ![商務部對原產於美國的進口相關光纖產品發起反規避調查。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794220_1_20250304203849.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793919-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793919-20250303.htm)
-
----
-
-# 聯合國促防止加沙恢復敵對行動　籲讓人道物資進入加沙
-
-![衛星圖片顯示，大量貨車在埃及等待進入加沙。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793915_1_20250303033448.jpg&q=25)
-  
-
-聯合國秘書長古特雷斯透過發言人發表聲明，敦促所有各方盡一切努力，防止加沙恢復敵對行動。他又呼籲讓人道主義援助進入加沙地帶，並釋放所有被扣押人員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm)
 
 ---

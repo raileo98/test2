@@ -1,3 +1,27 @@
+# EU chief unveils $US840 billion 'rearm' plan
+
+![EU chief Ursula von der Leyen has called for the Europe to 'rearm'. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794224_1_20250304205503.jpg&q=90)
+  
+
+EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise some $US844 billion for Europe's defence, and help provide "immediate" military support for Ukraine after Washington suspended military aid.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm)
+
+---
+
 # China to 'fight to the end' against US tariffs
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794183_1_20250304171121.jpg&q=90)
@@ -1416,29 +1440,5 @@ Pope Francis expressed confidence in his treatment Sunday in a message published
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm)
-
----
-
-# Israel deploys tanks in occupied West Bank
-
-![Palestinian families in the occupied West Bank react after Israel delayed the release of Palestinian prisoners. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792841_1_20250223175421.jpg&q=90)
-  
-
-Israel's defence minister on Sunday said the army had "evacuated" three refugee camps in the north of the occupied West Bank and had been ordered to remain there for the coming year "to prevent the return of residents".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm)
 
 ---

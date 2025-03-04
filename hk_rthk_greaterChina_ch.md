@@ -1,3 +1,27 @@
+# 中國暫停進口美國原木
+
+![海關總署即日起暫停美國原木進口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794225_1_20250304210049.jpg&q=20)
+  
+
+海關總署發布公告說，中國海關近期在進口的美國原木中檢出小蠹、天牛等檢疫性林木害蟲。為防止有害生物傳入，保護國家農林業生產和生態安全，根據《中華人民共和國生物安全法》、《中華人民共和國進出境動植物檢疫法》及其實施條例、國際植物檢疫措施標準等相關規定，海關總署決定即日起暫停美國原木進口。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm)
+
+---
+
 # 國台辦批評民進黨當局禁台灣高校與大陸院校交流合作
 
 ![陳斌華表示，大陸願意為廣大台灣學子分享大陸高水平教育提供便利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794223_1_20250304205245.jpg&q=90)
@@ -19,29 +43,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm)
-
----
-
-# 全國兩會｜甄子丹稱電影行業需重新評估市場及題材
-
-  
-
-本港接連有戲院結業，全國政協委員、影星甄子丹在北京表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
 
 ---
 
