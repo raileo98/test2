@@ -1,3 +1,27 @@
+# US 'pauses' military aid to Ukraine
+
+![US President Donald Trump suspended military aid to Ukraine, a White House official said, sharply escalating pressure on Kyiv to agree to peace talks with Russia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794138_1_20250304131236.jpg&q=90)
+  
+
+US President Donald Trump has paused military aid to Ukraine following his clash with Ukrainian President Volodymyr Zelensky last week, a White House official said, deepening the fissure that has opened between the two one-time allies.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm)
+
+---
+
 # SpaceX calls off Starship test flight at last minute
 
 ![The latest test flight was to include another attempt to catch the booster stage using the launch tower's "chopstick" arms. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794109_1_20250304101337.jpg&q=85)
@@ -1416,29 +1440,5 @@ Israeli Prime Minister Benjamin Netanyahu said early on Sunday that freeing Pale
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm)
-
----
-
-# UK to unveil sweeping sanctions against Russia
-
-![In his statement, British Foreign Secretary David Lammy reiterated UK's military backing and its pledge to be "ready and willing to provide UK troops as part of peacekeeping forces if necessary". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792796_1_20250223081441.jpg&q=90)
-  
-
-London will unveil a significant package of sanctions against Russia on Monday, which marks three years since the start of its war with Ukraine, UK Foreign Secretary David Lammy said on Sunday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792796-20250223.htm)
 
 ---

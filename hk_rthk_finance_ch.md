@@ -1,3 +1,27 @@
+# 恒指下午初段跌幅收窄
+
+![恒生指數較早時報22931點，跌75點，跌幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794136_1_20250304130638.jpg&q=30)
+  
+
+港股下午開市初段跌幅收窄，恒生指數較早時報22931點，跌75點，跌幅0.33%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm)
+
+---
+
 # 分析料車企或跟隨比亞迪集資　因研發及競爭令資金壓力大
 
 ![信誠證券聯席董事張智威表示，比亞迪作為龍頭企業亦要配股集資，不排除其他車股會跟隨配股或發債等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794135_1_20250304125804.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm)
-
----
-
-# 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
-
-![劉結一表示，發展新質生產力是推進高質量發展的內在要求和重要著力點。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793994_1_20250303174928.jpg&q=90)
-  
-
-全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
 
 ---

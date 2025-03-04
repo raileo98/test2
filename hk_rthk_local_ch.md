@@ -1,3 +1,27 @@
+# 恒指下午初段跌幅收窄
+
+![恒生指數較早時報22931點，跌75點，跌幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794136_1_20250304130638.jpg&q=30)
+  
+
+港股下午開市初段跌幅收窄，恒生指數較早時報22931點，跌75點，跌幅0.33%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm)
+
+---
+
 # 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
 
 行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
@@ -20,6 +44,9 @@
 ---
 
 # 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
+
+![丘應樺說不少香港企業已遷移生產線，相信加徵關稅對香港影響不是很大。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794127_1_20250304131139.jpg&q=80)
+  
 
 對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
 
@@ -1408,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm)
-
----
-
-# SmartPLAY康體通系統明日凌晨零時至上午2時暫停服務
-
-![SmartPLAY康體通將於明日凌晨零時至上午2時暫停服務，以便進行系統維護。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793967_1_20250303123553.jpg&q=75)
-  
-
-康文署宣布，SmartPLAY康體通將於明日凌晨零時至上午2時暫停服務，以便進行系統維護。用戶如需於這段時間使用康體通，敬請預早安排，在服務暫停時段之前或後使用系統。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm)
 
 ---
