@@ -1,3 +1,27 @@
+# HK govt still in the dark over new US tariffs
+
+![Algernon Yau says the SAR government is still seeking clarification as to whether new US tariffs on Chinese exports also cover Hong Kong goods. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794132_1_20250304123411.jpg&q=80)
+  
+
+Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't know whether new US tariffs on Chinese goods will also cover Hong Kong products, but in any case transit trade could be hit in the short term.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm)
+
+---
+
 # US 'pauses' military aid to Ukraine
 
 ![US President Donald Trump suspended military aid to Ukraine, a White House official said, sharply escalating pressure on Kyiv to agree to peace talks with Russia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794138_1_20250304131236.jpg&q=90)
@@ -1419,30 +1443,5 @@ Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a p
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm)
-
----
-
-# Excited crowds arrive early for Kai Tak opening show
-
-![Some ticket holders were seen finishing their drinks before depositing the bottles on shelves placed near the gate. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_3_20250301182424.jpg&q=35)
-![Authorities originally told spectators to arrive by 3pm to redeem their tickets, but the redemption counter remained open after the deadline as many arrived late. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_2_20250301181051.jpg&q=65)
-  
-
-Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening ceremony on Saturday night, but some were left confused by the rules of admission.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm)
 
 ---

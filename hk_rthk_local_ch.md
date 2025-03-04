@@ -1,3 +1,23 @@
+# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm)
+
+---
+
 # 全國兩會｜小鵬汽車董事長何小鵬：期待香港發展低空經濟
 
   
@@ -1409,30 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm)
-
----
-
-# 陳美寶：5支的士車隊提供逾3500部車　有車隊本月底投入服務
-
-![陳美寶宣布，有的士車隊本月底投入服務。(郭志強攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_1_20250303123325.jpg&q=1)
-![5支的士車隊共提供超過3500輛的士，佔全港的士近兩成，當中約1500輛為全新的士。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793971_2_20250303125556.jpg&q=60)
-  
-
-政府舉行的士車隊啟動禮，運輸及物流局局長陳美寶宣布，有車隊本月底將投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm)
 
 ---

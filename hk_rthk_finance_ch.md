@@ -1,3 +1,46 @@
+# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm)
+
+---
+
+# 全國兩會｜常委會續審議各方意見　推動民營經濟促進法盡快出台
+
+  
+
+在北京，全國人大會議新聞發言人婁勤儉回應《民營經濟促進法》立法進展時表示，將根據常委會繼續審議情況和各方面的意見建議，認真做好草案修改完善工作，推動法律盡快出台。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm)
+
+---
+
 # 恒指下午初段跌幅收窄
 
 ![恒生指數較早時報22931點，跌75點，跌幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794136_1_20250304130638.jpg&q=30)
@@ -43,6 +86,77 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm)
+
+---
+
+# 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
+
+  
+
+在北京，全國人大會議新聞發言人婁勤儉，回應美國對中國出口產品再加徵一成關稅時表示，美方單邊加徵關稅的做法，違反世貿組織規則，干擾全球產業鏈供應鏈安全穩定，希望美方與中方相向而行，通過平等磋商找到解決問題的辦法。中方也願同世界各國加強合作，共同維護來之不易的多邊貿易體制，反對單邊主義、保護主義，攜手推動普惠包容的經濟全球化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm)
+
+---
+
+# 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
+
+![婁勤儉說DeepSeek取得重大進展，代表一批中國公司在人工智能領域的崛起。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
+  
+
+全國人大會議新聞發言人婁勤儉表示，中國政府高度重視人工智能技術的發展和風險防範，依法保護數據隱私和安全，同時反對泛化國家安全概念、反對將經貿科技問題政治化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm)
+
+---
+
+# 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
+
+![丘應樺說不少香港企業已遷移生產線，相信加徵關稅對香港影響不是很大。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794127_1_20250304131139.jpg&q=80)
+  
+
+對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
 
 ---
 
@@ -115,30 +229,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
-
----
-
-# 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
-  
-
-啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm)
 
 ---
 
@@ -1339,102 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
-
----
-
-# 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
-
-![林劍形容「吹熄別人的燈不能讓自己更光明」。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794000_1_20250303172048.jpg&q=90)
-  
-
-在北京，外交部重申貿易戰、關稅戰無贏家。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
-
----
-
-# 本港1月零售銷售按年跌幅收窄至3.2%　連續11個月下跌
-
-![本港1月零售業總銷貨價值臨時估計按年跌幅收窄至3.2%，連跌11個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793997_1_20250303163656.jpg&q=80)
-  
-
-本港1月零售業總銷貨價值臨時估計為353億元，按年下跌3.2%，連跌11個月，但跌幅低於去年12月的9.6%，創3個月以來最小跌幅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm)
-
----
-
-# 全國兩會｜劉結一稱香港融入國家發展大局持續走深走實
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793996_1_20250303171439.jpg&q=90)
-  
-
-全國政協新聞發言人劉結一表示，香港融入國家發展大局持續走深走實，粵港澳大灣區高質量發展不斷豐富一國兩制的生動實踐，港珠澳大橋客流車流再創新高，深中通道、黃茅海跨海通道建成通車，大灣區城市群「硬聯通」進一步完善，「軟聯通」持續提升，一系列便民利企措施相繼落地，人員、貨物、資金、數據流動更高效便捷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm)
-
----
-
-# 港股高收64點　險守23000點　蜜雪首日掛牌升43%收市
-
-![港股收市險守23000點，恒生指數收報23006點，升64點，升幅約0.3%，主板成交額約3019億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793995_1_20250303161617.jpg&q=1)
-![蜜雪集團首日掛牌，收市升43%，未計手續費一手100股賺8750元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793995_2_20250303161617.jpg&q=75)
-  
-
-港股開市重上23000點關口，恒生指數最多曾升逾460點，高見23405點，但下午走勢明顯轉弱，曾倒跌80點，恒指收市險守23000點，收報23006點，升64點，升幅約0.3%，主板成交額約3019億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793995-20250303.htm)
 
 ---
