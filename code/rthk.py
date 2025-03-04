@@ -251,17 +251,17 @@ async def process_article(fg, category, article):
         
         for image in images:
             imgUrl = modify_image_url('https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=' + urllib.parse.quote_plus(image['src']), 99)
-            print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            # print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            # imgList.add(imgUrl)
             
-            imgList.add(imgUrl)
             imgUrl = imgUrl.replace('_S_', '_L_').replace('_M_', '_L_')
-            print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            # print(f"{articleLink} - {articleTitle}: {imgUrl}")
+            # imgList.add(imgUrl)
             
-            imgList.add(imgUrl)
             imgUrl = imgUrl.replace('_L_', '_')
             print(f"{articleLink} - {articleTitle}: {imgUrl}")
-            
             imgList.add(imgUrl)
+            
             latest_imgUrl = await optimize_image_quality(imgUrl)
             imgAlt = image.get('alt', '')
             imgAlt = html.escape(imgAlt.strip()).strip()
