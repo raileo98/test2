@@ -1,3 +1,26 @@
+# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+
+  
+
+「世界格蘭披治桌球大獎賽」即日起一連六天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+
+---
+
 # 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=80)
@@ -1417,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm)
-
----
-
-# 楊德強：全運會馬拉松測試賽整體運作暢順　會檢討改善空間
-
-![楊德強說，整體運作暢順，會檢討改善空間。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792817_1_20250223124315.jpg&q=90)
-![測試賽早上在深圳起步，跑手經深圳灣口岸進入香港賽道。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792817_2_20250223141815.jpg&q=85)
-  
-
-深港馬拉松賽暨第十五屆全運會測試賽早上在深圳起步，內地多個省市的跑手，經深圳灣口岸進入香港賽道，途經港深西部公路、元朗和前海等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm)
 
 ---

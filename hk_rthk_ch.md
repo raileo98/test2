@@ -1,3 +1,74 @@
+# 港交所與迅清結算簽署合作備忘錄　優化交易後證券基礎設施
+
+![港交所與迅清結算簽署合作備忘錄，共同探索優化交易後證券基礎設施的舉措。（港交所/金管局圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794176_1_20250304165340.jpg&q=85)
+  
+
+港交所與外匯基金全資附屬公司迅清結算簽署合作備忘錄，共同探索優化本港資本市場交易後證券基礎設施的措施，支持香港固定收益及貨幣產品生態圈長期發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm)
+
+---
+
+# 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
+
+  
+
+特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
+
+---
+
+# 旅發局在維港舉行無人機和煙火表演改為「精準發放」　以節省開支
+
+![旅發局舉行的無人機和煙火表演會改為「精準發放」，在特定節慶日子才舉行。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794188_1_20250304172931.jpg&q=40)
+  
+
+預算案提出向旅發局撥款12億3500萬元，推行《香港旅遊業發展藍圖2.0》的相關措施，落實「無處不旅遊」的理念。旅發局總幹事程鼎一與傳媒午宴時表示，有關撥款是計及常規、額外以及專款專用的撥款，總額按年實際減少了兩成，即接近3億元，新一年度肯定要動用到儲備應付。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm)
+
+---
+
 # 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
 
   

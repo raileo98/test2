@@ -1,3 +1,50 @@
+# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+
+  
+
+「世界格蘭披治桌球大獎賽」即日起一連六天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+
+---
+
+# 港交所與迅清結算簽署合作備忘錄　優化交易後證券基礎設施
+
+![港交所與迅清結算簽署合作備忘錄，共同探索優化交易後證券基礎設施的舉措。（港交所/金管局圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794176_1_20250304165340.jpg&q=85)
+  
+
+港交所與外匯基金全資附屬公司迅清結算簽署合作備忘錄，共同探索優化本港資本市場交易後證券基礎設施的措施，支持香港固定收益及貨幣產品生態圈長期發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm)
+
+---
+
 # 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm)
-
----
-
-# 特朗普：台積電將在美國新投資至少1000億美元
-
-![特朗普與商務部長盧特尼克（左）及魏哲家（右）陪同下在白宮會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794075_1_20250304052431.jpg&q=90)
-  
-
-美國總統特朗普說，晶片製造商台積電將在美國再投資至少1000億美元，興建尖端晶片製造設施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm)
-
----
-
-# 特朗普：可能4月2日對進口農產品徵收關稅
-
-![特朗普告訴美國農民準備好開始生產大量的農產品，並在美國境內銷售。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794068_1_20250304033600.jpg&q=90)
-  
-
-美國總統特朗普表示，可能在4月2日對進口農產品徵收關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm)
 
 ---

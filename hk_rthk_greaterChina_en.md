@@ -1,4 +1,4 @@
-# Ambassador: China to firmly defend its interests
+# China to firmly defend its interests: ambassador
 
 ![Xie Feng says those who start conflicts by harming others will ultimately hurt themselves. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794184_1_20250304171254.jpg&q=85)
   

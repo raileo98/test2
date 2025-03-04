@@ -1,3 +1,97 @@
+# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+
+  
+
+「世界格蘭披治桌球大獎賽」即日起一連六天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+
+---
+
+# 港交所與迅清結算簽署合作備忘錄　優化交易後證券基礎設施
+
+![港交所與迅清結算簽署合作備忘錄，共同探索優化交易後證券基礎設施的舉措。（港交所/金管局圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794176_1_20250304165340.jpg&q=85)
+  
+
+港交所與外匯基金全資附屬公司迅清結算簽署合作備忘錄，共同探索優化本港資本市場交易後證券基礎設施的措施，支持香港固定收益及貨幣產品生態圈長期發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm)
+
+---
+
+# 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
+
+  
+
+特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
+
+---
+
+# 旅發局在維港舉行無人機和煙火表演改為「精準發放」　以節省開支
+
+![旅發局舉行的無人機和煙火表演會改為「精準發放」，在特定節慶日子才舉行。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794188_1_20250304172931.jpg&q=40)
+  
+
+預算案提出向旅發局撥款12億3500萬元，推行《香港旅遊業發展藍圖2.0》的相關措施，落實「無處不旅遊」的理念。旅發局總幹事程鼎一與傳媒午宴時表示，有關撥款是計及常規、額外以及專款專用的撥款，總額按年實際減少了兩成，即接近3億元，新一年度肯定要動用到儲備應付。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm)
+
+---
+
 # 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
 
   
@@ -1342,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm)
-
----
-
-# 的士車隊本月底開始陸續投入服務
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794019_1_20250303184302.jpg&q=70)
-  
-
-的士車隊將於本月底開始投入服務，運輸及物流局局長陳美寶在的士車隊啟動禮表示，的士業界近年面對風風雨雨和挑戰，必須要有破革和創新，否則與時代脫節。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm)
-
----
-
-# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
-
-![劉結一表示，全國政協將持續支持大灣區建設，助力港澳在融入國家發展大局中，實現自身更好發展。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794022_1_20250303205623.jpg&q=90)
-  
-
-全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
-
----
-
-# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
-
-![「世界格蘭披治桌球大獎賽2025」獲頒授「M」品牌認可。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794021_1_20250303185402.jpg&q=90)
-  
-
-大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
-
----
-
-# 涉藏約410萬元大麻花及另類吸煙產品　泰國抵港旅客被捕
-
-![海關檢獲市值約410萬元的大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794020_1_20250303185330.jpg&q=75)
-  
-
-一名從泰國抵港旅客的寄艙行李懷疑藏有市值約410萬元的大麻花，隨身袋被發現藏有一支懷疑另類吸煙產品，被機場海關拘捕。他被控以一項販運危險藥物和一項進口另類吸煙產品罪，明日在西九龍裁判法院提堂。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794020-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794020-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794020-20250303.htm)
 
 ---

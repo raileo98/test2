@@ -1,3 +1,50 @@
+# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+
+  
+
+「世界格蘭披治桌球大獎賽」即日起一連六天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+
+---
+
+# 全國兩會｜婁勤儉：中國國防費連續9年保持個位數增長
+
+![婁勤儉在記者會表示，中國國防費從2016年起連續9年保持個位數增長。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794191_1_20250304173559.jpg&q=90)
+  
+
+十四屆全國人大三次會議發言人婁勤儉在北京表示，中國國防費從2016年起連續9年保持個位數增長，國防費佔國內生產總值的比重多年維持在1.5%以內，低於世界平均水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm)
+
+---
+
 # 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
 
   
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm)
-
----
-
-# 東深供水工程60年對港供水3百億立方米　佔港淡水總用量近八成
-
-![東江源頭護林員巡護山林時經過小溪，這裡的溪水將與其他水源匯成東江源頭。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793838_1_20250302011506.jpg&q=85)
-  
-
-昨日是東江—深圳供水工程正式通水、暨廣東對香港供水60周年，廣東省水利廳表示，60年來工程累計供水達671億立方米，其中對香港供水達300億立方米，佔香港淡水總用量近八成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793838-20250302.htm)
-
----
-
-# 王新偉出任遼寧省代省長
-
-![遼寧省人大常委會會議任命王新偉為遼寧省副省長、代省長。（微博圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793786_1_20250301155329.jpg&q=90)
-  
-
-新華社報道，遼寧省人大常委會會議決定，接受李樂成辭去遼寧省省長職務的請求，任命王新偉為遼寧省副省長、代省長。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm)
 
 ---

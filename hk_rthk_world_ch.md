@@ -1,3 +1,49 @@
+# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+
+  
+
+「世界格蘭披治桌球大獎賽」即日起一連六天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+
+---
+
+# 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
+
+  
+
+特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
+
+---
+
 # 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
 
   
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm)
-
----
-
-# 英揆：將與法烏合作制訂結束俄烏衝突計劃　無美國支持將欠威懾力
-
-![施紀賢表示，沒有美國的支持，結束俄烏衝突的計劃將欠缺威懾力。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793903_1_20250302222521.jpg&q=85)
-  
-
-英國首相施紀賢表示，英國、法國及其他歐洲國家將與烏克蘭合作，制訂結束俄烏衝突的計劃，之後與美國討論，強調沒有美國的支持，結束俄烏衝突的計劃將欠缺威懾力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793903-20250302.htm)
-
----
-
-# 克宮：加快改善俄美關係是有可能　但過程仍然漫長
-
-![佩斯科夫表示，不應期待俄美合作能快速取得成果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793899_1_20250302210032.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，美國新政府正迅速改變外交政策佈局，很大程度上與俄方立場契合，在兩國總統具備政治意願的情況下，加快改善俄美之間的關係是有可能，但由於美國前政府的行為，即使俄美正試圖改善雙邊關係，有關進程都將會漫長。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm)
 
 ---
