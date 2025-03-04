@@ -1,3 +1,27 @@
+# 本港2月住宅樓宇買賣合約註冊量按月跌約12%
+
+![本港2月送交註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794163_1_20250304151750.jpg&q=45)
+  
+
+本港2月送交土地註冊處註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%；合約總值230億元，按月下跌13.9%，按年上升20.5%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm)
+
+---
+
 # 八達通公司爭取今年第3季可於日本使用八達通付款
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm)
-
----
-
-# 香港9月再辦「香港綠色周」　金管局與國際金融公司合辦旗艦活動
-
-![本屆綠色周將於9月8日至12日舉辦，金管局除了與國際金融公司合辦旗艦活動，亦將統籌其他活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793989_1_20250303153716.jpg&q=80)
-  
-
-香港將於9月8日至12日舉辦第二屆「香港綠色周」，主題是「共鑄可持續未來」，活動將廣泛涵蓋可持續發展相關議題，為不同地區及領域的持份者提供對話與合作平台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm)
 
 ---

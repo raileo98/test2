@@ -1,3 +1,27 @@
+# 本港2月住宅樓宇買賣合約註冊量按月跌約12%
+
+![本港2月送交註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794163_1_20250304151750.jpg&q=45)
+  
+
+本港2月送交土地註冊處註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%；合約總值230億元，按月下跌13.9%，按年上升20.5%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm)
+
+---
+
 # 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm)
-
----
-
-# 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
-
-![陳茂波強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794024_1_20250303205802.jpg&q=30)
-  
-
-財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
 
 ---
