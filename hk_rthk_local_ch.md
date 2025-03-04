@@ -1,3 +1,27 @@
+# 金管局：正更新優化CMU系統　長遠研究建立多元化資產存管平台
+
+![余偉文稱長遠將研究創建多元化資產存管平台可行性，並探討支援跨資產類別的淨額結算、提高結算效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794201_1_20250304181136.jpg&q=85)
+  
+
+金管局總裁余偉文在《匯思》撰文指，去年10月成立、今年初投入服務的迅清結算，以更商業化模式協助營運債務工具中央結算系統（CMU）。現時迅清結算與港交所，分別營運香港固定收益產品及股票存管業務平台，兩個平台簽署合作備忘錄，將從3方面探索優化交易後證券基礎設施，以加快釋放內地債券作為抵押品的潛力、促進雙向投資、推動更多發行人在港發行並存放債券。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm)
+
+---
+
 # 訪港旅客去年人均消費較前年減少1400元
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794207_1_20250304183434.jpg&q=80)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm)
-
----
-
-# 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794041_1_20250303213402.jpg&q=75)
-  
-
-屹立北角超過50年的新光戲院將於今日結業。有不少市民到場拍照留念。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm)
 
 ---

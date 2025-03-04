@@ -1,6 +1,6 @@
 # 'HK and Macau leisure sectors should join hands'
 
-![Galaxy Entertainment Group chairman Francis Lui says Macau’s leisure industry has been developing steadily in recent years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794196_1_20250304175846.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794196_1_20250304175846.jpg&q=75)
   
 
 The chairman of a leading casino and hospitality group in Macau said on Tuesday that his city and Hong Kong should work together to attract more foreign investors.

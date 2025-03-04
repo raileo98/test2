@@ -1,6 +1,6 @@
 # 'HK and Macau leisure sectors should join hands'
 
-![Galaxy Entertainment Group chairman Francis Lui says Macau’s leisure industry has been developing steadily in recent years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794196_1_20250304175846.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794196_1_20250304175846.jpg&q=75)
   
 
 The chairman of a leading casino and hospitality group in Macau said on Tuesday that his city and Hong Kong should work together to attract more foreign investors.
@@ -96,7 +96,7 @@ Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down
 
 # CPPCC outlines modernisation push and self-improvement
 
-![Wang Huning urged CPPCC members to rally behind Xi Jinping in building greater consensus to advance Chinese modernisation.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794177_1_20250304165718.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794177_1_20250304165718.jpg&q=85)
   
 
 The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.

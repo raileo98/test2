@@ -1,3 +1,27 @@
+# 金管局：正更新優化CMU系統　長遠研究建立多元化資產存管平台
+
+![余偉文稱長遠將研究創建多元化資產存管平台可行性，並探討支援跨資產類別的淨額結算、提高結算效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794201_1_20250304181136.jpg&q=85)
+  
+
+金管局總裁余偉文在《匯思》撰文指，去年10月成立、今年初投入服務的迅清結算，以更商業化模式協助營運債務工具中央結算系統（CMU）。現時迅清結算與港交所，分別營運香港固定收益產品及股票存管業務平台，兩個平台簽署合作備忘錄，將從3方面探索優化交易後證券基礎設施，以加快釋放內地債券作為抵押品的潛力、促進雙向投資、推動更多發行人在港發行並存放債券。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm)
+
+---
+
 # 全國兩會｜余國樑：港隊目標在今屆全運會乒乓球項目可打入八強
 
 ![余國樑說，今屆全運會乒乓球項目在澳門舉行，港隊暫時未有心水名單，但目標可以打入八強。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794208_1_20250304190316.jpg&q=80)
