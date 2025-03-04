@@ -1,3 +1,27 @@
+# 港股低收64點　主板成交不足3千億元　汽車股捱沽
+
+![港股再度失守23000點，恒生指數收市報22941點，跌64點，主板成交額不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794169_1_20250304162104.jpg&q=75)
+  
+
+港股再度回軟，失守23000點水平，但午後跌幅明顯收窄。恒生指數早段最多跌近460點，低見22547點，收市報22941點，跌64點，跌幅約0.3%，主板成交額減至2695億元，是逾1星期以來首次不足3千億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm)
+
+---
+
 # 小學生超重普遍率降至16.4%　中學生維持於20%高水平
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794004-20250303.htm)
-
----
-
-# 本港1月零售銷售按年跌幅收窄至3.2%　連續11個月下跌
-
-![本港1月零售業總銷貨價值臨時估計按年跌幅收窄至3.2%，連跌11個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793997_1_20250303163656.jpg&q=80)
-  
-
-本港1月零售業總銷貨價值臨時估計為353億元，按年下跌3.2%，連跌11個月，但跌幅低於去年12月的9.6%，創3個月以來最小跌幅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm)
 
 ---

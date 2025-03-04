@@ -1,3 +1,27 @@
+# 港股低收64點　主板成交不足3千億元　汽車股捱沽
+
+![港股再度失守23000點，恒生指數收市報22941點，跌64點，主板成交額不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794169_1_20250304162104.jpg&q=75)
+  
+
+港股再度回軟，失守23000點水平，但午後跌幅明顯收窄。恒生指數早段最多跌近460點，低見22547點，收市報22941點，跌64點，跌幅約0.3%，主板成交額減至2695億元，是逾1星期以來首次不足3千億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm)
+
+---
+
 # 滬股回升逾0.2%收市　創業板指數全日跌幅收窄至約0.3%
 
 ![上證指數低開高走，於3300點失而復得，收報3324點，升7點，升幅0.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794159_1_20250304150817.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm)
-
----
-
-# 外電指比亞迪股份配股集資最多52億美元　配售價折讓8.4%
-
-![路透引述銷售文件指，比亞迪股份配股集資最多52億美元，折讓最多8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794027_1_20250303191133.jpg&q=85)
-  
-
-路透引述銷售文件指，比亞迪股份配股集資最多52億美元，每股H股配售價介乎333至345元，比今日收市價折讓最多8.4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm)
 
 ---
