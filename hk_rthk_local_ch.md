@@ -1,5 +1,30 @@
+# 陳美寶：空運物流帶動香港貿易和經濟發展屬本港重要支柱
+
+![陳美寶表示，希望簡化中轉貨物規管架構和法例法規，盡量發揮香港自由港特色。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794175_1_20250304165325.jpg&q=30)
+  
+
+運輸及物流局局長陳美寶表示，香港機場成績有目共睹，尤其本港近年面對政治或社會情況挑戰，即使疫情亦無損香港機場在空運、貨運、物流方面表現。去年整體空運貨物吞吐量動力持續，錄得超過490萬公噸，較2023年升14%。她說，整體空運貨物佔香港外貿總值45%，認為空運物流帶動香港貿易和經濟發展，是本港重要支柱。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm)
+
+---
+
 # 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
 
+![警方預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=80)
   
 
 高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
@@ -144,6 +169,7 @@
 
 # 全國兩會｜楊利偉：港澳載荷專家進行基礎訓練　理論體力表現很好
 
+![楊利偉表示，港澳載荷專家正進行基礎訓練。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794157_1_20250304165614.jpg&q=80)
   
 
 全國政協委員、中國載人航天工程副總設計師楊利偉表示，港澳載荷專家目前正進行基礎訓練，包括理論、體力和專業知識等方面，表現很好，體現載荷專家的特色，根據需求再考慮開展招募工作。
@@ -1411,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
-
-![陳茂波表示，香港在國家發展中的獨特價值依然是「一國兩制」優勢，同時與內地及國際社會聯繫。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794006_1_20250303175756.jpg&q=25)
-  
-
-近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
 
 ---

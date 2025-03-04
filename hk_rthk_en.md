@@ -1,3 +1,27 @@
+# Trump in action as World Snooker Grand Prix begins
+
+![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=85)
+  
+
+Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Kong on Tuesday as a newly minted SAR resident.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
+
+---
+
 # Canada to retaliate against US tariffs: Trudeau
 
 ![Canada says it will retaliate over US President Donald Trump's tariffs, raising concerns over job losses, economic instability, and heightened trade tensions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794162_1_20250304151503.jpg&q=90)
@@ -694,30 +718,6 @@ The annual session of China's top political advisory body will run from Tuesday 
 
 ---
 
-# Govt operating account largely balanced: FS
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
-  
-
-Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
-
----
-
 # ICAC sees three percent rise in graft allegations
 
 ![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
@@ -739,6 +739,30 @@ The ICAC on Monday said it received 2,058 reports of corruption last year, up th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
+
+---
+
+# Govt operating account largely balanced: FS
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+  
+
+Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
 
 ---
 
@@ -1418,29 +1442,5 @@ The Centre for Health Protection (CHP) says people should make sure they are ful
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm)
-
----
-
-# O'Sullivan drops out of HK Snooker Grand Prix
-
-![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=80)
-  
-
-Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
 
 ---

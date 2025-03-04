@@ -1,3 +1,27 @@
+# 陳美寶：空運物流帶動香港貿易和經濟發展屬本港重要支柱
+
+![陳美寶表示，希望簡化中轉貨物規管架構和法例法規，盡量發揮香港自由港特色。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794175_1_20250304165325.jpg&q=30)
+  
+
+運輸及物流局局長陳美寶表示，香港機場成績有目共睹，尤其本港近年面對政治或社會情況挑戰，即使疫情亦無損香港機場在空運、貨運、物流方面表現。去年整體空運貨物吞吐量動力持續，錄得超過490萬公噸，較2023年升14%。她說，整體空運貨物佔香港外貿總值45%，認為空運物流帶動香港貿易和經濟發展，是本港重要支柱。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm)
+
+---
+
 # 新地旗下機場空運中心大樓續租15年　將投入至少4億元升級
 
 ![郭炳聯稱要讓本港空運中心運作能與時並進，打造成為世界上最有效率空運中心。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_1_20250304164738.jpg&q=15)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm)
-
----
-
-# 北都公路勘查研究展開　目標25個月內優先完成新田段工作
-
-![路政署目標讓北都公路新田段具備技術條件可在2027年招標。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794036_1_20250303205559.jpg&q=55)
-  
-
-路政署展開北都公路的勘查研究，目標於25個月內優先完成北都公路新田段的工作，在2027年具備技術條件為主體建造工程進行招標，當中包括優化走線及接駁位置、進行環境影響評估研究，以及進行刊憲，並會同步完成新田段的工地勘測工作、其他影響評估及初步設計工作，務求加快項目推展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm)
 
 ---

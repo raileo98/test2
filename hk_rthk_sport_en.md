@@ -1,3 +1,27 @@
+# Trump in action as World Snooker Grand Prix begins
+
+![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=85)
+  
+
+Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Kong on Tuesday as a newly minted SAR resident.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
+
+---
+
 # Forest sink Ipswich on pens to reach FA Cup quarters
 
 ![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=90)
@@ -1421,29 +1445,5 @@ The Hong Kong, China Ice Hockey Association has filed a complaint to the Interna
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791470-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791470-20250213.htm)
-
----
-
-# Bayern sink Celtic 2-1 in Champions League play-off
-
-![Bayern Munich applauds the fans following their 2-1 victory over Celtic in their play-off round first leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791418_1_20250213081308.jpg&q=85)
-  
-
-Harry Kane was on target as Bayern Munich beat Celtic 2-1 in Glasgow in the first leg of their Champions League play-off, while there were also wins for Benfica, Feyenoord and Club Brugge.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791418-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791418-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791418-20250213.htm)
 
 ---
