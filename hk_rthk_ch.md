@@ -1,3 +1,147 @@
+# 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
+
+  
+
+財政預算案提出調整二元乘車優惠計劃。八達通公司表示，需要先調整系統，不同營辦商有不同計算方式或優惠，例如轉乘優惠等，公司需要與各營辦商研究，最後要進行測試後才可推出，預計至少需要12個月，但會爭取少於18個月完成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm)
+
+---
+
+# 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
+
+  
+
+在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm)
+
+---
+
+# 在岸人民幣兌美元高收143點子　創近1星期新高
+
+![在岸人民幣收報7.2788兌1美元，升143點子，升幅0.2%，創近1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794181_1_20250304170216.jpg&q=40)
+  
+
+在岸人民幣收報7.2788兌1美元，較昨日收市價升143點子，升幅0.2%，創近1星期新高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm)
+
+---
+
+# 置富產業信託去年可供分派收入跌約11%
+
+![置富產業信託去年可供分派收入7.2億元，按年跌約11%。續租率79%，按年下跌4個百分點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794174_1_20250304164734.jpg&q=90)
+  
+
+置富產業信託去年可供分派收入7.2億元，按年跌約11%。末期每基金單位分派17.36仙，全年每基金單位分派35.59港仙，跌約12%，派息比率維持100%，分派收益率8.9%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm)
+
+---
+
+# 旅發局「香港盛匯超級三月」與逾1500間商舖推優惠
+
+![旅發局推出「香港盛匯超級三月」推廣活動。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_2_20250304171141.jpg&q=85)
+![香港國際七人欖球賽本月於啟德體育園舉辦。 （旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_3_20250304171141.jpg&q=85)
+  
+
+本港在3月份有多項國際盛事舉行，旅遊發展局推出「香港盛匯超級三月」推廣活動，與超過1500間商舖推出多項優惠，提供 160多項餐飲、購物及娛樂優惠。旅發局總幹事程鼎一表示，旅發局將串連城中不同盛事，加大宣傳力度，就相關推廣活動制定攻略，涵蓋全方位需要，希望延長旅客逗留時間及刺激消費，擴大盛事效益。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm)
+
+---
+
+# 去年訪港旅客人均消費按年跌兩成　內地客近年新低跌至5000元
+
+![旅發局會繼續推廣「旅遊+」以及「盛事+」，希望令旅客感到「一場來到」都願意多消費。 （新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_1_20250304170903.jpg&q=35)
+![本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_2_20250304171004.jpg&q=90)
+  
+
+旅遊發展局數據顯示，本港去年整體旅客人均消費為5500元，較2023年的6900元下跌兩成。 仍是本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低；非內地旅客消費表現較佳，人均消費6600元，當中長途市場旅客人均消費7500元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm)
+
+---
+
 # 前藝人王賢誌入稟申請破產　法庭正式頒布破產令
 
 ![聆案官核對所需文件，確認沒有任何人反對，正式頒令王賢誌破產。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794178_1_20250304165814.jpg&q=85)
@@ -48,7 +192,7 @@
 
 # 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
 
-![警方預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=80)
   
 
 高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
@@ -361,7 +505,7 @@
 
 # 全國兩會｜楊利偉：港澳載荷專家進行基礎訓練　理論體力表現很好
 
-![楊利偉表示，港澳載荷專家正進行基礎訓練。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794157_1_20250304165614.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794157_1_20250304165614.jpg&q=80)
   
 
 全國政協委員、中國載人航天工程副總設計師楊利偉表示，港澳載荷專家目前正進行基礎訓練，包括理論、體力和專業知識等方面，表現很好，體現載荷專家的特色，根據需求再考慮開展招募工作。

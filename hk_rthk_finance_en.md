@@ -1,3 +1,27 @@
+# Hong Kong stocks close lower
+
+![The Hang Seng Index finished down 0.3 percent at 22,941. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794182_1_20250304170531.jpg&q=75)
+  
+
+Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down 0.3 percent at 22,941.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm)
+
+---
+
 # Canada to retaliate against US tariffs: Trudeau
 
 ![Canada says it will retaliate over US President Donald Trump's tariffs, raising concerns over job losses, economic instability, and heightened trade tensions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794162_1_20250304151503.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792131-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792131-20250218.htm)
-
----
-
-# Australia cuts rates for first time since 2020
-
-![Australia's central bank cut its key interest rate for the first time in more than four years, but warned global turmoil could derail further easing. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792089_1_20250218124754.jpg&q=90)
-  
-
-Australia's central bank cut interest rates on Tuesday for the first time since the depths of the 2020 pandemic, saying progress had been made on inflation though it was still cautious about the outlook.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792089-20250218.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792089-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792089-20250218.htm)
 
 ---

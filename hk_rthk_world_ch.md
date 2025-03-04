@@ -1,3 +1,26 @@
+# 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
+
+  
+
+在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm)
+
+---
+
 # 美國對華商品加徵關稅　中方促美方收起霸凌嘴臉並回到對話合作
 
 ![林劍說，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794165_1_20250304155829.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793899-20250302.htm)
-
----
-
-# 歐洲多國在倫敦舉行峰會　尋求加強安全合作及對烏克蘭支持
-
-![施紀賢（右）在安全峰會舉行前一日，在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793885_1_20250302170932.jpg&q=85)
-  
-
-歐洲多國領導人星期日在英國倫敦舉行安全峰會，尋求加強安全合作以及對烏克蘭的支持。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793885-20250302.htm)
 
 ---

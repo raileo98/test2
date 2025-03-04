@@ -1,3 +1,75 @@
+# Ambassador: China to firmly defend its interests
+
+![Xie Feng says those who start conflicts by harming others will ultimately hurt themselves. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794184_1_20250304171254.jpg&q=85)
+  
+
+China's ambassador to the United States says while China needs to firmly defend its interests, it will continue to handle Sino-US relations based on mutual respect, peaceful coexistence, and win-win cooperation.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm)
+
+---
+
+# China to 'fight to the end' against US tariffs
+
+![Foreign Ministry spokesman Lin Jian warned China would push back hard against US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794183_1_20250304171121.jpg&q=90)
+  
+
+China vowed on Tuesday to fight to the "bitter end" if the United States pushes a trade war, after Washington and Beijing exchanged a salvo of tariffs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
+
+---
+
+# CPPCC outlines modernisation push and self-improvement
+
+![Wang Huning urged CPPCC members to rally behind Xi Jinping in building greater consensus to advance Chinese modernisation.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794177_1_20250304165718.jpg&q=85)
+  
+
+The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm)
+
+---
+
 # Chinese private firms eye support from Two Sessions
 
 ![He Xiaopeng wants his firm to take advantage of Hong Kong developing its "low altitude economy". File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794147_1_20250304150835.jpg&q=90)
@@ -1368,77 +1440,5 @@ China and Britain need to strengthen strategic communication, enhance mutual tru
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm)
-
----
-
-# Shenzhen Bay Port to close for cross-border marathon
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791516_1_20250213190820.jpg&q=85)
-  
-
-Shenzhen Bay Port will be closed from 2am to 11am on February 23rd for a cross-border marathon event.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791516-20250213.htm)
-
----
-
-# China steel warns of 'adverse impact' of US tariffs
-
-![China's Iron and Steel Association said the tariff rise on steel and aluminum imports to the US would adversely impact the supply chain of the global steel industry. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791504_1_20250213181713.jpg&q=80)
-  
-
-A group representing China's steel industry has warned that a new 25 percent tariff on imports of the product into the United States would have an "adverse impact" on the sector, state media reported on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791504-20250213.htm)
-
----
-
-# 4 dead after explosion rocks Taiwan department store
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791453_2_20250213142518.jpg&q=85)
-  
-
-A suspected gas explosion has hit a department store in the city of Taichung in Taiwan, killing at least four people, authorities there said on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm)
 
 ---

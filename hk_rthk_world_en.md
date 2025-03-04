@@ -1,3 +1,27 @@
+# China to 'fight to the end' against US tariffs
+
+![Foreign Ministry spokesman Lin Jian warned China would push back hard against US tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794183_1_20250304171121.jpg&q=90)
+  
+
+China vowed on Tuesday to fight to the "bitter end" if the United States pushes a trade war, after Washington and Beijing exchanged a salvo of tariffs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
+
+---
+
 # Canada to retaliate against US tariffs: Trudeau
 
 ![Canada says it will retaliate over US President Donald Trump's tariffs, raising concerns over job losses, economic instability, and heightened trade tensions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794162_1_20250304151503.jpg&q=90)
@@ -1416,29 +1440,5 @@ Israel's defence minister on Sunday said the army had "evacuated" three refugee 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792841-20250223.htm)
-
----
-
-# Germans vote in high-stakes election
-
-![Friedrich Merz, the 69-year-old conservative leader, is in pole position to become Germany's next chancellor. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792836_1_20250223155012.jpg&q=90)
-  
-
-Germans are voting in a national election on Sunday that is expected to see Friedrich Merz's conservatives regain power and the far-right Alternative for Germany (AfD) score its best ever result as Europe's ailing economic powerhouse lurches rightwards.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm)
 
 ---

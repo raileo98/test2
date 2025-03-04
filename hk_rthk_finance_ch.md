@@ -1,3 +1,124 @@
+# 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
+
+  
+
+財政預算案提出調整二元乘車優惠計劃。八達通公司表示，需要先調整系統，不同營辦商有不同計算方式或優惠，例如轉乘優惠等，公司需要與各營辦商研究，最後要進行測試後才可推出，預計至少需要12個月，但會爭取少於18個月完成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm)
+
+---
+
+# 在岸人民幣兌美元高收143點子　創近1星期新高
+
+![在岸人民幣收報7.2788兌1美元，升143點子，升幅0.2%，創近1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794181_1_20250304170216.jpg&q=40)
+  
+
+在岸人民幣收報7.2788兌1美元，較昨日收市價升143點子，升幅0.2%，創近1星期新高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm)
+
+---
+
+# 置富產業信託去年可供分派收入跌約11%
+
+![置富產業信託去年可供分派收入7.2億元，按年跌約11%。續租率79%，按年下跌4個百分點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794174_1_20250304164734.jpg&q=90)
+  
+
+置富產業信託去年可供分派收入7.2億元，按年跌約11%。末期每基金單位分派17.36仙，全年每基金單位分派35.59港仙，跌約12%，派息比率維持100%，分派收益率8.9%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm)
+
+---
+
+# 旅發局「香港盛匯超級三月」與逾1500間商舖推優惠
+
+![旅發局推出「香港盛匯超級三月」推廣活動。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_2_20250304171141.jpg&q=85)
+![香港國際七人欖球賽本月於啟德體育園舉辦。 （旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_3_20250304171141.jpg&q=85)
+  
+
+本港在3月份有多項國際盛事舉行，旅遊發展局推出「香港盛匯超級三月」推廣活動，與超過1500間商舖推出多項優惠，提供 160多項餐飲、購物及娛樂優惠。旅發局總幹事程鼎一表示，旅發局將串連城中不同盛事，加大宣傳力度，就相關推廣活動制定攻略，涵蓋全方位需要，希望延長旅客逗留時間及刺激消費，擴大盛事效益。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm)
+
+---
+
+# 去年訪港旅客人均消費按年跌兩成　內地客近年新低跌至5000元
+
+![旅發局會繼續推廣「旅遊+」以及「盛事+」，希望令旅客感到「一場來到」都願意多消費。 （新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_1_20250304170903.jpg&q=35)
+![本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_2_20250304171004.jpg&q=90)
+  
+
+旅遊發展局數據顯示，本港去年整體旅客人均消費為5500元，較2023年的6900元下跌兩成。 仍是本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低；非內地旅客消費表現較佳，人均消費6600元，當中長途市場旅客人均消費7500元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm)
+
+---
+
 # 陳美寶：空運物流帶動香港貿易和經濟發展屬本港重要支柱
 
 ![陳美寶表示，希望簡化中轉貨物規管架構和法例法規，盡量發揮香港自由港特色。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794175_1_20250304165325.jpg&q=30)
@@ -47,6 +168,30 @@
 
 ---
 
+# 全國兩會｜回應美國加關稅　謝鋒：關稅戰貿易戰損人害己
+
+![謝鋒說關稅戰也好，貿易戰也好，從歷史上來看都是從損人開始，最後以害己告終。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794170_1_20250304165406.jpg&q=85)
+  
+
+在北京，全國政協委員、駐美大使謝鋒接受本台訪問，回應美國增加對華產品關稅時表示，想起已故領導人毛澤東在上世紀60年代初講過的兩句詩：暮色蒼茫看勁松，亂雲飛渡仍從容。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm)
+
+---
+
 # 港股低收64點　主板成交不足3千億元　汽車股捱沽
 
 ![港股再度失守23000點，恒生指數收市報22941點，跌64點，主板成交額不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794169_1_20250304162104.jpg&q=75)
@@ -68,6 +213,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm)
+
+---
+
+# 全國兩會｜王滬寧稱今年要為實現「十五五」良好開局打牢基礎
+
+![王滬寧表示，今年是「十四五」規劃收官之年，也是進一步全面深化改革的重要一年。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794168_1_20250304164948.jpg&q=90)
+  
+
+全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧表示，今年是「十四五」規劃收官之年，也是進一步全面深化改革的重要一年；要助力高品質完成「十四五」規劃目標任務、為實現「十五五」良好開局打牢基礎。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm)
+
+---
+
+# 美國對華商品加徵關稅　中方促美方收起霸凌嘴臉並回到對話合作
+
+![林劍說，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794165_1_20250304155829.jpg&q=90)
+  
+
+在北京，外交部回應美國政府對所有中國輸美商品進一步加徵關稅，發言人林劍表示，中國人民從來不信邪、不怕鬼，從來不吃霸道霸凌那一套，施壓、脅迫和威脅不是同中方打交道的正確方式。對中國搞極限施壓，是找錯了對象，打錯了算盤，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm)
 
 ---
 
@@ -1244,197 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm)
-
----
-
-# 美國2月ISM製造業指數跌至50.3遜預期
-
-![美國2月ISM製造業指數跌至50.3，低於預期，投入物價指數升至逾兩年半新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794054_1_20250303231137.jpg&q=90)
-  
-
-美國供應商管理協會(ISM)公布，2月製造業指數跌至50.3，低於預期的50.8，亦低於1月的50.9，反映製造業活動擴張步伐減慢。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm)
-
----
-
-# 美國1月建築開支按月跌0.2%
-
-![美國1月建築開支按月跌0.2%，市場原先估計持平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794053_1_20250303230448.jpg&q=90)
-  
-
-美國1月建築開支按月跌0.2%，市場原先估計持平；去年12月建築開支增長0.5%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm)
-
----
-
-# 美股初段變動不大　道指曾重上44000點　納指偏軟
-
-![道瓊斯指數一度重上44000點水平，升至44033點，較早時報43926點，升85點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794051_1_20250303225000.jpg&q=90)
-  
-
-美股初段變動不大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794051-20250303.htm)
-
----
-
-# 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
-
-![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡說，由2022年底至今年1月底，各項人才入境計劃共收到超過44萬宗申請，當中超過28萬宗獲批，高才通計劃佔三分一。他又表示，為確保只有符合要求的人才獲批，申請人須提交由指定第三方認證機構或頒授院校就學歷發出的認證文件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm)
-
----
-
-# 央視報道工行擬未來3年對民企投融資規模不少於6萬億元人民幣
-
-![央視新聞報道指，工商銀行計劃未來3年，為民企提供投融資規模不少於6萬億元人民幣，增加信用及中長期資金供應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794038_1_20250303210329.jpg&q=75)
-  
-
-央視新聞報道指，工商銀行計劃未來3年，為民企提供投融資規模不少於6萬億元人民幣，增加信用及中長期資金供應。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794038-20250303.htm)
-
----
-
-# 歐元區2月通脹率放緩至2.4%　市場對歐洲央行減息預期升溫
-
-![歐元區2月通脹率由2.5%放緩至2.4%，市場對歐洲央行本周四減息預期升溫。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794037_1_20250303205742.jpg&q=40)
-  
-
-歐元區2月通脹率由2.5%放緩至2.4%，跌向歐洲央行2%的目標，市場對歐洲央行本周四減息預期升溫。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794037-20250303.htm)
-
----
-
-# 全國兩會｜分析指中央級財政赤字有提升空間
-
-![財政部主管媒體刊登的文章指，中央政府槓桿率不足30%，未來數年中央級財政赤字在力度上仍有空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794035_1_20250303204512.jpg&q=80)
-  
-
-財政部主管媒體刊登的文章指，從結構看，中央政府槓桿率較低，仍不足30%，未來數年中央級財政赤字在力度上仍有空間，但從長遠角度看，追求財政的周期性平衡仍是目標，否則財政赤字持續累積，將加重財政負擔、加劇通脹風險等一系列問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm)
-
----
-
-# 鷹君去年虧損17.3億元　末期息維持50港仙
-
-![鷹君派末期息每股50港仙，全年派息87港仙，兩者按年持平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794033_1_20250303203054.jpg&q=75)
-  
-
-鷹君去年業績由盈轉虧，虧損17.3億元，前年盈利7.6億元；按法定會計準則計，收入升2%至108.8億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm)
 
 ---

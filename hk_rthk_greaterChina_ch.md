@@ -1,3 +1,26 @@
+# 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
+
+  
+
+在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm)
+
+---
+
 # 全國兩會｜回應美國加關稅　謝鋒：關稅戰貿易戰損人害己
 
 ![謝鋒說關稅戰也好，貿易戰也好，從歷史上來看都是從損人開始，最後以害己告終。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794170_1_20250304165406.jpg&q=85)
@@ -144,7 +167,7 @@
 
 # 全國兩會｜楊利偉：港澳載荷專家進行基礎訓練　理論體力表現很好
 
-![楊利偉表示，港澳載荷專家正進行基礎訓練。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794157_1_20250304165614.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794157_1_20250304165614.jpg&q=80)
   
 
 全國政協委員、中國載人航天工程副總設計師楊利偉表示，港澳載荷專家目前正進行基礎訓練，包括理論、體力和專業知識等方面，表現很好，體現載荷專家的特色，根據需求再考慮開展招募工作。
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793786-20250301.htm)
-
----
-
-# 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
-
-![劉佩瓊說修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793778_1_20250301123915.jpg&q=55)
-  
-
-全國人大會議下周三開幕，議程包括審議有關人大代表法的修正草案，新增規定人大代表參加各項履職活動，出席會議前應聽取群眾意見和建議；同時提出為人大代表提供便利，加強履職。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm)
 
 ---
