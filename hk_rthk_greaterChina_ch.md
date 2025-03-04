@@ -1,3 +1,50 @@
+# 國台辦批評民進黨當局禁台灣高校與大陸院校交流合作
+
+![陳斌華表示，大陸願意為廣大台灣學子分享大陸高水平教育提供便利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794223_1_20250304205245.jpg&q=90)
+  
+
+在北京，國台辦發言人陳斌華說，民進黨當局禁止台灣高校與北京航空航天大學等7所高水平院校交流合作，損害的是台灣高校利益，暴露的是井底之蛙、夜郎自大的可笑。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm)
+
+---
+
+# 全國兩會｜甄子丹稱電影行業需重新評估市場及題材
+
+  
+
+本港接連有戲院結業，全國政協委員、影星甄子丹在北京表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
+
+---
+
 # 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
-
----
-
-# 全國兩會｜劉結一稱香港融入國家發展大局持續走深走實
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793996_1_20250303171439.jpg&q=90)
-  
-
-全國政協新聞發言人劉結一表示，香港融入國家發展大局持續走深走實，粵港澳大灣區高質量發展不斷豐富一國兩制的生動實踐，港珠澳大橋客流車流再創新高，深中通道、黃茅海跨海通道建成通車，大灣區城市群「硬聯通」進一步完善，「軟聯通」持續提升，一系列便民利企措施相繼落地，人員、貨物、資金、數據流動更高效便捷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm)
-
----
-
-# 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
-
-![劉結一表示，發展新質生產力是推進高質量發展的內在要求和重要著力點。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793994_1_20250303174928.jpg&q=90)
-  
-
-全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
 
 ---

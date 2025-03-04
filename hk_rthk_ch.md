@@ -1,3 +1,50 @@
+# 國台辦批評民進黨當局禁台灣高校與大陸院校交流合作
+
+![陳斌華表示，大陸願意為廣大台灣學子分享大陸高水平教育提供便利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794223_1_20250304205245.jpg&q=90)
+  
+
+在北京，國台辦發言人陳斌華說，民進黨當局禁止台灣高校與北京航空航天大學等7所高水平院校交流合作，損害的是台灣高校利益，暴露的是井底之蛙、夜郎自大的可笑。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm)
+
+---
+
+# 全國兩會｜甄子丹稱電影行業需重新評估市場及題材
+
+  
+
+本港接連有戲院結業，全國政協委員、影星甄子丹在北京表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
+
+---
+
 # 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
 
   
@@ -791,7 +838,7 @@
 
 ---
 
-# 旅發局在維港舉行無人機和煙火表演改為「精準發放」　以節省開支
+# 財政預算案2025｜旅發局「精準發放」無人機及煙火表演省開支
 
 ![旅發局舉行的無人機和煙火表演會改為「精準發放」，在特定節慶日子才舉行。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794188_1_20250304172931.jpg&q=40)
   
