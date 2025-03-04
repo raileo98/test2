@@ -340,6 +340,7 @@ async def process_article(fg, category, article):
 
         # 同時利用 markdownify 將 HTML 轉 Markdown，並回傳文章資料（方便後續 .md 寫檔）
         md_content = md(feedDescription.strip()).strip()
+        print( f'md_content: { md_content }' )
         
         return {
             "title": articleTitle,
@@ -602,8 +603,12 @@ async def process_category(category, url):
         md_lines.append("\n" + article['markdown'] + "\n")
         md_lines.append(f"原文連結：[{article['url']}]({article['url']})\n")
         md_lines.append("---\n")
+
+        print( f"article['markdown']: { article['markdown'] }" )
     
     md_str = "\n".join(md_lines)
+    
+    print( f'md_str: { md_str }' )
     
     async with aiofiles.open(md_filename, 'w', encoding='utf-8') as file:
         await file.write(md_str)
