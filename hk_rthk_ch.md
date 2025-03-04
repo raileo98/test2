@@ -1,3 +1,27 @@
+# 澤連斯基：上周與特朗普衝突令人遺憾
+
+![澤連斯基說，事情發展成這樣令人遺憾，現在是糾正事情的時候。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794242_1_20250305005153.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，他上周與美國總統特朗普的衝突「令人遺憾」，他已準備好在美國總統領導下展開工作，以實現持久和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm)
+
+---
+
 # 美國國務院把也門胡塞武裝列為「外國恐怖組織」
 
 ![美方指胡塞武裝的活動威脅中東地區美國平民和人員的安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794241_1_20250305002935.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm)
-
----
-
-# 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=80)
-  
-
-高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm)
 
 ---

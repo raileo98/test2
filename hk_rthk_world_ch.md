@@ -1,3 +1,27 @@
+# 澤連斯基：上周與特朗普衝突令人遺憾
+
+![澤連斯基說，事情發展成這樣令人遺憾，現在是糾正事情的時候。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794242_1_20250305005153.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，他上周與美國總統特朗普的衝突「令人遺憾」，他已準備好在美國總統領導下展開工作，以實現持久和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm)
+
+---
+
 # 美國國務院把也門胡塞武裝列為「外國恐怖組織」
 
 ![美方指胡塞武裝的活動威脅中東地區美國平民和人員的安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794241_1_20250305002935.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793944-20250303.htm)
-
----
-
-# 謝鋒：中美長期和平共存既是責任也是必須
-
-![謝鋒在「杜克-北卡中國領導力峰會」發表視像致辭。（中國駐美大使館）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793939_1_20250303093114.jpg&q=90)
-  
-
-中國駐美國大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm)
 
 ---
