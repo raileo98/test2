@@ -1,3 +1,26 @@
+# 置富推遲紅磡置富都會翻新　視乎紅磡南發展作資產增值修訂
+
+  
+
+置富產業信託去年可供分派收入7.2億元，按年跌約11%。末期每基金單位分派17.36仙，全年每基金單位分派35.59港仙，下跌約12%，分派收益率8.9%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm)
+
+---
+
 # 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm)
-
----
-
-# 日股初段跌逾1%
-
-![日經平均指數較早時報37306點，跌478點，跌幅1.27%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794088_1_20250304081130.jpg&q=25)
-  
-
-日本股市在開市初段跌逾1%，日經平均指數較早時報37306點，跌478點，跌幅1.27%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm)
 
 ---

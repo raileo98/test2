@@ -1,3 +1,50 @@
+# 新光戲院凌晨拉閘結業　劇迷不捨
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794194_1_20250304182353.jpg&q=65)
+  
+
+屹立北角逾半世紀的新光戲院，凌晨正式拉閘結業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm)
+
+---
+
+# 置富推遲紅磡置富都會翻新　視乎紅磡南發展作資產增值修訂
+
+  
+
+置富產業信託去年可供分派收入7.2億元，按年跌約11%。末期每基金單位分派17.36仙，全年每基金單位分派35.59港仙，下跌約12%，分派收益率8.9%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm)
+
+---
+
 # 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
 
   
@@ -70,7 +117,7 @@
 
 # 全國兩會｜彭耀佳稱旅發局善用資源做到最好
 
-![彭耀佳表示，旅發局與所有政府資助機構一樣，要「勒緊肚皮」，善用資源。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794197_1_20250304180818.jpg&q=80)
+![彭耀佳表示，旅發局與所有政府資助機構一樣，要「勒緊肚皮」，善用資源，做到最好。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794197_1_20250304182236.jpg&q=80)
   
 
 全國政協委員、即將卸任旅發局主席的彭耀佳表示，滿意自己的成績，但應由香港市民及政府對他評價，希望大家認為是合格。擔任六年旅發局主席的彭耀佳表示，多年來最難忘是疫情時零遊客，業界「冇飯食」，因此要推出措施，令業界可以生存。
@@ -334,6 +381,7 @@
 
 # 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
 
+![盧沙野說中國政府對烏克蘭危機政策清楚，形容都寫在紙上。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794186_1_20250304181409.jpg&q=75)
   
 
 在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。
