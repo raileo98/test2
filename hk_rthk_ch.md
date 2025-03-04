@@ -1,3 +1,51 @@
+# 克宮：普京沒有及與美國聯合開採稀土
+
+![佩斯科夫表示，俄美關係正常化應該包括美國解除對俄制裁。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794249_1_20250305032959.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京只是表達俄羅斯有意與美國在稀土金屬領域開展合作，並探討相關潛在機遇，並未提及聯合開採。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm)
+
+---
+
+# 澤連斯基：歐洲多國領袖表示繼續支持烏克蘭
+
+![澤連斯基發表視像講話透露，與歐洲多國領導人交談，他們都表示繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794248_1_20250305032750.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基發表視像講話透露，已與芬蘭、英國、希臘、克羅地亞領導人、北約秘書長及德國基民盟領袖交談，這些領導人都表示會堅持對烏克蘭的支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm)
+
+---
+
 # 墨西哥總統：將採取措施應對美國加徵關稅
 
 ![辛鮑姆強調，美方指責墨西哥打擊販毒不力的言論「非常無理、純屬誹謗、毫無依據」。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794247_1_20250305024652.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm)
-
----
-
-# 全國兩會｜盧沙野：中國政府對烏克蘭危機政策清楚
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794186_1_20250304181409.jpg&q=75)
-  
-
-在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm)
-
----
-
-# 在岸人民幣兌美元高收143點子　創近1星期新高
-
-![在岸人民幣收報7.2788兌1美元，升143點子，升幅0.2%，創近1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794181_1_20250304170216.jpg&q=40)
-  
-
-在岸人民幣收報7.2788兌1美元，較昨日收市價升143點子，升幅0.2%，創近1星期新高。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794181-20250304.htm)
 
 ---

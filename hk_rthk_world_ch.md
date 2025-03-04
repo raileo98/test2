@@ -1,3 +1,51 @@
+# 克宮：普京沒有及與美國聯合開採稀土
+
+![佩斯科夫表示，俄美關係正常化應該包括美國解除對俄制裁。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794249_1_20250305032959.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京只是表達俄羅斯有意與美國在稀土金屬領域開展合作，並探討相關潛在機遇，並未提及聯合開採。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm)
+
+---
+
+# 澤連斯基：歐洲多國領袖表示繼續支持烏克蘭
+
+![澤連斯基發表視像講話透露，與歐洲多國領導人交談，他們都表示繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794248_1_20250305032750.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基發表視像講話透露，已與芬蘭、英國、希臘、克羅地亞領導人、北約秘書長及德國基民盟領袖交談，這些領導人都表示會堅持對烏克蘭的支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm)
+
+---
+
 # 墨西哥總統：將採取措施應對美國加徵關稅
 
 ![辛鮑姆強調，美方指責墨西哥打擊販毒不力的言論「非常無理、純屬誹謗、毫無依據」。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794247_1_20250305024652.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
-
----
-
-# 620多名中國籍涉詐犯罪嫌疑人從緬甸妙瓦底地區被遣返
-
-![中緬泰有關部門近日在泰國曼谷，召開聯合打擊跨國電信網絡詐騙犯罪部級協調會議。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793979_1_20250303171704.jpg&q=80)
-  
-
-公安部表示，中國和緬甸、泰國有關部門近期開展一系列聯合打擊跨國電詐犯罪行動，在緬甸妙瓦底地區成功遣返620多名中國籍涉詐犯罪嫌疑人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm)
-
----
-
-# 《阿諾拉》奪奧斯卡5獎包括最佳電影、最佳導演和影后
-
-![出爐影帝艾哲倫保迪、影后米姬麥迪遜、最佳女配角素兒蘇丹娜及最佳男配角基雲高堅（左起）合照。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793976_1_20250303132443.jpg&q=85)
-  
-
-第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793976-20250303.htm)
 
 ---
