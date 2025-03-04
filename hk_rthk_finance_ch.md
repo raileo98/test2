@@ -1,3 +1,51 @@
+# 台股低收0.7%
+
+![台灣加權指數收市報22596點，跌159點，跌幅0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794149_1_20250304141130.jpg&q=85)
+  
+
+台灣股市下跌，加權指數收市報22596點，跌159點，跌幅0.7%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794149-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794149-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794149-20250304.htm)
+
+---
+
+# 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
+
+![白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794145_1_20250304140145.jpg&q=85)
+  
+
+全國人大代表、佛山市長白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中，也非常歡迎香港市民到佛山旅遊，認為沒有任何障礙，有助增加兩地人民的感情。他又說非常歡迎港企到佛山發展，會為他們創造最好的環境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm)
+
+---
+
 # 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
 
 ![婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794142_1_20250304134623.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794009-20250303.htm)
-
----
-
-# 財政預算案2025｜孫玉菡稱容許社福機構儲備暫存時間延長
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794008_1_20250303175917.jpg&q=85)
-  
-
-財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡下午與170多間社福機構代表會面，他形容會議氣氛友善，社福界一條心想辦法通過求變創新，應對資源上的優化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794008-20250303.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
-
-![陳茂波表示，香港在國家發展中的獨特價值依然是「一國兩制」優勢，同時與內地及國際社會聯繫。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794006_1_20250303175756.jpg&q=25)
-  
-
-近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
 
 ---

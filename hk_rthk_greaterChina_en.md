@@ -1,3 +1,51 @@
+# HKUST told to consider plan to build medical school
+
+![Zhang Shuyang said she was unaware of HKUST's plan to start a medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794137_1_20250304140631.jpg&q=80)
+  
+
+The president of the Peking Union Medical College Hospital on Tuesday said she hopes the Hong Kong University of Science and Technology (HKUST) will fully consider its plan to set up the SAR's third medical school.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm)
+
+---
+
+# 'Individual Visit Scheme going well in Qingdao'
+
+![Officials in Qingdao say the scheme for individual travellers was proceeding well. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794143_1_20250304140512.jpg&q=55)
+  
+
+The secretary of the Qingdao Municipal Party Committee, and also a delegate to the National People's Congress, on Tuesday said the expansion of the Individual Visit Scheme to Qingdao provided great convenience for exchanges between Qingdao and the two SARs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm)
+
+---
+
 # China to impose new tariffs on US agricultural goods
 
 ![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=80)
@@ -1392,53 +1440,5 @@ China and around 60 other countries on Tuesday signed the final statement of a F
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791290-20250212.htm)
-
----
-
-# Xpeng, Geely shares fall after BYD offers new features
-
-![BYD on Monday put on sale 21 models equipped with its "God's Eye" advanced driver-assistance system at no additional cost. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791219_1_20250211204647.jpg&q=80)
-  
-
-Shares in Chinese automakers Xpeng and Geely Auto tumbled on Tuesday on concern they will struggle to compete against BYD's move to offer free smart driving features on almost all of its models.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791219-20250212.htm)
-
----
-
-# CATL starts Hong Kong listing process
-
-![CATL, the world's largest EV battery maker, filed a 527-page document to the Hong Kong Stock Exchange with offer-related information redacted. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791220_1_20250211205530.jpg&q=80)
-  
-
-Chinese battery giant CATL started the application process on Tuesday to be listed in Hong Kong and named seven banks as overall coordinators, according to stock exchange filings.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm)
 
 ---

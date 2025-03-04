@@ -1,3 +1,51 @@
+# HKUST told to consider plan to build medical school
+
+![Zhang Shuyang said she was unaware of HKUST's plan to start a medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794137_1_20250304140631.jpg&q=80)
+  
+
+The president of the Peking Union Medical College Hospital on Tuesday said she hopes the Hong Kong University of Science and Technology (HKUST) will fully consider its plan to set up the SAR's third medical school.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm)
+
+---
+
+# 'Individual Visit Scheme going well in Qingdao'
+
+![Officials in Qingdao say the scheme for individual travellers was proceeding well. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794143_1_20250304140512.jpg&q=55)
+  
+
+The secretary of the Qingdao Municipal Party Committee, and also a delegate to the National People's Congress, on Tuesday said the expansion of the Individual Visit Scheme to Qingdao provided great convenience for exchanges between Qingdao and the two SARs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm)
+
+---
+
 # China to impose new tariffs on US agricultural goods
 
 ![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=80)
@@ -1395,53 +1443,5 @@ The latest round of talks on the second phase of the ceasefire between Israel an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm)
-
----
-
-# HK to soar to new heights with Kai Tak Sports Park: CE
-
-![The chief executive thanked all those who were involved in the planning, construction and operation of the sports park. Photo courtesy: John Lee Facebook](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_5_20250301203401.jpg&q=75)
-  
-
-The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the chief executive told the crowd during the opening ceremony on Saturday night.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm)
-
----
-
-# PKK declares ceasefire with Turkey after 40 years
-
-![Turkish president Recep Tayyip Erdogan has described PKK leader Abdullah Ocalan's appeal as an "historic opportunity." Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793814_1_20250301193855.jpg&q=90)
-  
-
-Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey following a landmark call by jailed PKK leader Abdullah Ocalan asking the group to disband.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm)
 
 ---

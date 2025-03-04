@@ -1,3 +1,73 @@
+# 台股低收0.7%
+
+![台灣加權指數收市報22596點，跌159點，跌幅0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794149_1_20250304141130.jpg&q=85)
+  
+
+台灣股市下跌，加權指數收市報22596點，跌159點，跌幅0.7%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794149-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794149-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794149-20250304.htm)
+
+---
+
+# 中方發布多項對美反制措施　下周一起對美國部分商品加徵關稅
+
+  
+
+美國將對中國產品加徵的關稅，由之前的10%提高到20%。在北京，商務部、國務院關稅稅則委員會接連發布多項對美反制措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
+
+---
+
+# 土拓署將軍澳項目承辦商副總經理貪污案　廉署加控另外兩人
+
+  
+
+廉署早前落案起訴土木工程拓展署將軍澳一個工程項目的承辦商時任副總經理，串謀使代理人接受利益罪名，控告他涉嫌與分判商協議，助分判商取得分判合約後，接受賄款200萬元，但分判商最終未能取得合約。廉署昨日加控另外兩人貪污罪名。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794151-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794151-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794151-20250304.htm)
+
+---
+
 # 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
 
   

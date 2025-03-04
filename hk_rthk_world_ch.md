@@ -1,3 +1,26 @@
+# 中方發布多項對美反制措施　下周一起對美國部分商品加徵關稅
+
+  
+
+美國將對中國產品加徵的關稅，由之前的10%提高到20%。在北京，商務部、國務院關稅稅則委員會接連發布多項對美反制措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
+
+---
+
 # 南韓多處大雪　部分客船和航班停航
 
 ![在南韓首爾，有市民在雨雪天氣下撐傘前行。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794146_1_20250304134936.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793883-20250302.htm)
-
----
-
-# 美國海軍航母訪韓　特朗普第二任期內首次
-
-![「卡爾文森」號核動力航空母艦駛入釜山港。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793878_1_20250302154526.jpg&q=90)
-  
-
-南韓海軍表示，美國核動力航空母艦「卡爾文森」號駛入釜山作戰基地，是繼去年6月「羅斯福」號核動力航母後，再有美軍航母訪韓，亦是美國總統特朗普展開第二個任期以來首次。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm)
 
 ---

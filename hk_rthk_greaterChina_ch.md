@@ -1,3 +1,26 @@
+# 中方發布多項對美反制措施　下周一起對美國部分商品加徵關稅
+
+  
+
+美國將對中國產品加徵的關稅，由之前的10%提高到20%。在北京，商務部、國務院關稅稅則委員會接連發布多項對美反制措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
+
+---
+
 # 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
 
 ![白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794145_1_20250304140145.jpg&q=85)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793727-20250228.htm)
-
----
-
-# 王毅晤紹伊古　指新時代中俄關係超越陣營對抗式陳舊思維
-
-![王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793709_1_20250228203729.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅在北京會見俄羅斯聯邦安全會議秘書紹伊古。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm)
 
 ---

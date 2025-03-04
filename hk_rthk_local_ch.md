@@ -1,3 +1,26 @@
+# 土拓署將軍澳項目承辦商副總經理貪污案　廉署加控另外兩人
+
+  
+
+廉署早前落案起訴土木工程拓展署將軍澳一個工程項目的承辦商時任副總經理，串謀使代理人接受利益罪名，控告他涉嫌與分判商協議，助分判商取得分判合約後，接受賄款200萬元，但分判商最終未能取得合約。廉署昨日加控另外兩人貪污罪名。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794151-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794151-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794151-20250304.htm)
+
+---
+
 # 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm)
-
----
-
-# 陳文宜將出任社聯行政總裁
-
-![陳文宜獲聘為下任社聯行政總裁，下月1日履新。（社聯提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793983_1_20250303152638.jpg&q=85)
-  
-
-社聯宣布聘請現任社聯業務總監陳文宜為下任社聯行政總裁，下月1日履新。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793983-20250303.htm)
 
 ---
