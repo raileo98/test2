@@ -1,3 +1,27 @@
+# China warns of countermeasures against new US tariffs
+
+![China urges the US to immediately withdraw its unilateral tariff measures, calling them "unreasonable and groundless". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794108_1_20250304100322.jpg&q=75)
+  
+
+The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tariffs set to take effect later in the day, reiterating its stance that the Trump administration was trying to "shift the blame" and "bully" Beijing over fentanyl flows.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm)
+
+---
+
 # 'No major policy shifts at Two Sessions'
 
 ![Ho Lok-sang believes pursuing high-quality growth and spurring domestic consumption are among the top priorities for mainland policymakers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793998_1_20250303165106.jpg&q=75)
@@ -1417,29 +1441,5 @@ Team China continued their dominance at the Harbin Asian Winter Games by snatchi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm)
-
----
-
-# Trump says he spoke to Xi after taking office
-
-![President Xi Jinping and then-US President Donald Trump meet in a G20 leaders' summit in Japan in 2019. Trump says they have spoken since his inauguration last month. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791136_1_20250211110930.jpg&q=85)
-  
-
-US President Donald Trump said he had spoken to his Chinese counterpart Xi Jinping since taking office on January 20, but did not offer details on the topics of their conversation.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm)
 
 ---

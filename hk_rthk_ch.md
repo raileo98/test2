@@ -1,3 +1,48 @@
+# 美國對中國產品提高關稅　丘應樺稱是否包括香港貨品仍不清晰
+
+美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm)
+
+---
+
+# 比亞迪：阿聯酋家族辦公室作為戰略投資者參與配售
+
+![比亞迪稱今次配售吸引阿聯酋Al-Futtaim家族辦公室作為戰略投資者參與。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794104_1_20250304095353.jpg&q=60)
+  
+
+比亞迪低開逾7%，較早時報337.8元，跌25.8元，跌幅7.096%。公司公布以每股335.2元配售近1.3億股H股新股，集資逾430億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm)
+
+---
+
 # 《環看天下》：施紀賢晤澤連斯基　據報私下促修補同特朗普關係
 
 ![施紀賢（右）日前在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794106_1_20250304095259.jpg&q=85)
@@ -1388,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794033-20250303.htm)
-
----
-
-# 新光戲院結業有戲迷感到非常不捨　有市民稱要接受時代變遷
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794041_1_20250303213402.jpg&q=75)
-  
-
-屹立北角超過50年的新光戲院將於今日結業。有不少市民到場拍照留念。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm)
-
----
-
-# 澤連斯基稱烏克蘭需和平而非戰爭　指歐洲所有人將形成共同立場
-
-![澤連斯基說穩固而持久的和平，以及關於結束衝突的正確協議，是歐洲共同的真正優先事項。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794040_1_20250303214159.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基在網上發布片段，表示烏克蘭需要和平，而非無休止的戰爭，強調安全保障是實現這個目標的關鍵。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm)
 
 ---

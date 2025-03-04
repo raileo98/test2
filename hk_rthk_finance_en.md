@@ -1,3 +1,27 @@
+# Hong Kong stocks open lower
+
+![President Trump's latest tariffs announcement dents sentiments across world stock markets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794105_1_20250304094634.jpg&q=40)
+  
+
+Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as investors awaited the upcoming annual parliamentary sessions to gauge Beijing's policy path.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm)
+
+---
+
 # Wall Street stocks dive on US tariff policy
 
 ![Wall Street's Volatility Index (VIX) has hit its highest level since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794094_1_20250304084859.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong's stock market ended slightly lower on Monday with the benchmark Hang 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791988-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791988-20250217.htm)
-
----
-
-# DeepSeek removed from SKorean app stores
-
-![South Korean authorities said that DeepSeek would not be available from local app stores pending a review of the Chinese AI startup's handling of user data. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791978_1_20250217161038.jpg&q=90)
-  
-
-Chinese AI app DeepSeek will not be available to download in South Korea pending a review of its handling of user data, authorities in Seoul said Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791978-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791978-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791978-20250217.htm)
 
 ---

@@ -1,3 +1,48 @@
+# 美國對中國產品提高關稅　丘應樺稱是否包括香港貨品仍不清晰
+
+美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm)
+
+---
+
+# 比亞迪：阿聯酋家族辦公室作為戰略投資者參與配售
+
+![比亞迪稱今次配售吸引阿聯酋Al-Futtaim家族辦公室作為戰略投資者參與。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794104_1_20250304095353.jpg&q=60)
+  
+
+比亞迪低開逾7%，較早時報337.8元，跌25.8元，跌幅7.096%。公司公布以每股335.2元配售近1.3億股H股新股，集資逾430億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm)
+
+---
+
 # 人行開展382億元人民幣逆回購
 
 ![人民銀行公開市場開展382億元人民幣7日期逆回購操作，單日淨回籠2803億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794102_1_20250304092909.jpg&q=25)
@@ -1389,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm)
-
----
-
-# 台股低收約1.3%
-
-![台灣加權指數收市報22756點，跌296點，跌幅1.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793980_1_20250303142606.jpg&q=85)
-  
-
-台灣股市下跌。加權指數收市報22756點，跌296點，跌幅1.29%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm)
-
----
-
-# 陳美寶：對的士車隊有期望　冀發揮「領頭羊」角色
-
-![陳美寶呼籲市民試用的士車隊，並反映意見，讓車隊精益求精。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793977_1_20250303135716.jpg&q=70)
-  
-
-政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm)
 
 ---
