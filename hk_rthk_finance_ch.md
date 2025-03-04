@@ -1,3 +1,27 @@
+# 美股初段跌約1%或以上　金融股急挫　美元指數失守106
+
+![美股初段沽壓大，3大指數跌約1%或以上，金融股跌幅較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794238_1_20250304224748.jpg&q=90)
+  
+
+美股初段沽壓大，3大指數跌約1%或以上。金融股跌幅較大，花旗跌逾6%，高盛跌逾4%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm)
+
+---
+
 # 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
 
 ![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm)
-
----
-
-# 日股半日跌約2%
-
-![日經指數半日跌688點，報37096點，跌幅1.82%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794115_1_20250304104001.jpg&q=80)
-  
-
-東京股市下挫。日經指數半日跌688點，報37096點，跌幅1.82%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794115-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794115-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794115-20250304.htm)
 
 ---

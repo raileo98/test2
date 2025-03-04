@@ -1,3 +1,27 @@
+# 美股初段跌約1%或以上　金融股急挫　美元指數失守106
+
+![美股初段沽壓大，3大指數跌約1%或以上，金融股跌幅較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794238_1_20250304224748.jpg&q=90)
+  
+
+美股初段沽壓大，3大指數跌約1%或以上。金融股跌幅較大，花旗跌逾6%，高盛跌逾4%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm)
+
+---
+
 # 日本稱無採取引導日圓貶值政策　將與美方繼續密切協商
 
 ![林芳正說，日本並無採取所謂的引導日圓貶值政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794237_1_20250304223736.jpg&q=90)

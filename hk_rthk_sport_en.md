@@ -1,3 +1,28 @@
+# Trump wins opening match at World Snooker Grand Prix
+
+![Trump beat Gary Wilson 4-2 in an all-English affair at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_1_20250304224416.jpg&q=85)
+![The Secretary for Culture, Sports and Tourism, Rosanna Law (middle) officiated at the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_2_20250304224416.jpg&q=85)
+  
+
+World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
+
+---
+
 # Trump in action as World Snooker Grand Prix begins
 
 ![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=85)
@@ -1421,29 +1446,5 @@ Hong Kong, China is one step closer to potentially securing its first medal at t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791496-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791496-20250213.htm)
-
----
-
-# HK ice hockey group files complaint over altercation
-
-![The SAR's men's team coach Carey Durant says the city will reach greater heights in international competition. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791470_2_20250213153829.jpg&q=85)
-  
-
-The Hong Kong, China Ice Hockey Association has filed a complaint to the International Ice Hockey Federation regarding the altercation involving the Turkmenistan team at the Asian Winter Games in Harbin.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791470-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791470-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791470-20250213.htm)
 
 ---
