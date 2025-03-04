@@ -1,5 +1,52 @@
-# 八達通公司稱爭取少於18個月完成二元乘車優惠計劃系統調整
+# 八達通公司爭取今年第3季可於日本使用八達通付款
 
+  
+
+八達通公司表示，希望能協助港人外遊時更方便，除了在內地部分城市及泰國相關支付點可以使用透過全國通卡或八達通app支付外， 公司爭取在今年第3季可以在日本亦能使用八達通付款，初步預料會透過八達通app支付，公司正與日本不同支付平台包括電子錢包平台等商討，會與覆蓋率較全面的平台合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm)
+
+---
+
+# 全國兩會｜楊利偉：香港載荷專家訓練情況很好　基礎不錯
+
+  
+
+中國載人航天工程副總設計師楊利偉表示，香港載荷專家的訓練情況很好，讚揚基礎不錯，體現載荷專家的特色。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm)
+
+---
+
+# 楊美珍：八達通爭取少於18個月完成二元乘車優惠計劃系統調整
+
+![八達通管理層與傳媒午宴。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794156_1_20250304150544.jpg&q=60)
   
 
 財政預算案提出調整二元乘車優惠計劃，當局早前表示，預計需時18個月調整市面17000部八達通機，預計不遲於明年9月實施。八達通董事局主席楊美珍表示，正與政府商討， 希望盡力少於18個月完成有關工作。
@@ -23,6 +70,7 @@
 
 # 土拓署將軍澳項目承辦商副總經理貪污案　廉署加控另外兩人
 
+![廉署早前接獲貪污投訴，展開調查，發現4名被告涉嫌達成貪污協議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794151_1_20250304150247.jpg&q=80)
   
 
 廉署早前落案起訴土木工程拓展署將軍澳一個工程項目的承辦商時任副總經理，串謀使代理人接受利益罪名，控告他涉嫌與分判商協議，助分判商取得分判合約後，接受賄款200萬元，但分判商最終未能取得合約。廉署昨日加控另外兩人貪污罪名。
@@ -46,9 +94,10 @@
 
 # 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
 
+![「世界格蘭披治桌球大獎賽」一連6日在啟德體育園的體藝館舉行。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794148_1_20250304150359.jpg&q=80)
   
 
-「世界格蘭披治桌球大獎賽」今日起，一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
+「世界格蘭披治桌球大獎賽」今日起一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
 
   
 
@@ -1384,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm)
-
----
-
-# 啟德體育園跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
-
-![啟德體育園表示，若調查發現有懷疑違法情況，會嚴正處理，並交警方或廉署跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793988_1_20250303154551.jpg&q=35)
-  
-
-對於有報道指啟德體育園開幕當日，懷疑有人收取每位過千元報酬，帶未有購票人士入場，並可攜帶長雨傘及專業攝影器材等違禁品入場，毋須安檢及驗票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
-
----
-
-# 去年約8萬6千人新參與大腸癌篩查計劃 　推行計劃以來最多一年
-
-![截至去年底，累計已有約51萬名合資格人士參與大腸癌篩查計劃，約3400人確診大腸癌。（網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793987_1_20250303153011.jpg&q=90)
-  
-
-衞生防護中心總監徐樂堅呼籲市民響應大腸癌關注月，透過實踐健康生活模式和定期進行篩查，預防患上大腸癌。他表示，大腸癌是本港第三常見的癌症，亦是致命癌症的第二位，在2022年，本港錄得5190宗新症，同期有2270宗因患上大腸癌而死亡的個案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm)
 
 ---

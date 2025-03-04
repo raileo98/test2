@@ -1,5 +1,115 @@
-# 八達通公司稱爭取少於18個月完成二元乘車優惠計劃系統調整
+# 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
 
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm)
+
+---
+
+# 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
+
+  
+
+全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm)
+
+---
+
+# 八達通公司爭取今年第3季可於日本使用八達通付款
+
+  
+
+八達通公司表示，希望能協助港人外遊時更方便，除了在內地部分城市及泰國相關支付點可以使用透過全國通卡或八達通app支付外， 公司爭取在今年第3季可以在日本亦能使用八達通付款，初步預料會透過八達通app支付，公司正與日本不同支付平台包括電子錢包平台等商討，會與覆蓋率較全面的平台合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm)
+
+---
+
+# 全國兩會｜全國政協會議正式開幕
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm)
+
+---
+
+# 全國兩會｜楊利偉：香港載荷專家訓練情況很好　基礎不錯
+
+  
+
+中國載人航天工程副總設計師楊利偉表示，香港載荷專家的訓練情況很好，讚揚基礎不錯，體現載荷專家的特色。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm)
+
+---
+
+# 楊美珍：八達通爭取少於18個月完成二元乘車優惠計劃系統調整
+
+![八達通管理層與傳媒午宴。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794156_1_20250304150544.jpg&q=60)
   
 
 財政預算案提出調整二元乘車優惠計劃，當局早前表示，預計需時18個月調整市面17000部八達通機，預計不遲於明年9月實施。八達通董事局主席楊美珍表示，正與政府商討， 希望盡力少於18個月完成有關工作。
@@ -97,7 +207,7 @@
 ![台灣加權指數收市報22596點，跌159點，跌幅0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794149_1_20250304141130.jpg&q=85)
   
 
-台灣股市下跌，加權指數收市報22596點，跌159點，跌幅0.7%。
+台灣股市下跌，加權指數收市報22596點，跌159點，跌幅0.7%，創逾3個月新低。
 
   
 
@@ -142,6 +252,7 @@
 
 # 土拓署將軍澳項目承辦商副總經理貪污案　廉署加控另外兩人
 
+![廉署早前接獲貪污投訴，展開調查，發現4名被告涉嫌達成貪污協議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794151_1_20250304150247.jpg&q=80)
   
 
 廉署早前落案起訴土木工程拓展署將軍澳一個工程項目的承辦商時任副總經理，串謀使代理人接受利益罪名，控告他涉嫌與分判商協議，助分判商取得分判合約後，接受賄款200萬元，但分判商最終未能取得合約。廉署昨日加控另外兩人貪污罪名。
@@ -165,9 +276,10 @@
 
 # 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
 
+![「世界格蘭披治桌球大獎賽」一連6日在啟德體育園的體藝館舉行。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794148_1_20250304150359.jpg&q=80)
   
 
-「世界格蘭披治桌球大獎賽」今日起，一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
+「世界格蘭披治桌球大獎賽」今日起一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
 
   
 
@@ -379,6 +491,7 @@
 
 # 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794134_1_20250304150747.jpg&q=90)
   
 
 在北京，全國人大會議新聞發言人婁勤儉，回應美國對中國出口產品再加徵一成關稅時表示，美方單邊加徵關稅的做法，違反世貿組織規則，干擾全球產業鏈供應鏈安全穩定，希望美方與中方相向而行，通過平等磋商找到解決問題的辦法。中方也願同世界各國加強合作，共同維護來之不易的多邊貿易體制，反對單邊主義、保護主義，攜手推動普惠包容的經濟全球化。
@@ -450,7 +563,7 @@
 
 # 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
 
-![婁勤儉說DeepSeek取得重大進展，代表一批中國公司在人工智能領域的崛起。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
   
 
 全國人大會議新聞發言人婁勤儉表示，中國政府高度重視人工智能技術的發展和風險防範，依法保護數據隱私和安全，同時反對泛化國家安全概念、反對將經貿科技問題政治化。

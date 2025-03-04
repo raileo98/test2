@@ -1,5 +1,52 @@
-# 八達通公司稱爭取少於18個月完成二元乘車優惠計劃系統調整
+# 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
 
+  
+
+全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm)
+
+---
+
+# 八達通公司爭取今年第3季可於日本使用八達通付款
+
+  
+
+八達通公司表示，希望能協助港人外遊時更方便，除了在內地部分城市及泰國相關支付點可以使用透過全國通卡或八達通app支付外， 公司爭取在今年第3季可以在日本亦能使用八達通付款，初步預料會透過八達通app支付，公司正與日本不同支付平台包括電子錢包平台等商討，會與覆蓋率較全面的平台合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm)
+
+---
+
+# 楊美珍：八達通爭取少於18個月完成二元乘車優惠計劃系統調整
+
+![八達通管理層與傳媒午宴。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794156_1_20250304150544.jpg&q=60)
   
 
 財政預算案提出調整二元乘車優惠計劃，當局早前表示，預計需時18個月調整市面17000部八達通機，預計不遲於明年9月實施。八達通董事局主席楊美珍表示，正與政府商討， 希望盡力少於18個月完成有關工作。
@@ -97,7 +144,7 @@
 ![台灣加權指數收市報22596點，跌159點，跌幅0.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794149_1_20250304141130.jpg&q=85)
   
 
-台灣股市下跌，加權指數收市報22596點，跌159點，跌幅0.7%。
+台灣股市下跌，加權指數收市報22596點，跌159點，跌幅0.7%，創逾3個月新低。
 
   
 
@@ -262,6 +309,7 @@
 
 # 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794134_1_20250304150747.jpg&q=90)
   
 
 在北京，全國人大會議新聞發言人婁勤儉，回應美國對中國出口產品再加徵一成關稅時表示，美方單邊加徵關稅的做法，違反世貿組織規則，干擾全球產業鏈供應鏈安全穩定，希望美方與中方相向而行，通過平等磋商找到解決問題的辦法。中方也願同世界各國加強合作，共同維護來之不易的多邊貿易體制，反對單邊主義、保護主義，攜手推動普惠包容的經濟全球化。
@@ -285,7 +333,7 @@
 
 # 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
 
-![婁勤儉說DeepSeek取得重大進展，代表一批中國公司在人工智能領域的崛起。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
   
 
 全國人大會議新聞發言人婁勤儉表示，中國政府高度重視人工智能技術的發展和風險防範，依法保護數據隱私和安全，同時反對泛化國家安全概念、反對將經貿科技問題政治化。
@@ -1384,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
-
----
-
-# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
-
-![劉結一表示，全國政協將持續支持大灣區建設，助力港澳在融入國家發展大局中，實現自身更好發展。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794022_1_20250303205623.jpg&q=90)
-  
-
-全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
-
----
-
-# 歐元區2月製造業收縮速度減慢
-
-![歐元區2月製造業採購經理指數終值升至47.6，收縮速度減慢，製造業正回穩。（新華社圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794015_1_20250303181550.jpg&q=90)
-  
-
-歐元區2月製造業採購經理指數（PMI）終值升至47.6，高於初值的47.3，亦高於1月的46.6，指數自2022年中持續處於50以下收縮水平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794015-20250303.htm)
 
 ---

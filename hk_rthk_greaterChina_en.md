@@ -1,3 +1,27 @@
+# Chinese private firms eye support from Two Sessions
+
+![He Xiaopeng wants his firm to take advantage of Hong Kong developing its "low altitude economy". File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794147_1_20250304150835.jpg&q=90)
+  
+
+Entrepreneurs and leaders of mainland private enterprises have expressed hope that Beijing will roll out more supportive measures to assist with the nation's industrial upgrade, while balancing the development of various industries.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm)
+
+---
+
 # China's economy solid amid challenges: NPC spokesman
 
 ![Lou Qinjian, spokesman for the third session of the 14th National People's Congress, speaks during a press conference at the Great Hall of the People in Beijing. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
@@ -1416,29 +1440,5 @@ A suspected gas explosion has hit a department store in the city of Taichung in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791453-20250213.htm)
-
----
-
-# Hong Kong, China qualified in men's curling playoffs
-
-![Hong Kong, China beat Saudi Arabia 15-1 to secure a spot in the play-offs. Photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791336_1_20250212154603.jpg&q=85)
-  
-
-Team Hong Kong, China secured a spot in the play-offs for the men's curling competition at the Harbin Asian Winter Games on Wednesday, achieving four wins out of five round-robin matches.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791336-20250212.htm)
 
 ---

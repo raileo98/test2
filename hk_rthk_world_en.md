@@ -1,3 +1,27 @@
+# Canada to retaliate against US tariffs: Trudeau
+
+![Canada says it will retaliate over US President Donald Trump's tariffs, raising concerns over job losses, economic instability, and heightened trade tensions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794162_1_20250304151503.jpg&q=90)
+  
+
+Canada will slap tariffs on US imports beginning on Tuesday in response to levies pledged by President Donald Trump, Prime Minister Justin Trudeau said on Monday, adding "there is no justification" for Washington's actions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
+
+---
+
 # US 'pauses' military aid to Ukraine
 
 ![US President Donald Trump suspended military aid to Ukraine, a White House official said, sharply escalating pressure on Kyiv to agree to peace talks with Russia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794138_1_20250304131236.jpg&q=90)
@@ -1416,29 +1440,5 @@ Germans are voting in a national election on Sunday that is expected to see Frie
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792836-20250223.htm)
-
----
-
-# Prisoner swap delayed over 'humiliating ceremonies'
-
-![Omer Wenkert, a hostage held in Gaza since October 2023, is escorted by Hamas militants as he is released as part of the ceasefire deal between Hamas and Israel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792798_1_20250223082220.jpg&q=75)
-  
-
-Israeli Prime Minister Benjamin Netanyahu said early on Sunday that freeing Palestinian prisoners under the Gaza ceasefire deal will be delayed until Hamas ends "humiliating ceremonies" it holds while handing over Israeli hostages.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792798-20250223.htm)
 
 ---

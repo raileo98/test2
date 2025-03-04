@@ -1,3 +1,89 @@
+# 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm)
+
+---
+
+# 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
+
+  
+
+全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm)
+
+---
+
+# 全國兩會｜全國政協會議正式開幕
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm)
+
+---
+
+# 全國兩會｜楊利偉：香港載荷專家訓練情況很好　基礎不錯
+
+  
+
+中國載人航天工程副總設計師楊利偉表示，香港載荷專家的訓練情況很好，讚揚基礎不錯，體現載荷專家的特色。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm)
+
+---
+
 # 全國兩會｜婁勤儉：2024年2萬億元置換債券額度全部發行完畢
 
   
@@ -166,6 +252,7 @@
 
 # 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794134_1_20250304150747.jpg&q=90)
   
 
 在北京，全國人大會議新聞發言人婁勤儉，回應美國對中國出口產品再加徵一成關稅時表示，美方單邊加徵關稅的做法，違反世貿組織規則，干擾全球產業鏈供應鏈安全穩定，希望美方與中方相向而行，通過平等磋商找到解決問題的辦法。中方也願同世界各國加強合作，共同維護來之不易的多邊貿易體制，反對單邊主義、保護主義，攜手推動普惠包容的經濟全球化。
@@ -237,7 +324,7 @@
 
 # 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
 
-![婁勤儉說DeepSeek取得重大進展，代表一批中國公司在人工智能領域的崛起。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
   
 
 全國人大會議新聞發言人婁勤儉表示，中國政府高度重視人工智能技術的發展和風險防範，依法保護數據隱私和安全，同時反對泛化國家安全概念、反對將經貿科技問題政治化。
@@ -1337,101 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793763-20250301.htm)
-
----
-
-# 美財長稱墨西哥已提議配合美國對中國加徵相同關稅
-
-![貝森特稱墨西哥已提議配合美國對中國加徵相同關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793762_1_20250301094603.jpg&q=85)
-  
-
-美國財長貝森特表示，墨西哥已提議對中國徵收與美國相同的關稅，形容做法「非常有意思」，加拿大也應該仿效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793762-20250301.htm)
-
----
-
-# 全國兩會｜有人大代表稱人大代表法修正案有助加強問責
-
-![劉佩瓊說，修例規範人大代表工作要求，禁止只「掛個名」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793760_2_20250301085619.jpg&q=55)
-  
-
-全國人大會議將於本月5日開幕，議程之一是審議《全國人大和地方各級人大代表法修正草案》，草案增加規定人大代表參加各項履職活動，明確人大代表出席會議前，應透過多種形式聽取群眾意見和建議，研讀計劃提交大會審議的議案和報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793760-20250301.htm)
-
----
-
-# 《環看天下》：DeepSeek觸發環球資金轉向
-
-![Deep Seek 核心成員均來自中國的大學，並沒有海外背景。（法新社資料圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793756_1_20250301083234.jpg&q=90)
-  
-
-中國人工智能模型DeepSeek使用較低端及較少數目晶片，但運算速度及得出的生成式文字結果，與使用大量高端晶片運算的Open AI大模型大致相同，引發全球關注。由於DeepSeek的成本相對便宜，觸發資產市場對中美相關企業重新估值，導致環球資金短時間內轉向。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793756-20250301.htm)
-
----
-
-# 公安部強烈不滿美方關稅威脅　促糾正錯誤並回到正確軌道
-
-![公安部發言人強調中國是世界上禁毒政策最嚴格、執行最徹底的國家之一。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793734_1_20250301002658.jpg&q=90)
-  
-
-在北京，公安部對美方再次以芬太尼問題為藉口，威脅對中國輸美產品再加徵10%關稅，表示強烈不滿及堅決反對。中方敦促美方糾正錯誤做法，維護中美禁毒合作來之不易的良好局面，回到造福兩國人民的正確軌道。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793734-20250301.htm)
 
 ---
