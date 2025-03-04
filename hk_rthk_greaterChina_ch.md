@@ -1,3 +1,43 @@
+# 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm)
+
+---
+
+# 一間中資企業與科威特簽總值逾5億美元基建項目合同
+
+![科威特官員曾到新城項目現場視察。（能建葛洲壩集團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794124_1_20250304120056.jpg&q=85)
+  
+
+一間中資企業與科威特簽署總值超過5億美元基建項目合同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm)
+
+---
+
 # 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
 
 行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
@@ -1377,53 +1417,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793660-20250228.htm)
-
----
-
-# 工貿署署長訪問印尼與東盟官員會面　推動香港加入RCEP
-
-![工業貿易署署長廖廣翔訪問印尼雅加達。（商經局社交網站圖片 ）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793652_1_20250228161159.jpg&q=85)
-  
-
-工業貿易署署長廖廣翔訪問印尼，與東盟官員會面，推動香港加入《區域全面經濟伙伴關係協定》(RCEP)。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793652-20250228.htm)
-
----
-
-# 全國兩會｜習近平主持中共中央政治局會議　討論政府工作報告
-
-![中共中央政治局召開會議，總書記習近平主持。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793647_1_20250228141649.jpg&q=90)
-  
-
-中共中央政治局召開會議，討論國務院擬提請第十四屆全國人民代表大會第三次會議審議的《政府工作報告》稿。總書記習近平主持會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm)
 
 ---

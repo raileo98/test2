@@ -1,3 +1,27 @@
+# 一間中資企業與科威特簽總值逾5億美元基建項目合同
+
+![科威特官員曾到新城項目現場視察。（能建葛洲壩集團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794124_1_20250304120056.jpg&q=85)
+  
+
+一間中資企業與科威特簽署總值超過5億美元基建項目合同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm)
+
+---
+
 # 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
 
 對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm)
-
----
-
-# 美軍增派近3000名士兵赴美墨邊境堵截非法移民
-
-![美國軍方將向美墨邊境增派近3000名士兵，圖為國民警衛隊士兵巡邏後返航。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793873_1_20250302141503.jpg&q=50)
-  
-
-美國軍方將向美墨邊境增派近3000名士兵，堵截非法移民，令在南部邊境的現役人員總數達到約9000 人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm)
 
 ---

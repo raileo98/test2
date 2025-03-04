@@ -1,3 +1,43 @@
+# 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm)
+
+---
+
+# 一間中資企業與科威特簽總值逾5億美元基建項目合同
+
+![科威特官員曾到新城項目現場視察。（能建葛洲壩集團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794124_1_20250304120056.jpg&q=85)
+  
+
+一間中資企業與科威特簽署總值超過5億美元基建項目合同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm)
+
+---
+
 # 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
 
 行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
@@ -1373,53 +1413,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm)
-
----
-
-# 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
-  
-
-全國政協十四屆三次會議，明日下午在北京開幕。中央港澳辦、國務院港澳辦主任夏寶龍，晚上在全國政協禮堂看望來自香港和澳門的全國政協委員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm)
-
----
-
-# 投資推廣署部分電腦系統遭入侵　署方稱不涉及個人資料外洩
-
-![投資推廣署說，根據調查，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794058_1_20250303234955.jpg&q=90)
-  
-
-投資推廣署部分電腦系統早前被惡意勒索軟件入侵，署方表示，根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況，電腦系統已於今日大致回復正常運作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm)
 
 ---
