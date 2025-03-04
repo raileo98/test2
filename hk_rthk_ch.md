@@ -1,3 +1,27 @@
+# 韓股全日跌3點
+
+![首爾綜合指數收報2528點，跌3點，跌幅0.15%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794155_1_20250304144032.jpg&q=85)
+  
+
+南韓股市微跌，首爾綜合指數收報2528點，跌3點，跌幅0.15%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794155-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794155-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794155-20250304.htm)
+
+---
+
 # 日股低收1.2%
 
 ![日經指數收報37331點，跌454點，跌幅1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794153_1_20250304143521.jpg&q=65)

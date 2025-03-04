@@ -1,3 +1,27 @@
+# 韓股全日跌3點
+
+![首爾綜合指數收報2528點，跌3點，跌幅0.15%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794155_1_20250304144032.jpg&q=85)
+  
+
+南韓股市微跌，首爾綜合指數收報2528點，跌3點，跌幅0.15%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794155-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794155-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794155-20250304.htm)
+
+---
+
 # 日股低收1.2%
 
 ![日經指數收報37331點，跌454點，跌幅1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794153_1_20250304143521.jpg&q=65)
@@ -19,6 +43,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794153-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794153-20250304.htm)
+
+---
+
+# 全國兩會｜婁勤儉：2024年2萬億元置換債券額度全部發行完畢
+
+  
+
+在北京，全國人大會議新聞發言人婁勤儉表示，去年11月，人大常委會會議批准增加6萬億元地方政府債務限額置換存量隱性債務。截至去年底，2024年的2萬億元置換債券額度已全部發行完畢，大部分地區已完成置換。今年的2萬億元置換債券發行相關工作已經啟動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm)
 
 ---
 
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
-
----
-
-# 小鵬汽車2月共交付智能電動汽車按年增長近6倍
-
-![小鵬汽車2月共交付智能電動汽車30453輛，連續4個月交付量超過3萬輛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794016_1_20250303181941.jpg&q=90)
-  
-
-小鵬汽車2月共交付智能電動汽車30453輛，按年增長5.7倍，連續4個月交付量超過3萬輛。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794016-20250303.htm)
-
----
-
-# 劉國勳倡北都採用多元模式發展　分期補地價及延長短期租約增彈性
-
-![劉國勳就北都發展提出5項倡議，提出建設1.5級園區，加快北都產業落地，並透過多元土地發展模式，配合企業實際需要，加快北都產業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794014_1_20250303183125.jpg&q=80)
-  
-
-預算案提出加快建設北部都會區，並預留土地用作發展不同產業。民建聯新界北立法會議員劉國勳建議推出「1.5級產業園」先導計劃，由政府推出已完成道路、基建及網絡建設等較成熟的土地，讓經營者建設非永久性的建構物，方便興建及遷拆，企業可以短期入駐，加快創科產業落地，同時亦為未來發展預留彈性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794014-20250303.htm)
 
 ---
