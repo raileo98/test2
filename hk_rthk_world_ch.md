@@ -1,3 +1,26 @@
+# 《環看天下》：特朗普提高對華商品關稅至20%　中方採反制措施
+
+  
+
+美國總統特朗普正式下令由當地星期二開始，對中國輸美產品加徵的關稅，由之前的10%提高至20%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm)
+
+---
+
 # 澤連斯基：願在美國總統領導下實現持久和平
 
 ![澤連斯基說，與歐洲多國領導人交談，這些領導人都表示會繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794268_1_20250305065247.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm)
-
----
-
-# 日本岩手山火持續　逾1200人被疏散至臨時安置點
-
-![山火自上月26日起焚燒，多座房屋及大片林木被焚毀。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794032_1_20250303212919.jpg&q=85)
-  
-
-日本岩手縣大船渡市的山火持續，火場面積已擴大至超過2千公頃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm)
 
 ---

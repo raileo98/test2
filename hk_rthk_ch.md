@@ -1,3 +1,26 @@
+# 《環看天下》：特朗普提高對華商品關稅至20%　中方採反制措施
+
+  
+
+美國總統特朗普正式下令由當地星期二開始，對中國輸美產品加徵的關稅，由之前的10%提高至20%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm)
+
+---
+
 # 據報高盛或在年度績效考核中裁員3%至5%
 
 ![路透引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，或涉及逾1395人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794269_1_20250305070433.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm)
-
----
-
-# 新光戲院凌晨拉閘結業　劇迷不捨
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794194_1_20250304182353.jpg&q=65)
-  
-
-屹立北角逾半世紀的新光戲院，凌晨正式拉閘結業。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm)
 
 ---
