@@ -1,3 +1,27 @@
+# CK Hutchison to sell Panama unit after Trump pressure
+
+![The sale to a Blackrock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=25)
+  
+
+Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama Canal port operator to a BlackRock Inc-backed consortium, following intense pressure from US President Donald Trump to curb China's influence in the region.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
+
+---
+
 # EU chief unveils US$840 billion 'rearm' plan
 
 ![EU chief Ursula von der Leyen has called for the Europe to 'rearm'. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794224_1_20250304205503.jpg&q=90)
@@ -1416,29 +1440,5 @@ European Commission president Ursula von der Leyen said she held talks with the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm)
-
----
-
-# In message, pope says 'confidently' continuing therapy
-
-![A general view of St Peter's Basilica as Pope Francis continues treatment in hospital in Rome. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792850_1_20250223193932.jpg&q=85)
-  
-
-Pope Francis expressed confidence in his treatment Sunday in a message published in place of his weekly Angelus prayer, as the 88-year-old spent a tenth day in hospital.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792850-20250223.htm)
 
 ---
