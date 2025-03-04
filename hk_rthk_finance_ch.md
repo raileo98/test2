@@ -1,3 +1,27 @@
+# 創科實業去年盈利升約15%　正積極部署資本配置策略
+
+![創科實業表示，正積極部署資本配置策略，具備充分條件進行投資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794214_1_20250304201330.jpg&q=85)
+  
+
+創科實業去年盈利11.2億美元，按年升約15%。派末期息每股118港仙，相當於15.19美仙，按年升逾20%；全年派息226港仙，相當於29.09美仙，按年升17%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794214-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794214-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794214-20250304.htm)
+
+---
+
 # 全國兩會｜雷軍建議明確自動駕駛汽車量產時間預期
 
 ![小米集團董事長雷軍建議，要推進自動駕駛汽車大範圍測試驗證，加快推進自動駕駛汽車全國性測試驗證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794212_1_20250304193723.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm)
-
----
-
-# 恒指競價時段跌328點
-
-![恒生指數競價時段報22678點，跌328點，跌幅1.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794101_1_20250304092456.jpg&q=20)
-  
-
-港股在競價時段下跌，恒生指數報22678點，跌328點，跌幅1.43%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm)
 
 ---

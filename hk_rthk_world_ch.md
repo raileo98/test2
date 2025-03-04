@@ -1,3 +1,100 @@
+# 商務部對原產美國進口相關光纖產品發起反規避調查
+
+![商務部對原產於美國的進口相關光纖產品發起反規避調查。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794220_1_20250304203849.jpg&q=90)
+  
+
+在北京，商務部發布公告，對原產於美國的進口相關光纖產品發起反規避調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
+
+---
+
+# 胡英明與新加坡貪污調查局局長就加強合作交流意見
+
+![胡英明（右）與新加坡貪污調查局長鄭忠輝（左）會面。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_1_20250304203608.jpg&q=80)
+![丘樹春（左一）向新加坡貪污調查局局長鄭忠輝（左二）介紹廉署法證會計組工作。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_2_20250304203608.jpg&q=60)
+  
+
+廉政專員胡英明接待新加坡貪污調查局新任局長鄭忠輝到訪廉政公署，雙方交流執法經驗，亦就加強合作交換意見。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm)
+
+---
+
+# 克宮：倘美國停止軍援烏克蘭　將是對和平的最大貢獻
+
+![佩斯科夫表示，如果美國停止向基輔提供軍事援助，將是對和平的最大貢獻。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794216_1_20250304202341.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，如果美國停止向基輔提供軍事援助，將是對和平的最大貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm)
+
+---
+
+# 外交部：中方堅決反對美方以芬太尼問題為藉口對華施壓
+
+![外交部稱，中方堅決反對美方以芬太尼問題為藉口對華施壓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794215_1_20250304201520.jpg&q=80)
+  
+
+國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書，表示中國加強國際禁毒合作，與包括美國在內的相關國家在應對芬太尼類物質問題方面，深入開展合作並取得明顯成效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
+
+---
+
 # 歐盟宣布實施8000億歐元「重新武裝歐洲」計劃
 
 ![馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794211_1_20250304192539.jpg&q=90)
@@ -1340,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793915-20250303.htm)
-
----
-
-# 歐洲領導人就烏克蘭危機達成四點共識　英揆不認為美國非可靠盟友
-
-![施紀賢說，不認為美國是不可靠的盟友，但歐洲必須在任何和平協議中承擔重任。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793914_1_20250303031753.jpg&q=90)
-  
-
-歐洲多國領導人結束在倫敦的烏克蘭危機峰會，英國首相施紀賢表示，各方達成四點共識，包括繼續向烏克蘭提供軍事援助、讓基輔參與任何和平談判、阻止俄羅斯未來再入侵烏克蘭，以及組建聯盟來保護烏克蘭並保證烏克蘭的和平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793914-20250303.htm)
-
----
-
-# 梵蒂岡：教宗方濟各周日病情穩定　毋須用呼吸機
-
-![方濟各繼續在羅馬一間醫院留醫。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793913_1_20250303023405.jpg&q=90)
-  
-
-梵蒂岡表示，教宗方濟各星期日的病情全日穩定，不再需要用呼吸機，只是要高流量氧氣，亦沒有發燒。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793913-20250303.htm)
-
----
-
-# 美方否認故意激怒澤連斯基　不清楚對方是否為和平做好準備
-
-![沃爾茲說，美方需要一位能夠與美俄打交道，並結束戰爭的領導人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793912_1_20250303012133.jpg&q=90)
-  
-
-白宮國家安全顧問沃爾茲表示，美國需要一位願意與美俄達成協議並結束戰爭的烏克蘭領導人，但不清楚烏克蘭總統澤連斯基是否已經為和平做好準備。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793912-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793912-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793912-20250303.htm)
-
----
-
-# 美商務部長稱對墨加關稅稅率仍有待特朗普決定
-
-![盧特尼克說，除非中國停止向美國販運芬太尼，否則特朗普預計上調對華關稅到兩成。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793911_1_20250303002627.jpg&q=90)
-  
-
-美國商務部長盧特尼克表示，美國將會按計劃在星期二對加拿大和墨西哥徵收關稅，但具體稅率將會由總統特朗普決定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm)
 
 ---

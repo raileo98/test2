@@ -1,8 +1,58 @@
-# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+# 胡英明與新加坡貪污調查局局長就加強合作交流意見
+
+![胡英明（右）與新加坡貪污調查局長鄭忠輝（左）會面。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_1_20250304203608.jpg&q=80)
+![丘樹春（左一）向新加坡貪污調查局局長鄭忠輝（左二）介紹廉署法證會計組工作。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_2_20250304203608.jpg&q=60)
+  
+
+廉政專員胡英明接待新加坡貪污調查局新任局長鄭忠輝到訪廉政公署，雙方交流執法經驗，亦就加強合作交換意見。
 
   
 
-中央港澳辦、國務院港澳辦主任夏寶龍在北京與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm)
+
+---
+
+# 瑪嘉烈醫院有病房爆發耳念珠菌組群涉及七名病人
+
+![院方本月1日發現一名90歲男病人帶有耳念珠菌，追蹤篩查後發現同一病房另外6名男病人亦帶有耳念珠菌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794217_1_20250304203502.jpg&q=80)
+  
+
+瑪嘉烈醫院一個內科及老人科病房爆發耳念珠菌個案組群，涉及7名病人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm)
+
+---
+
+# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+
+![馬逢國（右二）在會後表示，夏寶龍高度肯定他們過去一年的各方面工作。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
 
   
 
@@ -1391,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm)
-
----
-
-# 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
-
-![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡說，由2022年底至今年1月底，各項人才入境計劃共收到超過44萬宗申請，當中超過28萬宗獲批，高才通計劃佔三分一。他又表示，為確保只有符合要求的人才獲批，申請人須提交由指定第三方認證機構或頒授院校就學歷發出的認證文件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm)
-
----
-
-# 轉載帖文煽惑投白票　前中大學生會會長就罪行合憲性被駁回上訴
-
-![判詞指出，煽動他人不要投票明顯是不利於一場有效的選舉，更會浪費社會資源。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794047_1_20250303222205.jpg&q=80)
-  
-
-前中大學生會會長蘇浚鋒於2021年立法會換屆選舉期間，轉載前立法會議員許智峯的社交平台帖文，被廉署控告一項煽惑他人投白票罪，在原審裁判官裁定條例合憲後認罪、判監2個月，緩刑18個月。蘇浚鋒早前向高等法院以案件呈述方式針對罪行合憲性提出上訴，暫委法官姚勳智今午頒下判詞、駁回上訴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm)
 
 ---

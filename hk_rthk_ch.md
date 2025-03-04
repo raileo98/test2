@@ -1,8 +1,154 @@
-# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+# 商務部對原產美國進口相關光纖產品發起反規避調查
+
+![商務部對原產於美國的進口相關光纖產品發起反規避調查。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794220_1_20250304203849.jpg&q=90)
+  
+
+在北京，商務部發布公告，對原產於美國的進口相關光纖產品發起反規避調查。
 
   
 
-中央港澳辦、國務院港澳辦主任夏寶龍在北京與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
+
+---
+
+# 胡英明與新加坡貪污調查局局長就加強合作交流意見
+
+![胡英明（右）與新加坡貪污調查局長鄭忠輝（左）會面。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_1_20250304203608.jpg&q=80)
+![丘樹春（左一）向新加坡貪污調查局局長鄭忠輝（左二）介紹廉署法證會計組工作。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_2_20250304203608.jpg&q=60)
+  
+
+廉政專員胡英明接待新加坡貪污調查局新任局長鄭忠輝到訪廉政公署，雙方交流執法經驗，亦就加強合作交換意見。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm)
+
+---
+
+# 瑪嘉烈醫院有病房爆發耳念珠菌組群涉及七名病人
+
+![院方本月1日發現一名90歲男病人帶有耳念珠菌，追蹤篩查後發現同一病房另外6名男病人亦帶有耳念珠菌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794217_1_20250304203502.jpg&q=80)
+  
+
+瑪嘉烈醫院一個內科及老人科病房爆發耳念珠菌個案組群，涉及7名病人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm)
+
+---
+
+# 克宮：倘美國停止軍援烏克蘭　將是對和平的最大貢獻
+
+![佩斯科夫表示，如果美國停止向基輔提供軍事援助，將是對和平的最大貢獻。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794216_1_20250304202341.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，如果美國停止向基輔提供軍事援助，將是對和平的最大貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm)
+
+---
+
+# 創科實業去年盈利升約15%　正積極部署資本配置策略
+
+![創科實業表示，正積極部署資本配置策略，具備充分條件進行投資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794214_1_20250304201330.jpg&q=85)
+  
+
+創科實業去年盈利11.2億美元，按年升約15%。派末期息每股118港仙，相當於15.19美仙，按年升逾20%；全年派息226港仙，相當於29.09美仙，按年升17%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794214-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794214-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794214-20250304.htm)
+
+---
+
+# 外交部：中方堅決反對美方以芬太尼問題為藉口對華施壓
+
+![外交部稱，中方堅決反對美方以芬太尼問題為藉口對華施壓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794215_1_20250304201520.jpg&q=80)
+  
+
+國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書，表示中國加強國際禁毒合作，與包括美國在內的相關國家在應對芬太尼類物質問題方面，深入開展合作並取得明顯成效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
+
+---
+
+# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+
+![馬逢國（右二）在會後表示，夏寶龍高度肯定他們過去一年的各方面工作。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
 
   
 

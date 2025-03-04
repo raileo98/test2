@@ -1,8 +1,57 @@
-# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+# 商務部對原產美國進口相關光纖產品發起反規避調查
+
+![商務部對原產於美國的進口相關光纖產品發起反規避調查。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794220_1_20250304203849.jpg&q=90)
+  
+
+在北京，商務部發布公告，對原產於美國的進口相關光纖產品發起反規避調查。
 
   
 
-中央港澳辦、國務院港澳辦主任夏寶龍在北京與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
+
+---
+
+# 外交部：中方堅決反對美方以芬太尼問題為藉口對華施壓
+
+![外交部稱，中方堅決反對美方以芬太尼問題為藉口對華施壓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794215_1_20250304201520.jpg&q=80)
+  
+
+國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書，表示中國加強國際禁毒合作，與包括美國在內的相關國家在應對芬太尼類物質問題方面，深入開展合作並取得明顯成效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
+
+---
+
+# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+
+![馬逢國（右二）在會後表示，夏寶龍高度肯定他們過去一年的各方面工作。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
 
   
 
@@ -1388,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793992-20250303.htm)
-
----
-
-# 全國政協會議明日下午開幕　會期6天　下周一上午閉幕
-
-![劉結一表示，今年是十四五規劃收官之年，全國政協將積極建言資政。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793984_1_20250303160554.jpg&q=90)
-  
-
-全國政協十四屆三次會議明日下午3時在北京人民大會堂開幕，會期6天，下周一上午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793984-20250303.htm)
-
----
-
-# 620多名中國籍涉詐犯罪嫌疑人從緬甸妙瓦底地區被遣返
-
-![中緬泰有關部門近日在泰國曼谷，召開聯合打擊跨國電信網絡詐騙犯罪部級協調會議。（央視微博）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793979_1_20250303171704.jpg&q=80)
-  
-
-公安部表示，中國和緬甸、泰國有關部門近期開展一系列聯合打擊跨國電詐犯罪行動，在緬甸妙瓦底地區成功遣返620多名中國籍涉詐犯罪嫌疑人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm)
 
 ---
