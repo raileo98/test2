@@ -1,3 +1,23 @@
+# 全國兩會｜回應美國加關稅　謝鋒：關稅戰貿易戰損人害己
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm)
+
+---
+
 # 全國兩會｜王滬寧稱今年要為實現「十五五」良好開局打牢基礎
 
   
@@ -1409,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793778-20250301.htm)
-
----
-
-# 習近平主持中央政治局集體學習　強調建設更高水平平安中國
-
-![習近平主持中央政治局第十九次集體學習。（資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793768_1_20250301110503.jpg&q=90)
-  
-
-中共總書記習近平主持中央政治局第十九次集體學習。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793768-20250301.htm)
 
 ---
