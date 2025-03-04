@@ -1,3 +1,26 @@
+# 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
+
+  
+
+在北京，身兼港大校委會主席的全國政協委員王冬勝說，1月上任後召開了一次會議，過程順暢，各人有很多討論，認為校委會與校長張翔有良好溝通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm)
+
+---
+
 # 胡英明與新加坡貪污調查局局長就加強合作交流意見
 
 ![胡英明（右）與新加坡貪污調查局長鄭忠輝（左）會面。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_1_20250304203608.jpg&q=80)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm)
-
----
-
-# 拍攝東區裁判法院走廊並上載「小紅書」男子認罪判罰4000元
-
-![被告於警誡下承認因出於好奇而拍攝法院大樓內的情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794049_1_20250303223348.jpg&q=80)
-  
-
-一名男子在去年拍攝東區裁判法院的走廊，並將拍攝影像上傳到「小紅書」。涉案30歲男子在東區裁判法院承認「在法庭內攝影等」等兩項傳票控罪，被判4000元罰款。暫委裁判官朱仲強質疑被告早前缺席提訊，被告解釋指因身體抱恙及高鐵班次延誤而未能準時抵達法庭。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm)
 
 ---

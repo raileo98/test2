@@ -1,3 +1,26 @@
+# 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
+
+  
+
+在北京，身兼港大校委會主席的全國政協委員王冬勝說，1月上任後召開了一次會議，過程順暢，各人有很多討論，認為校委會與校長張翔有良好溝通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm)
+
+---
+
 # 創科實業去年盈利升約15%　正積極部署資本配置策略
 
 ![創科實業表示，正積極部署資本配置策略，具備充分條件進行投資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794214_1_20250304201330.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm)
-
----
-
-# 內地股市初段下跌
-
-![上證綜合指數較早時報3306點，跌10點，跌幅0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794103_1_20250304093530.jpg&q=80)
-  
-
-滬深股市在開市初段下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm)
 
 ---
