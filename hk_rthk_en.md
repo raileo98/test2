@@ -1,3 +1,27 @@
+# 'No major policy shifts at Two Sessions'
+
+![Ho Lok-sang believes pursuing high-quality growth and spurring domestic consumption are among the top priorities for mainland policymakers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793998_1_20250303165106.jpg&q=75)
+  
+
+A local economics academic said he does not expect major policy shifts in the "Two Sessions" meetings in Beijing, saying it's important for the central government to focus on stabilising sentiment and continuing with high-quality growth.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
+
+---
+
 # Forest sink Ipswich on pens to reach FA Cup quarters
 
 ![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=90)
@@ -1420,29 +1444,5 @@ China's manufacturing activity grew in February after a dip the previous month, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
-
----
-
-# Card readers will be updated to allow for HK$2 tweaks
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793766_1_20250301104120.jpg&q=80)
-  
-
-Users will be able to check the remaining number of discounted trips using an Octopus card reader when changes to the HK$2 elderly transport subsidy take effect, the labour and welfare chief Chris Sun said on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm)
 
 ---

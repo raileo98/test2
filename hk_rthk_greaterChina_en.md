@@ -1,3 +1,27 @@
+# 'No major policy shifts at Two Sessions'
+
+![Ho Lok-sang believes pursuing high-quality growth and spurring domestic consumption are among the top priorities for mainland policymakers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793998_1_20250303165106.jpg&q=75)
+  
+
+A local economics academic said he does not expect major policy shifts in the "Two Sessions" meetings in Beijing, saying it's important for the central government to focus on stabilising sentiment and continuing with high-quality growth.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
+
+---
+
 # 'City should unite in supporting HK govt'
 
 ![Junius Ho, left, says Xia Baolong and CPPCC delegates discuss the global political and economic situation, while Ho Hon-kuen, right, quoted Xia as saying Hong Kong should work together as a whole. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794055_1_20250303231507.jpg&q=90)
@@ -1417,29 +1441,5 @@ US President Donald Trump said he had spoken to his Chinese counterpart Xi Jinpi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791136-20250211.htm)
-
----
-
-# Wang Yi to attend UN event, G20 meeting
-
-![The foreign minister is set to attend the Munich Security Conference, a high-level UN Security Council event and a G20 meeting this month. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791061_1_20250210192024.jpg&q=90)
-  
-
-Foreign Minister Wang Yi will visit Europe and the United Nations before attending a Group of 20 meeting in South Africa later this month.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm](https://news.rthk.hk/rthk/en/component/k2/1791061-20250210.htm)
 
 ---
