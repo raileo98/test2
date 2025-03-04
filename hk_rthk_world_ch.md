@@ -1,3 +1,27 @@
+# 澤連斯基：願在美國總統領導下實現持久和平
+
+![澤連斯基說，與歐洲多國領導人交談，這些領導人都表示會繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794268_1_20250305065247.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，他上星期與美國總統特朗普的爭吵「令人遺憾」，他與團隊已準備好在美國總統的強力領導下展開工作，以實現持久和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm)
+
+---
+
 # 杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施
 
 ![杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794267_1_20250305064537.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm)
-
----
-
-# 阿諾拉成奧斯卡大贏家米姬麥迪遜封后　艾哲倫保迪再做影帝
-
-![米姬麥迪遜憑電影《阿諾拉》在奧斯卡封后。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794017_1_20250303182841.jpg&q=90)
-  
-
-第97屆奧斯卡頒獎典禮，講述紐約一名性工作者遭遇的電影《阿諾拉》，橫掃5個奬項成為大贏家，包括最佳電影。憑這部戲封后的米姬麥迪遜在台上向性工作者群體致謝，承諾繼續做大家的伙伴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm)
 
 ---

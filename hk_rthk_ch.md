@@ -1,3 +1,27 @@
+# 澤連斯基：願在美國總統領導下實現持久和平
+
+![澤連斯基說，與歐洲多國領導人交談，這些領導人都表示會繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794268_1_20250305065247.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，他上星期與美國總統特朗普的爭吵「令人遺憾」，他與團隊已準備好在美國總統的強力領導下展開工作，以實現持久和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm)
+
+---
+
 # 杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施
 
 ![杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794267_1_20250305064537.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
-
----
-
-# 全國兩會｜李家超寄語兩會代表及委員多提建議及提案
-
-![李家超傍晚抵達北京。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794199_1_20250304181050.jpg&q=85)
-  
-
-行政長官李家超抵達北京，將列席明早在人民大會堂舉行的全國人大會議開幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm)
 
 ---
