@@ -1,3 +1,24 @@
+# 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+
+行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm)
+
+---
+
 # 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
 
 對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793967-20250303.htm)
-
----
-
-# 天文台特別天氣提示：今晚午夜天氣不穩　明天大雨及局部雷暴
-
-![天文台預料今晚接近午夜珠江口一帶天氣會轉為不穩定，明日本港將出現今年首場較明顯的降雨，局部地區有雷暴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793966_1_20250303123459.jpg&q=90)
-  
-
-天文台表示，位於華中的冷鋒正逐漸向南移動，此外與高空擾動相關的驟雨及強雷暴正影響廣東內陸。預料今晚接近午夜珠江口一帶天氣會轉為不穩定，明日本港將出現今年首場較明顯的降雨，局部地區有雷暴，提醒市民明早上班上學前請留意最新天氣報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm)
 
 ---

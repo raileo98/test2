@@ -1,3 +1,24 @@
+# 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+
+行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm)
+
+---
+
 # 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
 
 ---
@@ -1400,29 +1421,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm)
-
----
-
-# 涉社交平台發布煽動訊息　巴士電器技工還押案件五月再訊
-
-![總裁判官蘇惠德將案件押後至5月8日，待辯方閱讀文件及索取指示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794057_1_20250303232502.jpg&q=65)
-  
-
-一名巴士電器技工涉嫌在10個月內，透過社交平台發布具煽動意圖的訊息，被控明知而發布具煽動意圖的刊物罪。案件在西九龍裁判法院再訊，總裁判官蘇惠德將案件押後至5月8日，待辯方閱讀文件及索取指示，期間被告還押候訊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm)
 
 ---

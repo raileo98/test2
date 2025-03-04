@@ -1,3 +1,24 @@
+# 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+
+行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm)
+
+---
+
 # 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
 
 ---
@@ -1404,29 +1425,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793647-20250228.htm)
-
----
-
-# 曾拐賣17名兒童　余華英被執行死刑
-
-![曾拐賣17名兒童　余華英被執行死刑](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793645_1_20250228135631.jpg&q=90)
-  
-
-內地多名兒童被拐賣案，貴州省貴陽市中級人民法院經最高人民法院核准，依照法定程序，今日對案中主犯余華英執行死刑，檢察機關依法派員臨場監督。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm)
 
 ---
