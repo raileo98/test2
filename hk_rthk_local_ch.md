@@ -1,5 +1,53 @@
+# 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
+
+  
+
+「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm)
+
+---
+
+# 全國兩會｜甄子丹稱本港電影業需重新評估市場及題材
+
+![甄子丹表示，電影行業有需要重新評估市場上的需求，以及如何融入內地市場。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794222_1_20250304211120.jpg&q=80)
+  
+
+本港接連有戲院倒閉，在北京出席兩會的全國政協委員甄子丹回應時表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
+
+---
+
 # 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
 
+![王冬勝說，上任後召開了一次會議，過程順暢，各人有很多討論。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794221_1_20250304211152.jpg&q=80)
   
 
 在北京，身兼港大校委會主席的全國政協委員王冬勝說，1月上任後召開了一次會議，過程順暢，各人有很多討論，認為校委會與校長張翔有良好溝通。
@@ -72,7 +120,7 @@
 
 # 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
 
-![馬逢國（右二）在會後表示，夏寶龍高度肯定他們過去一年的各方面工作。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
   
 
 中央港澳辦、國務院港澳辦主任夏寶龍與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm)
-
----
-
-# 譚得志與支聯會有關人士罪成案件上訴至終院　周四宣判
-
-![兩宗案件均由相同的5名本地法官審理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794052_1_20250303230419.jpg&q=85)
-  
-
-人民力量前副主席譚得志「快必」於2020年多次在街站叫喊「光時」等口號，經審訊後被裁定7項發表煽動文字等共11罪成，判監40個月及罰款5000元。另外，已解散的支聯會前副主席鄒幸彤與兩名前常委鄧岳君、徐漢光，2021年沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成，判囚4個半月。譚得志與支聯會案人士上訴至終審庭，兩宗案件將於星期四，一同宣判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm)
-
----
-
-# 國安條例生效而被拒提早獲釋　法庭判馬俊文需支付一半訟費
-
-![法官有見本案為首宗《維護國家安全條例》司法覆核，酌情下令馬俊文支付署方司法覆核一半訟費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794050_1_20250303224415.jpg&q=85)
-  
-
-被稱為「第二代美國隊長」的馬俊文，早前被裁定煽動分裂國家罪成，判囚5年，因為行為良好原獲准於去年3月提早獲釋，但獲釋前兩天《維護國家安全條例》刊憲生效轉而被拒。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm)
 
 ---

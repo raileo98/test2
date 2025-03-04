@@ -1,3 +1,26 @@
+# 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
+
+  
+
+「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm)
+
+---
+
 # 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
 
 ![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
@@ -1417,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm)
-
----
-
-# 為配合深港馬拉松暫停運作的深圳灣口岸上午11時恢復
-
-![有市民表示，知道封路及暫停運作安排，認為宣傳足夠。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792818_2_20250223140341.jpg&q=75)
-![有市民認為，如果當局能早點提供恢復服務後的頭班車出發時間會更好。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792818_3_20250223140341.jpg&q=75)
-  
-
-為配合深港馬拉松賽事，深圳灣口岸由凌晨2時起暫停運作9小時，上午11時恢復。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792818-20250223.htm)
 
 ---

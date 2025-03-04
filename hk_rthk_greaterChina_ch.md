@@ -1,6 +1,6 @@
-# 中國暫停進口美國原木
+# 中國暫停進口美國原木及美國3家企業大豆輸華資質
 
-![海關總署即日起暫停美國原木進口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794225_1_20250304210049.jpg&q=20)
+![海關總署暫停進口美國原木及美國3家企業大豆輸華資質。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794225_1_20250304210049.jpg&q=20)
   
 
 海關總署發布公告說，中國海關近期在進口的美國原木中檢出小蠹、天牛等檢疫性林木害蟲。為防止有害生物傳入，保護國家農林業生產和生態安全，根據《中華人民共和國生物安全法》、《中華人民共和國進出境動植物檢疫法》及其實施條例、國際植物檢疫措施標準等相關規定，海關總署決定即日起暫停美國原木進口。
@@ -46,8 +46,33 @@
 
 ---
 
+# 全國兩會｜甄子丹稱本港電影業需重新評估市場及題材
+
+![甄子丹表示，電影行業有需要重新評估市場上的需求，以及如何融入內地市場。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794222_1_20250304211120.jpg&q=80)
+  
+
+本港接連有戲院倒閉，在北京出席兩會的全國政協委員甄子丹回應時表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
+
+---
+
 # 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
 
+![王冬勝說，上任後召開了一次會議，過程順暢，各人有很多討論。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794221_1_20250304211152.jpg&q=80)
   
 
 在北京，身兼港大校委會主席的全國政協委員王冬勝說，1月上任後召開了一次會議，過程順暢，各人有很多討論，認為校委會與校長張翔有良好溝通。
@@ -119,7 +144,7 @@
 
 # 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
 
-![馬逢國（右二）在會後表示，夏寶龍高度肯定他們過去一年的各方面工作。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
   
 
 中央港澳辦、國務院港澳辦主任夏寶龍與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
@@ -1412,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm)
-
----
-
-# 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
-
-![林劍形容「吹熄別人的燈不能讓自己更光明」。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794000_1_20250303172048.jpg&q=90)
-  
-
-在北京，外交部重申貿易戰、關稅戰無贏家。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
 
 ---

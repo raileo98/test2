@@ -1,5 +1,53 @@
+# 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
+
+  
+
+「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm)
+
+---
+
+# 全國兩會｜甄子丹稱本港電影業需重新評估市場及題材
+
+![甄子丹表示，電影行業有需要重新評估市場上的需求，以及如何融入內地市場。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794222_1_20250304211120.jpg&q=80)
+  
+
+本港接連有戲院倒閉，在北京出席兩會的全國政協委員甄子丹回應時表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
+
+---
+
 # 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
 
+![王冬勝說，上任後召開了一次會議，過程順暢，各人有很多討論。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794221_1_20250304211152.jpg&q=80)
   
 
 在北京，身兼港大校委會主席的全國政協委員王冬勝說，1月上任後召開了一次會議，過程順暢，各人有很多討論，認為校委會與校長張翔有良好溝通。
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm)
-
----
-
-# 比亞迪：阿聯酋家族辦公室作為戰略投資者參與配售
-
-![比亞迪稱今次配售吸引阿聯酋Al-Futtaim家族辦公室作為戰略投資者參與。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794104_1_20250304095353.jpg&q=60)
-  
-
-比亞迪低開逾7%，較早時報337.8元，跌25.8元，跌幅7.096%。公司公布以每股335.2元配售近1.3億股H股新股，集資逾430億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794104-20250304.htm)
-
----
-
-# 人行開展382億元人民幣逆回購
-
-![人民銀行公開市場開展382億元人民幣7日期逆回購操作，單日淨回籠2803億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794102_1_20250304092909.jpg&q=25)
-  
-
-人民銀行公開市場開展382億元人民幣7日期逆回購操作，利率維持於1.5厘。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm)
 
 ---
