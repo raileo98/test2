@@ -1,3 +1,51 @@
+# 威廉姆斯：關稅帶來通脹風險　利率政策仍處於良好位置
+
+![紐約聯儲銀行總裁威廉姆斯預計，特朗普政府的關稅政策將在一定程度上推高美國通脹，仍存有很多不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794274_1_20250305073549.jpg&q=75)
+  
+
+紐約聯儲銀行總裁威廉姆斯預計，美國總統特朗普政府的關稅政策，將在一定程度上推高美國通脹，又認為目前聯儲局的利率政策處於良好位置，不需要調整。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm)
+
+---
+
+# 南韓上季GDP經修訂後按季增長0.1%　與初值相同
+
+![南韓去年第4季國內生產總值(GDP)經修訂後，按季增長0.1%，與初值一致。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794272_1_20250305072444.jpg&q=75)
+  
+
+南韓央行公布，南韓去年第4季國內生產總值(GDP)經修訂後，按季增長0.1%，與初值一致。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm)
+
+---
+
 # 據報高盛或在年度績效考核中裁員3%至5%
 
 ![路透引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，或涉及逾1395人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794269_1_20250305070433.jpg&q=90)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm)
-
----
-
-# 恒指下午初段跌幅收窄
-
-![恒生指數較早時報22931點，跌75點，跌幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794136_1_20250304130638.jpg&q=30)
-  
-
-港股下午開市初段跌幅收窄，恒生指數較早時報22931點，跌75點，跌幅0.33%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm)
-
----
-
-# 分析料車企或跟隨比亞迪集資　因研發及競爭令資金壓力大
-
-![信誠證券聯席董事張智威表示，比亞迪作為龍頭企業亦要配股集資，不排除其他車股會跟隨配股或發債等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794135_1_20250304125804.jpg&q=85)
-  
-
-比亞迪股份半日收報339.6元，跌幅近7%。公司公布以每股335.2元配售近1.3億股H股新股，集資逾430億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm)
 
 ---

@@ -1,5 +1,30 @@
+# 南韓上季GDP經修訂後按季增長0.1%　與初值相同
+
+![南韓去年第4季國內生產總值(GDP)經修訂後，按季增長0.1%，與初值一致。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794272_1_20250305072444.jpg&q=75)
+  
+
+南韓央行公布，南韓去年第4季國內生產總值(GDP)經修訂後，按季增長0.1%，與初值一致。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm)
+
+---
+
 # 《環看天下》：特朗普提高對華商品關稅至20%　中方採反制措施
 
+![美國國內有專家質疑特朗普指關稅措施能惠及國民的說法。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794273_1_20250305073756.jpg&q=85)
   
 
 美國總統特朗普正式下令由當地星期二開始，對中國輸美產品加徵的關稅，由之前的10%提高至20%。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm)
-
----
-
-# 全國兩會｜政協會議開幕　王滬寧稱認真研究改進去年工作不足之處
-
-![王滬寧發表工作報告。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794203_1_20250304190227.jpg&q=80)
-  
-
-為期6日的全國政協會議下午在北京開幕，全國政協主席王滬寧發表工作報告，國家主席習近平等多名黨和國家領導人出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm)
 
 ---
