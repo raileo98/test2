@@ -1,3 +1,28 @@
+# Real Madrid, Arsenal win big in Champions League
+
+![Real Madrid's Rodrygo celebrates scoring the opening goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_1_20250305071751.jpg&q=90)
+![Arsena's 7-1 win over PSV was their biggest victory away from home in any Champions League match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_2_20250305071751.jpg&q=90)
+  
+
+Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-1 Champions League last 16 first-leg win.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm)
+
+---
+
 # Mavs' Irving ruled out for NBA season with ACL injury
 
 ![Irving was helped off the court in the Mavericks' game against the Sacramento Kings. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794261_1_20250305054216.jpg&q=75)
@@ -1422,29 +1447,5 @@ Jose Mourinho's Fenerbahce won 3-0 at home to Anderlecht in the first leg of the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791564-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791564-20250214.htm)
-
----
-
-# SAR men's curling team to fight for bronze in Harbin
-
-![The Hong Kong, China men's curling team still have a chance of winning the city's first Asian Winter Games medal. Photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791534_1_20250213215111.jpg&q=85)
-  
-
-Hope remains for the Hong Kong, China men's curling team, which is aiming to win the city's first ever medal at the Asian Winter Games, even after losing to South Korea in the semifinals on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791534-20250213.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791534-20250213.htm](https://news.rthk.hk/rthk/en/component/k2/1791534-20250213.htm)
 
 ---

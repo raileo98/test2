@@ -1,3 +1,51 @@
+# 據報高盛或在年度績效考核中裁員3%至5%
+
+![路透引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，或涉及逾1395人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794269_1_20250305070433.jpg&q=90)
+  
+
+外電引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，按照去年底全球員工總數4.65萬人計算，裁員或涉及逾1395人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm)
+
+---
+
+# 歐聯16強首回合阿仙奴及阿士東維拉分別奏凱
+
+![阿仙奴擊敗對手，賽後球員表現興奮。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794270_1_20250305072122.jpg&q=80)
+  
+
+阿仙奴及阿士東維拉，分別在歐聯16強首回合戰，擊敗對手。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm)
+
+---
+
 # 澤連斯基：願在美國總統領導下實現持久和平
 
 ![澤連斯基說，與歐洲多國領導人交談，這些領導人都表示會繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794268_1_20250305065247.jpg&q=90)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm)
-
----
-
-# 置富推遲紅磡置富都會翻新　視乎紅磡南發展作資產增值修訂
-
-![趙宇相信，盛事經濟、一簽多行、擴大自由行等措施將有利零售業發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794202_1_20250304190003.jpg&q=90)
-  
-
-置富產業信託去年可供分派收入7.2億元，按年跌約11%。末期每基金單位分派17.36仙，全年每基金單位分派35.59港仙，下跌約12%，分派收益率8.9%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm)
-
----
-
-# 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
-
-![盧寵茂與廣州市人民政府副市長賴志鴻及其率領的代表團舉行會議，討論深化港穗醫療合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794200_1_20250304190155.jpg&q=75)
-  
-
-醫務衞生局局長盧寵茂說，正積極推進將長者醫療券大灣區試點計劃，擴展至大灣區九個內地城市，並爭取在今年上半年內公布有關詳情，亦會充分利用醫健通平台，擴大跨境醫療紀錄互通。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 據報高盛或在年度績效考核中裁員3%至5%
+
+![路透引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，或涉及逾1395人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794269_1_20250305070433.jpg&q=90)
+  
+
+外電引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，按照去年底全球員工總數4.65萬人計算，裁員或涉及逾1395人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm)
+
+---
+
 # 港股美國預託證券與本港收市比較個別發展
 
 ![滙控ADR較本港收市升逾2%，友邦升近1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794265_1_20250305062430.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm)
-
----
-
-# 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794134_1_20250304150747.jpg&q=90)
-  
-
-在北京，全國人大會議新聞發言人婁勤儉，回應美國對中國出口產品再加徵一成關稅時表示，美方單邊加徵關稅的做法，違反世貿組織規則，干擾全球產業鏈供應鏈安全穩定，希望美方與中方相向而行，通過平等磋商找到解決問題的辦法。中方也願同世界各國加強合作，共同維護來之不易的多邊貿易體制，反對單邊主義、保護主義，攜手推動普惠包容的經濟全球化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 歐聯16強首回合阿仙奴及阿士東維拉分別奏凱
+
+![阿仙奴擊敗對手，賽後球員表現興奮。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794270_1_20250305072122.jpg&q=80)
+  
+
+阿仙奴及阿士東維拉，分別在歐聯16強首回合戰，擊敗對手。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm)
+
+---
+
 # 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
 
 ![羅淑佩出席開幕禮並致辭。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_1_20250304221216.jpg&q=80)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm)
-
----
-
-# 尹焯熙稱跑深圳灣大橋具紀念價值　司徒兆殷稱深圳路段需特別專心
-
-![司徒兆殷（左）說，香港賽段沿途有很多市民打氣支持，表現較好；尹焯熙（右）指，深圳灣大橋風勢大，初段不少上落斜，感覺刺激。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792828_1_20250223140417.jpg&q=75)
-  
-
-深港馬拉松賽暨全運會測試賽早上舉行，全國多個省市的跑手，途經深圳灣口岸進入香港賽道，途經港深西部公路、元朗和前海等，起步後兩個多小時陸續返回終點深圳灣體育中心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792828-20250223.htm)
 
 ---

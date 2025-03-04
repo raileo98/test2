@@ -1,3 +1,28 @@
+# Real Madrid, Arsenal win big in Champions League
+
+![Real Madrid's Rodrygo celebrates scoring the opening goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_1_20250305071751.jpg&q=90)
+![Arsena's 7-1 win over PSV was their biggest victory away from home in any Champions League match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_2_20250305071751.jpg&q=90)
+  
+
+Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-1 Champions League last 16 first-leg win.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm)
+
+---
+
 # Zelensky says he will work with Trump
 
 ![In his first public comments since Trump halted US military aid to Ukraine, Zelensky said his public bust-up with Trump last week was "regrettable". Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794263_1_20250305061826.jpg&q=90)
@@ -1418,29 +1443,5 @@ Manchester United's dismal season hit a new low as the FA Cup holders crashed ou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
-
----
-
-# Gaza health ministry says 4 killed in Israel attacks
-
-![Relatives mourn two Palestinians killed in a reported Israeli strike in the northern Gaza Strip, as a truce hangs in the balance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793904_1_20250302212847.jpg&q=85)
-  
-
-The ministry of health in Hamas-run Gaza said four people were killed and six others wounded in Israeli attacks on Sunday after the first phase of a fragile truce in the territory drew to a close.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm)
 
 ---
