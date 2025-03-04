@@ -1,3 +1,51 @@
+# 國際油價下跌　受增產及貿易戰拖累
+
+![倫敦布蘭特期油和紐約期油均一度跌至多月低位，最終分別低收0.8%及近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794255_1_20250305051758.jpg&q=90)
+  
+
+國際期油價格跌至多月低位，石油輸出國組織及其盟友(OPEC+)決定按計劃在4月增產，而美國對加拿大、墨西哥及中國如期加徵關稅，引發部分國家採取反制措施，抑制經濟活動和能源需求，對油價構成壓力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm)
+
+---
+
+# 歐股收市下跌　特朗普兌現關稅威脅
+
+![德國DAX指數收市報22326點，跌820點，跌幅3.5%，從周一創下的歷史高位回落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794252_1_20250305050821.jpg&q=90)
+  
+
+歐洲主要股市收市下跌，英國和德國股市從周一創下的歷史高位跌逾1%至逾3%。美國開始對加拿大、墨西哥及中國進口商品加徵關稅，市場憂慮歐盟將成為下一個目標，汽車股首當其衝。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm)
+
+---
+
 # 全國兩會 | 全國人大會議上午開幕
 
 ![十四屆全國人大三次會議今天上午開幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794256_1_20250305051913.jpg&q=90)
@@ -214,7 +262,7 @@
 
 ---
 
-# 澤連斯基：上周在白宮會面不似預期令人遺憾
+# 澤連斯基：上周在白宮發生一切令人遺憾
 
 ![澤連斯基說，事情發展成這樣令人遺憾，現在是糾正事情的時候。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794242_1_20250305005153.jpg&q=90)
   
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm)
-
----
-
-# 港交所與迅清結算簽署合作備忘錄　優化交易後證券基礎設施
-
-![港交所與迅清結算簽署合作備忘錄，共同探索優化交易後證券基礎設施的舉措。（港交所/金管局圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794176_1_20250304165340.jpg&q=85)
-  
-
-港交所與外匯基金全資附屬公司迅清結算簽署合作備忘錄，共同探索優化本港資本市場交易後證券基礎設施的措施，支持香港固定收益及貨幣產品生態圈長期發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm)
-
----
-
-# 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
-
-![特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794189_1_20250304180706.jpg&q=80)
-  
-
-特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
 
 ---

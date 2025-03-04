@@ -1,3 +1,27 @@
+# Beijing files complaint with WTO over Trump tariffs
+
+![The move comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
+  
+
+Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm)
+
+---
+
 # CK Hutchison to sell Panama unit after Trump pressure
 
 ![The sale to a Blackrock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=25)
@@ -1418,29 +1442,5 @@ Britain and France will work with Ukraine on a plan to end the fighting with Rus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm)
-
----
-
-# Private US spaceship lands on Moon
-
-![A US company successfully landed its spacecraft on the Moon on Sunday, marking only the second private mission to achieve the milestone. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793887_1_20250302174506.jpg&q=80)
-  
-
-Firefly Aerospace became the second US company to land on the moon on Sunday with its debut Blue Ghost lander, kicking off a two-week research mission as one of a handful of private firms to reach the frontlines of a global moon race.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm)
 
 ---

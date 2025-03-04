@@ -1,3 +1,51 @@
+# 國際油價下跌　受增產及貿易戰拖累
+
+![倫敦布蘭特期油和紐約期油均一度跌至多月低位，最終分別低收0.8%及近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794255_1_20250305051758.jpg&q=90)
+  
+
+國際期油價格跌至多月低位，石油輸出國組織及其盟友(OPEC+)決定按計劃在4月增產，而美國對加拿大、墨西哥及中國如期加徵關稅，引發部分國家採取反制措施，抑制經濟活動和能源需求，對油價構成壓力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm)
+
+---
+
+# 歐股收市下跌　特朗普兌現關稅威脅
+
+![德國DAX指數收市報22326點，跌820點，跌幅3.5%，從周一創下的歷史高位回落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794252_1_20250305050821.jpg&q=90)
+  
+
+歐洲主要股市收市下跌，英國和德國股市從周一創下的歷史高位跌逾1%至逾3%。美國開始對加拿大、墨西哥及中國進口商品加徵關稅，市場憂慮歐盟將成為下一個目標，汽車股首當其衝。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm)
+
+---
+
 # 長和向貝萊德財團出售巴拿馬港口9成權益、和記港口非中國資產
 
 ![長和發公告指，向貝萊德等公司合組的財團，出售巴拿馬港口9成權益，以及和記港口8成實際權益，但不包括位於中國的港口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794239_1_20250304232315.jpg&q=90)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm)
-
----
-
-# 青島市委書記曾贊榮：自由行實施近一年　情況非常好
-
-![曾贊榮表示，青島與港澳有很多來往，包括科技創新、金融和航運。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794121_1_20250304120217.jpg&q=80)
-  
-
-青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
-
----
-
-# 加拿大擬周二起對美商品徵收25%報復性關稅
-
-![杜魯道說，關稅措施將一直維持到美國撤銷行動為止。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794114_1_20250304111218.jpg&q=80)
-  
-
-加拿大總理杜魯多表示，如果美國的關稅措施生效，加拿大將從星期二開始，對價值300億加元的美國進口產品徵收25%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm)
 
 ---

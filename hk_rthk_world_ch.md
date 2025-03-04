@@ -166,7 +166,7 @@
 
 ---
 
-# 澤連斯基：上周在白宮會面不似預期令人遺憾
+# 澤連斯基：上周在白宮發生一切令人遺憾
 
 ![澤連斯基說，事情發展成這樣令人遺憾，現在是糾正事情的時候。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794242_1_20250305005153.jpg&q=90)
   
