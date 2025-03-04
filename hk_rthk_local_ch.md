@@ -1,3 +1,26 @@
+# 已登記會員周四起可預訂啟德體育園部分體育設施
+
+  
+
+啟德體育園網站顯示，園內部分體育設施陸續開放，星期三早上10時起，公眾可查看11日內的設施租用情況。已登記會員可於星期四上午7時起，預訂未來10日內可供租用的體育運動設施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm)
+
+---
+
 # 縱容囚犯管有手提電話及帶香煙　兩名懲教助理及一囚犯還押候判
 
 ![法官指，32歲囚犯實屬主腦，服刑時犯案理應加刑，案件押後至下月8日判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794236_1_20250304222237.jpg&q=80)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm)
-
----
-
-# 金發局洪丕正：開拓東盟中東等新興市場　加強與傳統歐美市場聯繫
-
-![洪丕正列出金發局未來三大工作重點，包括檢視和改善香港金融市場競爭力、推廣香港及培訓人才。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794091_1_20250304084609.jpg&q=80)
-  
-
-渣打國際業務行政總裁洪丕正年初獲委任為金融發展局主席。他受傳媒訪問時表示，即使全球經濟波動性和不確定性較大，但同時存在增長機遇，香港作為全球主要國際金融中心之一，連接內地市場及國際投資者的角色獨特。他列出金發局未來三大工作重點，包括定期檢視和改善香港金融市場的國際地位和競爭力、向國際推廣香港，以及培訓和引入業界人才。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm)
 
 ---

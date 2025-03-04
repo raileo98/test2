@@ -1,3 +1,26 @@
+# 已登記會員周四起可預訂啟德體育園部分體育設施
+
+  
+
+啟德體育園網站顯示，園內部分體育設施陸續開放，星期三早上10時起，公眾可查看11日內的設施租用情況。已登記會員可於星期四上午7時起，預訂未來10日內可供租用的體育運動設施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm)
+
+---
+
 # 長和向貝萊德財團出售巴拿馬港口9成權益、和記港口非中國資產
 
 ![長和發公告指，向貝萊德等公司合組的財團，出售巴拿馬港口9成權益，以及和記港口8成實際權益，但不包括位於中國的港口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794239_1_20250304232315.jpg&q=90)
