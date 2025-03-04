@@ -1,3 +1,27 @@
+# Zelensky says he will work with Trump
+
+![In his first public comments since Trump halted US military aid to Ukraine, Zelensky said his public bust-up with Trump last week was "regrettable". Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794263_1_20250305061826.jpg&q=90)
+  
+
+President Volodymyr Zelensky on Tuesday said he wanted to "make things right" with Donald Trump and work under the US president's "strong leadership" to secure a lasting peace in Ukraine.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
+
+---
+
 # CK Hutchison to sell Panama unit after Trump pressure
 
 ![The sale to a Blackrock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=25)
@@ -1416,29 +1440,5 @@ Germany's conservatives swept to victory in Sunday's elections, with their leade
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm)
-
----
-
-# Macron, Starmer pledge 'unflinching' Ukraine support
-
-![French President Emmanuel Macron (right) and British Prime Minister Keir Starmer are both due in Washington this week for talks with US President Donald Trump. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792855_1_20250223221557.jpg&q=90)
-  
-
-European Commission president Ursula von der Leyen said she held talks with the British and French leaders this weekend and all had pledged "unflinching" support for Ukraine ahead of the third anniversary of its war with Russia.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792855-20250223.htm)
 
 ---

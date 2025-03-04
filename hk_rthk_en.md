@@ -1,3 +1,27 @@
+# Zelensky says he will work with Trump
+
+![In his first public comments since Trump halted US military aid to Ukraine, Zelensky said his public bust-up with Trump last week was "regrettable". Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794263_1_20250305061826.jpg&q=90)
+  
+
+President Volodymyr Zelensky on Tuesday said he wanted to "make things right" with Donald Trump and work under the US president's "strong leadership" to secure a lasting peace in Ukraine.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
+
+---
+
 # Mavs' Irving ruled out for NBA season with ACL injury
 
 ![Irving was helped off the court in the Mavericks' game against the Sacramento Kings. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794261_1_20250305054216.jpg&q=75)
@@ -1055,30 +1079,6 @@ The annual session of China's top political advisory body will run from Tuesday 
 
 ---
 
-# Govt operating account largely balanced: FS
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
-  
-
-Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
-
----
-
 # ICAC sees three percent rise in graft allegations
 
 ![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
@@ -1100,6 +1100,30 @@ The ICAC on Monday said it received 2,058 reports of corruption last year, up th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
+
+---
+
+# Govt operating account largely balanced: FS
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+  
+
+Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
 
 ---
 
@@ -1418,29 +1442,5 @@ The ministry of health in Hamas-run Gaza said four people were killed and six ot
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm)
-
----
-
-# Ailing Pope hails faithful's 'support' and 'affection'
-
-![Tourists and pilgrims visit St Peter's Square in the Vatican as Pope Francis is still hospitalised with pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793898_1_20250302202730.jpg&q=80)
-  
-
-Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sunday thanked believers around the world for their "support" and "affection" as he missed delivering a third straight Angelus prayer in person.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm)
 
 ---
