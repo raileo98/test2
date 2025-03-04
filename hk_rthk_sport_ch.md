@@ -1,3 +1,26 @@
+# 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
+
+  
+
+「世界格蘭披治桌球大獎賽」今日起，一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm)
+
+---
+
 # 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
 
 ![羅淑佩有信心香港的啟德體育園會很受歡迎。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794118_1_20250304113156.jpg&q=75)
@@ -1418,32 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm)
-
----
-
-# 深港馬拉松女子組首批跑手於起步後約8分鐘跑進香港境內
-
-![現場有全運會義工手持國旗和區旗，以及打氣板，叫著「運動員加油」的口號，為運動員打氣。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792799_3_20250223093234.jpg&q=35)
-![女子組在早上7時正於深圳灣體育中心起步，大約8分鐘後首批跑手跑入香港境內。(鄧均尤攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792799_1_20250223083642.jpg&q=65)
-![現場有拉帶和雪糕筒劃出指定比賽路線。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792799_4_20250223140133.jpg&q=75)
-![港隊代表譚嘉敏和黃美欣參與測試賽女子組賽事。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792799_5_20250223142227.jpg&q=25)
-  
-
-深港馬拉松賽暨第十五屆全國運動會馬拉松測試賽，在深圳及香港舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm)
 
 ---

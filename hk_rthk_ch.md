@@ -1,3 +1,26 @@
+# 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
+
+  
+
+「世界格蘭披治桌球大獎賽」今日起，一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm)
+
+---
+
 # 南韓多處大雪　部分客船和航班停航
 
 ![在南韓首爾，有市民在雨雪天氣下撐傘前行。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794146_1_20250304134936.jpg&q=85)
@@ -24,6 +47,7 @@
 
 # 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
 
+![白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794145_1_20250304140145.jpg&q=85)
   
 
 全國人大代表、佛山市長白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中，也非常歡迎香港市民到佛山旅遊，認為沒有任何障礙，有助增加兩地人民的感情。他又說非常歡迎港企到佛山發展，會為他們創造最好的環境。
