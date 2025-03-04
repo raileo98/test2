@@ -1,3 +1,27 @@
+# 杜魯多宣布對美國進口產品徵收25%報復性關稅
+
+![杜魯多形容，特朗普的關稅措施是非常愚蠢的做法。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794245_1_20250305015455.jpg&q=90)
+  
+
+加拿大總理杜魯多宣布，對從美國進口的產品徵收25%的報復性關稅。他認為，美國總統特朗普徵收關稅的目的是令加拿大經濟 「崩潰」，從而使美國 「更容易 」吞併加拿大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm)
+
+---
+
 # 美國暫停軍事援助　烏總理：絕對冷靜地與美方合作
 
 ![什梅加爾強調，沒有烏方參與，就不可能在烏克蘭實現和平。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794244_1_20250305013625.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm)
-
----
-
-# 艾哲倫保迪憑《粗獷派建築師》勇奪奧斯卡影帝
-
-![艾哲倫保迪憑《粗獷派建築師》勇奪奧斯卡影帝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793959_1_20250303112525.jpg&q=90)
-  
-
-第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793959-20250303.htm)
 
 ---

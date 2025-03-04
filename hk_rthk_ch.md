@@ -1,3 +1,27 @@
+# 杜魯多宣布對美國進口產品徵收25%報復性關稅
+
+![杜魯多形容，特朗普的關稅措施是非常愚蠢的做法。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794245_1_20250305015455.jpg&q=90)
+  
+
+加拿大總理杜魯多宣布，對從美國進口的產品徵收25%的報復性關稅。他認為，美國總統特朗普徵收關稅的目的是令加拿大經濟 「崩潰」，從而使美國 「更容易 」吞併加拿大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm)
+
+---
+
 # 美國暫停軍事援助　烏總理：絕對冷靜地與美方合作
 
 ![什梅加爾強調，沒有烏方參與，就不可能在烏克蘭實現和平。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794244_1_20250305013625.jpg&q=90)
@@ -1417,30 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm)
-
----
-
-# 去年訪港旅客人均消費按年跌兩成　內地客近年新低跌至5000元
-
-![旅發局會繼續推廣「旅遊+」以及「盛事+」，希望令旅客感到「一場來到」都願意多消費。 （新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_1_20250304170903.jpg&q=35)
-![本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_2_20250304171004.jpg&q=90)
-  
-
-旅遊發展局數據顯示，本港去年整體旅客人均消費為5500元，較2023年的6900元下跌兩成。 仍是本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低；非內地旅客消費表現較佳，人均消費6600元，當中長途市場旅客人均消費7500元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm)
 
 ---
