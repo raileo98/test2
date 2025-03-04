@@ -1,3 +1,27 @@
+# 日本稱無採取引導日圓貶值政策　將與美方繼續密切協商
+
+![林芳正說，日本並無採取所謂的引導日圓貶值政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794237_1_20250304223736.jpg&q=90)
+  
+
+日本政府否認美國總統特朗普有關引導日圓貶值的指控，內閣官房長官林芳正說，日本並無採取所謂的引導日圓貶值政策，將與美國財政部長貝森特繼續保持密切協商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm)
+
+---
+
 # 縱容囚犯管有手提電話及帶香煙　兩名懲教助理及一囚犯還押候判
 
 ![法官指，32歲囚犯實屬主腦，服刑時犯案理應加刑，案件押後至下月8日判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794236_1_20250304222237.jpg&q=80)

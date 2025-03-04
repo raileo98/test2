@@ -1,3 +1,27 @@
+# 日本稱無採取引導日圓貶值政策　將與美方繼續密切協商
+
+![林芳正說，日本並無採取所謂的引導日圓貶值政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794237_1_20250304223736.jpg&q=90)
+  
+
+日本政府否認美國總統特朗普有關引導日圓貶值的指控，內閣官房長官林芳正說，日本並無採取所謂的引導日圓貶值政策，將與美國財政部長貝森特繼續保持密切協商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm)
+
+---
+
 # 烏國總理：仍有能力向前線部隊補給　會竭盡全力維持與美國關係
 
 ![什梅加爾表示，基輔將竭盡全力維持與華盛頓的關係。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794231_1_20250304214849.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm)
-
----
-
-# 施紀賢：實現和平須獲美國支持　馬克龍倡烏克蘭空海停火一個月
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793924_1_20250303064922.jpg&q=75)
-  
-
-歐洲多國領導人在倫敦就烏克蘭危機召開峰會，英國首相施紀賢在會後說，各方達成四點共識，包括繼續軍援烏克蘭、讓基輔參與和平談判、阻止俄羅斯未來再入侵烏克蘭，以及組建聯盟來保證烏克蘭的和平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm)
 
 ---
