@@ -1,3 +1,19 @@
+# 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm)
+
+---
+
 # 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
 
 對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
@@ -20,6 +36,9 @@
 ---
 
 # 羅淑佩：啟德體育園開幕禮有人不合規將觀眾帶入場　已聯絡警方
+
+![羅淑佩說初步調查發現上星期六啟德體育園開幕禮，有人不合規將一些沒有門票的觀眾帶入場看表演。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794125_1_20250304123719.jpg&q=40)
+  
 
 文化體育及旅遊局局長羅淑佩表示，初步調查發現上星期六啟德體育園開幕禮，有人不合規將一些沒有門票的觀眾，帶入場看表演，當局已經聯絡警方，亦會堵塞漏洞。
 
@@ -1405,30 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm)
-
----
-
-# 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
-
-![夏寶龍希望港澳委員認真履職盡責、積極參政議政。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_1_20250303233503.jpg&q=90)
-![夏寶龍晚上到全國政協禮堂，看望來京出席會議的港澳地區全國政協委員。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_2_20250303233503.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍晚上到全國政協禮堂，看望來京出席全國政協十四屆三次會議的香港、澳門地區全國政協委員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm)
 
 ---

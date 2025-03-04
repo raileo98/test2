@@ -1,3 +1,19 @@
+# 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm)
+
+---
+
 # 全國兩會｜全國人大會議明早開幕　下周二下午閉幕
 
 ![婁勤儉表示，今屆全國人大會議將有三次全體會議，並有7項大會議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794126_1_20250304122207.jpg&q=90)
@@ -1412,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793645-20250228.htm)
-
----
-
-# 俄媒稱紹伊古抵京　將與習近平及王毅會晤
-
-![俄羅斯傳媒報道，紹伊古抵達北京訪問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793644_1_20250228134637.jpg&q=90)
-  
-
-俄羅斯傳媒報道，俄羅斯聯邦安全會議秘書紹伊古抵達北京，將與中國國家主席習近平和外長王毅會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793644-20250228.htm)
 
 ---

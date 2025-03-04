@@ -1,3 +1,27 @@
+# Facial recognition mulled after alleged Kai Tak breach
+
+![Rosanna Law says police are looking into an alleged lapse in security at Kai Tak Sports Park on Saturday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794130_1_20250304121509.jpg&q=75)
+  
+
+Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without tickets, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
+
+---
+
 # Security tightened in Beijing ahead of Two Sessions
 
 ![Authorities step up patrols and ID checks in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793999_1_20250303164358.jpg&q=35)
@@ -1420,29 +1444,5 @@ At least four people died from their injuries in India after an avalanche hit a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm)
-
----
-
-# Taxi fleets to be unveiled on Monday: transport chief
-
-![Five taxi fleets will hit the streets next Monday, with a range of electric vehicles on offer. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793790_1_20250301155137.jpg&q=85)
-  
-
-Five taxi companies which were awarded licences to operate taxi fleets will roll out the long-awaited service next week, according to the secretary for transport and logistics.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm)
 
 ---

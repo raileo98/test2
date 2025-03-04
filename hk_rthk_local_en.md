@@ -1,3 +1,27 @@
+# Facial recognition mulled after alleged Kai Tak breach
+
+![Rosanna Law says police are looking into an alleged lapse in security at Kai Tak Sports Park on Saturday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794130_1_20250304121509.jpg&q=75)
+  
+
+Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without tickets, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
+
+---
+
 # 'No major policy shifts at Two Sessions expected'
 
 ![Ho Lok-sang believes pursuing high-quality growth and spurring domestic consumption are among the top priorities for mainland policymakers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793998_1_20250303165106.jpg&q=75)
@@ -1414,29 +1438,5 @@ The government will not sell any commercial sites in the coming year due to a sl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793257-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793257-20250226.htm)
-
----
-
-# FS confirms new limits on HK$2 trips
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793245_1_20250226124825.jpg&q=75)
-  
-
-Financial Secretary Paul Chan on Wednesday confirmed that changes are planned to the city's subsidised public transport fares for the over 60s, dubbing the new arrangement "HK$2 flat rate cum 80 percent discount".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793245-20250226.htm)
 
 ---
