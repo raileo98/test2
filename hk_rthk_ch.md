@@ -1,3 +1,27 @@
+# 分析料車企或跟隨比亞迪集資　因研發及競爭令資金壓力大
+
+![信誠證券聯席董事張智威表示，比亞迪作為龍頭企業亦要配股集資，不排除其他車股會跟隨配股或發債等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794135_1_20250304125804.jpg&q=85)
+  
+
+比亞迪股份半日收報339.6元，跌幅近7%。公司公布以每股335.2元配售近1.3億股H股新股，集資逾430億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm)
+
+---
+
 # 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
 
 ---

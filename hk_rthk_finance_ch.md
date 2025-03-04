@@ -1,3 +1,27 @@
+# 分析料車企或跟隨比亞迪集資　因研發及競爭令資金壓力大
+
+![信誠證券聯席董事張智威表示，比亞迪作為龍頭企業亦要配股集資，不排除其他車股會跟隨配股或發債等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794135_1_20250304125804.jpg&q=85)
+  
+
+比亞迪股份半日收報339.6元，跌幅近7%。公司公布以每股335.2元配售近1.3億股H股新股，集資逾430億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794135-20250304.htm)
+
+---
+
 # 恒指半日跌105點　比亞迪股份跌近7%
 
 ![恒指中午收市報22901點，跌105點，跌幅約0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794129_1_20250304121204.jpg&q=1)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
-
----
-
-# 香港9月再辦「香港綠色周」　金管局與國際金融公司合辦旗艦活動
-
-![本屆綠色周將於9月8日至12日舉辦，金管局除了與國際金融公司合辦旗艦活動，亦將統籌其他活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793989_1_20250303153716.jpg&q=80)
-  
-
-香港將於9月8日至12日舉辦第二屆「香港綠色周」，主題是「共鑄可持續未來」，活動將廣泛涵蓋可持續發展相關議題，為不同地區及領域的持份者提供對話與合作平台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm)
 
 ---
