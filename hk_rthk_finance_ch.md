@@ -22,6 +22,27 @@
 
 ---
 
+# 青島市委書記曾贊榮：自由行實施近一年　情況非常好
+
+青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
+
+---
+
 # 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
 
 ![羅淑佩說初步發現有人不合規地將一些沒有門票的觀眾帶入場。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm)
-
----
-
-# 日股高收1.7%
-
-![日經指數收報37785點，升629點，升幅1.7%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793982_1_20250303143952.jpg&q=80)
-  
-
-日股顯著造好，日經指數收報37785點，升629點，升幅1.7%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793982-20250303.htm)
 
 ---

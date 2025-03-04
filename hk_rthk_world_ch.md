@@ -1,4 +1,28 @@
-# 美國據報暫停對烏軍援　直至烏方表現和平誠意
+# 金與正譴責美航母訪南韓釜山　強調北韓考慮採行動增強威脅
+
+![美國海軍核動力航空母艦「卡爾文森」號日前抵達南韓釜山訪問。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794122_1_20250304115552.jpg&q=90)
+  
+
+美國海軍核動力航空母艦「卡爾文森」號訪問南韓港口釜山。北韓領袖金正恩胞妹、勞動黨中央委員會副部長金與正譴責美方無視北韓的安全關切，習慣性地作出挑釁行為，強調北韓將慎重考慮採取行動，增強戰略性威脅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm)
+
+---
+
+# 美國據報暫停對烏克蘭軍援　直至烏方表現和平誠意
 
 ![特朗普上周與澤連斯基激烈爭吵後，據報決定暫停美國對烏克蘭的軍事援助。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794119_1_20250304114441.jpg&q=90)
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm)
-
----
-
-# 特朗普簽署行政命令指定英語為官方語言
-
-![在美國有警告牌同時使用英語和西班牙語。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793865_1_20250302113623.jpg&q=35)
-  
-
-美國總統特朗普簽署行政命令，指定英語為美國官方語言，稱可以增強國家凝聚力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793865-20250302.htm)
 
 ---

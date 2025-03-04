@@ -1,4 +1,28 @@
-# 美國據報暫停對烏軍援　直至烏方表現和平誠意
+# 金與正譴責美航母訪南韓釜山　強調北韓考慮採行動增強威脅
+
+![美國海軍核動力航空母艦「卡爾文森」號日前抵達南韓釜山訪問。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794122_1_20250304115552.jpg&q=90)
+  
+
+美國海軍核動力航空母艦「卡爾文森」號訪問南韓港口釜山。北韓領袖金正恩胞妹、勞動黨中央委員會副部長金與正譴責美方無視北韓的安全關切，習慣性地作出挑釁行為，強調北韓將慎重考慮採取行動，增強戰略性威脅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm)
+
+---
+
+# 美國據報暫停對烏克蘭軍援　直至烏方表現和平誠意
 
 ![特朗普上周與澤連斯基激烈爭吵後，據報決定暫停美國對烏克蘭的軍事援助。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794119_1_20250304114441.jpg&q=90)
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794050-20250303.htm)
-
----
-
-# 拍攝東區裁判法院走廊並上載「小紅書」男子認罪判罰4000元
-
-![被告於警誡下承認因出於好奇而拍攝法院大樓內的情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794049_1_20250303223348.jpg&q=80)
-  
-
-一名男子在去年拍攝東區裁判法院的走廊，並將拍攝影像上傳到「小紅書」。涉案30歲男子在東區裁判法院承認「在法庭內攝影等」等兩項傳票控罪，被判4000元罰款。暫委裁判官朱仲強質疑被告早前缺席提訊，被告解釋指因身體抱恙及高鐵班次延誤而未能準時抵達法庭。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794049-20250303.htm)
 
 ---
