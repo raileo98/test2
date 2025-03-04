@@ -1,3 +1,26 @@
+# 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
+
+  
+
+高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm)
+
+---
+
 # 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
 
 ![「世界格蘭披治桌球大獎賽」一連6日在啟德體育園的體藝館舉行。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794148_1_20250304150359.jpg&q=80)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792817-20250223.htm)
-
----
-
-# 香港馬王「浪漫勇士」出戰沙特盃奪亞軍　獲獎金350萬美元
-
-![「青春永駐」跑至最後數步趕過「浪漫勇士」率先衝線。（香港賽馬會網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792805_1_20250223112636.jpg&q=85)
-  
-
-香港馬王「浪漫勇士」在沙特阿拉伯出戰一級賽沙特盃，以些微之差不敵日本代表「青春永駐」，取得亞軍，獲350萬美元獎金，出賽以來累積獎金增至逾2億700萬港元，續居全球之冠。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792805-20250223.htm)
 
 ---

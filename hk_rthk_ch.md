@@ -1,3 +1,74 @@
+# 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
+
+  
+
+高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm)
+
+---
+
+# 新地旗下機場空運中心大樓續租15年　將投入至少4億元升級
+
+![郭炳聯稱要讓本港空運中心運作能與時並進，打造成為世界上最有效率空運中心。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_1_20250304164738.jpg&q=15)
+![林天福表示，現時全球經濟面對很多不明朗因素，香港更要保持競爭力（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_2_20250304164738.jpg&q=20)
+  
+
+新地與機管局達成協議，新地旗下機場空運中心大樓將續租15年，直至2043年，新地將投入至少4億元升級優化大樓設施，讓企業客戶可按需要調配倉庫佈局，亦會引入智能數碼化系統等。新地預計，全新空運中心明年初起分階段落成，貨運吞吐量可提升達30%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm)
+
+---
+
+# 全國兩會｜回應美國加關稅　謝鋒：關稅戰貿易戰損人害己
+
+  
+
+在北京，全國政協委員、駐美大使謝鋒接受本台訪問，回應美國增加對華產品關稅時表示，想起已故領導人毛澤東在上世紀60年代初講過的兩句詩：暮色蒼茫看勁松，亂雲飛渡仍從容。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm)
+
+---
+
 # 港股低收64點　主板成交不足3千億元　汽車股捱沽
 
 ![港股再度失守23000點，恒生指數收市報22941點，跌64點，主板成交額不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794169_1_20250304162104.jpg&q=75)
@@ -24,6 +95,7 @@
 
 # 全國兩會｜王滬寧稱今年要為實現「十五五」良好開局打牢基礎
 
+![王滬寧表示，今年是「十四五」規劃收官之年，也是進一步全面深化改革的重要一年。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794168_1_20250304164948.jpg&q=90)
   
 
 全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧表示，今年是「十四五」規劃收官之年，也是進一步全面深化改革的重要一年；要助力高品質完成「十四五」規劃目標任務、為實現「十五五」良好開局打牢基礎。
@@ -71,6 +143,7 @@
 
 # 小學生超重普遍率降至16.4%　中學生維持於20%高水平
 
+![世界肥胖聯盟將每年三月四日定為世界肥胖日，以促進和支持全球民眾保持健康體重和解決全球肥胖危機。（網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794166_1_20250304165212.jpg&q=85)
   
 
 根據衞生署的人口健康調查報告，本港15至84歲人士中，超重和肥胖的普遍率從2014/2015年的50%，增加到2020至2022年的54.6%。學生方面，到衞生署學生健康服務中心接受周年健康檢查的學生中，小學生的超重，包括肥胖，普遍率由2022/2023學年的19.5%，下降至2023/2024學年的16.4%，是自2014/2015學年的新低，但中學生的超重普遍率則維持在20%的高水平。
@@ -166,6 +239,7 @@
 
 # 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
 
+![陳思源表示，正全方位開展跨境詐騙的執法合作。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794161_1_20250304164852.jpg&q=85)
   
 
 全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。

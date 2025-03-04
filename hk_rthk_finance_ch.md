@@ -1,3 +1,28 @@
+# 新地旗下機場空運中心大樓續租15年　將投入至少4億元升級
+
+![郭炳聯稱要讓本港空運中心運作能與時並進，打造成為世界上最有效率空運中心。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_1_20250304164738.jpg&q=15)
+![林天福表示，現時全球經濟面對很多不明朗因素，香港更要保持競爭力（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_2_20250304164738.jpg&q=20)
+  
+
+新地與機管局達成協議，新地旗下機場空運中心大樓將續租15年，直至2043年，新地將投入至少4億元升級優化大樓設施，讓企業客戶可按需要調配倉庫佈局，亦會引入智能數碼化系統等。新地預計，全新空運中心明年初起分階段落成，貨運吞吐量可提升達30%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm)
+
+---
+
 # 港股低收64點　主板成交不足3千億元　汽車股捱沽
 
 ![港股再度失守23000點，恒生指數收市報22941點，跌64點，主板成交額不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794169_1_20250304162104.jpg&q=75)
@@ -72,6 +97,7 @@
 
 # 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
 
+![陳思源表示，正全方位開展跨境詐騙的執法合作。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794161_1_20250304164852.jpg&q=85)
   
 
 全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm)
-
----
-
-# 分析料本港零售銷售第2季或下半年回復增長
-
-![吳卓殷表示，本港零售銷售面對不少挑戰，估計零售銷售可能要到第2季，甚至下半年，才會回復增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794030_1_20250303193120.jpg&q=75)
-  
-
-本港1月零售業總銷貨價值臨時估計353億元，按年下跌3.2%，連跌11個月，但跌幅低於去年12月的9.6%，創3個月以來最小跌幅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm)
 
 ---
