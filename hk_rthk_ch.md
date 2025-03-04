@@ -1,3 +1,27 @@
+# 縱容囚犯管有手提電話及帶香煙　兩名懲教助理及一囚犯還押候判
+
+![法官指，32歲囚犯實屬主腦，服刑時犯案理應加刑，案件押後至下月8日判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794236_1_20250304222237.jpg&q=80)
+  
+
+兩名懲教助理2020年縱容32歲囚犯在塘福懲教所管有及使用手提電話，並為囚犯將未經授權香煙帶進監獄，連同另外兩名涉案釋囚被控串謀觸犯公職人員行為不當等罪。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm)
+
+---
+
 # 蔡若蓮讚揚吳家瑋致力以科研推動香港邁向知識型經濟轉型
 
 ![蔡若蓮說，吳家瑋領導創立科大，擔任科大校長期間為學校發展奠定堅實基礎。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794235_1_20250304220652.jpg&q=80)
@@ -170,11 +194,10 @@
 
 # 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
 
-![羅淑佩（中）與多名嘉賓主持開球禮。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_2_20250304221216.jpg&q=85)
 ![羅淑佩出席開幕禮並致辭。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_1_20250304221216.jpg&q=80)
   
 
-「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮。
+「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮，首日比賽有超過4200人入場。
 
   
 
