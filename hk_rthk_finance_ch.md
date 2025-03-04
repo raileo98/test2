@@ -46,8 +46,56 @@
 
 ---
 
+# 訪港旅客去年人均消費較前年減少1400元
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794207_1_20250304183434.jpg&q=80)
+  
+
+旅發局數據顯示，去年訪港旅客人均消費，比前年減少1400元，內地旅客更加減少1500元。旅發局表示，今年會加強對外宣傳，營造「全年無休」的體驗。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm)
+
+---
+
+# 全國兩會｜政協會議開幕　王滬寧稱認真研究改進去年工作不足之處
+
+  
+
+為期6日的全國政協會議下午在北京開幕，全國政協主席王滬寧發表工作報告，國家主席習近平等多名黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm)
+
+---
+
 # 置富推遲紅磡置富都會翻新　視乎紅磡南發展作資產增值修訂
 
+![趙宇相信，盛事經濟、一簽多行、擴大自由行等措施將有利零售業發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794202_1_20250304190003.jpg&q=90)
   
 
 置富產業信託去年可供分派收入7.2億元，按年跌約11%。末期每基金單位分派17.36仙，全年每基金單位分派35.59港仙，下跌約12%，分派收益率8.9%。
@@ -71,6 +119,7 @@
 
 # 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
 
+![盧寵茂與廣州市人民政府副市長賴志鴻及其率領的代表團舉行會議，討論深化港穗醫療合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794200_1_20250304190155.jpg&q=75)
   
 
 醫務衞生局局長盧寵茂說，正積極推進將長者醫療券大灣區試點計劃，擴展至大灣區九個內地城市，並爭取在今年上半年內公布有關詳情，亦會充分利用醫健通平台，擴大跨境醫療紀錄互通。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm)
-
----
-
-# 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm)
-
----
-
-# 金發局：不擔心政府撥款減少影響未來工作部署
-
-![洪丕正稱會因應資源做到最大效益，認為不應只考慮撥款金額多寡。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794092_1_20250304084721.jpg&q=80)
-  
-
-新一份財政預算案相關帳目顯示，2025/26年度金發局獲得政府撥款4690萬元，比本年度修訂的4750萬元輕微減少。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm)
 
 ---
