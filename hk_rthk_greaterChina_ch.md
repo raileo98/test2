@@ -1,3 +1,51 @@
+# 全國兩會｜劉永好：如何適應新形勢為民企最大挑戰
+
+![劉永好表示，目前民營企業面對的最大挑戰是如何適應新形勢。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794206_1_20250304182907.jpg&q=75)
+  
+
+國家主席習近平上月出席民營企業座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm)
+
+---
+
+# 全國兩會｜人大會議明日召開　七項議程未提民營經濟促進法
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794205_1_20250304184051.jpg&q=80)
+  
+
+第十四屆全國人大三次會議明日上午在北京召開，下星期二閉幕，會期七日。今次大會有七項議程，包括審議政府工作報告、國民經濟與社會發展計劃草案等，但沒有提及備受關注的《民營經濟促進法》草案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm)
+
+---
+
 # 全國兩會｜婁勤儉：冀平等磋商解決問題　中方絕不接受施壓和威脅
 
   
@@ -186,8 +234,9 @@
 
 ---
 
-# 全國兩會｜王滬寧冀政協為制定「十五五」規劃建真言謀良策
+# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794190_1_20250304184024.jpg&q=85)
   
 
 全國政協十四屆三次會議，下午在北京人民大會堂開幕。中共中央政治局常委、全國政協主席王滬寧發表工作報告。工作報告中交代了全國政協常委會在過去一年全面履行各項職能，當中提到發揮港澳，在國家建設更高水平開放型經濟新體制的作用，及落實走訪港澳委員制度，組織深化港澳與內地交流合作考察。
@@ -1384,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm)
-
----
-
-# 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
-
-![邵家輝（左）說今年提案希望大灣區另外8個城市盡快嘗試一周一行。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_3_20250303132713.jpg&q=85)
-  
-
-港區全國人大代表及政協委員陸續出發前往北京，準備出席即將召開的全國兩會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm)
-
----
-
-# 全國兩會｜行政會議明日及下周二不舉行會議　本月18日復會
-
-![部分行政會議成員需出席北京舉行的全國兩會，行政會議期間不舉行會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793952_1_20250303102408.jpg&q=80)
-  
-
-行政會議秘書處表示，由於身兼港區全國人大代表和港區全國政協委員的行政會議成員，需分別出席於北京舉行的第十四屆全國人大三次會議，以及全國政協第十四屆三次會議，按一貫做法，行政會議明日及下星期二不舉行會議，本月18日復會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm)
 
 ---

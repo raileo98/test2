@@ -1,3 +1,51 @@
+# 全國兩會｜劉永好：如何適應新形勢為民企最大挑戰
+
+![劉永好表示，目前民營企業面對的最大挑戰是如何適應新形勢。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794206_1_20250304182907.jpg&q=75)
+  
+
+國家主席習近平上月出席民營企業座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm)
+
+---
+
+# 全國兩會｜人大會議明日召開　七項議程未提民營經濟促進法
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794205_1_20250304184051.jpg&q=80)
+  
+
+第十四屆全國人大三次會議明日上午在北京召開，下星期二閉幕，會期七日。今次大會有七項議程，包括審議政府工作報告、國民經濟與社會發展計劃草案等，但沒有提及備受關注的《民營經濟促進法》草案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm)
+
+---
+
 # 置富推遲紅磡置富都會翻新　視乎紅磡南發展作資產增值修訂
 
   
@@ -92,8 +140,9 @@
 
 ---
 
-# 全國兩會｜王滬寧冀政協為制定「十五五」規劃建真言謀良策
+# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794190_1_20250304184024.jpg&q=85)
   
 
 全國政協十四屆三次會議，下午在北京人民大會堂開幕。中共中央政治局常委、全國政協主席王滬寧發表工作報告。工作報告中交代了全國政協常委會在過去一年全面履行各項職能，當中提到發揮港澳，在國家建設更高水平開放型經濟新體制的作用，及落實走訪港澳委員制度，組織深化港澳與內地交流合作考察。
@@ -1388,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm)
-
----
-
-# 金發局洪丕正：開拓東盟中東等新興市場　加強與傳統歐美市場聯繫
-
-![洪丕正列出金發局未來三大工作重點，包括檢視和改善香港金融市場競爭力、推廣香港及培訓人才。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794091_1_20250304084609.jpg&q=80)
-  
-
-渣打國際業務行政總裁洪丕正年初獲委任為金融發展局主席。他受傳媒訪問時表示，即使全球經濟波動性和不確定性較大，但同時存在增長機遇，香港作為全球主要國際金融中心之一，連接內地市場及國際投資者的角色獨特。他列出金發局未來三大工作重點，包括定期檢視和改善香港金融市場的國際地位和競爭力、向國際推廣香港，以及培訓和引入業界人才。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm)
-
----
-
-# 韓股初段偏軟
-
-![首爾綜合指數較早時報2526點，跌5點，跌幅0.23%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794089_1_20250304081326.jpg&q=85)
-  
-
-南韓股市在開市初段偏軟，首爾綜合指數較早時報2526點，跌5點，跌幅0.23%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm)
 
 ---
