@@ -1,3 +1,75 @@
+# 港股美國預託證券與本港收市比較個別發展
+
+![滙控ADR較本港收市升逾2%，友邦升近1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794265_1_20250305062430.jpg&q=85)
+  
+
+港股美國預託證券(ADR)與本港收市比較個別發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm)
+
+---
+
+# 美元兌歐元曾跌至近3個月低位
+
+![美元指數失守106水平，在紐約尾市報105.58，跌幅0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794264_1_20250305061916.jpg&q=90)
+  
+
+美元兌多數貨幣下跌，兌歐元一度跌至近3個月低位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm)
+
+---
+
+# 巴基斯坦西北部一座軍營遇襲12死逾30人傷
+
+![自殺式襲擊發生後，救護車把傷者送院，民眾聚集在救護車旁。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794266_1_20250305062813.jpg&q=85)
+  
+
+巴基斯坦西北部開伯爾-普什圖省一座軍營遭到襲擊，造成12名平民死亡、32人受傷。6名恐怖分子在交火中被擊斃。總統扎爾達里發表聲明，強烈譴責襲擊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm)
+
+---
+
 # 金價上升　美元疲弱及避險需求增加
 
 ![現貨金重上每盎司2900美元，較早時報2915.21美元，升幅逾0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794257_1_20250305052444.jpg&q=80)
@@ -1367,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm)
-
----
-
-# 全國兩會｜彭耀佳稱旅發局善用資源做到最好
-
-![彭耀佳表示，旅發局與所有政府資助機構一樣，要「勒緊肚皮」，善用資源，做到最好。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794197_1_20250304182236.jpg&q=80)
-  
-
-全國政協委員、即將卸任旅發局主席的彭耀佳表示，滿意自己的成績，但應由香港市民及政府對他評價，希望大家認為是合格。擔任六年旅發局主席的彭耀佳表示，多年來最難忘是疫情時零遊客，業界「冇飯食」，因此要推出措施，令業界可以生存。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm)
-
----
-
-# 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
-
-![張軍認為，中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794195_1_20250304180139.jpg&q=75)
-  
-
-在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm)
-
----
-
-# 國務院新聞辦發布芬太尼管控白皮書　稱與美合作應對取得明顯成效
-
-![白皮書指出，中國對芬太尼類藥品的生產及使用等各環節動態全程監控、閉環管理。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794193_1_20250304174946.jpg&q=90)
-  
-
-國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm)
 
 ---

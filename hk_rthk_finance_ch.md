@@ -1,3 +1,51 @@
+# 港股美國預託證券與本港收市比較個別發展
+
+![滙控ADR較本港收市升逾2%，友邦升近1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794265_1_20250305062430.jpg&q=85)
+  
+
+港股美國預託證券(ADR)與本港收市比較個別發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm)
+
+---
+
+# 美元兌歐元曾跌至近3個月低位
+
+![美元指數失守106水平，在紐約尾市報105.58，跌幅0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794264_1_20250305061916.jpg&q=90)
+  
+
+美元兌多數貨幣下跌，兌歐元一度跌至近3個月低位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm)
+
+---
+
 # 金價上升　美元疲弱及避險需求增加
 
 ![現貨金重上每盎司2900美元，較早時報2915.21美元，升幅逾0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794257_1_20250305052444.jpg&q=80)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm)
-
----
-
-# 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
-  
-
-全國人大會議新聞發言人婁勤儉表示，中國政府高度重視人工智能技術的發展和風險防範，依法保護數據隱私和安全，同時反對泛化國家安全概念、反對將經貿科技問題政治化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm)
-
----
-
-# 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
-
-![丘應樺說不少香港企業已遷移生產線，相信加徵關稅對香港影響不是很大。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794127_1_20250304131139.jpg&q=80)
-  
-
-對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
 
 ---
