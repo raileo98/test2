@@ -1,3 +1,27 @@
+# 杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施
+
+![杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794267_1_20250305064537.jpg&q=90)
+  
+
+美國對加拿大及墨西哥進口商品徵收25%關稅，加大宣布報復措施，總理杜魯多認為，美國總統特朗普的目的，是想摧毀加拿大的經濟，令美國更容易吞併加拿大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm)
+
+---
+
 # 港股美國預託證券與本港收市比較個別發展
 
 ![滙控ADR較本港收市升逾2%，友邦升近1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794265_1_20250305062430.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm)
-
----
-
-# 全國兩會｜夏寶龍會見岑浩輝　稱勇於擔當作為
-
-![中央港澳辦、國務院港澳辦主任夏寶龍在北京會見澳門行政長官岑浩輝。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794198_1_20250304191327.jpg&q=85)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見準備列席全國人大會議開幕式的澳門行政長官岑浩輝。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm)
 
 ---
