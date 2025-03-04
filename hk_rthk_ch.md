@@ -1,3 +1,27 @@
+# 威廉姆斯：關稅帶來通脹風險　利率政策仍處於良好位置
+
+![紐約聯儲銀行總裁威廉姆斯預計，特朗普政府的關稅政策將在一定程度上推高美國通脹，仍存有很多不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794274_1_20250305073549.jpg&q=75)
+  
+
+紐約聯儲銀行總裁威廉姆斯預計，美國總統特朗普政府的關稅政策，將在一定程度上推高美國通脹，又認為目前聯儲局的利率政策處於良好位置，不需要調整。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm)
+
+---
+
 # 南韓上季GDP經修訂後按季增長0.1%　與初值相同
 
 ![南韓去年第4季國內生產總值(GDP)經修訂後，按季增長0.1%，與初值一致。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794272_1_20250305072444.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm)
-
----
-
-# 全國兩會｜婁勤儉：冀平等磋商解決問題　中方絕不接受施壓和威脅
-
-![婁勤儉回應美國加徵對中國產品關稅時表示，希望通過平等磋商找到解決問題的辦法。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794204_1_20250304190248.jpg&q=90)
-  
-
-十四屆全國人大三次會議明日上午開幕，下星期二下午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm)
 
 ---
