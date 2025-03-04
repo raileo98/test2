@@ -1,3 +1,51 @@
+# 金價上升　美元疲弱及避險需求增加
+
+![現貨金重上每盎司2900美元，較早時報2915.21美元，升幅逾0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794257_1_20250305052444.jpg&q=80)
+  
+
+金價上升，因美元疲弱，加上市場憂慮貿易衝突升級，帶動避險資金流入金市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm)
+
+---
+
+# 道指低收670點　市場憂貿易戰拖累美國經濟增長
+
+![道瓊斯指數最多曾跌逾840點，收市報42520點，跌670點，跌幅近1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794262_1_20250305060009.jpg&q=90)
+  
+
+美股3大指數收市下跌，美國總統特朗普兌現關稅威脅，向加拿大、墨西哥及中國進口商品加徵關稅，並引起部分國家作出反制措施，市場憂慮關稅政策影響美國經濟增長，拖累股市表現。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm)
+
+---
+
 # 國際油價下跌　受增產及貿易戰拖累
 
 ![倫敦布蘭特期油和紐約期油均一度跌至多月低位，最終分別低收0.8%及近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794255_1_20250305051758.jpg&q=90)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
-
----
-
-# 恒指半日跌105點　比亞迪股份跌近7%
-
-![恒指中午收市報22901點，跌105點，跌幅約0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794129_1_20250304121204.jpg&q=1)
-  
-
-港股開市失守23000點，恒生指數初段低見22547點，跌約460點，其後跌幅收窄，中午收市報22901點，跌105點，跌幅約0.5%，半日主板成交額1569億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm)
-
----
-
-# 內地股市半日偏軟　創業板指數跌近1%
-
-![滬深股市半日偏軟。創業板指數報2175點，跌20點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794120_1_20250304114228.jpg&q=85)
-  
-
-滬深股市半日偏軟，創業板指數跌近1%。白酒和零售股向下，軍工裝備、人形機器人和貴金屬相關股份上升。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794120-20250304.htm)
 
 ---

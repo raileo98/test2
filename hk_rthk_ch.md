@@ -1,3 +1,51 @@
+# 金價上升　美元疲弱及避險需求增加
+
+![現貨金重上每盎司2900美元，較早時報2915.21美元，升幅逾0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794257_1_20250305052444.jpg&q=80)
+  
+
+金價上升，因美元疲弱，加上市場憂慮貿易衝突升級，帶動避險資金流入金市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm)
+
+---
+
+# 道指低收670點　市場憂貿易戰拖累美國經濟增長
+
+![道瓊斯指數最多曾跌逾840點，收市報42520點，跌670點，跌幅近1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794262_1_20250305060009.jpg&q=90)
+  
+
+美股3大指數收市下跌，美國總統特朗普兌現關稅威脅，向加拿大、墨西哥及中國進口商品加徵關稅，並引起部分國家作出反制措施，市場憂慮關稅政策影響美國經濟增長，拖累股市表現。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm)
+
+---
+
 # 白俄羅斯總統簽署法律批准俄白聯盟國家安全保障條約
 
 ![盧卡申科簽署法律，批准白俄羅斯和俄羅斯在聯盟國家框架內的安全保障條約。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794260_1_20250305053931.jpg&q=90)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm)
-
----
-
-# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794190_1_20250304184024.jpg&q=85)
-  
-
-全國政協十四屆三次會議，下午在北京人民大會堂開幕。中共中央政治局常委、全國政協主席王滬寧發表工作報告。工作報告中交代了全國政協常委會在過去一年全面履行各項職能，當中提到發揮港澳，在國家建設更高水平開放型經濟新體制的作用，及落實走訪港澳委員制度，組織深化港澳與內地交流合作考察。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm)
-
----
-
-# 陳翊庭：港交所將大力發展固定收益及貨幣市場
-
-![陳翊庭料內地固定收益市場將持續高速增長，與離岸市場的互聯互通亦將增強。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794185_1_20250304171825.jpg&q=80)
-  
-
-港交所行政總裁陳翊庭在網誌表示，港交所已構建豐富的證券產品生態圈，未來將大力發展固定收益及貨幣市場，希望與外匯基金全資附屬公司迅清結算的合作，可為投資者提供更豐富的流動性管理工具，增強人民幣債券吸引力，推動人民幣國際化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm)
 
 ---
