@@ -1,3 +1,27 @@
+# Beijing files complaint with WTO over Trump tariffs
+
+![The move comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
+  
+
+Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm)
+
+---
+
 # China to firmly defend its interests: ambassador
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794184_1_20250304171254.jpg&q=85)
@@ -1416,29 +1440,5 @@ Search engine giant Baidu said on Friday it would make its next-generation artif
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm)
-
----
-
-# Foreign Minister Wang Yi in UK for talks
-
-![British Foreign Secretary David Lammy welcomes Foreign Minister Wang Yi in London. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791573_1_20250214084438.jpg&q=80)
-  
-
-China and Britain need to strengthen strategic communication, enhance mutual trust and demonstrate responsibility as major countries, Foreign Minister Wang Yi said in a meeting with the UK prime minister on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791573-20250214.htm)
 
 ---

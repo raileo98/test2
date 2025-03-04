@@ -1,3 +1,27 @@
+# 阿盟峰會同意設立基金為加沙重建提供資金
+
+![阿拉伯國家聯盟峰會在埃及開羅舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794253_1_20250305050923.jpg&q=85)
+  
+
+阿拉伯國家領導人達成共識，將設立一個信託基金，為加沙地帶重建提供資金，並敦促國際社會捐款，以加快重建進程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm)
+
+---
+
 # 克宮：普京沒有及與美國聯合開採稀土
 
 ![佩斯科夫表示，俄美關係正常化應該包括美國解除對俄制裁。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794249_1_20250305032959.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
-
----
-
-# 全國兩會｜劉結一稱科技與產業創新「黑科技」閃亮登場
-
-![劉結一表示，發展新質生產力是推進高質量發展的內在要求和重要著力點。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793994_1_20250303174928.jpg&q=90)
-  
-
-全國政協會議新聞發言人劉結一表示，經濟全球化是社會生產力發展的客觀要求、科技進步的必然結果，也是人類社會前進的必由之路、不可逆轉的時代潮流，中國堅定站在歷史正確的一邊，開放的大門只會越開越大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793994-20250303.htm)
 
 ---

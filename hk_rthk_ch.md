@@ -1,3 +1,51 @@
+# 全國兩會 | 全國人大會議上午開幕
+
+![十四屆全國人大三次會議今天上午開幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794256_1_20250305051913.jpg&q=90)
+  
+
+十四屆全國人大三次會議今天上午開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm)
+
+---
+
+# 阿盟峰會同意設立基金為加沙重建提供資金
+
+![阿拉伯國家聯盟峰會在埃及開羅舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794253_1_20250305050923.jpg&q=85)
+  
+
+阿拉伯國家領導人達成共識，將設立一個信託基金，為加沙地帶重建提供資金，並敦促國際社會捐款，以加快重建進程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm)
+
+---
+
 # 克宮：普京沒有及與美國聯合開採稀土
 
 ![佩斯科夫表示，俄美關係正常化應該包括美國解除對俄制裁。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794249_1_20250305032959.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
-
----
-
-# 財政預算案2025｜旅發局「精準發放」無人機及煙火表演省開支
-
-![旅發局舉行的無人機和煙火表演會改為「精準發放」，在特定節慶日子才舉行。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794188_1_20250304172931.jpg&q=40)
-  
-
-預算案提出向旅發局撥款12億3500萬元，推行《香港旅遊業發展藍圖2.0》的相關措施，落實「無處不旅遊」的理念。旅發局總幹事程鼎一與傳媒午宴時表示，有關撥款是計及常規、額外以及專款專用的撥款，總額按年實際減少了兩成，即接近3億元，新一年度肯定要動用到儲備應付。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm)
-
----
-
-# 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
-
-![楊全盛相信，可以在18個月之前處理得到相關工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794187_1_20250304180450.jpg&q=80)
-  
-
-財政預算案提出調整二元乘車優惠計劃。八達通公司表示，需要先調整系統，不同營辦商有不同計算方式或優惠，例如轉乘優惠等，公司需要與各營辦商研究，最後要進行測試後才可推出，預計至少需要12個月，但會爭取少於18個月完成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm)
 
 ---

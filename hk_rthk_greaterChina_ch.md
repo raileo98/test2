@@ -1,3 +1,27 @@
+# 全國兩會 | 全國人大會議上午開幕
+
+![十四屆全國人大三次會議今天上午開幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794256_1_20250305051913.jpg&q=90)
+  
+
+十四屆全國人大三次會議今天上午開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm)
+
+---
+
 # 國家禁毒辦：芬太尼類物質整類列管後未查獲向境外走私案件
 
 ![國家禁毒辦：芬太尼類物質整類列管後未查獲向境外走私案件](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794243_1_20250305012725.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
-
----
-
-# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
-
-![「世界格蘭披治桌球大獎賽2025」獲頒授「M」品牌認可。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794021_1_20250303185402.jpg&q=90)
-  
-
-大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
 
 ---
