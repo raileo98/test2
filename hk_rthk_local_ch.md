@@ -1,3 +1,26 @@
+# 八達通公司稱爭取少於18個月完成二元乘車優惠計劃系統調整
+
+  
+
+財政預算案提出調整二元乘車優惠計劃，當局早前表示，預計需時18個月調整市面17000部八達通機，預計不遲於明年9月實施。八達通董事局主席楊美珍表示，正與政府商討， 希望盡力少於18個月完成有關工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794156-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794156-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794156-20250304.htm)
+
+---
+
 # 土拓署將軍澳項目承辦商副總經理貪污案　廉署加控另外兩人
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793987-20250303.htm)
-
----
-
-# 有的士車隊稱用人工智能「派單」有車隊著重司機培訓
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793986_1_20250303152828.jpg&q=55)
-  
-
-政府舉行的士車隊啟動禮，有車隊本月底將投入服務，其餘會在本月至7月期間陸續「落地」。各車隊在啟動禮上展示新的士，包括6座位的豪華版的士，的士車身顏色亦不一定局限於傳統顏色，包括有黑色、粉紅色、黃紅漸變色。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793986-20250303.htm)
 
 ---

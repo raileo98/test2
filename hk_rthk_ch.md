@@ -1,3 +1,26 @@
+# 八達通公司稱爭取少於18個月完成二元乘車優惠計劃系統調整
+
+  
+
+財政預算案提出調整二元乘車優惠計劃，當局早前表示，預計需時18個月調整市面17000部八達通機，預計不遲於明年9月實施。八達通董事局主席楊美珍表示，正與政府商討， 希望盡力少於18個月完成有關工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794156-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794156-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794156-20250304.htm)
+
+---
+
 # 韓股全日跌3點
 
 ![首爾綜合指數收報2528點，跌3點，跌幅0.15%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794155_1_20250304144032.jpg&q=85)
