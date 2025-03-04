@@ -237,6 +237,30 @@
 
 ---
 
+# 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
+
+![「世界格蘭披治桌球大獎賽」一連6日在啟德體育園的體藝館舉行。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794148_1_20250304150359.jpg&q=80)
+  
+
+「世界格蘭披治桌球大獎賽」今日起一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm)
+
+---
+
 # 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
 
 ![白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794145_1_20250304140145.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm)
-
----
-
-# 會展今明年舉辦多個展覽     料可展現「會展經濟效益」
-
-![香港會展管理公司表示，今明兩年新增不少有關虛擬資產、商貿科技展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794007_1_20250303190340.jpg&q=80)
-  
-
-香港會展管理公司董事總經理梅李玉霞表示，今明兩年新增不少有關虛擬資產、商貿科技展覽，包括今年8月在會展中心舉行的「Bitcoin Asia 2025香港比特幣大會」，預期會吸引更多金融界人士的興趣。至於「亞洲計算機圖形學與交互技術會議及展覽SIGGRAPH Asia 2025」將於年底舉行，相隔11年重臨香港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm)
 
 ---

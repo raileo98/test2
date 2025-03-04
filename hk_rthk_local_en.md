@@ -96,7 +96,6 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
 
 # Sunbeam puts on a show for one last time
 
-![Theatre-goers flock to Sunbeam for its final show. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_1_20250303213509.jpg&q=60)
 ![Lana Wong, left, says she has many fond memories of Sunbeam. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_2_20250303213509.jpg&q=85)
   
 
