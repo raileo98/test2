@@ -1,5 +1,7 @@
 # 已登記會員周四起可預訂啟德體育園部分體育設施
 
+![啟德體育園部分設施陸續開放。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_1_20250305001230.jpg&q=20)
+![啟德青年運動場跑道徑下午5時後每位收費18元。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_2_20250305001230.jpg&q=90)
   
 
 啟德體育園網站顯示，園內部分體育設施陸續開放，星期三早上10時起，公眾可查看11日內的設施租用情況。已登記會員可於星期四上午7時起，預訂未來10日內可供租用的體育運動設施。
