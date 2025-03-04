@@ -72,6 +72,7 @@
 
 # 全國兩會｜政協會議開幕　王滬寧稱認真研究改進去年工作不足之處
 
+![王滬寧發表工作報告。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794203_1_20250304190227.jpg&q=80)
   
 
 為期6日的全國政協會議下午在北京開幕，全國政協主席王滬寧發表工作報告，國家主席習近平等多名黨和國家領導人出席。
@@ -117,30 +118,6 @@
 
 ---
 
-# 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
-
-![盧寵茂與廣州市人民政府副市長賴志鴻及其率領的代表團舉行會議，討論深化港穗醫療合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794200_1_20250304190155.jpg&q=75)
-  
-
-醫務衞生局局長盧寵茂說，正積極推進將長者醫療券大灣區試點計劃，擴展至大灣區九個內地城市，並爭取在今年上半年內公布有關詳情，亦會充分利用醫健通平台，擴大跨境醫療紀錄互通。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
-
----
-
 # 全國兩會｜李家超寄語兩會代表及委員多提建議及提案
 
 ![李家超傍晚抵達北京。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794199_1_20250304181050.jpg&q=85)
@@ -162,6 +139,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm)
+
+---
+
+# 全國兩會｜彭耀佳稱旅發局善用資源做到最好
+
+![彭耀佳表示，旅發局與所有政府資助機構一樣，要「勒緊肚皮」，善用資源，做到最好。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794197_1_20250304182236.jpg&q=80)
+  
+
+全國政協委員、即將卸任旅發局主席的彭耀佳表示，滿意自己的成績，但應由香港市民及政府對他評價，希望大家認為是合格。擔任六年旅發局主席的彭耀佳表示，多年來最難忘是疫情時零遊客，業界「冇飯食」，因此要推出措施，令業界可以生存。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm)
 
 ---
 
