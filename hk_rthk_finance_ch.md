@@ -1,10 +1,8 @@
-# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
 
-![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
-![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=80)
   
 
-「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+全國政協十四屆三次會議，下午在北京人民大會堂開幕。中共中央政治局常委、全國政協主席王滬寧發表工作報告。工作報告中交代了全國政協常委會在過去一年全面履行各項職能，當中提到發揮港澳，在國家建設更高水平開放型經濟新體制的作用，及落實走訪港澳委員制度，組織深化港澳與內地交流合作考察。
 
   
 
@@ -12,14 +10,38 @@
 ---
 
 原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm>
 
 © rthk.hk
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm)
+
+---
+
+# 陳翊庭：港交所將大力發展固定收益及貨幣市場
+
+![陳翊庭料內地固定收益市場將持續高速增長，與離岸市場的互聯互通亦將增強。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794185_1_20250304171825.jpg&q=80)
+  
+
+港交所行政總裁陳翊庭在網誌表示，港交所已構建豐富的證券產品生態圈，未來將大力發展固定收益及貨幣市場，希望與外匯基金全資附屬公司迅清結算的合作，可為投資者提供更豐富的流動性管理工具，增強人民幣債券吸引力，推動人民幣國際化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm)
 
 ---
 
@@ -44,6 +66,53 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm)
+
+---
+
+# 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
+
+  
+
+特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
+
+---
+
+# 旅發局在維港舉行無人機和煙火表演改為「精準發放」　以節省開支
+
+![旅發局舉行的無人機和煙火表演會改為「精準發放」，在特定節慶日子才舉行。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794188_1_20250304172931.jpg&q=40)
+  
+
+預算案提出向旅發局撥款12億3500萬元，推行《香港旅遊業發展藍圖2.0》的相關措施，落實「無處不旅遊」的理念。旅發局總幹事程鼎一與傳媒午宴時表示，有關撥款是計及常規、額外以及專款專用的撥款，總額按年實際減少了兩成，即接近3億元，新一年度肯定要動用到儲備應付。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm)
 
 ---
 
@@ -1366,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
-
----
-
-# 國際油價跌約2%　創近3個月低位
-
-![倫敦布蘭特期油收市跌1.6%，紐約期油跌約2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794073_1_20250304051751.jpg&q=90)
-  
-
-國際期油價格低收約2%，創近3個月收市低位，據報石油輸出國組織及其盟友(OPEC+)將按計劃在4月增產，加上市場憂慮美國關稅可能會損害經濟增長和石油需求。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794073-20250304.htm)
-
----
-
-# 金價反彈逾1%　因美元疲弱及關稅憂慮
-
-![現貨金較早時報每盎司2890.88美元，升幅1.1%。紐約期金高收1.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794074_1_20250304052412.jpg&q=75)
-  
-
-金價反彈逾1%，因美元疲弱，加上關稅憂慮引發避險買盤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794074-20250304.htm)
-
----
-
-# 英德股市創收市新高
-
-![德國DAX指數創收市新高，報23147點，升595點，升幅2.6%，創逾2年最大單日升幅。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794072_1_20250304051053.jpg&q=90)
-  
-
-歐洲主要股市收市上升，德國和英國股市創收市新高，受國防股升勢帶動，因歐洲軍費開支增加的預期升溫。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm)
 
 ---

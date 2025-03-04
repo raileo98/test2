@@ -1,3 +1,26 @@
+# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
+
+  
+
+全國政協十四屆三次會議，下午在北京人民大會堂開幕。中共中央政治局常委、全國政協主席王滬寧發表工作報告。工作報告中交代了全國政協常委會在過去一年全面履行各項職能，當中提到發揮港澳，在國家建設更高水平開放型經濟新體制的作用，及落實走訪港澳委員制度，組織深化港澳與內地交流合作考察。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm)
+
+---
+
 # 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
 
 ![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
@@ -144,7 +167,7 @@
 
 # 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
 
-![王滬寧表示，以習近平為核心帶領沉著應變，順利完成目標任務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794164_1_20250304155025.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794164_1_20250304174906.jpg&q=80)
   
 
 全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧發表工作報告提到，去年是中華人民共和國成立75周年，是實現「十四五」規劃目標任務的關鍵一年。以習近平為核心的中共中央團結帶領全黨全國各族人民，沉著應變、綜合施策，順利完成全年經濟社會發展主要目標任務，中國式現代化取得新的重大成就，堅定全黨全國各族人民奪取新時代中國特色社會主義新勝利的決心和信心。
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793886-20250302.htm)
-
----
-
-# 人民銀行等5部門要求下大氣力解決民營企業融資難、融資貴問題
-
-![會議強調，各方要推動完善融資配套機制，解決民營企業融資難、融資貴問題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793875_1_20250302145333.jpg&q=90)
-  
-
-人民銀行、全國工商聯、金融監管總局、中國證監會、國家外匯局前日聯合召開金融支持民營企業高質量發展座談會。會議強調，各方要增強協同聯動，推動完善融資配套機制，下大氣力解決民營企業融資難、融資貴問題，共同營造更優的民營企業發展環境。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793875-20250302.htm)
 
 ---

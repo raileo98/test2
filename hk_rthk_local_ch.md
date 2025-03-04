@@ -1,3 +1,27 @@
+# 陳翊庭：港交所將大力發展固定收益及貨幣市場
+
+![陳翊庭料內地固定收益市場將持續高速增長，與離岸市場的互聯互通亦將增強。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794185_1_20250304171825.jpg&q=80)
+  
+
+港交所行政總裁陳翊庭在網誌表示，港交所已構建豐富的證券產品生態圈，未來將大力發展固定收益及貨幣市場，希望與外匯基金全資附屬公司迅清結算的合作，可為投資者提供更豐富的流動性管理工具，增強人民幣債券吸引力，推動人民幣國際化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm)
+
+---
+
 # 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
 
 ![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
-
----
-
-# 的士車隊啟動禮舉行　陳美寶冀發揮領頭羊角色
-
-![政府舉行的士車隊啟動禮，有車隊於本月底投入服務。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794023_1_20250303205737.jpg&q=75)
-  
-
-政府舉行的士車隊啟動禮，有車隊於本月底投入服務，其餘會在本月至7月期間陸續「落地」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm)
 
 ---

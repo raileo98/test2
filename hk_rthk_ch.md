@@ -1,3 +1,50 @@
+# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
+
+  
+
+全國政協十四屆三次會議，下午在北京人民大會堂開幕。中共中央政治局常委、全國政協主席王滬寧發表工作報告。工作報告中交代了全國政協常委會在過去一年全面履行各項職能，當中提到發揮港澳，在國家建設更高水平開放型經濟新體制的作用，及落實走訪港澳委員制度，組織深化港澳與內地交流合作考察。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794190-20250304.htm)
+
+---
+
+# 陳翊庭：港交所將大力發展固定收益及貨幣市場
+
+![陳翊庭料內地固定收益市場將持續高速增長，與離岸市場的互聯互通亦將增強。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794185_1_20250304171825.jpg&q=80)
+  
+
+港交所行政總裁陳翊庭在網誌表示，港交所已構建豐富的證券產品生態圈，未來將大力發展固定收益及貨幣市場，希望與外匯基金全資附屬公司迅清結算的合作，可為投資者提供更豐富的流動性管理工具，增強人民幣債券吸引力，推動人民幣國際化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm)
+
+---
+
 # 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
 
 ![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
@@ -529,7 +576,7 @@
 
 # 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
 
-![王滬寧表示，以習近平為核心帶領沉著應變，順利完成目標任務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794164_1_20250304155025.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794164_1_20250304174906.jpg&q=80)
   
 
 全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧發表工作報告提到，去年是中華人民共和國成立75周年，是實現「十四五」規劃目標任務的關鍵一年。以習近平為核心的中共中央團結帶領全黨全國各族人民，沉著應變、綜合施策，順利完成全年經濟社會發展主要目標任務，中國式現代化取得新的重大成就，堅定全黨全國各族人民奪取新時代中國特色社會主義新勝利的決心和信心。
