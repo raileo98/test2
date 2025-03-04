@@ -45,6 +45,31 @@
 
 ---
 
+# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+
+![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
+![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=80)
+  
+
+「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+
+---
+
 # 港交所與迅清結算簽署合作備忘錄　優化交易後證券基礎設施
 
 ![港交所與迅清結算簽署合作備忘錄，共同探索優化交易後證券基礎設施的舉措。（港交所/金管局圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794176_1_20250304165340.jpg&q=85)
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm)
-
----
-
-# 特朗普提高對中國商品關稅至20%　對加墨關稅周二生效
-
-![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
-  
-
-美國白宮說，總統特朗普已簽署命令，進一步提高對中國進口商品的關稅，指中國政府未能解決芬太尼問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
 
 ---
