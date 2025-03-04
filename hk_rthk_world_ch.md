@@ -1,3 +1,27 @@
+# 美國國務院把也門胡塞武裝列為「外國恐怖組織」
+
+![美方指胡塞武裝的活動威脅中東地區美國平民和人員的安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794241_1_20250305002935.jpg&q=90)
+  
+
+美國國務院發表聲明，宣布將也門胡塞武裝列為「外國恐怖組織」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm)
+
+---
+
 # 日本稱無採取引導日圓貶值政策　將與美方繼續密切協商
 
 ![林芳正說，日本並無採取所謂的引導日圓貶值政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794237_1_20250304223736.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm)
-
----
-
-# 《深痛導賞團》基雲高堅奪得奧斯卡最佳男配角
-
-![《深痛導賞團》基雲高堅奪得奧斯卡最佳男配角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793934_1_20250303085603.jpg&q=90)
-  
-
-第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793934-20250303.htm)
 
 ---

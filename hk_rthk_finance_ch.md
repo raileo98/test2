@@ -3,7 +3,7 @@
 ![長和發公告指，向貝萊德等公司合組的財團，出售巴拿馬港口9成權益，以及和記港口8成實際權益，但不包括位於中國的港口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794239_1_20250304232315.jpg&q=90)
   
 
-長和發公告指，向貝萊德、美國投資管理公司Global Infrastructure Partners及Terminal Investment Limited合組的BlackRock-TiL財團，就出售和記港口持有的巴拿馬港口90%權益，達成原則性協議；有關港口為巴拿馬巴爾博亞及克里斯托瓦爾港口。
+長和發公告指，向貝萊德、美國投資管理公司Global Infrastructure Partners及Terminal Investment Limited合組的財團，出售和記港口持有的巴拿馬港口90%權益，已達成原則性協議；有關港口為巴拿馬巴關博亞及克里斯托瓦關港口。
 
   
 

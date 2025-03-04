@@ -1,3 +1,27 @@
+# 美國國務院把也門胡塞武裝列為「外國恐怖組織」
+
+![美方指胡塞武裝的活動威脅中東地區美國平民和人員的安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794241_1_20250305002935.jpg&q=90)
+  
+
+美國國務院發表聲明，宣布將也門胡塞武裝列為「外國恐怖組織」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm)
+
+---
+
 # 已登記會員周四起可預訂啟德體育園部分體育設施
 
 ![啟德體育園部分設施陸續開放。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_1_20250305001230.jpg&q=20)
@@ -28,7 +52,7 @@
 ![長和發公告指，向貝萊德等公司合組的財團，出售巴拿馬港口9成權益，以及和記港口8成實際權益，但不包括位於中國的港口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794239_1_20250304232315.jpg&q=90)
   
 
-長和發公告指，向貝萊德、美國投資管理公司Global Infrastructure Partners及Terminal Investment Limited合組的BlackRock-TiL財團，就出售和記港口持有的巴拿馬港口90%權益，達成原則性協議；有關港口為巴拿馬巴爾博亞及克里斯托瓦爾港口。
+長和發公告指，向貝萊德、美國投資管理公司Global Infrastructure Partners及Terminal Investment Limited合組的財團，出售和記港口持有的巴拿馬港口90%權益，已達成原則性協議；有關港口為巴拿馬巴關博亞及克里斯托瓦關港口。
 
   
 
@@ -1418,30 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm)
-
----
-
-# 新地旗下機場空運中心大樓續租15年　將投入至少4億元升級
-
-![郭炳聯稱要讓本港空運中心運作能與時並進，打造成為世界上最有效率空運中心。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_1_20250304164738.jpg&q=15)
-![林天福表示，現時全球經濟面對很多不明朗因素，香港更要保持競爭力（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_2_20250304164738.jpg&q=20)
-  
-
-新地與機管局達成協議，新地旗下機場空運中心大樓將續租15年，直至2043年，新地將投入至少4億元升級優化大樓設施，讓企業客戶可按需要調配倉庫佈局，亦會引入智能數碼化系統等。新地預計，全新空運中心明年初起分階段落成，貨運吞吐量可提升達30%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm)
 
 ---
