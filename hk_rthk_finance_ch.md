@@ -1,6 +1,81 @@
+# 恒指曾跌逾400點　汽車股下挫
+
+![恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794116_1_20250304104110.jpg&q=10)
+  
+
+港股開市失守23000點，恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm)
+
+---
+
+# 日股半日跌約2%
+
+![日經指數半日跌688點，報37096點，跌幅1.82%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794115_1_20250304104001.jpg&q=80)
+  
+
+東京股市下挫。日經指數半日跌688點，報37096點，跌幅1.82%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794115-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794115-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794115-20250304.htm)
+
+---
+
+# 丘應樺稱減烈酒稅後數量及價錢增加　冀帶動餐飲酒店等業務
+
+![丘應樺指出，減低高價烈酒稅是為促進高價烈酒貿易中心，形容勢頭不錯。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794113_1_20250304105236.jpg&q=80)
+  
+
+去年施政報告宣布，進口價200元以上的烈酒，200元以上部分的稅率由100%大幅減至10%。商務及經濟發展局局長丘應樺表示，截至今年1月的數據顯示，減低烈酒稅幾個月，情況幾振奮，量方面增加了60%，價值亦增加了1.5倍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm)
+
+---
+
 # 美國對中國產品提高關稅　丘應樺稱是否包括香港貨品仍不清晰
 
-美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
+![丘應樺說今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794107_1_20250304103736.jpg&q=75)
+  
+
+美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已決定向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
 
   
 
@@ -1361,78 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm)
-
----
-
-# 政府上半年試行「聯廈聯管」　麥美娟：已預留700萬元推行
-
-![麥美娟表示，預留700萬元推行今次計劃。在甄選非政府組織的過程中，除了考慮價錢，亦著重有何嶄新方法，促成業主參與。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_1_20250303123718.jpg&q=80)
-![政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_2_20250303124734.jpg&q=60)
-  
-
-政府今年上半年會在油尖旺，深水埗，九龍城及荃灣，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，各委聘一個非政府組織接觸大廈業主或法團，鼓勵及協助他們參加試驗計劃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm)
-
----
-
-# 全國兩會｜北京市面明顯加強保安　有市民稱感覺更安全
-
-![北京民眾認為今年兩會保安比以往嚴密。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793968_1_20250303135213.jpg&q=75)
-  
-
-全國政協十四屆三次會議明日開幕，新聞發布會今日下午在北京人民大會堂舉行，發言人劉結一將介紹大會情況並回答記者提問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm)
-
----
-
-# 恒指半日升277點
-
-![恒指中午收市報23218點，升277點，升幅1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793964_1_20250303121421.jpg&q=1)
-  
-
-港股今早反彈，恒生指數高見23405點，升逾460點，其後升幅收窄，中午收市報23218點，升277點，升幅1.2%，半日主板成交額1796億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm)
 
 ---

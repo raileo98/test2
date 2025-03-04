@@ -1,6 +1,81 @@
+# 恒指曾跌逾400點　汽車股下挫
+
+![恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794116_1_20250304104110.jpg&q=10)
+  
+
+港股開市失守23000點，恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm)
+
+---
+
+# 丘應樺稱減烈酒稅後數量及價錢增加　冀帶動餐飲酒店等業務
+
+![丘應樺指出，減低高價烈酒稅是為促進高價烈酒貿易中心，形容勢頭不錯。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794113_1_20250304105236.jpg&q=80)
+  
+
+去年施政報告宣布，進口價200元以上的烈酒，200元以上部分的稅率由100%大幅減至10%。商務及經濟發展局局長丘應樺表示，截至今年1月的數據顯示，減低烈酒稅幾個月，情況幾振奮，量方面增加了60%，價值亦增加了1.5倍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm)
+
+---
+
+# 全國兩會 | 全國政協會議下午開幕　王滬寧發表工作報告
+
+![王滬寧將發表全國政協常委會工作報告。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794112_1_20250304105301.jpg&q=85)
+  
+
+全國政協十四屆三次會議下午3時在北京人民大會堂舉行開幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm)
+
+---
+
 # 美國對中國產品提高關稅　丘應樺稱是否包括香港貨品仍不清晰
 
-美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
+![丘應樺說今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794107_1_20250304103736.jpg&q=75)
+  
+
+美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已決定向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
 
   
 
@@ -1363,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm)
-
----
-
-# 全國兩會｜李家超明日赴北京列席全國人大會議開幕
-
-![李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793950_1_20250303102742.jpg&q=80)
-  
-
-行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。行政長官辦公室主任葉文娟將隨行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm)
-
----
-
-# 財政預算案2025｜陳美寶稱會研究創新方法紓緩泊車位不足
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793949_2_20250303104853.jpg&q=80)
-  
-
-《財政預算案》提出研究徵收200元的私家車陸路離境稅，對於有報導指相關建議引起內地不滿，運輸及物流局局長陳美寶出席一個電台節目表示，明白社會上有不同聲音，特區政府一直致力推動大灣區融合，《預算案》提出有關研究建議時已考慮兩地融合的問題。經過深思熟慮，市民現時到內地亦有不同方法，包括高鐵、陸路口岸、私家車、跨境巴士等，期望以「用者自付、能者多付」的原則，開拓政府收入來源，平衡支出。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm)
-
----
-
-# 財政預算案2025｜港大第二學位醫學士課程6月20日截止申請
-
-![港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793945_1_20250303110049.jpg&q=80)
-  
-
-港大醫學院推出4年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm)
 
 ---

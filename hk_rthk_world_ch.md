@@ -1,6 +1,30 @@
+# 加拿大擬周二起對美商品徵收25%報復性關稅
+
+加拿大總理杜魯多表示，如果美國的關稅措施生效，加拿大將從星期二開始，對價值300億加元的美國進口產品徵收25%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm)
+
+---
+
 # 美國對中國產品提高關稅　丘應樺稱是否包括香港貨品仍不清晰
 
-美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
+![丘應樺說今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794107_1_20250304103736.jpg&q=75)
+  
+
+美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已決定向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
 
   
 
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793863-20250302.htm)
-
----
-
-# 奧爾西宣誓就任烏拉圭總統
-
-![奧爾西在蒙得維的亞獨立廣場出總統權力交接儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793862_1_20250302110640.jpg&q=85)
-  
-
-烏拉圭當選總統奧爾西在國會宣誓就職，開啟為期5年的任期。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793862-20250302.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 全國兩會 | 全國政協會議下午開幕　王滬寧發表工作報告
+
+![王滬寧將發表全國政協常委會工作報告。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794112_1_20250304105301.jpg&q=85)
+  
+
+全國政協十四屆三次會議下午3時在北京人民大會堂舉行開幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm)
+
+---
+
 # 商務部促美方立即撤回單邊關稅措施　將採取反制措施維護自身權益
 
 ![商務部敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794097_1_20250304090429.jpg&q=70)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793635-20250228.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱香港可協助海外企業進入內地市場
-
-![陳茂波說，特區政府在各方努力下，在吸引投資和人才方面取得相當成果。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793617_1_20250228123330.jpg&q=85)
-  
-
-美國總統特朗普表示，下星期二起，會對從中國進口美國的商品徵收額外10%關稅。財政司司長陳茂波出席本台英文節目《財政司司長熱線》，被問到相關措施對香港的影響，陳茂波說，地緣政治緊張局勢持續，強調許多海外企業仍然對內地市場非常感興趣，香港可以作為平台協助他們進入內地市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793617-20250228.htm)
 
 ---
