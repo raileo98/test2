@@ -48,7 +48,7 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
 
 # China's economy solid amid challenges: NPC spokesman
 
-![Lou Qinjian, spokesman for the third session of the 14th National People's Congress, speaks during a press conference at the Great Hall of the People in Beijing. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
   
 
 China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.

@@ -1,5 +1,76 @@
+# 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
+
+  
+
+醫務衞生局局長盧寵茂說，正積極推進將長者醫療券大灣區試點計劃，擴展至大灣區九個內地城市，並爭取在今年上半年內公布有關詳情，亦會充分利用醫健通平台，擴大跨境醫療紀錄互通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
+
+---
+
+# 全國兩會｜李家超寄語兩會代表及委員多提建議及提案
+
+![李家超傍晚抵達北京。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794199_1_20250304181050.jpg&q=85)
+  
+
+行政長官李家超抵達北京，將列席明早在人民大會堂舉行的全國人大會議開幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm)
+
+---
+
+# 全國兩會｜夏寶龍會見岑浩輝　稱勇於擔當作為
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見準備列席全國人大會議開幕式的澳門行政長官岑浩輝。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm)
+
+---
+
 # 全國兩會｜彭耀佳稱旅發局善用資源做到最好
 
+![彭耀佳表示，旅發局與所有政府資助機構一樣，要「勒緊肚皮」，善用資源。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794197_1_20250304180818.jpg&q=80)
   
 
 全國政協委員、即將卸任旅發局主席的彭耀佳表示，滿意自己的成績，但應由香港市民及政府對他評價，希望大家認為是合格。擔任六年旅發局主席的彭耀佳表示，多年來最難忘是疫情時零遊客，業界「冇飯食」，因此要推出措施，令業界可以生存。
@@ -23,6 +94,7 @@
 
 # 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
 
+![張軍認為，中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794195_1_20250304180139.jpg&q=75)
   
 
 在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
@@ -1361,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm)
-
----
-
-# 新一輪寒潮南下　受強對流影響湖南岳陽落冰雹
-
-![湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793917_1_20250303042931.jpg&q=25)
-  
-
-內地新一輪寒潮南下，受強對流影響，湖南岳陽昨晚落冰雹，持續超過一小時，冰雹大約湯圓大小，影響市民出行，但由於冰雹集中在市區，未對農業造成破壞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793917-20250303.htm)
-
----
-
-# 山東出現大範圍雨雪　濟南市發布暴雪紅色預警明日停課
-
-![山東多個市縣出現降雪，其中濟南市區降雪量最大。（央視圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793895_1_20250302201617.jpg&q=45)
-  
-
-山東出現寒潮和大範圍雨雪天氣，當地氣象台表示，截至下午2時，全省多個市縣出現降雪，平均降雪量2.5毫米，其中濟南市區降雪量最大，達17.9毫米，濱州陽信錄得最大積雪深度，有13厘米。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793895-20250302.htm)
-
----
-
-# 全國兩會｜唐英年倡擴大一簽多行及推動金融自由行
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793893_1_20250302192918.jpg&q=85)
-  
-
-全國人大和政協會議即將在北京召開，全國政協常委唐英年表示，將於兩會期間提交一系列提案，主要圍繞如何更好融入國家發展大局、更好發揮一國兩制獨特優勢，以及助力整個大灣區發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793893-20250302.htm)
 
 ---

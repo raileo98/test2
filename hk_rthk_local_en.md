@@ -99,7 +99,7 @@ Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794130_1_20250304121509.jpg&q=75)
   
 
-Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without tickets, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
+Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without permission, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
 
   
 

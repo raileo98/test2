@@ -216,7 +216,7 @@ Entrepreneurs and leaders of mainland private enterprises have expressed hope th
 
 # China's economy solid amid challenges: NPC spokesman
 
-![Lou Qinjian, spokesman for the third session of the 14th National People's Congress, speaks during a press conference at the Great Hall of the People in Beijing. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
   
 
 China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.
@@ -363,7 +363,7 @@ US President Donald Trump has paused military aid to Ukraine following his clash
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794130_1_20250304121509.jpg&q=75)
   
 
-Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without tickets, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
+Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without permission, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
 
   
 

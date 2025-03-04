@@ -1,5 +1,53 @@
+# 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
+
+  
+
+醫務衞生局局長盧寵茂說，正積極推進將長者醫療券大灣區試點計劃，擴展至大灣區九個內地城市，並爭取在今年上半年內公布有關詳情，亦會充分利用醫健通平台，擴大跨境醫療紀錄互通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
+
+---
+
+# 全國兩會｜李家超寄語兩會代表及委員多提建議及提案
+
+![李家超傍晚抵達北京。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794199_1_20250304181050.jpg&q=85)
+  
+
+行政長官李家超抵達北京，將列席明早在人民大會堂舉行的全國人大會議開幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm)
+
+---
+
 # 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
 
+![張軍認為，中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794195_1_20250304180139.jpg&q=75)
   
 
 在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
@@ -119,6 +167,7 @@
 
 # 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
 
+![特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794189_1_20250304180706.jpg&q=80)
   
 
 特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
@@ -166,6 +215,7 @@
 
 # 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
 
+![楊全盛相信，可以在18個月之前處理得到相關工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794187_1_20250304180450.jpg&q=80)
   
 
 財政預算案提出調整二元乘車優惠計劃。八達通公司表示，需要先調整系統，不同營辦商有不同計算方式或優惠，例如轉乘優惠等，公司需要與各營辦商研究，最後要進行測試後才可推出，預計至少需要12個月，但會爭取少於18個月完成。
@@ -1387,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm)
-
----
-
-# 比亞迪擬折讓約8%配售H股　集資逾430億元
-
-![比亞迪公布，計劃配售近1.3億股新H股，每股配售價為335.2元，集資淨額約433.8億元，擬用作集團研發投入、海外業務發展等用途。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794087_1_20250304080921.jpg&q=75)
-  
-
-比亞迪公布，計劃配售近1.3億股新H股，集資總額約435.1億元，扣除佣金和估計費用後，所得淨額約433.8億元，擬用作集團研發投入、海外業務發展、補充營運資金以及一般企業用途。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm)
-
----
-
-# 港股美國預託證券普遍較本港收市下跌
-
-![小米ADR較本港收市跌逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794080_1_20250304062512.jpg&q=90)
-  
-
-港股美國預託證券(ADR)普遍較本港收市下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm)
 
 ---
