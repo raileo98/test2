@@ -1,3 +1,27 @@
+# Security tightened in Beijing ahead of Two Sessions
+
+![Authorities step up patrols and ID checks in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793999_1_20250303164358.jpg&q=35)
+  
+
+Authorities in the capital have stepped up security ahead of the annual “Two Sessions” meetings.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm)
+
+---
+
 # China warns of countermeasures against new US tariffs
 
 ![China urges the US to immediately withdraw its unilateral tariff measures, calling them "unreasonable and groundless". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794108_1_20250304100322.jpg&q=75)
@@ -1416,30 +1440,5 @@ An analyst on Tuesday said while United States president Donald Trump's steel an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm)
-
----
-
-# China adds six golds at Harbin Asian Winter Games
-
-![Han Mei took home three golds and two silvers at the Harbin Games, three of which were from individual events. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791179_1_20250211160239.jpg&q=90)
-![Sidney Chu finished 18th in the men's 1,000m speed skating. Photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791179_2_20250211160239.jpg&q=90)
-  
-
-Team China continued their dominance at the Harbin Asian Winter Games by snatching six golds on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791179-20250211.htm)
 
 ---

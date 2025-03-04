@@ -1,3 +1,27 @@
+# Security tightened in Beijing ahead of Two Sessions
+
+![Authorities step up patrols and ID checks in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793999_1_20250303164358.jpg&q=35)
+  
+
+Authorities in the capital have stepped up security ahead of the annual “Two Sessions” meetings.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm)
+
+---
+
 # SpaceX calls off Starship test flight at last minute
 
 ![The latest test flight was to include another attempt to catch the booster stage using the launch tower's "chopstick" arms. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794109_1_20250304101337.jpg&q=85)
@@ -1420,29 +1444,5 @@ Five taxi companies which were awarded licences to operate taxi fleets will roll
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm)
-
----
-
-# HK singer-songwriter Khalil Fong dies at 41
-
-![Hong Kong singer songwriter Khalil Fong died after fighting a relentless illness. Photo: Khalil Fong's social media page](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793788_1_20250301151743.jpg&q=90)
-  
-
-Hong Kong-based singer songwriter Khalil Fong has died at the age of 41, his music label revealed on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm)
 
 ---
