@@ -1,6 +1,33 @@
-# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
+# 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
 
   
+
+全國人大代表、佛山市長白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中，也非常歡迎香港市民到佛山旅遊，認為沒有任何障礙，有助增加兩地人民的感情。他又說非常歡迎港企到佛山發展，會為他們創造最好的環境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm)
+
+---
+
+# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
+
+![婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794142_1_20250304134623.jpg&q=90)
+  
+
+全國人大會議新聞發言人婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口，地位獨特、貢獻重大、作用不可替代。中央出台一系列政策舉措，全力支持港澳參與粵港澳大灣區建設。
+
   
 
 
@@ -1407,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm)
-
----
-
-# 警務處與職訓局簽署合作備忘錄促進人才培訓
-
-![警務處與職訓局簽署合作備忘錄。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793974_1_20250303131628.jpg&q=80)
-  
-
-警務處與職訓局於上月28日簽署合作備忘錄，優化全日制「紀律服務管理高級文憑」課程內容，並為參與「警隊學長計劃」的職訓局學生提供實習機會，讓他們親身體驗警務工作。警務處亦會安排分享會，向學生講解專業知識和實務技巧，並舉辦講座，提高學生的防騙防罪意識。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793974-20250303.htm)
 
 ---

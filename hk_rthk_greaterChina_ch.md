@@ -1,6 +1,33 @@
-# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
+# 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
 
   
+
+全國人大代表、佛山市長白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中，也非常歡迎香港市民到佛山旅遊，認為沒有任何障礙，有助增加兩地人民的感情。他又說非常歡迎港企到佛山發展，會為他們創造最好的環境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm)
+
+---
+
+# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
+
+![婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794142_1_20250304134623.jpg&q=90)
+  
+
+全國人大會議新聞發言人婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口，地位獨特、貢獻重大、作用不可替代。中央出台一系列政策舉措，全力支持港澳參與粵港澳大灣區建設。
+
   
 
 
@@ -67,6 +94,7 @@
 
 # 全國兩會｜常委會續審議各方意見　推動民營經濟促進法盡快出台
 
+![婁勤儉說民營經濟伴隨改革開放偉大歷史蓬勃發展，是國家社會主義市場經濟的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794139_1_20250304134339.jpg&q=90)
   
 
 在北京，全國人大會議新聞發言人婁勤儉回應《民營經濟促進法》立法進展時表示，將根據常委會繼續審議情況和各方面的意見建議，認真做好草案修改完善工作，推動法律盡快出台。
@@ -1405,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793709-20250228.htm)
-
----
-
-# 習近平晤紹伊古　稱中俄要不斷深化戰略協作和務實合作
-
-![國家主席習近平在北京人民大會堂會見俄羅斯聯邦安全會議秘書紹伊古。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793699_1_20250228215444.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂，會見俄羅斯聯邦安全會議秘書紹伊古。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793699-20250228.htm)
 
 ---

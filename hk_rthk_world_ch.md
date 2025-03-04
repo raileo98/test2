@@ -1,3 +1,27 @@
+# 南韓多處大雪　部分客船和航班停航
+
+![在南韓首爾，有市民在雨雪天氣下撐傘前行。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794146_1_20250304134936.jpg&q=85)
+  
+
+南韓氣象廳持續向慶尚道、忠清道、江原道地區發布大雪預警，全國41艘客船和4個航班停航，部分道路關閉。消防部門表示，已展開超過130次搶險救援行動，今次大雪沒有造成人員傷亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm)
+
+---
+
 # 一間中資企業與科威特簽總值逾5億美元基建項目合同
 
 ![科威特官員曾到新城項目現場視察。（能建葛洲壩集團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794124_1_20250304120056.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793878-20250302.htm)
-
----
-
-# 以色列暫停物資進入加沙地帶　哈馬斯斥戰爭罪行
-
-![在加沙地帶拉法一處建築物廢墟，一批巴勒斯坦人參加齋戒月祈禱儀式。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793877_1_20250302152852.jpg&q=75)
-  
-
-加沙地帶停火協議第一階段已於星期六結束，巴勒斯坦武裝組織哈馬斯拒絕以色列希望延長第一階段的方案，堅持要實施第二階段，又指以色列違背協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793877-20250302.htm)
 
 ---
