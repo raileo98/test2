@@ -46,7 +46,7 @@
 
 ---
 
-# 杜魯多宣布對美國進口產品徵收25%報復性關稅
+# 宣布對美徵收報復性關稅　杜魯多指特朗普目的是吞併加拿大
 
 ![杜魯多形容，特朗普的關稅措施是非常愚蠢的做法。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794245_1_20250305015455.jpg&q=90)
   
