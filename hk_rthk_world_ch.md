@@ -1,3 +1,27 @@
+# 烏國總理：仍有能力向前線部隊補給　會竭盡全力維持與美國關係
+
+![什梅加爾表示，基輔將竭盡全力維持與華盛頓的關係。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794231_1_20250304214849.jpg&q=90)
+  
+
+美國總統特朗普據報決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm)
+
+---
+
 # 東電已拆除福島核電站污水排海後空出的一個儲罐
 
 ![東電已拆除福島核電站污水排海後空出的一個儲罐。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794228_1_20250304213006.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793924-20250303.htm)
-
----
-
-# 烏拉圭總統稱願與中方不斷深化兩國全面戰略夥伴關係
-
-![奧爾西在烏拉圭首都出席總統就職儀式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793923_1_20250303062345.jpg&q=75)
-  
-
-烏拉圭新任總統奧爾西會見以國家主席習近平特使身份，出席總統就職儀式的農業農村部部長韓俊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793923-20250303.htm)
 
 ---

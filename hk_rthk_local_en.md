@@ -1,3 +1,27 @@
+# Xia tells NPC delegates to serve with sense of mission
+
+![Starry Lee (left) says NPC members will act as contributors to Hong Kong's economic development. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794232_1_20250304215054.jpg&q=75)
+  
+
+A Beijing official overseeing Hong Kong and Macau affairs has told delegates to the national legislative body to ride on the stock market boom and boost economic development in the territory.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm)
+
+---
+
 # HKUST founding president dies at 87
 
 ![Woo Chia-wai was credited for setting up the world-class HKUST Business School during his tenure. Photo courtesy: HKUST](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794219_1_20250304203731.jpg&q=90)
@@ -1413,29 +1437,5 @@ Financial Secretary Paul Chan on Wednesday said he hopes the public understand t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793329-20250226.htm)
-
----
-
-# University funding cuts 'acceptable': lawmaker
-
-![Universities will have to return HK$4 billion from their reserves to the government. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793324_1_20250226165659.jpg&q=85)
-  
-
-Lawmaker and Lingnan University's associate vice president Lau Chi-pang on Wednesday said he believed universities could cope with the proposed funding cuts which he described as "mild and acceptable".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793324-20250226.htm)
 
 ---

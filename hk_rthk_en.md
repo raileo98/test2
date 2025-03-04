@@ -1,3 +1,27 @@
+# Xia tells NPC delegates to serve with sense of mission
+
+![Starry Lee (left) says NPC members will act as contributors to Hong Kong's economic development. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794232_1_20250304215054.jpg&q=75)
+  
+
+A Beijing official overseeing Hong Kong and Macau affairs has told delegates to the national legislative body to ride on the stock market boom and boost economic development in the territory.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm)
+
+---
+
 # EU chief unveils $US840 billion 'rearm' plan
 
 ![EU chief Ursula von der Leyen has called for the Europe to 'rearm'. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794224_1_20250304205503.jpg&q=90)
@@ -1418,29 +1442,5 @@ Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm)
-
----
-
-# 'Most civil servants understand need for pay freeze'
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793871_1_20250302125453.jpg&q=85)
-  
-
-Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understood the need for a pay freeze given the government’s deficit.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm)
 
 ---

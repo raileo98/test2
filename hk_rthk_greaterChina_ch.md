@@ -1,3 +1,53 @@
+# 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
+
+![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
+![夏寶龍希望代表以高度的責任感及使命感，認真依法履職，積極反映民意、建言獻策。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_2_20250304215734.jpg&q=75)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍下午到北京飯店，看望出席十四屆全國人大三次會議的香港及澳門特別行政區全國人大代表。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
+
+---
+
+# 全國兩會｜郭基煇冀一簽多行城市擴大　呂耀東：港澳合作可以雙贏
+
+![郭基煇期望，放寬一簽多行、一周一行等措施，令旅客更方便。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794230_1_20250304214728.jpg&q=75)
+![呂耀東表示，香港及澳門是兄弟城市，未來一起合作可以雙贏，期望「一加一等於三」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794230_2_20250304214728.jpg&q=80)
+  
+
+全國政協委員、新地執行董事郭基煇說，今年提案涉及金融市場，又指香港國際金融中心非常重要，互聯互通、新股機制等都重要。他又說，另有提案提及如何做好旅遊中心，希望一簽多行城市擴大至不只大灣區城市，亦包括上海、北京、浙江、江蘇等地，吸引高增值旅客。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm)
+
+---
+
 # 中國暫停進口美國原木及美國3家企業大豆輸華資質
 
 ![海關總署暫停進口美國原木及美國3家企業大豆輸華資質。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794225_1_20250304210049.jpg&q=20)
@@ -1389,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794012-20250303.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱要向評級機構證明香港財政穩健
-
-![陳茂波表示，香港在國家發展中的獨特價值依然是「一國兩制」優勢，同時與內地及國際社會聯繫。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794006_1_20250303175756.jpg&q=25)
-  
-
-近日有評級機構警告，香港可能因赤字加深而被削弱信貸支持。財政司司長陳茂波出席一個午餐會時，有與會者關注政府擴大發債規模，如何看待評級機構的預警。陳茂波表示，要向評級機構證明香港的財政狀況穩健、借貸的理由充足，並且有一個可靠「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794006-20250303.htm)
-
----
-
-# 中方堅決反對美卿謊言謬論　已向美方嚴正交涉
-
-![林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794003_1_20250303172128.jpg&q=90)
-  
-
-在北京，外交部發言人林劍表示，中方强烈不滿及堅決反對美國國務卿魯比奧散布充斥冷戰思維的謊言謬論，已向美方提出嚴正交涉。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm)
 
 ---

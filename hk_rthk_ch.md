@@ -1,3 +1,125 @@
+# 蔡若蓮讚揚吳家瑋致力以科研推動香港邁向知識型經濟轉型
+
+![蔡若蓮說，吳家瑋領導創立科大，擔任科大校長期間為學校發展奠定堅實基礎。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794235_1_20250304220652.jpg&q=80)
+  
+
+科大創校校長吳家瑋離世，終年87歲，教育局局長蔡若蓮深表哀悼，並向其家人致以最深切的慰問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm)
+
+---
+
+# 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
+
+![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
+![夏寶龍希望代表以高度的責任感及使命感，認真依法履職，積極反映民意、建言獻策。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_2_20250304215734.jpg&q=75)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍下午到北京飯店，看望出席十四屆全國人大三次會議的香港及澳門特別行政區全國人大代表。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
+
+---
+
+# 烏國總理：仍有能力向前線部隊補給　會竭盡全力維持與美國關係
+
+![什梅加爾表示，基輔將竭盡全力維持與華盛頓的關係。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794231_1_20250304214849.jpg&q=90)
+  
+
+美國總統特朗普據報決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm)
+
+---
+
+# 全國兩會｜郭基煇冀一簽多行城市擴大　呂耀東：港澳合作可以雙贏
+
+![郭基煇期望，放寬一簽多行、一周一行等措施，令旅客更方便。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794230_1_20250304214728.jpg&q=75)
+![呂耀東表示，香港及澳門是兄弟城市，未來一起合作可以雙贏，期望「一加一等於三」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794230_2_20250304214728.jpg&q=80)
+  
+
+全國政協委員、新地執行董事郭基煇說，今年提案涉及金融市場，又指香港國際金融中心非常重要，互聯互通、新股機制等都重要。他又說，另有提案提及如何做好旅遊中心，希望一簽多行城市擴大至不只大灣區城市，亦包括上海、北京、浙江、江蘇等地，吸引高增值旅客。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm)
+
+---
+
+# 口岸爆炸案警長稱兩被告到羅湖站沒有離境而是再次返回站內
+
+![口岸爆炸案高等法院踏入第63天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794229_1_20250304214602.jpg&q=80)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第63天審訊。控方播放當年2月2日的九巴及港鐵閉路電視片段，偵緝警長稱從片段中認出女被告楊怡斯，指出九巴總站位於上水，上水港鐵站閉路電視亦拍攝到楊怡斯與一名男子登上列車及在羅湖站下車，當日下午約3時半、羅湖站曾發生爆炸；控方開案陳詞指稱，楊怡斯與該男子當日下午，將炸彈放置到羅湖站列車的車廂內。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm)
+
+---
+
 # 東電已拆除福島核電站污水排海後空出的一個儲罐
 
 ![東電已拆除福島核電站污水排海後空出的一個儲罐。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794228_1_20250304213006.jpg&q=90)

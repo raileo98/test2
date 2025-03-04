@@ -1,3 +1,76 @@
+# 蔡若蓮讚揚吳家瑋致力以科研推動香港邁向知識型經濟轉型
+
+![蔡若蓮說，吳家瑋領導創立科大，擔任科大校長期間為學校發展奠定堅實基礎。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794235_1_20250304220652.jpg&q=80)
+  
+
+科大創校校長吳家瑋離世，終年87歲，教育局局長蔡若蓮深表哀悼，並向其家人致以最深切的慰問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm)
+
+---
+
+# 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
+
+![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
+![夏寶龍希望代表以高度的責任感及使命感，認真依法履職，積極反映民意、建言獻策。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_2_20250304215734.jpg&q=75)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍下午到北京飯店，看望出席十四屆全國人大三次會議的香港及澳門特別行政區全國人大代表。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
+
+---
+
+# 口岸爆炸案警長稱兩被告到羅湖站沒有離境而是再次返回站內
+
+![口岸爆炸案高等法院踏入第63天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794229_1_20250304214602.jpg&q=80)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第63天審訊。控方播放當年2月2日的九巴及港鐵閉路電視片段，偵緝警長稱從片段中認出女被告楊怡斯，指出九巴總站位於上水，上水港鐵站閉路電視亦拍攝到楊怡斯與一名男子登上列車及在羅湖站下車，當日下午約3時半、羅湖站曾發生爆炸；控方開案陳詞指稱，楊怡斯與該男子當日下午，將炸彈放置到羅湖站列車的車廂內。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm)
+
+---
+
 # 全國兩會｜曾偉雄稱23條實施一年有達到原本效果
 
 ![曾偉雄認為，23條法律條文與很多地方比較並「不辣」。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794227_1_20250304212105.jpg&q=75)
@@ -1367,77 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm)
-
----
-
-# 屹立北角逾半世紀新光戲院正式結業
-
-![眾多市民在新光戲院外告別新光。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794060_2_20250304003122.jpg&q=80)
-  
-
-屹立北角超過50年的新光戲院正式拉閘結業。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794060-20250304.htm)
-
----
-
-# 投資推廣署部分電腦系統遭入侵　署方稱不涉及個人資料外洩
-
-![投資推廣署說，根據調查，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794058_1_20250303234955.jpg&q=90)
-  
-
-投資推廣署部分電腦系統早前被惡意勒索軟件入侵，署方表示，根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況，電腦系統已於今日大致回復正常運作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794058-20250303.htm)
-
----
-
-# 涉社交平台發布煽動訊息　巴士電器技工還押案件五月再訊
-
-![總裁判官蘇惠德將案件押後至5月8日，待辯方閱讀文件及索取指示。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794057_1_20250303232502.jpg&q=65)
-  
-
-一名巴士電器技工涉嫌在10個月內，透過社交平台發布具煽動意圖的訊息，被控明知而發布具煽動意圖的刊物罪。案件在西九龍裁判法院再訊，總裁判官蘇惠德將案件押後至5月8日，待辯方閱讀文件及索取指示，期間被告還押候訊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794057-20250303.htm)
 
 ---
