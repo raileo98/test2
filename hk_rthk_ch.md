@@ -1,3 +1,27 @@
+# 國家禁毒辦：芬太尼類物質整類列管後未查獲向境外走私案件
+
+![國家禁毒辦：芬太尼類物質整類列管後未查獲向境外走私案件](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794243_1_20250305012725.jpg&q=90)
+  
+
+國家禁毒辦負責人說，中方發布《中國的芬太尼類物質管控》白皮書，目的是讓各界人士和國際社會能夠更加全面、深入地了解中國的芬太尼類物質管控立場、舉措和成效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm)
+
+---
+
 # 澤連斯基：上周與特朗普衝突令人遺憾
 
 ![澤連斯基說，事情發展成這樣令人遺憾，現在是糾正事情的時候。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794242_1_20250305005153.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm)
-
----
-
-# 陳美寶：空運物流帶動香港貿易和經濟發展屬本港重要支柱
-
-![陳美寶表示，希望簡化中轉貨物規管架構和法例法規，盡量發揮香港自由港特色。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794175_1_20250304165325.jpg&q=30)
-  
-
-運輸及物流局局長陳美寶表示，香港機場成績有目共睹，尤其本港近年面對政治或社會情況挑戰，即使疫情亦無損香港機場在空運、貨運、物流方面表現。去年整體空運貨物吞吐量動力持續，錄得超過490萬公噸，較2023年升14%。她說，整體空運貨物佔香港外貿總值45%，認為空運物流帶動香港貿易和經濟發展，是本港重要支柱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm)
 
 ---
