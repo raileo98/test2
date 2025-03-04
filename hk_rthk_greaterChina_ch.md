@@ -1,3 +1,26 @@
+# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍在北京與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm)
+
+---
+
 # 全國兩會｜雷軍建議明確自動駕駛汽車量產時間預期
 
 ![小米集團董事長雷軍建議，要推進自動駕駛汽車大範圍測試驗證，加快推進自動駕駛汽車全國性測試驗證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794212_1_20250304193723.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793979-20250303.htm)
-
----
-
-# 全國兩會｜人大政協陸續到北京　市面保安加強有公安站崗
-
-![長安街向西徒步往王府井及天安門方向行，每隔一段路都有公安站崗，每個街口都架設藍色帳篷。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793978_1_20250303134935.jpg&q=30)
-  
-
-全國人大和政協會議未來兩日分別在北京開幕，當地市面近日已加強保安。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm)
 
 ---

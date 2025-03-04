@@ -1,3 +1,26 @@
+# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍在北京與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm)
+
+---
+
 # 全國兩會｜雷軍建議明確自動駕駛汽車量產時間預期
 
 ![小米集團董事長雷軍建議，要推進自動駕駛汽車大範圍測試驗證，加快推進自動駕駛汽車全國性測試驗證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794212_1_20250304193723.jpg&q=85)

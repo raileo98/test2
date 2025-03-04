@@ -1,3 +1,26 @@
+# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
+
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍在北京與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm)
+
+---
+
 # 科大創校校長吳家瑋離世終年87歲
 
 ![吳家瑋曾在科大擔任校長10年，任內為學校奠定堅實基礎。（科大提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794210_1_20250304193946.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794047-20250303.htm)
-
----
-
-# 口岸爆炸案警員稱於被告住所檢兩支硫酸　辯方指包裝標示為通渠水
-
-![口岸爆炸案高等法院踏入第62天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794046_1_20250303221537.jpg&q=90)
-  
-
-8名男女涉2020年初口岸爆炸案，高等法院踏入第62天審訊。證物警員供稱，自己當年3月隨隊前往女被告楊怡斯位於油塘住所，警方爆門入屋及後拘捕楊怡斯，警員稱在單位內檢獲一面美國國旗、一面印有「光時」口號的黑色旗幟、34支生理鹽水及兩支硫酸等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm)
 
 ---
