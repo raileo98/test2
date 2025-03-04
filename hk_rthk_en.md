@@ -219,7 +219,7 @@ US stocks closed sharply lower on Monday, after US President Donald Trump slappe
 ![Trump's new tariffs are also set to tax Canadian energy products, such as oil and electricity, at a lower 10 per cent rate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794093_1_20250304083830.jpg&q=35)
   
 
-US President Donald Trump said on Monday that 25 per cent taxes on imports from Mexico and Canada would start on Tuesday, sparking renewed fears of a North American trade war that already showed signs of pushing up inflation and hindering growth.
+US President Donald Trump said on Monday that 25 percent taxes on imports from Mexico and Canada would start on Tuesday, sparking renewed fears of a North American trade war that already showed signs of pushing up inflation and hindering growth.
 
   
 

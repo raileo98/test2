@@ -1,4 +1,27 @@
-# 全國兩會 |北京協和醫院院長張抒揚：與香港科技大學有科研合作
+# 全國兩會｜小鵬汽車董事長何小鵬：期待香港發展低空經濟
+
+  
+
+全國人大代表、小鵬汽車董事長何小鵬表示，國家一直支持民營企業，最近幾年對實體行業支持更多，包括農業上都有支持，如果從第三產業逐漸向第二產業、第一產業更平衡、更全面的話，所有民營企業家都會很開心。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm)
+
+---
+
+# 全國兩會｜北京協和醫院院長張抒揚：與香港科技大學有科研合作
 
   
 
@@ -88,7 +111,7 @@
 
 ---
 
-# 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+# 全國兩會｜李家超出發前往北京　列席明日全國人大開幕會
 
   
 
@@ -159,7 +182,7 @@
 
 ---
 
-# 全國兩會 |全國人大預備會議通過大會議程
+# 全國兩會｜全國人大預備會議通過大會議程
 
 ![十四屆全國人大三次會議舉行預備會議，通過大會議程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794123_1_20250304122301.jpg&q=55)
   
@@ -1405,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793683-20250228.htm)
-
----
-
-# 中方堅決反對美國參議院個別議員攻擊抹黑香港特區立法
-
-![林劍說，中方敦促美國個別議員立即停止插手香港事務、停止干涉中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793668_1_20250228161307.jpg&q=90)
-  
-
-中方對美國國會參議院個別議員攻擊抹黑香港特區立法，詆毀香港的人權法治，粗暴干涉香港事務，表示堅決反對。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793668-20250228.htm)
 
 ---

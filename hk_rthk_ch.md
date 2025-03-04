@@ -1,3 +1,49 @@
+# 全國兩會｜小鵬汽車董事長何小鵬：期待香港發展低空經濟
+
+  
+
+全國人大代表、小鵬汽車董事長何小鵬表示，國家一直支持民營企業，最近幾年對實體行業支持更多，包括農業上都有支持，如果從第三產業逐漸向第二產業、第一產業更平衡、更全面的話，所有民營企業家都會很開心。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm)
+
+---
+
+# 全國兩會｜北京協和醫院院長張抒揚：與香港科技大學有科研合作
+
+  
+
+全國人大代表、北京協和醫院院長張抒揚接受本台訪問表示，該醫院與香港科技大學在科技、科研有合作，雙方亦在醫學項目、醫學教育、醫生培養等有合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm)
+
+---
+
 # 全國兩會｜常委會續審議各方意見　推動民營經濟促進法盡快出台
 
   

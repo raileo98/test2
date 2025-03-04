@@ -1,4 +1,27 @@
-# 全國兩會 |北京協和醫院院長張抒揚：與香港科技大學有科研合作
+# 全國兩會｜小鵬汽車董事長何小鵬：期待香港發展低空經濟
+
+  
+
+全國人大代表、小鵬汽車董事長何小鵬表示，國家一直支持民營企業，最近幾年對實體行業支持更多，包括農業上都有支持，如果從第三產業逐漸向第二產業、第一產業更平衡、更全面的話，所有民營企業家都會很開心。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm)
+
+---
+
+# 全國兩會｜北京協和醫院院長張抒揚：與香港科技大學有科研合作
 
   
 
@@ -45,7 +68,7 @@
 
 ---
 
-# 全國兩會 |李家超出發前往北京　列席明日全國人大開幕會
+# 全國兩會｜李家超出發前往北京　列席明日全國人大開幕會
 
   
 
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793971-20250303.htm)
-
----
-
-# 醫管局3間護士學校今年招收3百人　 今年提早接受申請
-
-![三間護士學校提供的全日制護理學文憑課程提早於今日起接受申請，課程去年起已由4年縮短為3年半。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793970_1_20250303124209.jpg&q=80)
-  
-
-醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課。明愛醫院護士學校說，近年在職人士報讀的比例增加，今年將報名日期提早至3月，希望方便他們及早規劃工作安排。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793970-20250303.htm)
 
 ---
