@@ -1,3 +1,51 @@
+# 美國向中國返還41件文物藝術品
+
+![國家文物局接收美國向中國返還的41件文物藝術品。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794090_1_20250304082857.jpg&q=90)
+  
+
+國家文物局在美國紐約曼哈頓檢察官辦公室，接收美國向中國返還的41件文物藝術品，包括銅搖錢樹和陶座、素面陶鬲、素面帶蓋銅鈁、陶說唱俑等，種類涵蓋陶器、玉器、青銅器、佛造像、畫像磚及藏傳佛教文物等。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm)
+
+---
+
+# 據報美國暫停對烏克蘭軍事援助
+
+![據報美國暫停對烏克蘭的軍事援助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794086_1_20250304083718.jpg&q=80)
+  
+
+據報美國暫停對烏克蘭的軍事援助。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm)
+
+---
+
 # 特朗普：澤連斯基應該對美國更加感激
 
 ![特朗普暗示若果澤連斯基不想達成協議，不會在位很久。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794078_1_20250304055436.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793849-20250302.htm)
-
----
-
-# 埃爾多安警告若庫爾德工人黨不信守承諾將重啟軍事行動
-
-![埃爾多安說，如果庫爾德工人黨試圖欺騙或採取拖延戰術，就要承擔責任。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793845_1_20250302041650.jpg&q=85)
-  
-
-土耳其總統埃爾多安警告，如果庫爾德工人黨不信守承諾，土耳其將會重啟軍事行動並予以打擊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793845-20250302.htm)
-
----
-
-# 美國有貨機遭鳥擊導致引擎起火緊急降落
-
-![飛機起飛後不久因為鳥擊導致引擎起火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793844_1_20250302031443.jpg&q=90)
-  
-
-美國聯邦快遞一架貨機因為遭到鳥擊導致引擎起火，需要緊急降落。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793844-20250302.htm)
 
 ---

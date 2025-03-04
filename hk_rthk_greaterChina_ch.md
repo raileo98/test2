@@ -1,3 +1,27 @@
+# 美國向中國返還41件文物藝術品
+
+![國家文物局接收美國向中國返還的41件文物藝術品。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794090_1_20250304082857.jpg&q=90)
+  
+
+國家文物局在美國紐約曼哈頓檢察官辦公室，接收美國向中國返還的41件文物藝術品，包括銅搖錢樹和陶座、素面陶鬲、素面帶蓋銅鈁、陶說唱俑等，種類涵蓋陶器、玉器、青銅器、佛造像、畫像磚及藏傳佛教文物等。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm)
+
+---
+
 # 全國兩會 | 何漢權引述夏寶龍：政協委員要成為監察者及局中人
 
 ![何漢權引述夏寶龍說，政協委員除了做監察者，更重要是成為局中人，就像球賽上一名積極的運動員。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794082_1_20250304065419.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793610-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793610-20250228.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱需更多高消費旅客及開拓內地新客源
-
-![陳茂波認為，本港需要更多高消費旅客，同時亦要開拓內地新客源。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793609_1_20250228102254.jpg&q=70)
-  
-
-財政司司長陳茂波說，零售業在過去兩年經歷一些挑戰，本地消費者及旅客的消費模式不斷改變，認為本港需要更多高消費旅客，同時亦要開拓內地新客源。他表示，得到中央支持，開放更多省市的人士以個人遊方式來港旅客，一簽多行亦可能擴展至更多大灣區城市的居民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793609-20250228.htm)
 
 ---

@@ -1,3 +1,117 @@
+# 金發局：不擔心政府撥款減少影響未來工作部署
+
+新一份財政預算案相關帳目顯示，2025/26年度金發局獲得政府撥款4690萬元，比本年度修訂的4750萬元輕微減少。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm)
+
+---
+
+# 金發局洪丕正：開拓東盟中東等新興市場　加強與傳統歐美市場聯繫
+
+渣打國際業務行政總裁洪丕正年初獲委任為金融發展局主席。他受傳媒訪問時表示，即使全球經濟波動性和不確定性較大，但同時存在增長機遇，香港作為全球主要國際金融中心之一，連接內地市場及國際投資者的角色獨特。他列出金發局未來三大工作重點，包括定期檢視和改善香港金融市場的國際地位和競爭力、向國際推廣香港，以及培訓和引入業界人才。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm)
+
+---
+
+# 韓股初段偏軟
+
+![首爾綜合指數較早時報2526點，跌5點，跌幅0.23%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794089_1_20250304081326.jpg&q=85)
+  
+
+南韓股市在開市初段偏軟，首爾綜合指數較早時報2526點，跌5點，跌幅0.23%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm)
+
+---
+
+# 日股初段跌逾1%
+
+![日經平均指數較早時報37306點，跌478點，跌幅1.27%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794088_1_20250304081130.jpg&q=25)
+  
+
+日本股市在開市初段跌逾1%，日經平均指數較早時報37306點，跌478點，跌幅1.27%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm)
+
+---
+
+# 比亞迪擬折讓約8%配售H股　集資逾430億元
+
+![比亞迪公布，計劃配售近1.3億股新H股，每股配售價為335.2元，集資淨額約433.8億元，擬用作集團研發投入、海外業務發展等用途。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794087_1_20250304080921.jpg&q=75)
+  
+
+比亞迪公布，計劃配售近1.3億股新H股，集資總額約435.1億元，扣除佣金和估計費用後，所得淨額約433.8億元，擬用作集團研發投入、海外業務發展、補充營運資金以及一般企業用途。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![小米ADR較本港收市跌逾4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794080_1_20250304062512.jpg&q=90)
@@ -1318,125 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm)
-
----
-
-# 財新中國2月製造業PMI創3個月高位　產出和新訂單增長
-
-![財新中國2月製造業PMI升至50.8，為去年11月以來最高；生產指數和新訂單指數均升至3個月來最高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793953_1_20250303101929.jpg&q=90)
-  
-
-財新中國2月製造業採購經理指數（PMI）升至50.8，高於前一個月的50.1，為去年11月以來最高。數據顯示，製造業生產經營活動加快擴張。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793953-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793953-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793953-20250303.htm)
-
----
-
-# 財政預算案2025｜陳美寶稱會研究創新方法紓緩泊車位不足
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793949_2_20250303104853.jpg&q=80)
-  
-
-《財政預算案》提出研究徵收200元的私家車陸路離境稅，對於有報導指相關建議引起內地不滿，運輸及物流局局長陳美寶出席一個電台節目表示，明白社會上有不同聲音，特區政府一直致力推動大灣區融合，《預算案》提出有關研究建議時已考慮兩地融合的問題。經過深思熟慮，市民現時到內地亦有不同方法，包括高鐵、陸路口岸、私家車、跨境巴士等，期望以「用者自付、能者多付」的原則，開拓政府收入來源，平衡支出。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793949-20250303.htm)
-
----
-
-# 日本2月製造業PMI連續8個月收縮
-
-![日本製造業採購經理指數(PMI)終值升至2月的49，收縮程度3個月以來最輕微。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793943_1_20250303094821.jpg&q=70)
-  
-
-日本2月工廠活動連續8個月收縮，但幅度收窄。日本製造業採購經理指數（PMI）終值由1月時48.7，升至2月時49，收縮程度3個月以來最輕微，但略高於48.9的初值。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793943-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793943-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793943-20250303.htm)
-
----
-
-# 財政預算案2025｜港大第二學位醫學士課程6月20日截止申請
-
-![港大醫學院推出四年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793945_1_20250303110049.jpg&q=80)
-  
-
-港大醫學院推出4年全日制內外全科醫學士課程第二學位入學途徑，讓持有學位人士報讀，課程日前已獲大學教育資助委員會批准，首年學額25個，預計首批新生於今年9月入學，現正接受報名，截止申請日期為6月20日，下星期三會舉行入學資訊講座。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793945-20250303.htm)
-
----
-
-# 人行開展970億元人民幣逆回購操作
-
-![人民銀行公開市場開展970億元人民幣7日期逆回購操作，單日轉為淨回籠1955億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793941_1_20250303093503.jpg&q=50)
-  
-
-人民銀行公開市場開展970億元人民幣7日期逆回購操作，利率維持於1.5厘。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793941-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793941-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793941-20250303.htm)
 
 ---

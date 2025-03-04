@@ -1,3 +1,165 @@
+# 金發局：不擔心政府撥款減少影響未來工作部署
+
+新一份財政預算案相關帳目顯示，2025/26年度金發局獲得政府撥款4690萬元，比本年度修訂的4750萬元輕微減少。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm)
+
+---
+
+# 金發局洪丕正：開拓東盟中東等新興市場　加強與傳統歐美市場聯繫
+
+渣打國際業務行政總裁洪丕正年初獲委任為金融發展局主席。他受傳媒訪問時表示，即使全球經濟波動性和不確定性較大，但同時存在增長機遇，香港作為全球主要國際金融中心之一，連接內地市場及國際投資者的角色獨特。他列出金發局未來三大工作重點，包括定期檢視和改善香港金融市場的國際地位和競爭力、向國際推廣香港，以及培訓和引入業界人才。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm)
+
+---
+
+# 美國向中國返還41件文物藝術品
+
+![國家文物局接收美國向中國返還的41件文物藝術品。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794090_1_20250304082857.jpg&q=90)
+  
+
+國家文物局在美國紐約曼哈頓檢察官辦公室，接收美國向中國返還的41件文物藝術品，包括銅搖錢樹和陶座、素面陶鬲、素面帶蓋銅鈁、陶說唱俑等，種類涵蓋陶器、玉器、青銅器、佛造像、畫像磚及藏傳佛教文物等。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm)
+
+---
+
+# 韓股初段偏軟
+
+![首爾綜合指數較早時報2526點，跌5點，跌幅0.23%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794089_1_20250304081326.jpg&q=85)
+  
+
+南韓股市在開市初段偏軟，首爾綜合指數較早時報2526點，跌5點，跌幅0.23%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794089-20250304.htm)
+
+---
+
+# 日股初段跌逾1%
+
+![日經平均指數較早時報37306點，跌478點，跌幅1.27%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794088_1_20250304081130.jpg&q=25)
+  
+
+日本股市在開市初段跌逾1%，日經平均指數較早時報37306點，跌478點，跌幅1.27%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794088-20250304.htm)
+
+---
+
+# 比亞迪擬折讓約8%配售H股　集資逾430億元
+
+![比亞迪公布，計劃配售近1.3億股新H股，每股配售價為335.2元，集資淨額約433.8億元，擬用作集團研發投入、海外業務發展等用途。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794087_1_20250304080921.jpg&q=75)
+  
+
+比亞迪公布，計劃配售近1.3億股新H股，集資總額約435.1億元，扣除佣金和估計費用後，所得淨額約433.8億元，擬用作集團研發投入、海外業務發展、補充營運資金以及一般企業用途。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794087-20250304.htm)
+
+---
+
+# 據報美國暫停對烏克蘭軍事援助
+
+![據報美國暫停對烏克蘭的軍事援助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794086_1_20250304083718.jpg&q=80)
+  
+
+據報美國暫停對烏克蘭的軍事援助。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm)
+
+---
+
 # 英格蘭足總盃　諾定咸森林互射12碼淘汰葉士域治
 
 ![森林門將撲出最後一個12碼，與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794084_1_20250304071736.jpg&q=75)
@@ -1268,173 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm)
-
----
-
-# 阿諾拉成奧斯卡大贏家米姬麥迪遜封后　艾哲倫保迪再做影帝
-
-![米姬麥迪遜憑電影《阿諾拉》在奧斯卡封后。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794017_1_20250303182841.jpg&q=90)
-  
-
-第97屆奧斯卡頒獎典禮，講述紐約一名性工作者遭遇的電影《阿諾拉》，橫掃5個奬項成為大贏家，包括最佳電影。憑這部戲封后的米姬麥迪遜在台上向性工作者群體致謝，承諾繼續做大家的伙伴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794017-20250303.htm)
-
----
-
-# 廉署審查貪污舉報諮詢委員會指貪污情況續受控
-
-![審查貪污舉報諮詢委員會解釋，投訴不代表檢控，本港貪污情況繼續有效受控。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794025_1_20250303205929.jpg&q=85)
-  
-
-廉署去年共接獲2058宗的貪污投訴，較前年增加3%，當中600多宗涉及政府部門及公共機構。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm)
-
----
-
-# 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
-
-![陳茂波強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794024_1_20250303205802.jpg&q=30)
-  
-
-財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
-
----
-
-# 的士車隊啟動禮舉行　陳美寶冀發揮領頭羊角色
-
-![政府舉行的士車隊啟動禮，有車隊於本月底投入服務。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794023_1_20250303205737.jpg&q=75)
-  
-
-政府舉行的士車隊啟動禮，有車隊於本月底投入服務，其餘會在本月至7月期間陸續「落地」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794023-20250303.htm)
-
----
-
-# 的士車隊本月底開始陸續投入服務
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794019_1_20250303184302.jpg&q=70)
-  
-
-的士車隊將於本月底開始投入服務，運輸及物流局局長陳美寶在的士車隊啟動禮表示，的士業界近年面對風風雨雨和挑戰，必須要有破革和創新，否則與時代脫節。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794019-20250303.htm)
-
----
-
-# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
-
-![劉結一表示，全國政協將持續支持大灣區建設，助力港澳在融入國家發展大局中，實現自身更好發展。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794022_1_20250303205623.jpg&q=90)
-  
-
-全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
-
----
-
-# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
-
-![「世界格蘭披治桌球大獎賽2025」獲頒授「M」品牌認可。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794021_1_20250303185402.jpg&q=90)
-  
-
-大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
 
 ---
