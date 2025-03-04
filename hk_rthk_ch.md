@@ -1,3 +1,51 @@
+# 滬股回升逾0.2%收市　創業板指數全日跌幅收窄至約0.3%
+
+![上證指數低開高走，於3300點失而復得，收報3324點，升7點，升幅0.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794159_1_20250304150817.jpg&q=85)
+  
+
+內地股市3大指數個別發展，軍工及半導體股份造好，煤炭、白酒股下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794159-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794159-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794159-20250304.htm)
+
+---
+
+# 本港2月住宅樓宇買賣合約註冊量按月跌約12%
+
+![本港2月送交註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794163_1_20250304151750.jpg&q=45)
+  
+
+本港2月送交土地註冊處註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%；合約總值230億元，按月下跌13.9%，按年上升20.5%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm)
+
+---
+
 # 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
 
   
@@ -185,6 +233,7 @@
 
 # 全國兩會｜婁勤儉：2024年2萬億元置換債券額度全部發行完畢
 
+![婁勤儉說今年的2萬億元置換債券發行相關工作已經啟動。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794154_1_20250304152459.jpg&q=90)
   
 
 在北京，全國人大會議新聞發言人婁勤儉表示，去年11月，人大常委會會議批准增加6萬億元地方政府債務限額置換存量隱性債務。截至去年底，2024年的2萬億元置換債券額度已全部發行完畢，大部分地區已完成置換。今年的2萬億元置換債券發行相關工作已經啟動。
@@ -376,6 +425,7 @@
 
 # 全國兩會｜小鵬汽車董事長何小鵬：期待香港發展低空經濟
 
+![何小鵬說期待香港推出相關政策支持低空經濟。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794141_1_20250304152414.jpg&q=75)
   
 
 全國人大代表、小鵬汽車董事長何小鵬表示，國家一直支持民營企業，最近幾年對實體行業支持更多，包括農業上都有支持，如果從第三產業逐漸向第二產業、第一產業更平衡、更全面的話，所有民營企業家都會很開心。

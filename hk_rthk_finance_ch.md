@@ -1,3 +1,27 @@
+# 滬股回升逾0.2%收市　創業板指數全日跌幅收窄至約0.3%
+
+![上證指數低開高走，於3300點失而復得，收報3324點，升7點，升幅0.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794159_1_20250304150817.jpg&q=85)
+  
+
+內地股市3大指數個別發展，軍工及半導體股份造好，煤炭、白酒股下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794159-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794159-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794159-20250304.htm)
+
+---
+
 # 本港2月住宅樓宇買賣合約註冊量按月跌約12%
 
 ![本港2月送交註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794163_1_20250304151750.jpg&q=45)
@@ -142,6 +166,7 @@
 
 # 全國兩會｜婁勤儉：2024年2萬億元置換債券額度全部發行完畢
 
+![婁勤儉說今年的2萬億元置換債券發行相關工作已經啟動。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794154_1_20250304152459.jpg&q=90)
   
 
 在北京，全國人大會議新聞發言人婁勤儉表示，去年11月，人大常委會會議批准增加6萬億元地方政府債務限額置換存量隱性債務。截至去年底，2024年的2萬億元置換債券額度已全部發行完畢，大部分地區已完成置換。今年的2萬億元置換債券發行相關工作已經啟動。
@@ -1408,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm)
-
----
-
-# 財政預算案2025｜蔡海偉稱社福機構或選擇減人手減薪酬
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794026_1_20250303190110.jpg&q=80)
-  
-
-財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，中小型社福機構只需要削減3%資源，其餘4%由社署承擔；至於50多間獲得超過5000萬元撥款的大型社福機構，就需要在27/28年度累計削減7%開支。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm)
 
 ---
