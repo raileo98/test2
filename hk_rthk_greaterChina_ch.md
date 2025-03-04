@@ -1,3 +1,27 @@
+# 全國兩會｜雷軍建議明確自動駕駛汽車量產時間預期
+
+![小米集團董事長雷軍建議，要推進自動駕駛汽車大範圍測試驗證，加快推進自動駕駛汽車全國性測試驗證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794212_1_20250304193723.jpg&q=85)
+  
+
+十四屆全國人大三次會議明日開幕。全國人大代表、小米集團董事長雷軍表示，提交了5份圍繞新能源汽車和人工智能（AI）產業發展的建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm)
+
+---
+
 # 全國兩會｜余國樑：港隊目標在今屆全運會乒乓球項目可打入八強
 
 ![余國樑說，今屆全運會乒乓球項目在澳門舉行，港隊暫時未有心水名單，但目標可以打入八強。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794208_1_20250304190316.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793978-20250303.htm)
-
----
-
-# 全國兩會｜北京市面明顯加強保安　有市民稱感覺更安全
-
-![北京民眾認為今年兩會保安比以往嚴密。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793968_1_20250303135213.jpg&q=75)
-  
-
-全國政協十四屆三次會議明日開幕，新聞發布會今日下午在北京人民大會堂舉行，發言人劉結一將介紹大會情況並回答記者提問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm)
 
 ---

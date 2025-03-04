@@ -1,3 +1,51 @@
+# 全國兩會｜雷軍建議明確自動駕駛汽車量產時間預期
+
+![小米集團董事長雷軍建議，要推進自動駕駛汽車大範圍測試驗證，加快推進自動駕駛汽車全國性測試驗證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794212_1_20250304193723.jpg&q=85)
+  
+
+十四屆全國人大三次會議明日開幕。全國人大代表、小米集團董事長雷軍表示，提交了5份圍繞新能源汽車和人工智能（AI）產業發展的建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm)
+
+---
+
+# 澳博去年轉賺300萬元　不派末期息
+
+![澳博去年業績扭虧為盈，賺300萬元，繼續不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794209_1_20250304190624.jpg&q=80)
+  
+
+澳博去年業績扭虧為盈，賺300萬元，繼續不派末期息，前年虧損20.1億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794209-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794209-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794209-20250304.htm)
+
+---
+
 # 金管局：正更新優化CMU系統　長遠研究建立多元化資產存管平台
 
 ![余偉文稱長遠將研究創建多元化資產存管平台可行性，並探討支援跨資產類別的淨額結算、提高結算效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794201_1_20250304181136.jpg&q=85)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm)
-
----
-
-# 人民幣兌美元中間價升6點子
-
-![人民幣中間價報7.1739兌1美元，較上日中間價上調6點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794099_1_20250304091735.jpg&q=90)
-  
-
-人民幣中間價報7.1739兌1美元，較上日中間價上調6點子。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm)
-
----
-
-# 台股開市後下跌
-
-![台灣加權指數較早時報22373點，跌382點，跌幅1.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794098_1_20250304090731.jpg&q=85)
-  
-
-台灣股市下跌。加權指數較早時報22373點，跌382點，跌幅1.68%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm)
 
 ---

@@ -1,6 +1,10 @@
 # 科大創校校長吳家瑋離世終年87歲
 
+![吳家瑋曾在科大擔任校長10年，任內為學校奠定堅實基礎。（科大提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794210_1_20250304193946.jpg&q=90)
   
+
+科大表示，創校校長吳家瑋星期日離世，終年87歲。
+
   
 
 

@@ -1,3 +1,51 @@
+# 全國兩會｜雷軍建議明確自動駕駛汽車量產時間預期
+
+![小米集團董事長雷軍建議，要推進自動駕駛汽車大範圍測試驗證，加快推進自動駕駛汽車全國性測試驗證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794212_1_20250304193723.jpg&q=85)
+  
+
+十四屆全國人大三次會議明日開幕。全國人大代表、小米集團董事長雷軍表示，提交了5份圍繞新能源汽車和人工智能（AI）產業發展的建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794212-20250304.htm)
+
+---
+
+# 澳博去年轉賺300萬元　不派末期息
+
+![澳博去年業績扭虧為盈，賺300萬元，繼續不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794209_1_20250304190624.jpg&q=80)
+  
+
+澳博去年業績扭虧為盈，賺300萬元，繼續不派末期息，前年虧損20.1億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794209-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794209-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794209-20250304.htm)
+
+---
+
 # 歐盟宣布實施8000億歐元「重新武裝歐洲」計劃
 
 ![馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794211_1_20250304192539.jpg&q=90)
@@ -24,7 +72,11 @@
 
 # 科大創校校長吳家瑋離世終年87歲
 
+![吳家瑋曾在科大擔任校長10年，任內為學校奠定堅實基礎。（科大提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794210_1_20250304193946.jpg&q=90)
   
+
+科大表示，創校校長吳家瑋星期日離世，終年87歲。
+
   
 
 
