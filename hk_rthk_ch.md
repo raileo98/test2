@@ -1,3 +1,73 @@
+# 全國兩會｜彭耀佳稱旅發局善用資源做到最好
+
+  
+
+全國政協委員、即將卸任旅發局主席的彭耀佳表示，滿意自己的成績，但應由香港市民及政府對他評價，希望大家認為是合格。擔任六年旅發局主席的彭耀佳表示，多年來最難忘是疫情時零遊客，業界「冇飯食」，因此要推出措施，令業界可以生存。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm)
+
+---
+
+# 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
+
+  
+
+在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm)
+
+---
+
+# 國務院新聞辦發布芬太尼管控白皮書　稱與美合作應對取得明顯成效
+
+![白皮書指出，中國對芬太尼類藥品的生產及使用等各環節動態全程監控、閉環管理。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794193_1_20250304174946.jpg&q=90)
+  
+
+國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm)
+
+---
+
 # 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
 
   

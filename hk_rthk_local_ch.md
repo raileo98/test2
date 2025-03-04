@@ -1,3 +1,26 @@
+# 全國兩會｜彭耀佳稱旅發局善用資源做到最好
+
+  
+
+全國政協委員、即將卸任旅發局主席的彭耀佳表示，滿意自己的成績，但應由香港市民及政府對他評價，希望大家認為是合格。擔任六年旅發局主席的彭耀佳表示，多年來最難忘是疫情時零遊客，業界「冇飯食」，因此要推出措施，令業界可以生存。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm)
+
+---
+
 # 陳翊庭：港交所將大力發展固定收益及貨幣市場
 
 ![陳翊庭料內地固定收益市場將持續高速增長，與離岸市場的互聯互通亦將增強。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794185_1_20250304171825.jpg&q=80)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794025-20250303.htm)
-
----
-
-# 財政預算案2025年｜陳茂波稱有可靠計劃達至收支平衡
-
-![陳茂波強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794024_1_20250303205802.jpg&q=30)
-  
-
-財政司司長陳茂波回應有評級機構對香港信用評級的預警，強調香港財政狀況穩健，有一個可靠的「強化版」財政整合計劃，去控制香港的開支增長，達至收支平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794024-20250303.htm)
 
 ---

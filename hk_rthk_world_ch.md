@@ -1,3 +1,50 @@
+# 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
+
+  
+
+在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm)
+
+---
+
+# 國務院新聞辦發布芬太尼管控白皮書　稱與美合作應對取得明顯成效
+
+![白皮書指出，中國對芬太尼類藥品的生產及使用等各環節動態全程監控、閉環管理。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794193_1_20250304174946.jpg&q=90)
+  
+
+國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm)
+
+---
+
 # 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
 
 ![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm)
-
----
-
-# 俄外長：有歐洲國家想俄烏衝突延續　派維和部隊意味危機根源不除
-
-![拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793909_1_20250302234729.jpg&q=90)
-  
-
-俄羅斯外長拉夫羅夫認為，部分歐洲國家希望俄烏衝突延續。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793909-20250303.htm)
-
----
-
-# 施紀賢召開歐洲領導人峰會商討烏國危機　意總理稱須避免西方分裂
-
-![施紀賢在倫敦蘭開斯特府主持召開歐洲領導人峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793908_1_20250302233916.jpg&q=85)
-  
-
-英國首相施紀賢在倫敦蘭開斯特府主持召開歐洲領導人峰會，討論烏克蘭危機和歐洲防務問題，烏克蘭總統澤連斯基、法國總統馬克龍、德國總理朔爾茨、意大利總理梅洛尼、歐盟委員會主席馮德萊恩、北約秘書長呂特等領導人出席，加拿大總理杜魯多亦有參與。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793908-20250303.htm)
 
 ---

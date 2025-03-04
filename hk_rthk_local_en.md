@@ -1,3 +1,27 @@
+# 'HK and Macau leisure sectors should join hands'
+
+![Galaxy Entertainment Group chairman Francis Lui says Macau’s leisure industry has been developing steadily in recent years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794196_1_20250304175846.jpg&q=75)
+  
+
+The chairman of a leading casino and hospitality group in Macau said on Tuesday that his city and Hong Kong should work together to attract more foreign investors.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm)
+
+---
+
 # Octopus to speed up work for changing HK$2 scheme
 
 ![Jeny Yeung said Octopus will try to complete its adaptation to the HK$2 scheme adjustment in less than 18 months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794167_1_20250304161513.jpg&q=80)
@@ -1413,29 +1437,5 @@ Executive Council convenor Regina Ip on Wednesday said she supported the governm
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793303-20250226.htm)
-
----
-
-# Dose of sweeteners in budget despite belt-tightening
-
-![The government has announced various relief measures to support residents and businesses. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793261_1_20250226133409.jpg&q=70)
-  
-
-Efforts to contain government spending didn't stop Financial Secretary Paul Chan from sprinkling some sweeteners into the budget announced on Wednesday, but his offerings were slimmed down this time around.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793261-20250226.htm)
 
 ---

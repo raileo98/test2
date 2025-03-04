@@ -1,3 +1,26 @@
+# 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
+
+  
+
+在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm)
+
+---
+
 # 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
 
   
@@ -259,6 +282,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm)
+
+---
+
+# 前藝人王賢誌入稟申請破產　法庭正式頒布破產令
+
+![聆案官核對所需文件，確認沒有任何人反對，正式頒令王賢誌破產。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794178_1_20250304165814.jpg&q=85)
+  
+
+前藝人王賢誌去年入稟申請破產，案件上月開庭處理時有債權人到庭旁聽，懷疑王賢誌向其借貸時隱瞞負債，聆案官當時已清晰表示此非反對破產令的理由。破產案今日在高等法院再訊，聆案官黃健棠核對所需文件，確認沒有任何人反對王賢誌破產後，正式頒令王賢誌破產。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm)
 
 ---
 
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794080-20250304.htm)
-
----
-
-# 美元下跌　烏克蘭和談憧憬推動歐元上升
-
-![美元指數失守107水平，歐元兌美元在紐約尾市升逾1%，受到烏克蘭和談憧憬推動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794079_1_20250304061850.jpg&q=85)
-  
-
-歐元反彈，受到烏克蘭和談憧憬推動。歐元兌美元在紐約尾市升逾1%，報1.0484美元。有分析指，烏克蘭可能達成和平協議，歐元區國家可能增加財政支出，都將推動未來經濟增長，從而支持歐元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794079-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794079-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794079-20250304.htm)
-
----
-
-# 道指低收649點　納指跌近3%　關稅憂慮及製造業指數下跌
-
-![道瓊斯指數先高後低，尾市最多曾跌逾920點，收市報43191點，跌649點，跌幅約1.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794077_1_20250304055354.jpg&q=90)
-  
-
-美股3大指數收市跌逾1%至近3%。美國總統特朗普表示，墨西哥和加拿大已沒有機會阻止25%的關稅於周二生效，並表示從下月2日起徵收對等關稅。此外，美國2月供應管理協會(ISM)製造業指數跌至50.3差過預期，新訂單指數由擴張轉為收縮亦反映關稅憂慮，都拖累大市表現。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794077-20250304.htm)
 
 ---
