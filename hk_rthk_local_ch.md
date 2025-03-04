@@ -1,3 +1,24 @@
+# 羅淑佩：警方調查啟德體育園開幕日有人將沒有門票觀眾帶入場
+
+啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm)
+
+---
+
 # 恒指曾跌逾400點　汽車股下挫
 
 ![恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794116_1_20250304104110.jpg&q=10)
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm)
-
----
-
-# 全國兩會｜行政會議明日及下周二不舉行會議　本月18日復會
-
-![部分行政會議成員需出席北京舉行的全國兩會，行政會議期間不舉行會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793952_1_20250303102408.jpg&q=80)
-  
-
-行政會議秘書處表示，由於身兼港區全國人大代表和港區全國政協委員的行政會議成員，需分別出席於北京舉行的第十四屆全國人大三次會議，以及全國政協第十四屆三次會議，按一貫做法，行政會議明日及下星期二不舉行會議，本月18日復會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm)
 
 ---

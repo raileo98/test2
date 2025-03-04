@@ -1,3 +1,24 @@
+# 羅淑佩：警方調查啟德體育園開幕日有人將沒有門票觀眾帶入場
+
+啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm)
+
+---
+
 # 加拿大擬周二起對美商品徵收25%報復性關稅
 
 加拿大總理杜魯多表示，如果美國的關稅措施生效，加拿大將從星期二開始，對價值300億加元的美國進口產品徵收25%關稅。
@@ -1409,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm)
-
----
-
-# 德國曼海姆市有車撞人據報最少1死　司機已被拘留
-
-![多輛緊急車輛趕到事發現場協助。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794042_1_20250303212037.jpg&q=60)
-  
-
-德國西部城市曼海姆有汽車衝向人群，多人受傷倒地，當地傳媒報道，事件造成至少1人死亡。警方說，涉案司機已被拘留，正調查有沒有其他人涉案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm)
 
 ---
