@@ -1,3 +1,27 @@
+# China to impose new tariffs on US agricultural goods
+
+![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=80)
+  
+
+China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range of between 10 and 15 percent hikes to import levies covering a basket of American agricultural and food products, while placing 25 US firms under export and investment restrictions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
+
+---
+
 # HK govt still in the dark over new US tariffs
 
 ![Algernon Yau says the SAR government is still seeking clarification as to whether new US tariffs on Chinese exports also cover Hong Kong goods. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794132_1_20250304123411.jpg&q=80)
@@ -1419,29 +1443,5 @@ Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey followin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm)
-
----
-
-# Pope spends 'peaceful night' after breathing crisis
-
-![Well-wishers send their greetings to the pope at the Gemelli University Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793810_1_20250301183956.jpg&q=90)
-  
-
-Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a peaceful night after suffering a breathing crisis, the Vatican said on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm)
 
 ---

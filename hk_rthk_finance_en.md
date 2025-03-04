@@ -1,3 +1,27 @@
+# China to impose new tariffs on US agricultural goods
+
+![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=80)
+  
+
+China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range of between 10 and 15 percent hikes to import levies covering a basket of American agricultural and food products, while placing 25 US firms under export and investment restrictions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
+
+---
+
 # Hong Kong stocks open lower
 
 ![President Trump's latest tariffs announcement dents sentiments across world stock markets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794105_1_20250304094634.jpg&q=40)
@@ -1411,29 +1435,5 @@ Argentine President Javier Milei on Monday denied promoting a cryptocurrency tha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792070-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792070-20250218.htm)
-
----
-
-# Local stocks finish lower
-
-![Hong Kong stocks ended slightly lower. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791988_1_20250217174330.jpg&q=85)
-  
-
-Hong Kong's stock market ended slightly lower on Monday with the benchmark Hang Seng Index down 0.02 percent to close at 22,616 points.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791988-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791988-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791988-20250217.htm)
 
 ---

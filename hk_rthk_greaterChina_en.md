@@ -1,3 +1,27 @@
+# China to impose new tariffs on US agricultural goods
+
+![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=80)
+  
+
+China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range of between 10 and 15 percent hikes to import levies covering a basket of American agricultural and food products, while placing 25 US firms under export and investment restrictions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
+
+---
+
 # Security tightened in Beijing ahead of Two Sessions
 
 ![Authorities step up patrols and ID checks in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793999_1_20250303164358.jpg&q=35)
@@ -1416,29 +1440,5 @@ Chinese battery giant CATL started the application process on Tuesday to be list
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm](https://news.rthk.hk/rthk/en/component/k2/1791220-20250212.htm)
-
----
-
-# 'US steel tariffs may have limited impact on China'
-
-![The volume of China's steel and aluminium exports are much lower when compared to 2018. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791212_1_20250211193225.jpg&q=75)
-  
-
-An analyst on Tuesday said while United States president Donald Trump's steel and aluminium tariffs are expected to have a limited direct impact on China, countries such as the US' neighbours of Canada and Mexico will feel the pinch.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm](https://news.rthk.hk/rthk/en/component/k2/1791212-20250211.htm)
 
 ---
