@@ -1,3 +1,27 @@
+# 歐盟批評美國對加拿大和墨西哥加徵關稅
+
+![歐盟委員會發言人呼籲美國重新考慮其做法，並努力尋求一個有利於各方合作、基於規則的解決方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794258_1_20250305052921.jpg&q=90)
+  
+
+歐盟批評美國對加拿大和墨西哥加徵關稅，並呼籲美方重新考慮其貿易政策。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm)
+
+---
+
 # 國際油價下跌　受增產及貿易戰拖累
 
 ![倫敦布蘭特期油和紐約期油均一度跌至多月低位，最終分別低收0.8%及近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794255_1_20250305051758.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
-
----
-
-# 全國兩會｜婁勤儉：中國國防費連續9年保持個位數增長
-
-![婁勤儉在記者會表示，中國國防費從2016年起連續9年保持個位數增長。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794191_1_20250304173559.jpg&q=90)
-  
-
-十四屆全國人大三次會議發言人婁勤儉在北京表示，中國國防費從2016年起連續9年保持個位數增長，國防費佔國內生產總值的比重多年維持在1.5%以內，低於世界平均水平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 歐盟批評美國對加拿大和墨西哥加徵關稅
+
+![歐盟委員會發言人呼籲美國重新考慮其做法，並努力尋求一個有利於各方合作、基於規則的解決方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794258_1_20250305052921.jpg&q=90)
+  
+
+歐盟批評美國對加拿大和墨西哥加徵關稅，並呼籲美方重新考慮其貿易政策。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm)
+
+---
+
 # 阿盟峰會同意設立基金為加沙重建提供資金
 
 ![阿拉伯國家聯盟峰會在埃及開羅舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794253_1_20250305050923.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794003-20250303.htm)
-
----
-
-# 外交部指吹熄別人燈不能讓自己更光明　籲各方遵守世貿及市場原則
-
-![林劍形容「吹熄別人的燈不能讓自己更光明」。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794000_1_20250303172048.jpg&q=90)
-  
-
-在北京，外交部重申貿易戰、關稅戰無贏家。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794000-20250303.htm)
 
 ---
