@@ -144,7 +144,7 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
 
 # HK govt still in the dark over new US tariffs
 
-![Algernon Yau says the SAR government is still seeking clarification as to whether new US tariffs on Chinese exports also cover Hong Kong goods. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794132_1_20250304123411.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794132_1_20250304123411.jpg&q=80)
   
 
 Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't know whether new US tariffs on Chinese goods will also cover Hong Kong products, but in any case transit trade could be hit in the short term.

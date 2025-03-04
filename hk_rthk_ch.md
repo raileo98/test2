@@ -48,6 +48,7 @@
 
 # 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
 
+![王滬寧表示，以習近平為核心帶領沉著應變，順利完成目標任務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794164_1_20250304155025.jpg&q=85)
   
   
 
