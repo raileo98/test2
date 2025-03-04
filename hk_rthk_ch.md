@@ -1,4 +1,28 @@
+# 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
+
+商務及經濟發展局局長丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm)
+
+---
+
 # 金發局：不擔心政府撥款減少影響未來工作部署
+
+![洪丕正稱會因應資源做到最大效益，認為不應只考慮撥款金額多寡。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794092_1_20250304084721.jpg&q=80)
+  
 
 新一份財政預算案相關帳目顯示，2025/26年度金發局獲得政府撥款4690萬元，比本年度修訂的4750萬元輕微減少。
 
@@ -20,6 +44,9 @@
 ---
 
 # 金發局洪丕正：開拓東盟中東等新興市場　加強與傳統歐美市場聯繫
+
+![洪丕正列出金發局未來三大工作重點，包括檢視和改善香港金融市場競爭力、推廣香港及培訓人才。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794091_1_20250304084609.jpg&q=80)
+  
 
 渣打國際業務行政總裁洪丕正年初獲委任為金融發展局主席。他受傳媒訪問時表示，即使全球經濟波動性和不確定性較大，但同時存在增長機遇，香港作為全球主要國際金融中心之一，連接內地市場及國際投資者的角色獨特。他列出金發局未來三大工作重點，包括定期檢視和改善香港金融市場的國際地位和競爭力、向國際推廣香港，以及培訓和引入業界人才。
 
@@ -1406,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm)
-
----
-
-# 財政預算案2025｜蔡海偉稱社福機構或選擇減人手減薪酬
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794026_1_20250303190110.jpg&q=80)
-  
-
-財政預算案提出2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，中小型社福機構只需要削減3%資源，其餘4%由社署承擔；至於50多間獲得超過5000萬元撥款的大型社福機構，就需要在27/28年度累計削減7%開支。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794026-20250303.htm)
 
 ---

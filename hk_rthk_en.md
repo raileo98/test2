@@ -1,3 +1,51 @@
+# Wall Street stocks dive on US tariff policy
+
+![Wall Street's Volatility Index (VIX) has hit its highest level since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794094_1_20250304084859.jpg&q=90)
+  
+
+US stocks closed sharply lower on Monday, after US President Donald Trump slapped fresh sanctions against China and levies on Mexico and Canada neared imposition, while European defence shares soared as the European Union sought increased military spending over Ukraine.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm)
+
+---
+
+# Tariffs to go ahead on Mexican and Canadian imports
+
+![Trump's new tariffs are also set to tax Canadian energy products, such as oil and electricity, at a lower 10 per cent rate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794093_1_20250304083830.jpg&q=35)
+  
+
+US President Donald Trump said on Monday that 25 per cent taxes on imports from Mexico and Canada would start on Tuesday, sparking renewed fears of a North American trade war that already showed signs of pushing up inflation and hindering growth.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm)
+
+---
+
 # 'No major policy shifts at Two Sessions'
 
 ![Ho Lok-sang believes pursuing high-quality growth and spurring domestic consumption are among the top priorities for mainland policymakers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793998_1_20250303165106.jpg&q=75)
@@ -1396,53 +1444,5 @@ Jos Buttler resigned as England white-ball captain on Friday after his team made
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
-
----
-
-# Japan battles biggest wildfire in decades
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793771_1_20250301115415.jpg&q=80)
-  
-
-Japan was battling its largest wildfire in more than three decades on Saturday, one of several blazes that have killed one person and forced the evacuation of more than a thousand.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm)
-
----
-
-# China's factory activity grows in February
-
-![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=20)
-  
-
-China's manufacturing activity grew in February after a dip the previous month, official figures showed on Saturday, as the United States targets the country's exports with increased tariffs.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
 
 ---

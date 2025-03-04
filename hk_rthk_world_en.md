@@ -1,3 +1,27 @@
+# Tariffs to go ahead on Mexican and Canadian imports
+
+![Trump's new tariffs are also set to tax Canadian energy products, such as oil and electricity, at a lower 10 per cent rate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794093_1_20250304083830.jpg&q=35)
+  
+
+US President Donald Trump said on Monday that 25 per cent taxes on imports from Mexico and Canada would start on Tuesday, sparking renewed fears of a North American trade war that already showed signs of pushing up inflation and hindering growth.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm)
+
+---
+
 # Suspect held in deadly car-ramming in Germany
 
 ![Police in Mannheim investigate the car-ramming case. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794045_1_20250303221201.jpg&q=35)
@@ -1416,29 +1440,5 @@ A lasting peace in the Israeli-Palestinian conflict can only be achieved through
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm)
-
----
-
-# Hamas releases six more Israeli hostages
-
-![As on previous occasions the hostages were paraded on stage before being handed over to the Red Cross. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792777_1_20250222214137.jpg&q=85)
-  
-
-Hamas paraded five Israeli hostages, some looking dazed and others elated, before cheering crowds at two meticulously choreographed ceremonies in the Gaza Strip on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792777-20250222.htm)
 
 ---

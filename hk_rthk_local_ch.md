@@ -1,3 +1,72 @@
+# 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
+
+商務及經濟發展局局長丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm)
+
+---
+
+# 金發局：不擔心政府撥款減少影響未來工作部署
+
+![洪丕正稱會因應資源做到最大效益，認為不應只考慮撥款金額多寡。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794092_1_20250304084721.jpg&q=80)
+  
+
+新一份財政預算案相關帳目顯示，2025/26年度金發局獲得政府撥款4690萬元，比本年度修訂的4750萬元輕微減少。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm)
+
+---
+
+# 金發局洪丕正：開拓東盟中東等新興市場　加強與傳統歐美市場聯繫
+
+![洪丕正列出金發局未來三大工作重點，包括檢視和改善香港金融市場競爭力、推廣香港及培訓人才。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794091_1_20250304084609.jpg&q=80)
+  
+
+渣打國際業務行政總裁洪丕正年初獲委任為金融發展局主席。他受傳媒訪問時表示，即使全球經濟波動性和不確定性較大，但同時存在增長機遇，香港作為全球主要國際金融中心之一，連接內地市場及國際投資者的角色獨特。他列出金發局未來三大工作重點，包括定期檢視和改善香港金融市場的國際地位和競爭力、向國際推廣香港，以及培訓和引入業界人才。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794091-20250304.htm)
+
+---
+
 # 全國兩會 | 何漢權引述夏寶龍：政協委員要成為監察者及局中人
 
 ![何漢權引述夏寶龍說，政協委員除了做監察者，更重要是成為局中人，就像球賽上一名積極的運動員。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794082_1_20250304065419.jpg&q=90)
@@ -1366,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm)
-
----
-
-# 醫管局3間護士學校全日制護理學專業文憑課程提早在今日接受報名
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793926_1_20250303080029.jpg&q=75)
-  
-
-醫管局轄下3間護士學校提供的全日制護理學文憑課程，每年招收合共300名學生，今年提早由今日起，接受申請報讀，下月起分階段面試和公布取錄結果，9月1日開課，每間學校名額100個。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793926-20250303.htm)
-
----
-
-# 麥美娟：上半年在油尖旺和深水埗等四區推行「聯廈聯管」試驗計劃
-
-![麥美娟說，基於公平考慮，政府無打算為業主提供資助。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793925_2_20250303075942.jpg&q=85)
-  
-
-政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，委聘非政府組織，接觸「三無大廈」和舊式單幢樓宇業主或法團，鼓勵及協助他們參加。明天將率先諮詢油尖旺區議會，計劃在界限街、彌敦道、鴉蘭街及塘尾道一帶推行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793925-20250303.htm)
-
----
-
-# 跨部門舉行重大事故及反恐演習為全運會做準備
-
-![警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。（警方圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793918_1_20250303043638.jpg&q=75)
-  
-
-警方聯同全運會香港賽區統籌辦、消防及醫管局等多個部門，昨日在中環海濱舉行跨部門重大事故及反恐演習。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793918-20250303.htm)
 
 ---

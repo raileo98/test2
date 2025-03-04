@@ -1,3 +1,27 @@
+# Wall Street stocks dive on US tariff policy
+
+![Wall Street's Volatility Index (VIX) has hit its highest level since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794094_1_20250304084859.jpg&q=90)
+  
+
+US stocks closed sharply lower on Monday, after US President Donald Trump slapped fresh sanctions against China and levies on Mexico and Canada neared imposition, while European defence shares soared as the European Union sought increased military spending over Ukraine.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm)
+
+---
+
 # Trump signs order to further hike tariffs on China
 
 ![The order raises a previously imposed 10 percent tariff on China to 20 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794081_1_20250304063119.jpg&q=90)
@@ -1411,29 +1435,5 @@ Chinese AI app DeepSeek will not be available to download in South Korea pending
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791978-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791978-20250217.htm)
-
----
-
-# President Xi attends gathering on private enterprises
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791960_1_20250217130159.jpg&q=80)
-  
-
-President Xi Jinping on Monday called for efforts to promote the healthy and high-quality development of China's private sector.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm)
 
 ---
