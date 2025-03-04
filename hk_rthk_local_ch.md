@@ -1,4 +1,28 @@
-# 羅淑佩：警方調查啟德體育園開幕日有人將沒有門票觀眾帶入場
+# 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
+
+文化體育及旅遊局局長羅淑佩透露正努力促成海外足球隊於今年夏天訪港，作為球迷自己亦很期待，有消息時會公布。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm)
+
+---
+
+# 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
+
+![羅淑佩說初步發現有人不合規地將一些沒有門票的觀眾帶入場。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
+  
 
 啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
 
@@ -141,7 +165,7 @@
 
 # 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
 
-![丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
   
 
 商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm)
-
----
-
-# 港股曾升逾400點　新世界發展急升逾12%
-
-![恒生指數較早時報23342點，升400點，升幅1.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793954_1_20250303103902.jpg&q=30)
-  
-
-港股反彈逾400點，恒生指數曾見23405點，較早時報23342點，升400點，升幅1.75%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm)
 
 ---

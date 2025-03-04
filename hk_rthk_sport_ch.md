@@ -1,3 +1,24 @@
+# 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
+
+文化體育及旅遊局局長羅淑佩透露正努力促成海外足球隊於今年夏天訪港，作為球迷自己亦很期待，有消息時會公布。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm)
+
+---
+
 # 英格蘭足總盃　諾定咸森林互射12碼淘汰葉士域治
 
 ![森林門將撲出最後一個12碼，與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794084_1_20250304071736.jpg&q=75)
@@ -1421,30 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792799-20250223.htm)
-
----
-
-# 深港馬拉松香港跑手冀爭取全運會參賽資格　測試賽助了解流程
-
-![跑手魏賡說，賽事路段初期需要上大橋，路面較起伏，但今日濕度低，適合長跑。(陳曉筠攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792797_1_20250223083013.jpg&q=90)
-![男女子組別分別早上7時和7時半在深圳灣體育中心起步。(陳曉筠攝)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792797_2_20250223083013.jpg&q=45)
-  
-
-深港馬拉松賽暨第十五屆全運會田徑測試賽，男女子組別分別早上7時和7時半在深圳灣體育中心起步。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792797-20250223.htm)
 
 ---

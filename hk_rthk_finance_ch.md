@@ -1,3 +1,51 @@
+# 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
+
+![羅淑佩說初步發現有人不合規地將一些沒有門票的觀眾帶入場。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
+  
+
+啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm)
+
+---
+
+# 加拿大擬周二起對美商品徵收25%報復性關稅
+
+![杜魯道說，關稅措施將一直維持到美國撤銷行動為止。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794114_1_20250304111218.jpg&q=80)
+  
+
+加拿大總理杜魯多表示，如果美國的關稅措施生效，加拿大將從星期二開始，對價值300億加元的美國進口產品徵收25%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm)
+
+---
+
 # 恒指曾跌逾400點　汽車股下挫
 
 ![恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794116_1_20250304104110.jpg&q=10)
@@ -264,7 +312,7 @@
 
 # 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
 
-![丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
   
 
 商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793980-20250303.htm)
-
----
-
-# 陳美寶：對的士車隊有期望　冀發揮「領頭羊」角色
-
-![陳美寶呼籲市民試用的士車隊，並反映意見，讓車隊精益求精。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793977_1_20250303135716.jpg&q=70)
-  
-
-政府舉行的士車隊啟動禮，有車隊本月底將投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm)
-
----
-
-# 恒指下午早段升逾300點
-
-![恒生指數較早時報23255點，升313點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793975_1_20250303130913.jpg&q=1)
-  
-
-港股下午開市初段升逾300點，恒生指數較早時報23255點，升313點，升幅1.37%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm)
 
 ---

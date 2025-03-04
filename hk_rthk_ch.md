@@ -1,4 +1,28 @@
-# 羅淑佩：警方調查啟德體育園開幕日有人將沒有門票觀眾帶入場
+# 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
+
+文化體育及旅遊局局長羅淑佩透露正努力促成海外足球隊於今年夏天訪港，作為球迷自己亦很期待，有消息時會公布。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm)
+
+---
+
+# 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
+
+![羅淑佩說初步發現有人不合規地將一些沒有門票的觀眾帶入場。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
+  
 
 啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
 
@@ -20,6 +44,9 @@
 ---
 
 # 加拿大擬周二起對美商品徵收25%報復性關稅
+
+![杜魯道說，關稅措施將一直維持到美國撤銷行動為止。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794114_1_20250304111218.jpg&q=80)
+  
 
 加拿大總理杜魯多表示，如果美國的關稅措施生效，加拿大將從星期二開始，對價值300億加元的美國進口產品徵收25%關稅。
 
@@ -354,7 +381,7 @@
 
 # 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
 
-![丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
   
 
 商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
@@ -1406,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794046-20250303.htm)
-
----
-
-# 財政預算案2025｜中大第二學位醫科課程5月30日前接受申請
-
-![四年制第二學位醫科課程將於今年9月入學，首輪面試將於4月9日舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794044_1_20250303215336.jpg&q=75)
-  
-
-中大醫學院公布推出四年制第二學位醫科課程，名額25個，將於今年9月入學，首輪面試將於4月9日舉行，有興趣報讀人士最遲可於5月30日前提出申請。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794044-20250303.htm)
 
 ---
