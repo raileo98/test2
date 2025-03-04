@@ -1,3 +1,27 @@
+# 訪港旅客去年人均消費較前年減少1400元
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794207_1_20250304183434.jpg&q=80)
+  
+
+旅發局數據顯示，去年訪港旅客人均消費，比前年減少1400元，內地旅客更加減少1500元。旅發局表示，今年會加強對外宣傳，營造「全年無休」的體驗。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm)
+
+---
+
 # 新光戲院凌晨拉閘結業　劇迷不捨
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794194_1_20250304182353.jpg&q=65)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794041-20250303.htm)
-
----
-
-# 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794039_1_20250303212759.jpg&q=75)
-  
-
-十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm)
 
 ---

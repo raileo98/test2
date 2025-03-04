@@ -1,3 +1,49 @@
+# 全國兩會｜婁勤儉：冀平等磋商解決問題　中方絕不接受施壓和威脅
+
+  
+
+十四屆全國人大三次會議明日上午開幕，下星期二下午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm)
+
+---
+
+# 全國兩會｜政協會議開幕　王滬寧稱認真研究改進去年工作不足之處
+
+  
+
+為期6日的全國政協會議下午在北京開幕，全國政協主席王滬寧發表工作報告，國家主席習近平等多名黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm)
+
+---
+
 # 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
 
   
@@ -140,7 +186,7 @@
 
 ---
 
-# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
+# 全國兩會｜王滬寧冀政協為制定「十五五」規劃建真言謀良策
 
   
 
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793952-20250303.htm)
-
----
-
-# 全國兩會｜李家超明日赴北京列席全國人大會議開幕
-
-![李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793950_1_20250303102742.jpg&q=80)
-  
-
-行政長官李家超明日前赴北京，列席星期三舉行的第十四屆全國人民代表大會第三次會議的開幕會。行政長官辦公室主任葉文娟將隨行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793950-20250303.htm)
-
----
-
-# 謝鋒：中美長期和平共存既是責任也是必須
-
-![謝鋒在「杜克-北卡中國領導力峰會」發表視像致辭。（中國駐美大使館）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793939_1_20250303093114.jpg&q=90)
-  
-
-中國駐美國大使謝鋒表示，中美兩個大國在這個星球上長期和平共存，既是責任也是必須。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793939-20250303.htm)
 
 ---

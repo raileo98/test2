@@ -1,3 +1,73 @@
+# 訪港旅客去年人均消費較前年減少1400元
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794207_1_20250304183434.jpg&q=80)
+  
+
+旅發局數據顯示，去年訪港旅客人均消費，比前年減少1400元，內地旅客更加減少1500元。旅發局表示，今年會加強對外宣傳，營造「全年無休」的體驗。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm)
+
+---
+
+# 全國兩會｜婁勤儉：冀平等磋商解決問題　中方絕不接受施壓和威脅
+
+  
+
+十四屆全國人大三次會議明日上午開幕，下星期二下午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm)
+
+---
+
+# 全國兩會｜政協會議開幕　王滬寧稱認真研究改進去年工作不足之處
+
+  
+
+為期6日的全國政協會議下午在北京開幕，全國政協主席王滬寧發表工作報告，國家主席習近平等多名黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794203-20250304.htm)
+
+---
+
 # 新光戲院凌晨拉閘結業　劇迷不捨
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794194_1_20250304182353.jpg&q=65)
@@ -187,7 +257,7 @@
 
 ---
 
-# 全國兩會 |王滬寧冀政協為制定「十五五」規劃建真言謀良策
+# 全國兩會｜王滬寧冀政協為制定「十五五」規劃建真言謀良策
 
   
 
@@ -1512,7 +1582,7 @@
 
 # 美國據報暫停對烏克蘭軍援　直至烏方表現和平誠意
 
-![特朗普上周與澤連斯基激烈爭吵後，據報決定暫停美國對烏克蘭的軍事援助。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794119_1_20250304114441.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794119_1_20250304114441.jpg&q=90)
   
 
 美國傳媒引述白宮官員表示，總統特朗普決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
