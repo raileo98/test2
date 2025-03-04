@@ -1,6 +1,177 @@
+# 《環看天下》：施紀賢晤澤連斯基　據報私下促修補同特朗普關係
+
+![施紀賢（右）日前在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794106_1_20250304095259.jpg&q=85)
+  
+
+美國總統特朗普與烏克蘭總統澤連斯基上星期五在美國白宮舉行會晤，不歡而散。澤連斯基之後轉到英國，獲英國同歐洲國家一再承諾提供堅定支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm)
+
+---
+
+# 人行開展382億元人民幣逆回購
+
+![人民銀行公開市場開展382億元人民幣7日期逆回購操作，單日淨回籠2803億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794102_1_20250304092909.jpg&q=25)
+  
+
+人民銀行公開市場開展382億元人民幣7日期逆回購操作，利率維持於1.5厘。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm)
+
+---
+
+# 內地股市初段下跌
+
+![上證綜合指數較早時報3306點，跌10點，跌幅0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794103_1_20250304093530.jpg&q=80)
+  
+
+滬深股市在開市初段下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm)
+
+---
+
+# 恒指競價時段跌328點
+
+![恒生指數競價時段報22678點，跌328點，跌幅1.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794101_1_20250304092456.jpg&q=20)
+  
+
+港股在競價時段下跌，恒生指數報22678點，跌328點，跌幅1.43%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm)
+
+---
+
+# 人民幣兌美元中間價升6點子
+
+![人民幣中間價報7.1739兌1美元，較上日中間價上調6點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794099_1_20250304091735.jpg&q=90)
+  
+
+人民幣中間價報7.1739兌1美元，較上日中間價上調6點子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm)
+
+---
+
+# 台股開市後下跌
+
+![台灣加權指數較早時報22373點，跌382點，跌幅1.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794098_1_20250304090731.jpg&q=85)
+  
+
+台灣股市下跌。加權指數較早時報22373點，跌382點，跌幅1.68%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm)
+
+---
+
+# 商務部促美方立即撤回單邊關稅措施　將採取反制措施維護自身權益
+
+![商務部敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794097_1_20250304090429.jpg&q=70)
+  
+
+美國政府以芬太尼等問題為由，宣布從當地星期二起，對中國輸美產品再次加徵關稅。中方對此強烈不滿，堅決反對，將採取反制措施堅定維護自身權益，敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm)
+
+---
+
 # 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
 
-商務及經濟發展局局長丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
+![丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
+  
+
+商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
 
   
 
@@ -1265,173 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm)
-
----
-
-# 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794039_1_20250303212759.jpg&q=75)
-  
-
-十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm)
-
----
-
-# 北都公路勘查研究展開　目標25個月內優先完成新田段工作
-
-![路政署目標讓北都公路新田段具備技術條件可在2027年招標。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794036_1_20250303205559.jpg&q=55)
-  
-
-路政署展開北都公路的勘查研究，目標於25個月內優先完成北都公路新田段的工作，在2027年具備技術條件為主體建造工程進行招標，當中包括優化走線及接駁位置、進行環境影響評估研究，以及進行刊憲，並會同步完成新田段的工地勘測工作、其他影響評估及初步設計工作，務求加快項目推展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794036-20250303.htm)
-
----
-
-# 日本岩手山火持續　逾1200人被疏散至臨時安置點
-
-![山火自上月26日起焚燒，多座房屋及大片林木被焚毀。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794032_1_20250303212919.jpg&q=85)
-  
-
-日本岩手縣大船渡市的山火持續，火場面積已擴大至超過2千公頃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794032-20250303.htm)
-
----
-
-# 分析料本港零售銷售第2季或下半年回復增長
-
-![吳卓殷表示，本港零售銷售面對不少挑戰，估計零售銷售可能要到第2季，甚至下半年，才會回復增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794030_1_20250303193120.jpg&q=75)
-  
-
-本港1月零售業總銷貨價值臨時估計353億元，按年下跌3.2%，連跌11個月，但跌幅低於去年12月的9.6%，創3個月以來最小跌幅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794030-20250303.htm)
-
----
-
-# 全國兩會｜港澳全國政協委員抵全國政協禮堂　據了解與夏寶龍會面
-
-![據了解，他們與中央港澳辦、國務院港澳辦主任夏寶龍會面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794028_1_20250303211244.jpg&q=85)
-  
-
-全國政協十四屆三次會議，明日下午在北京開幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm)
-
----
-
-# 外電指比亞迪股份配股集資最多52億美元　配售價折讓8.4%
-
-![路透引述銷售文件指，比亞迪股份配股集資最多52億美元，折讓最多8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794027_1_20250303191133.jpg&q=85)
-  
-
-路透引述銷售文件指，比亞迪股份配股集資最多52億美元，每股H股配售價介乎333至345元，比今日收市價折讓最多8.4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794027-20250303.htm)
-
----
-
-# 會展今明年舉辦多個展覽     料可展現「會展經濟效益」
-
-![香港會展管理公司表示，今明兩年新增不少有關虛擬資產、商貿科技展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794007_1_20250303190340.jpg&q=80)
-  
-
-香港會展管理公司董事總經理梅李玉霞表示，今明兩年新增不少有關虛擬資產、商貿科技展覽，包括今年8月在會展中心舉行的「Bitcoin Asia 2025香港比特幣大會」，預期會吸引更多金融界人士的興趣。至於「亞洲計算機圖形學與交互技術會議及展覽SIGGRAPH Asia 2025」將於年底舉行，相隔11年重臨香港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794007-20250303.htm)
 
 ---

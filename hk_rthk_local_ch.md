@@ -1,6 +1,33 @@
+# 恒指競價時段跌328點
+
+![恒生指數競價時段報22678點，跌328點，跌幅1.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794101_1_20250304092456.jpg&q=20)
+  
+
+港股在競價時段下跌，恒生指數報22678點，跌328點，跌幅1.43%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm)
+
+---
+
 # 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
 
-商務及經濟發展局局長丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
+![丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
+  
+
+商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
 
   
 
@@ -1411,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793940-20250303.htm)
-
----
-
-# 海事處提醒香港部分水域能見度低於兩海里　航行須以安全航速
-
-![海事處提醒香港部分水域能見度低於兩海里　航行須以安全航速](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793929_1_20250303081248.jpg&q=85)
-  
-
-海事處提醒船長、本地船長和船舶負責人，現時香港部分水域能見度低於兩海里，在香港水域航行必須以安全航速並極度謹慎地駕駛。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793929-20250303.htm)
 
 ---

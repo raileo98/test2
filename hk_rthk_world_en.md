@@ -1,3 +1,27 @@
+# Study paints grim picture of obesity
+
+![Researchers estimate that 3.8 billion adults will be overweight or obese in 15 years. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794096_1_20250304090417.jpg&q=85)
+  
+
+Nearly 60 per cent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
+
+---
+
 # Tariffs to go ahead on Mexican and Canadian imports
 
 ![Trump's new tariffs are also set to tax Canadian energy products, such as oil and electricity, at a lower 10 per cent rate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794093_1_20250304083830.jpg&q=35)
@@ -1416,29 +1440,5 @@ One person died, and two police officers were seriously injured on Saturday in a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792791-20250223.htm)
-
----
-
-# Two-state solution key to peace in Gaza: FM
-
-![Foreign Minister Wang Yi said any future arrangement must adhere to the principle of "Palestinians governing Palestine". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792785_1_20250223021444.jpg&q=90)
-  
-
-A lasting peace in the Israeli-Palestinian conflict can only be achieved through a two-state solution, Foreign Minister Wang Yi said in a phone call with Egyptian Foreign Minister Badr Abdelatty on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm)
 
 ---

@@ -1,3 +1,171 @@
+# 人行開展382億元人民幣逆回購
+
+![人民銀行公開市場開展382億元人民幣7日期逆回購操作，單日淨回籠2803億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794102_1_20250304092909.jpg&q=25)
+  
+
+人民銀行公開市場開展382億元人民幣7日期逆回購操作，利率維持於1.5厘。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794102-20250304.htm)
+
+---
+
+# 內地股市初段下跌
+
+![上證綜合指數較早時報3306點，跌10點，跌幅0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794103_1_20250304093530.jpg&q=80)
+  
+
+滬深股市在開市初段下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794103-20250304.htm)
+
+---
+
+# 恒指競價時段跌328點
+
+![恒生指數競價時段報22678點，跌328點，跌幅1.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794101_1_20250304092456.jpg&q=20)
+  
+
+港股在競價時段下跌，恒生指數報22678點，跌328點，跌幅1.43%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm)
+
+---
+
+# 人民幣兌美元中間價升6點子
+
+![人民幣中間價報7.1739兌1美元，較上日中間價上調6點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794099_1_20250304091735.jpg&q=90)
+  
+
+人民幣中間價報7.1739兌1美元，較上日中間價上調6點子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794099-20250304.htm)
+
+---
+
+# 台股開市後下跌
+
+![台灣加權指數較早時報22373點，跌382點，跌幅1.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794098_1_20250304090731.jpg&q=85)
+  
+
+台灣股市下跌。加權指數較早時報22373點，跌382點，跌幅1.68%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794098-20250304.htm)
+
+---
+
+# 商務部促美方立即撤回單邊關稅措施　將採取反制措施維護自身權益
+
+![商務部敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794097_1_20250304090429.jpg&q=70)
+  
+
+美國政府以芬太尼等問題為由，宣布從當地星期二起，對中國輸美產品再次加徵關稅。中方對此強烈不滿，堅決反對，將採取反制措施堅定維護自身權益，敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm)
+
+---
+
+# 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
+
+![丘應樺表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
+  
+
+商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm)
+
+---
+
 # 金發局：不擔心政府撥款減少影響未來工作部署
 
 ![洪丕正稱會因應資源做到最大效益，認為不應只考慮撥款金額多寡。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794092_1_20250304084721.jpg&q=80)
@@ -190,6 +358,30 @@
 
 ---
 
+# 特朗普提高對中國商品關稅至20%　對加墨關稅周二生效
+
+![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
+  
+
+美國白宮說，總統特朗普已簽署命令，進一步提高對中國進口商品的關稅，指中國政府未能解決芬太尼問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
+
+---
+
 # 國際油價跌約2%　創近3個月低位
 
 ![倫敦布蘭特期油收市跌1.6%，紐約期油跌約2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794073_1_20250304051751.jpg&q=90)
@@ -259,6 +451,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794072-20250304.htm)
+
+---
+
+# 特朗普：台積電將在美國新投資至少1000億美元
+
+![特朗普與商務部長盧特尼克（左）及魏哲家（右）陪同下在白宮會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794075_1_20250304052431.jpg&q=90)
+  
+
+美國總統特朗普說，晶片製造商台積電將在美國再投資至少1000億美元，興建尖端晶片製造設施。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm)
+
+---
+
+# 特朗普：可能4月2日對進口農產品徵收關稅
+
+![特朗普告訴美國農民準備好開始生產大量的農產品，並在美國境內銷售。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794068_1_20250304033600.jpg&q=90)
+  
+
+美國總統特朗普表示，可能在4月2日對進口農產品徵收關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm)
 
 ---
 
@@ -1197,246 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793977-20250303.htm)
-
----
-
-# 恒指下午早段升逾300點
-
-![恒生指數較早時報23255點，升313點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793975_1_20250303130913.jpg&q=1)
-  
-
-港股下午開市初段升逾300點，恒生指數較早時報23255點，升313點，升幅1.37%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793975-20250303.htm)
-
----
-
-# 政府上半年試行「聯廈聯管」　麥美娟：已預留700萬元推行
-
-![麥美娟表示，預留700萬元推行今次計劃。在甄選非政府組織的過程中，除了考慮價錢，亦著重有何嶄新方法，促成業主參與。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_1_20250303123718.jpg&q=80)
-![政府今年上半年會在油尖旺、深水埗、九龍城及荃灣四區，推行為期一年的「聯廈聯管」試驗計劃。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793969_2_20250303124734.jpg&q=60)
-  
-
-政府今年上半年會在油尖旺，深水埗，九龍城及荃灣，推行為期一年的「聯廈聯管」試驗計劃。透過在區內選定目標小區，各委聘一個非政府組織接觸大廈業主或法團，鼓勵及協助他們參加試驗計劃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793969-20250303.htm)
-
----
-
-# 全國兩會｜北京市面明顯加強保安　有市民稱感覺更安全
-
-![北京民眾認為今年兩會保安比以往嚴密。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793968_1_20250303135213.jpg&q=75)
-  
-
-全國政協十四屆三次會議明日開幕，新聞發布會今日下午在北京人民大會堂舉行，發言人劉結一將介紹大會情況並回答記者提問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793968-20250303.htm)
-
----
-
-# 恒指半日升277點
-
-![恒指中午收市報23218點，升277點，升幅1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793964_1_20250303121421.jpg&q=1)
-  
-
-港股今早反彈，恒生指數高見23405點，升逾460點，其後升幅收窄，中午收市報23218點，升277點，升幅1.2%，半日主板成交額1796億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm)
-
----
-
-# 星展估計3月內地製造業活動大機會保持擴張
-
-![周洪禮表示，憧憬本周召開的兩會將有鼓勵製造業生產的措施出台，若果內地經濟持續穩定，估計3月製造業PMI大機會繼續企穩在50以上。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793963_1_20250303124248.jpg&q=75)
-  
-
-財新中國2月製造業採購經理指數（PMI）升至50.8，高於前一個月的50.1，為去年11月以來最高。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793963-20250303.htm)
-
----
-
-# 深證成指和創業板指數半日升逾1%至2%
-
-![深證成份指數中午收市報10726點，升114點，升幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793961_1_20250303114341.jpg&q=80)
-  
-
-滬深股市半日上升，深證成指和創業板指數升逾1%至2%。固態電池、能源金屬板塊上升；飲品製造、銀行股等下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793961-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793961-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793961-20250303.htm)
-
----
-
-# 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
-
-![邵家輝（左）說今年提案希望大灣區另外8個城市盡快嘗試一周一行。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_3_20250303132713.jpg&q=85)
-  
-
-港區全國人大代表及政協委員陸續出發前往北京，準備出席即將召開的全國兩會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm)
-
----
-
-# 財政預算案2025｜陳茂波期望不失時機　加快北部都會區發展
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793956_1_20250303110238.jpg&q=90)
-  
-
-財政司司長陳茂波表示，即使政府財政有壓力，也要推動經濟發展，他認為近期股市比較暢旺，多了旅客，氣氛好了，希望不失時機，加快北部都會區發展，讓企業快些落戶，創造更多就業機會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793956-20250303.htm)
-
----
-
-# 日股半日升逾1%
-
-![日經平均指數上午收市報37580點，升424點，升幅1.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793955_1_20250303104116.jpg&q=40)
-  
-
-日本股市半日升逾1%，日經平均指數上午收市報37580點，升424點，升幅1.14%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793955-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793955-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793955-20250303.htm)
-
----
-
-# 港股曾升逾400點　新世界發展急升逾12%
-
-![恒生指數較早時報23342點，升400點，升幅1.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793954_1_20250303103902.jpg&q=30)
-  
-
-港股反彈逾400點，恒生指數曾見23405點，較早時報23342點，升400點，升幅1.75%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793954-20250303.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Study paints grim picture of obesity
+
+![Researchers estimate that 3.8 billion adults will be overweight or obese in 15 years. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794096_1_20250304090417.jpg&q=85)
+  
+
+Nearly 60 per cent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
+
+---
+
 # Wall Street stocks dive on US tariff policy
 
 ![Wall Street's Volatility Index (VIX) has hit its highest level since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794094_1_20250304084859.jpg&q=90)
@@ -335,30 +359,6 @@ The annual session of China's top political advisory body will run from Tuesday 
 
 ---
 
-# ICAC sees three percent rise in graft allegations
-
-![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
-  
-
-The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
-
----
-
 # Govt operating account largely balanced: FS
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
@@ -380,6 +380,30 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+
+---
+
+# ICAC sees three percent rise in graft allegations
+
+![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
+  
+
+The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
 
 ---
 
@@ -1420,29 +1444,5 @@ Financial Secretary Paul Chan on Saturday said his proposal to freeze civil serv
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm)
-
----
-
-# Jos Buttler quits as England's white-ball captain
-
-![England had a disastrous preparation for the Champions Trophy when it won only one of its eight white-ball matches against India before arriving in Pakistan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793773_1_20250301115819.jpg&q=90)
-  
-
-Jos Buttler resigned as England white-ball captain on Friday after his team made an early exit from the Champions Trophy with back-to-back defeats against Australia and Afghanistan.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
 
 ---
