@@ -1,3 +1,27 @@
+# 歐盟宣布實施8000億歐元「重新武裝歐洲」計劃
+
+![馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794211_1_20250304192539.jpg&q=90)
+  
+
+歐盟委員會主席馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃，調動近8000億歐元打造一個安全而有韌性的歐洲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm)
+
+---
+
 # 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
 
 ![張軍認為，中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794195_1_20250304180139.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793911-20250303.htm)
-
----
-
-# 以總理：若與哈馬斯談判無效　將重返加沙作戰
-
-![內塔尼亞胡說，如果哈馬斯不釋放更多人質，將會有進一步後果。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793910_1_20250303001058.jpg&q=85)
-  
-
-以色列總理內塔尼亞胡表示，以色列與美國協調後，提出把與巴勒斯坦武裝組織哈馬斯的停火協議第一階段再延長50日，如果哈馬斯同意，以色列將立即開始談判，但如果確信談判無效，以色列就會重返加沙作戰，如果哈馬斯不釋放更多人質，將會有進一步後果。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793910-20250303.htm)
 
 ---

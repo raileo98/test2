@@ -1,3 +1,47 @@
+# 歐盟宣布實施8000億歐元「重新武裝歐洲」計劃
+
+![馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794211_1_20250304192539.jpg&q=90)
+  
+
+歐盟委員會主席馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃，調動近8000億歐元打造一個安全而有韌性的歐洲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm)
+
+---
+
+# 科大創校校長吳家瑋離世終年87歲
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794210-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794210-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794210-20250304.htm)
+
+---
+
 # 金管局：正更新優化CMU系統　長遠研究建立多元化資產存管平台
 
 ![余偉文稱長遠將研究創建多元化資產存管平台可行性，並探討支援跨資產類別的淨額結算、提高結算效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794201_1_20250304181136.jpg&q=85)
