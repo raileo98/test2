@@ -1,3 +1,27 @@
+# 特朗普威脅將進一步提高針對加拿大商品關稅
+
+![特朗普說，當杜魯多對美國徵收報復性關稅時，美國的對等關稅將以相同幅度上調。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794246_1_20250305024041.jpg&q=90)
+  
+
+美國對加拿大及墨西哥進口產品徵收25%關稅的措施周二起生效，加拿大宣布對美國商品徵收25%報復性關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm)
+
+---
+
 # 杜魯多宣布對美國進口產品徵收25%報復性關稅
 
 ![杜魯多形容，特朗普的關稅措施是非常愚蠢的做法。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794245_1_20250305015455.jpg&q=90)
@@ -1416,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794174-20250304.htm)
-
----
-
-# 旅發局「香港盛匯超級三月」與逾1500間商舖推優惠
-
-![旅發局推出「香港盛匯超級三月」推廣活動。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_2_20250304171141.jpg&q=85)
-![香港國際七人欖球賽本月於啟德體育園舉辦。 （旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_3_20250304171141.jpg&q=85)
-  
-
-本港在3月份有多項國際盛事舉行，旅遊發展局推出「香港盛匯超級三月」推廣活動，與超過1500間商舖推出多項優惠，提供 160多項餐飲、購物及娛樂優惠。旅發局總幹事程鼎一表示，旅發局將串連城中不同盛事，加大宣傳力度，就相關推廣活動制定攻略，涵蓋全方位需要，希望延長旅客逗留時間及刺激消費，擴大盛事效益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm)
 
 ---

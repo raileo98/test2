@@ -1,3 +1,27 @@
+# 特朗普威脅將進一步提高針對加拿大商品關稅
+
+![特朗普說，當杜魯多對美國徵收報復性關稅時，美國的對等關稅將以相同幅度上調。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794246_1_20250305024041.jpg&q=90)
+  
+
+美國對加拿大及墨西哥進口產品徵收25%關稅的措施周二起生效，加拿大宣布對美國商品徵收25%報復性關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm)
+
+---
+
 # 杜魯多宣布對美國進口產品徵收25%報復性關稅
 
 ![杜魯多形容，特朗普的關稅措施是非常愚蠢的做法。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794245_1_20250305015455.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793962-20250303.htm)
-
----
-
-# 米姬麥迪遜憑《阿諾拉》贏得奧斯卡最佳女主角
-
-![米姬麥迪遜憑《阿諾拉》贏得奧斯卡最佳女主角。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793960_1_20250303114339.jpg&q=85)
-  
-
-第97屆奧斯卡頒獎典禮在美國加州洛杉磯杜比劇院舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793960-20250303.htm)
 
 ---
