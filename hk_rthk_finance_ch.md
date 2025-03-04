@@ -50,6 +50,8 @@
 
 # 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
 
+![羅淑佩（中）與多名嘉賓主持開球禮。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_2_20250304221216.jpg&q=85)
+![羅淑佩出席開幕禮並致辭。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_1_20250304221216.jpg&q=80)
   
 
 「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮。

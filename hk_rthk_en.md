@@ -22,12 +22,12 @@ A Beijing official overseeing Hong Kong and Macau affairs has told delegates to 
 
 ---
 
-# EU chief unveils $US840 billion 'rearm' plan
+# EU chief unveils US$840 billion 'rearm' plan
 
 ![EU chief Ursula von der Leyen has called for the Europe to 'rearm'. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794224_1_20250304205503.jpg&q=90)
   
 
-EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise some $US844 billion for Europe's defence, and help provide "immediate" military support for Ukraine after Washington suspended military aid.
+EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise some US$844 billion for Europe's defence, and help provide "immediate" military support for Ukraine after Washington suspended military aid.
 
   
 
