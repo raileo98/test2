@@ -1,3 +1,26 @@
+# 小學生超重普遍率降至16.4%　中學生維持於20%高水平
+
+  
+
+根據衞生署的人口健康調查報告，本港15至84歲人士中，超重和肥胖的普遍率從2014/2015年的50%，增加到2020至2022年的54.6%。學生方面，到衞生署學生健康服務中心接受周年健康檢查的學生中，小學生的超重，包括肥胖，普遍率由2022/2023學年的19.5%，下降至2023/2024學年的16.4%，是自2014/2015學年的新低，但中學生的超重普遍率則維持在20%的高水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794166-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794166-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794166-20250304.htm)
+
+---
+
 # 本港2月住宅樓宇買賣合約註冊量按月跌約12%
 
 ![本港2月送交註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794163_1_20250304151750.jpg&q=45)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793997-20250303.htm)
-
----
-
-# 全國兩會｜劉結一稱香港融入國家發展大局持續走深走實
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793996_1_20250303171439.jpg&q=90)
-  
-
-全國政協新聞發言人劉結一表示，香港融入國家發展大局持續走深走實，粵港澳大灣區高質量發展不斷豐富一國兩制的生動實踐，港珠澳大橋客流車流再創新高，深中通道、黃茅海跨海通道建成通車，大灣區城市群「硬聯通」進一步完善，「軟聯通」持續提升，一系列便民利企措施相繼落地，人員、貨物、資金、數據流動更高效便捷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793996-20250303.htm)
 
 ---
