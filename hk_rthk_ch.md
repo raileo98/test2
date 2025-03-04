@@ -1,3 +1,52 @@
+# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
+
+![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
+![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=80)
+  
+
+「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
+
+---
+
+# 全國兩會｜婁勤儉：中國國防費連續9年保持個位數增長
+
+![婁勤儉在記者會表示，中國國防費從2016年起連續9年保持個位數增長。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794191_1_20250304173559.jpg&q=90)
+  
+
+十四屆全國人大三次會議發言人婁勤儉在北京表示，中國國防費從2016年起連續9年保持個位數增長，國防費佔國內生產總值的比重多年維持在1.5%以內，低於世界平均水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794191-20250304.htm)
+
+---
+
 # 港交所與迅清結算簽署合作備忘錄　優化交易後證券基礎設施
 
 ![港交所與迅清結算簽署合作備忘錄，共同探索優化交易後證券基礎設施的舉措。（港交所/金管局圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794176_1_20250304165340.jpg&q=85)
@@ -312,7 +361,7 @@
 
 # 全國兩會｜回應美國加關稅　謝鋒：關稅戰貿易戰損人害己
 
-![謝鋒說關稅戰也好，貿易戰也好，從歷史上來看都是從損人開始，最後以害己告終。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794170_1_20250304165406.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794170_1_20250304165406.jpg&q=85)
   
 
 在北京，全國政協委員、駐美大使謝鋒接受本台訪問，回應美國增加對華產品關稅時表示，想起已故領導人毛澤東在上世紀60年代初講過的兩句詩：暮色蒼茫看勁松，亂雲飛渡仍從容。

@@ -1,8 +1,10 @@
 # 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
 
+![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
+![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=80)
   
 
-「世界格蘭披治桌球大獎賽」即日起一連六天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
 
   
 
