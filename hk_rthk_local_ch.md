@@ -1,3 +1,69 @@
+# 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
+
+對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
+
+---
+
+# 羅淑佩：啟德體育園開幕禮有人不合規將觀眾帶入場　已聯絡警方
+
+文化體育及旅遊局局長羅淑佩表示，初步調查發現上星期六啟德體育園開幕禮，有人不合規將一些沒有門票的觀眾，帶入場看表演，當局已經聯絡警方，亦會堵塞漏洞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm)
+
+---
+
+# 恒指半日跌105點　比亞迪股份跌近7%
+
+![恒指中午收市報22901點，跌105點，跌幅約0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794129_1_20250304121204.jpg&q=1)
+  
+
+港股開市失守23000點，恒生指數初段低見22547點，跌約460點，其後跌幅收窄，中午收市報22901點，跌105點，跌幅約0.5%，半日主板成交額1569億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm)
+
+---
+
 # 青島市委書記曾贊榮：自由行實施近一年　情況非常好
 
 ![曾贊榮表示，青島與港澳有很多來往，包括科技創新、金融和航運。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794121_1_20250304120217.jpg&q=80)
@@ -1366,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793966-20250303.htm)
-
----
-
-# 恒指半日升277點
-
-![恒指中午收市報23218點，升277點，升幅1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793964_1_20250303121421.jpg&q=1)
-  
-
-港股今早反彈，恒生指數高見23405點，升逾460點，其後升幅收窄，中午收市報23218點，升277點，升幅1.2%，半日主板成交額1796億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793964-20250303.htm)
-
----
-
-# 廉署去年接獲2058宗貪污投訴　較前年增加3%
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793965_1_20250303123418.jpg&q=90)
-  
-
-廉署去年共接獲2058宗的貪污投訴，較2023年增加3%，當中480宗涉及政府部門、140宗涉及公共機構，其餘1438宗涉及私營機構。有1636宗貪污投訴屬可追查，去年共檢控207人，包括16名公務員，其中有119人被定罪。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793965-20250303.htm)
-
----
-
-# 全國兩會｜李慧琼料政府工作報告有措施協助更多民企投資
-
-![邵家輝（左）說今年提案希望大灣區另外8個城市盡快嘗試一周一行。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793958_3_20250303132713.jpg&q=85)
-  
-
-港區全國人大代表及政協委員陸續出發前往北京，準備出席即將召開的全國兩會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793958-20250303.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 恒指半日跌105點　比亞迪股份跌近7%
+
+![恒指中午收市報22901點，跌105點，跌幅約0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794129_1_20250304121204.jpg&q=1)
+  
+
+港股開市失守23000點，恒生指數初段低見22547點，跌約460點，其後跌幅收窄，中午收市報22901點，跌105點，跌幅約0.5%，半日主板成交額1569億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm)
+
+---
+
 # 內地股市半日偏軟　創業板指數跌近1%
 
 ![滬深股市半日偏軟。創業板指數報2175點，跌20點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794120_1_20250304114228.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793989-20250303.htm)
-
----
-
-# 滬股全日跌3點　創業板指數升逾1%
-
-![內地股市3大指數個別發展，上證指數先升後回，收報3316點，跌3點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793985_1_20250303151623.jpg&q=50)
-  
-
-內地股市下午轉弱，3大指數收市個別發展，電池、能源、金屬股上升；飲品製造、存儲晶片股下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793985-20250303.htm)
 
 ---

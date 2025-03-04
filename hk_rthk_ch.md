@@ -1,4 +1,78 @@
+# 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
+
+對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
+
+---
+
+# 羅淑佩：啟德體育園開幕禮有人不合規將觀眾帶入場　已聯絡警方
+
+文化體育及旅遊局局長羅淑佩表示，初步調查發現上星期六啟德體育園開幕禮，有人不合規將一些沒有門票的觀眾，帶入場看表演，當局已經聯絡警方，亦會堵塞漏洞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm)
+
+---
+
+# 恒指半日跌105點　比亞迪股份跌近7%
+
+![恒指中午收市報22901點，跌105點，跌幅約0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794129_1_20250304121204.jpg&q=1)
+  
+
+港股開市失守23000點，恒生指數初段低見22547點，跌約460點，其後跌幅收窄，中午收市報22901點，跌105點，跌幅約0.5%，半日主板成交額1569億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm)
+
+---
+
 # 全國兩會｜全國人大會議明早開幕　下周二下午閉幕
+
+![婁勤儉表示，今屆全國人大會議將有三次全體會議，並有7項大會議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794126_1_20250304122207.jpg&q=90)
+  
+
+第十四屆全國人大三次會議明日上午將在北京人民大會堂開幕，會期7天，下星期二下午閉幕。
+
+  
+
 
 ---
 
@@ -15,6 +89,9 @@
 ---
 
 # 全國兩會 |全國人大預備會議通過大會議程
+
+![十四屆全國人大三次會議舉行預備會議，通過大會議程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794123_1_20250304122301.jpg&q=55)
+  
 
 十四屆全國人大三次會議上午舉行預備會議，通過今次大會議程。
 
@@ -1353,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm)
-
----
-
-# 美國2月ISM製造業指數跌至50.3遜預期
-
-![美國2月ISM製造業指數跌至50.3，低於預期，投入物價指數升至逾兩年半新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794054_1_20250303231137.jpg&q=90)
-  
-
-美國供應商管理協會(ISM)公布，2月製造業指數跌至50.3，低於預期的50.8，亦低於1月的50.9，反映製造業活動擴張步伐減慢。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794054-20250303.htm)
-
----
-
-# 美國1月建築開支按月跌0.2%
-
-![美國1月建築開支按月跌0.2%，市場原先估計持平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794053_1_20250303230448.jpg&q=90)
-  
-
-美國1月建築開支按月跌0.2%，市場原先估計持平；去年12月建築開支增長0.5%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794053-20250303.htm)
-
----
-
-# 譚得志與支聯會有關人士罪成案件上訴至終院　周四宣判
-
-![兩宗案件均由相同的5名本地法官審理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794052_1_20250303230419.jpg&q=85)
-  
-
-人民力量前副主席譚得志「快必」於2020年多次在街站叫喊「光時」等口號，經審訊後被裁定7項發表煽動文字等共11罪成，判監40個月及罰款5000元。另外，已解散的支聯會前副主席鄒幸彤與兩名前常委鄧岳君、徐漢光，2021年沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成，判囚4個半月。譚得志與支聯會案人士上訴至終審庭，兩宗案件將於星期四，一同宣判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794052-20250303.htm)
 
 ---

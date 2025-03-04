@@ -1,3 +1,24 @@
+# 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
+
+對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
+
+---
+
 # 金與正譴責美航母訪南韓釜山　強調北韓考慮採行動增強威脅
 
 ![美國海軍核動力航空母艦「卡爾文森」號日前抵達南韓釜山訪問。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794122_1_20250304115552.jpg&q=90)
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793873-20250302.htm)
-
----
-
-# 特朗普下令對進口木材展開貿易調查　或開徵新關稅
-
-![特朗普下令展開一項可能對進口木材開徵更多關稅的新貿易調查。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793872_1_20250302141700.jpg&q=75)
-  
-
-路透社報道，美國總統特朗普下令展開一項可能對進口木材開徵更多關稅的新貿易調查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793872-20250302.htm)
 
 ---
