@@ -1,3 +1,73 @@
+# 桌球大獎賽消委會接7宗投訴　其中一宗與被要求離開有關
+
+  
+
+啟德體育園昨晚舉行世界格蘭披治桌球大獎賽，消委會表示，截至今早，共接獲7宗投訴，其中1宗與賽事進行至接近午夜時，被要求離開有關。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm)
+
+---
+
+# 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
+
+![郭永亮表示，這次比賽相比傳統的高爾夫球比賽，要求更加嚴謹，選手用的地方和整個球場的佈局規模更大。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
+  
+
+高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
+
+---
+
+# 男病人哽喉後不治　明愛醫院稱涉事護士學生有根據指引餵食
+
+  
+
+明愛醫院一名75歲男病人，懷疑被餵錯正常餐而「哽喉」，搶救無效後死亡。醫管局成立根源分析委員會調查事件，8星期內完成調查，醫管局及院方向公眾及家屬致歉。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm)
+
+---
+
 # 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
 
   
@@ -46,6 +116,8 @@
 
 # 全國兩會｜以打擊毒品不力對華加關稅　曾偉雄批美國毫無根據
 
+![曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794384_1_20250305155507.jpg&q=80)
+![譚允芝說，會不斷優化防詐騙措施，並與不同平台更緊密合作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794384_2_20250305155507.jpg&q=80)
   
 
 在北京，全國政協委員、警務處前處長曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據，中方會研究反制措施，認為政治不應影響禁毒合作。
@@ -189,6 +261,7 @@
 
 # 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
 
+![王冬勝說，國家今年有很多新計劃，有信心能夠達到增長5%水平。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_1_20250305155310.jpg&q=80)
   
 
 內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
@@ -1364,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm)
-
----
-
-# 科大創校校長吳家瑋離世終年87歲
-
-![吳家瑋曾在科大擔任校長10年，任內為學校奠定堅實基礎。（科大提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794210_1_20250304193946.jpg&q=90)
-  
-
-科大表示，創校校長吳家瑋星期日離世，終年87歲。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794210-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794210-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794210-20250304.htm)
-
----
-
-# 金管局：正更新優化CMU系統　長遠研究建立多元化資產存管平台
-
-![余偉文稱長遠將研究創建多元化資產存管平台可行性，並探討支援跨資產類別的淨額結算、提高結算效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794201_1_20250304181136.jpg&q=85)
-  
-
-金管局總裁余偉文在《匯思》撰文指，去年10月成立、今年初投入服務的迅清結算，以更商業化模式協助營運債務工具中央結算系統（CMU）。現時迅清結算與港交所，分別營運香港固定收益產品及股票存管業務平台，兩個平台簽署合作備忘錄，將從3方面探索優化交易後證券基礎設施，以加快釋放內地債券作為抵押品的潛力、促進雙向投資、推動更多發行人在港發行並存放債券。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm)
-
----
-
-# 訪港旅客去年人均消費較前年減少1400元
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794207_1_20250304183434.jpg&q=80)
-  
-
-旅發局數據顯示，去年訪港旅客人均消費，比前年減少1400元，內地旅客更加減少1500元。旅發局表示，今年會加強對外宣傳，營造「全年無休」的體驗。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm)
 
 ---

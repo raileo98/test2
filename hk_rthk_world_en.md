@@ -24,7 +24,7 @@ Wet weather looked poised to offer relief Wednesday as Japan battled its worst w
 
 # Democrat lawmaker ejected during Trump's speech
 
-![Democrat congressman Al Green stood up and yelled at the president: "You don't have a mandate" and was led away by security. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
   
 
 Democrats protested President Donald Trump's address to Congress on Tuesday with signs reading "No King!" and "Save Medicaid," with some turning their backs on the Republican as he spoke and one lawmaker marched out by security.

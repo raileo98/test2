@@ -1,3 +1,50 @@
+# 桌球大獎賽消委會接7宗投訴　其中一宗與被要求離開有關
+
+  
+
+啟德體育園昨晚舉行世界格蘭披治桌球大獎賽，消委會表示，截至今早，共接獲7宗投訴，其中1宗與賽事進行至接近午夜時，被要求離開有關。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm)
+
+---
+
+# 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
+
+![郭永亮表示，這次比賽相比傳統的高爾夫球比賽，要求更加嚴謹，選手用的地方和整個球場的佈局規模更大。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
+  
+
+高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
+
+---
+
 # 鄭泳舜對有觀眾被請離場感失望詫異　稱不能再有同類事件發生
 
 ![鄭泳舜對觀眾突然被請離場感到失望及詫異，認為對球迷非常不公平。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794368_1_20250305142241.jpg&q=85)
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm)
-
----
-
-# 涉售啟德體育園開幕禮門票　兩女一男涉企圖詐騙被捕
-
-![警方拘捕兩女一男涉嫌企圖詐騙，涉及啟德體育園開幕禮門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793088_1_20250225153754.jpg&q=15)
-  
-
-警方拘捕兩女一男涉嫌企圖詐騙，涉及啟德體育園開幕禮門票。警方稍後將交代案件詳情，文化體育及旅遊局亦有官員出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793088-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793088-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793088-20250225.htm)
-
----
-
-# 意甲聯賽　羅馬主場4:0大勝蒙沙
-
-![羅馬主場4:0大勝蒙沙。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793016_1_20250225071452.jpg&q=90)
-  
-
-意大利甲組聯賽，羅馬主場4:0大勝蒙沙。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm)
 
 ---

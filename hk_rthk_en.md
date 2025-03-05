@@ -1,3 +1,27 @@
+# 'Govt will support NGOs amid funding cuts'
+
+![Labour and welfare minister Chris Sun said the government will help smaller NGOs with the cuts, but larger NGOs will have to absorb the cuts themselves. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794342_1_20250305121400.jpg&q=85)
+  
+
+Labour and welfare minister Chris Sun on Wednesday said the government would help NGOs save costs by streamlining administrative procedures amid funding cuts due to the fiscal deficit.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm)
+
+---
+
 # Rain offers hope in Japan's worst wildfire in 50 years
 
 ![The wildfire broke out on February 26, and firefighting efforts including Japan Self-Defense Forces, have continued while thousands have evacuated their homes. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794373_1_20250305144046.jpg&q=90)
@@ -48,7 +72,7 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
 
 # Democrat lawmaker ejected during Trump's speech
 
-![Democrat congressman Al Green stood up and yelled at the president: "You don't have a mandate" and was led away by security. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
   
 
 Democrats protested President Donald Trump's address to Congress on Tuesday with signs reading "No King!" and "Save Medicaid," with some turning their backs on the Republican as he spoke and one lawmaker marched out by security.
@@ -1413,29 +1437,5 @@ Israel's police said the perpetrator of a stabbing attack in the northern city o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm)
-
----
-
-# Hong Kong stocks close higher
-
-![The Hang Seng Index finished up 0.3 percent at 23,006. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794011_1_20250303173917.jpg&q=75)
-  
-
-Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0.3 percent at 23,006.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm)
 
 ---
