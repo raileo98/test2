@@ -1,3 +1,31 @@
+# 阿根廷首都大規模停電　部分學校停課
+
+  
+
+阿根廷首都布宜諾斯艾利斯發生大規模停電，範圍包括總統府、國會、經濟部及部分街區。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794467-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794467-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794467-20250306.htm)
+
+---
+
 # 美國白宮證實特朗普同意對墨加部分汽車推遲一個月徵收關稅
 
   
@@ -1707,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm)
-
----
-
-# 加拿大擬周二起對美商品徵收25%報復性關稅
-
-![杜魯道說，關稅措施將一直維持到美國撤銷行動為止。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794114_1_20250304111218.jpg&q=80)
-  
-
-加拿大總理杜魯多表示，如果美國的關稅措施生效，加拿大將從星期二開始，對價值300億加元的美國進口產品徵收25%關稅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm)
 
 ---
