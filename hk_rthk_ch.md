@@ -1,3 +1,31 @@
+# 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
+
+  
+
+消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市上升
 
 ![阿里巴巴ADR較本港收市升逾5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794477_1_20250306065717.jpg&q=35)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm)
-
----
-
-# 鄧炳強指《明報》有關林卓廷文章誤導讀者　予以譴責
-
-![鄧炳強認為，作者身為法律教授卻再次發表偏頗文章，以歪曲的觀點誤導讀者。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794405_1_20250305172531.jpg&q=80)
-  
-
-保安局局長鄧炳強回應《明報》一篇由港大法律學院客席教授陳文敏撰寫有關林卓廷7.21案裁決的文章，指文章罔顧事實、誤導讀者，令人以為法庭裁決不公，對此予以譴責。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm)
 
 ---

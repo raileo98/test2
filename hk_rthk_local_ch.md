@@ -1,3 +1,31 @@
+# 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
+
+  
+
+消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm)
+
+---
+
 # 世界格蘭披治桌球大獎賽　賽會接147名觀眾查詢涉265張門票
 
 ![賽事組委會表示，截至晚上10時，接獲147位觀眾查詢，合共涉及265張門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794457_1_20250305235549.jpg&q=85)
@@ -1714,34 +1742,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm)
-
----
-
-# 全國兩會｜李強：堅定不移貫徹落實「一國兩制」「港人治港」方針
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794314_1_20250305103514.jpg&q=80)
-  
-
-在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
 
 ---
