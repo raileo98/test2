@@ -1,3 +1,31 @@
+# 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
+
+  
+
+全國政協委員、國家市場監督管理總局原副局長蒲淳表示，要加快統一大市場建設，他指出最大障礙在於地方保護主義，認為未能建成統一大市場，就不能發揮社會主義制度優勢。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm)
+
+---
+
 # 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
 
   
@@ -1702,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm)
-
----
-
-# 國台辦批評民進黨當局禁台灣高校與大陸院校交流合作
-
-![陳斌華表示，大陸願意為廣大台灣學子分享大陸高水平教育提供便利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794223_1_20250304205245.jpg&q=90)
-  
-
-在北京，國台辦發言人陳斌華說，民進黨當局禁止台灣高校與北京航空航天大學等7所高水平院校交流合作，損害的是台灣高校利益，暴露的是井底之蛙、夜郎自大的可笑。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm)
 
 ---

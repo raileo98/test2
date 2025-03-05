@@ -1,3 +1,31 @@
+# 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
+
+  
+
+全國政協委員、國家市場監督管理總局原副局長蒲淳表示，要加快統一大市場建設，他指出最大障礙在於地方保護主義，認為未能建成統一大市場，就不能發揮社會主義制度優勢。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm)
+
+---
+
 # 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
 
   

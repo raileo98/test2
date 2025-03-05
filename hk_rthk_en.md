@@ -1,3 +1,32 @@
+# Market regulator vows e-commerce malpractice crackdown
+
+![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=80)
+  
+
+The head of China's market regulator has pledged to tighten oversight of the rapidly growing e-commerce sector, and promote the healthy development of the so-called platform economy.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm)
+
+---
+
 # Hong Kong stocks finish higher
 
 ![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=60)
@@ -29,7 +58,7 @@ Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index u
 
 # Hospital patient chokes to death after meal blunder
 
-![Hospital officials said they have met the patient's family to explain what happened and apologise. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=85)
   
 
 Caritas Medical Centre on Wednesday said it is investigating what led to an elderly patient choking to death after he was given a regular meal despite not being able to eat solid food.
@@ -1708,34 +1737,5 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
-
----
-
-# Suspect held in deadly car-ramming in Germany
-
-![Police in Mannheim investigate the car-ramming case. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794045_1_20250303221201.jpg&q=35)
-  
-
-A car driven into a crowd in the German city of Mannheim on Monday killed one person and injured several, police said, adding that one person had been arrested.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm)
 
 ---

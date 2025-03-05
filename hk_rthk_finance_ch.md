@@ -1,3 +1,31 @@
+# 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
+
+  
+
+全國政協委員、國家市場監督管理總局原副局長蒲淳表示，要加快統一大市場建設，他指出最大障礙在於地方保護主義，認為未能建成統一大市場，就不能發揮社會主義制度優勢。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm)
+
+---
+
 # 在岸人民幣兌美元高收逾200點子　創1星期新高
 
 ![在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794399_1_20250305165035.jpg&q=30)
@@ -1685,34 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm)
-
----
-
-# 標普全球香港PMI跌至49　創8個月低位
-
-![標普全球2月香港PMI經季節調整後跌至49，低過1月的51，是8個月以來最低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794285_1_20250305090512.jpg&q=20)
-  
-
-標普全球公布，2月香港採購經理指數(PMI)經季節調整後跌至49，低過1月的51，是8個月以來最低，反映營商環境自去年9月以來首次轉差。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm)
 
 ---

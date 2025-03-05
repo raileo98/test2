@@ -1,3 +1,32 @@
+# Market regulator vows e-commerce malpractice crackdown
+
+![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=80)
+  
+
+The head of China's market regulator has pledged to tighten oversight of the rapidly growing e-commerce sector, and promote the healthy development of the so-called platform economy.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm)
+
+---
+
 # '5pc target is no easy feat but can be achieved'
 
 ![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=85)
@@ -1708,34 +1737,5 @@ Record-breaking blockbuster "Ne Zha 2" is set for general release in Hong Kong o
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm)
-
----
-
-# China condemns US 'tariff shocks' at WTO
-
-![Li Chenggang, China's Ambassador to the WTO, warns against what he says is US unilateralism disrupting the rules-based multilateral trading system. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792198_1_20250219060325.jpg&q=90)
-  
-
-The sweeping tariffs threatened or imposed by US President Donald Trump risk triggering inflation, market distortions, and even a global recession, China said on Tuesday at the World Trade Organization.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm)
 
 ---
