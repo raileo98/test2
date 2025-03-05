@@ -1,3 +1,49 @@
+# 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
+
+  
+
+全國人大會議今早在北京人民大會堂開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
+
+---
+
+# 全國兩會｜教育部懷進鵬稱今年將發布人工智能教育白皮書
+
+  
+
+在北京，十四屆全國人大三次會議今日開幕，國家教育部部長懷進鵬表示，Deep Seek和機器人在最近一段時間引起國內外廣泛關注，一方面說明中國科技創新和人才培養的效果，同時亦提出面對重大科技變化和產業變革，教育要如何應對。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm)
+
+---
+
 # 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
 
   
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm)
-
----
-
-# 全國兩會｜楊利偉：港澳載荷專家進行基礎訓練　理論體力表現很好
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794157_1_20250304165614.jpg&q=80)
-  
-
-全國政協委員、中國載人航天工程副總設計師楊利偉表示，港澳載荷專家目前正進行基礎訓練，包括理論、體力和專業知識等方面，表現很好，體現載荷專家的特色，根據需求再考慮開展招募工作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm)
-
----
-
-# 全國兩會｜婁勤儉：2024年2萬億元置換債券額度全部發行完畢
-
-![婁勤儉說今年的2萬億元置換債券發行相關工作已經啟動。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794154_1_20250304152459.jpg&q=90)
-  
-
-在北京，全國人大會議新聞發言人婁勤儉表示，去年11月，人大常委會會議批准增加6萬億元地方政府債務限額置換存量隱性債務。截至去年底，2024年的2萬億元置換債券額度已全部發行完畢，大部分地區已完成置換。今年的2萬億元置換債券發行相關工作已經啟動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794154-20250304.htm)
 
 ---

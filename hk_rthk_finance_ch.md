@@ -1,3 +1,26 @@
+# 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
+
+  
+
+全國人大會議今早在北京人民大會堂開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
+
+---
+
 # 內地股市半日個別發展
 
 ![上證綜合指數上午收市報3334點，升10點，升幅0.32%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794335_1_20250305113512.jpg&q=80)
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
-
----
-
-# 全國兩會｜郭基煇冀一簽多行城市擴大　呂耀東：港澳合作可以雙贏
-
-![郭基煇期望，放寬一簽多行、一周一行等措施，令旅客更方便。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794230_1_20250304214728.jpg&q=75)
-![呂耀東表示，香港及澳門是兄弟城市，未來一起合作可以雙贏，期望「一加一等於三」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794230_2_20250304214728.jpg&q=80)
-  
-
-全國政協委員、新地執行董事郭基煇說，今年提案涉及金融市場，又指香港國際金融中心非常重要，互聯互通、新股機制等都重要。他又說，另有提案提及如何做好旅遊中心，希望一簽多行城市擴大至不只大灣區城市，亦包括上海、北京、浙江、江蘇等地，吸引高增值旅客。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm)
 
 ---

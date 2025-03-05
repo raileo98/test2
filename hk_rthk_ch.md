@@ -1,3 +1,49 @@
+# 全國兩會｜教育部懷進鵬稱今年將發布人工智能教育白皮書
+
+  
+
+在北京，十四屆全國人大三次會議今日開幕，國家教育部部長懷進鵬表示，Deep Seek和機器人在最近一段時間引起國內外廣泛關注，一方面說明中國科技創新和人才培養的效果，同時亦提出面對重大科技變化和產業變革，教育要如何應對。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm)
+
+---
+
+# 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
+
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結，觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm)
+
+---
+
 # 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
 
   
@@ -47,6 +93,7 @@
 
 # 海關檢獲約680公斤懷疑冰毒市值3億6千萬元　拘捕3人
 
+![海關檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794334_1_20250305121417.jpg&q=75)
   
 
 海關在葵涌偵破一宗販運毒品案件，檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元，拘捕3名懷疑涉案男子。

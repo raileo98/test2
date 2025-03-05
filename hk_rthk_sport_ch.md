@@ -1,3 +1,26 @@
+# 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
+
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結，觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm)
+
+---
+
 # 桌球賽觀眾被要求提早離場　主辦單位致歉並提出補償方案
 
 ![組委會對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794320_1_20250305103841.jpg&q=85)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm)
-
----
-
-# 全運會馬拉松測試賽完成　楊德強：檢討正賽是否沿用賽道
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792843_1_20250223183033.jpg&q=65)
-  
-
-深港馬拉松賽暨第十五屆全運會馬拉松測試賽今早舉行，賽事起點及終點設於深圳灣體育中心，約一半賽道是在香港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm)
 
 ---

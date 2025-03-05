@@ -1,3 +1,49 @@
+# 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
+
+  
+
+全國人大會議今早在北京人民大會堂開幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
+
+---
+
+# 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
+
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結，觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm)
+
+---
+
 # 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
 
   
@@ -23,6 +69,7 @@
 
 # 海關檢獲約680公斤懷疑冰毒市值3億6千萬元　拘捕3人
 
+![海關檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794334_1_20250305121417.jpg&q=75)
   
 
 海關在葵涌偵破一宗販運毒品案件，檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元，拘捕3名懷疑涉案男子。
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm)
-
----
-
-# 八達通公司爭取今年第3季可於日本使用八達通付款
-
-![楊美珍表示，八達通公司正與日本不同支付平台，包括電子錢包平台等商討。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794160_1_20250304154208.jpg&q=90)
-  
-
-八達通公司表示，希望能協助港人外遊時更方便，除了在內地部分城市及泰國相關支付點可以使用透過全國通卡或八達通app支付外， 公司爭取在今年第3季可以在日本亦能使用八達通付款，初步預料會透過八達通app支付，公司正與日本不同支付平台包括電子錢包平台等商討，會與覆蓋率較全面的平台合作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794160-20250304.htm)
-
----
-
-# 全國兩會｜楊利偉：港澳載荷專家進行基礎訓練　理論體力表現很好
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794157_1_20250304165614.jpg&q=80)
-  
-
-全國政協委員、中國載人航天工程副總設計師楊利偉表示，港澳載荷專家目前正進行基礎訓練，包括理論、體力和專業知識等方面，表現很好，體現載荷專家的特色，根據需求再考慮開展招募工作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794157-20250304.htm)
 
 ---
