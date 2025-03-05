@@ -1,5 +1,29 @@
+# 啟德體育園：未來幾日如賽事進行至深夜　將與主辦方協調安排交通
+
+  
+
+昨晚世界格蘭披治桌球大獎賽的賽事進行至接近午夜時，有觀眾被要求離開。啟德體育園回應表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm)
+
+---
+
 # 羅淑佩稱主辦方及體育園需要磨合　以後處理相關情況要汲取經驗
 
+![羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794353_1_20250305134626.jpg&q=75)
   
 
 啟德體育園昨晚舉行的世界格蘭披治桌球大獎賽尾場賽事，有觀眾在賽事未完結被要求提早離場。文化體育及旅遊局局長羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想，她將來會責成管理公司，每次遇到類似情況都要認真處理，當局亦會觀察情況，作出相應行動。
@@ -23,7 +47,7 @@
 
 # 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
 
-![羅淑佩表示，昨晚主辦單位的安排非常不理想，有關方面已經致歉，並提出補償方案。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=80)
   
 
 在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚賽事未完結，有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。文化體育及旅遊局局長羅淑佩表示，昨晚主辦單位的安排非常不理想，她亦向受影響球迷表達關心和致歉。
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm)
-
----
-
-# 英超聯賽　利物浦作客2:0擊敗曼城　榜首優勢擴大到11分
-
-![利物浦作客2:0擊敗曼城，沙拿一傳一射。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792872_1_20250224071432.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，利物浦作客2:0擊敗曼城，榜首優勢擴大到11分。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm)
 
 ---

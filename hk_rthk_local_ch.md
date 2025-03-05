@@ -1,3 +1,26 @@
+# 啟德體育園：未來幾日如賽事進行至深夜　將與主辦方協調安排交通
+
+  
+
+昨晚世界格蘭披治桌球大獎賽的賽事進行至接近午夜時，有觀眾被要求離開。啟德體育園回應表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡稱有信心助社福機構面對撥款減幅
 
 ![孫玉菡表示，社福機構撥款需要削減，當局將推行鬆綁措施，有信心能幫助機構面對減幅。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794362_1_20250305134235.jpg&q=85)
@@ -97,6 +120,7 @@
 
 # 有桌球賽觀眾被要求提早離場　羅淑佩指主辦單位安排非常不理想
 
+![在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結就有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794357_1_20250305134541.jpg&q=85)
   
 
 在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結就有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。
@@ -120,6 +144,7 @@
 
 # 銅鑼灣「醫衞醫療中心」疑不當處理醫療器材被暫時吊銷牌照
 
+![衞生署即日起暫時吊銷銅鑼灣世貿中心一間名為「醫衞醫療中心」的日間醫療中心牌照。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794355_1_20250305134606.jpg&q=80)
   
 
 衞生署即日起暫時吊銷銅鑼灣世貿中心一間名為「醫衞醫療中心」的日間醫療中心牌照，中心不可進行牌照上的專門服務，包括外科程序及麻醉程序。
@@ -143,6 +168,7 @@
 
 # 羅淑佩稱主辦方及體育園需要磨合　以後處理相關情況要汲取經驗
 
+![羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794353_1_20250305134626.jpg&q=75)
   
 
 啟德體育園昨晚舉行的世界格蘭披治桌球大獎賽尾場賽事，有觀眾在賽事未完結被要求提早離場。文化體育及旅遊局局長羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想，她將來會責成管理公司，每次遇到類似情況都要認真處理，當局亦會觀察情況，作出相應行動。
@@ -237,7 +263,7 @@
 
 # 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
 
-![羅淑佩表示，昨晚主辦單位的安排非常不理想，有關方面已經致歉，並提出補償方案。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=80)
   
 
 在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚賽事未完結，有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。文化體育及旅遊局局長羅淑佩表示，昨晚主辦單位的安排非常不理想，她亦向受影響球迷表達關心和致歉。
@@ -309,7 +335,7 @@
 
 # 財政預算案2025｜孫玉菡稱調整二元優惠計劃可提高計劃持續性
 
-![孫玉菡表示，計劃推行十多年才作金額上調整，相信安排會令到整個計劃的可持續性大大提高。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794333_1_20250305113037.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794333_1_20250305113037.jpg&q=80)
   
 
 財政預算案提出，「二元優惠計劃」將新增每月240程限制，10元以上車費則收兩折。勞工及福利局局長孫玉菡表示，計劃推行十多年才作金額上調整，相信安排會令到整個計劃的可持續性大大提高，但將來政府會否因應情況再作調整，他說，局方不可以完全否定此可能性。
@@ -430,7 +456,7 @@
 
 # 財政預算案2025｜孫玉菡：有信心能幫助社福機構面對減幅
 
-![孫玉菡相信在推行鬆綁措施後，有信心能幫助機構面對減幅。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794317_1_20250305102726.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794317_1_20250305102726.jpg&q=85)
   
 
 財政預算案提出至2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，部分社福開支，例如綜援及長生津等不會削減，而社福機構的撥款就需要削減，但政府會協助中小型社福機構承擔4%開支，削減幅度降至3%，相信在推行鬆綁措施後，有信心能幫助機構面對減幅。
@@ -1413,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794188-20250304.htm)
-
----
-
-# 財政預算案2025｜楊全盛指部分八達通機沒實時連線調校需時
-
-![楊全盛相信，可以在18個月之前處理得到相關工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794187_1_20250304180450.jpg&q=80)
-  
-
-財政預算案提出調整二元乘車優惠計劃。八達通公司表示，需要先調整系統，不同營辦商有不同計算方式或優惠，例如轉乘優惠等，公司需要與各營辦商研究，最後要進行測試後才可推出，預計至少需要12個月，但會爭取少於18個月完成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm)
 
 ---
