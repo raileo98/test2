@@ -1,3 +1,49 @@
+# 全國兩會｜奇瑞汽車尹同躍稱靠實力說話　已習慣美方加關稅
+
+  
+
+全國人大代表、奇瑞汽車董事長尹同躍表示，要全面擁抱新能源汽車，加速發展會帶來一系列變化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm)
+
+---
+
+# 全國兩會｜有人大及政協均認為國家重視民企　定有政策支持
+
+  
+
+全國人大代表、國家發改委黨組成員郭蘭峰表示，國家重視民營企業，民企是中國式現代化建設的重要力量，當局一定會有相關支持的政策措施，但未有透露推出的時間表。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm)
+
+---
+
 # 全國兩會｜以打擊毒品不力對華加關稅　曾偉雄批美國毫無根據
 
   
@@ -23,6 +69,7 @@
 
 # 全國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
 
+![何小鵬相信，國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_1_20250305154643.jpg&q=85)
   
 
 在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。

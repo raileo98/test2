@@ -1,3 +1,26 @@
+# 全國兩會｜有人大及政協均認為國家重視民企　定有政策支持
+
+  
+
+全國人大代表、國家發改委黨組成員郭蘭峰表示，國家重視民營企業，民企是中國式現代化建設的重要力量，當局一定會有相關支持的政策措施，但未有透露推出的時間表。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm)
+
+---
+
 # 全國兩會｜以打擊毒品不力對華加關稅　曾偉雄批美國毫無根據
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm)
-
----
-
-# 置富推遲紅磡置富都會翻新　視乎紅磡南發展作資產增值修訂
-
-![趙宇相信，盛事經濟、一簽多行、擴大自由行等措施將有利零售業發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794202_1_20250304190003.jpg&q=90)
-  
-
-置富產業信託去年可供分派收入7.2億元，按年跌約11%。末期每基金單位分派17.36仙，全年每基金單位分派35.59港仙，下跌約12%，分派收益率8.9%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm)
 
 ---
