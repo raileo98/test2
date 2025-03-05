@@ -1,3 +1,31 @@
+# 美國證實與哈馬斯就被扣押人員問題進行直接會談
+
+  
+
+美國白宮發言人萊維特證實，美國正在與巴勒斯坦武裝組織哈馬斯，就被扣押在加沙地帶的人員進行直接談判和討論，美方已就事件同以色列磋商。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794469-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794469-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794469-20250306.htm)
+
+---
+
 # 阿根廷首都大規模停電　部分學校停課
 
   
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm)
-
----
-
-# 美國據報暫停對烏克蘭軍援　直至烏方表現和平誠意
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794119_1_20250304114441.jpg&q=90)
-  
-
-美國傳媒引述白宮官員表示，總統特朗普決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm)
 
 ---
