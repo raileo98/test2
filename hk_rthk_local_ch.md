@@ -1,3 +1,26 @@
+# 全國兩會｜西安納入港澳「個人遊」　陝西省副省長稱成效理想
+
+  
+
+陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
+
+---
+
 # 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
 
   
@@ -308,6 +331,7 @@
 
 # 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
 
+![劉慶峰表示，現時開始關注本地產業落地和全球人才招引，有很多機會跟內地合作，集團未來亦會以香港為基地。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794341_1_20250305145125.jpg&q=75)
   
 
 全國人大會議今早在北京人民大會堂開幕。
@@ -1410,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794185-20250304.htm)
-
----
-
-# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
-
-![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=85)
-![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=80)
-  
-
-「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 全國兩會｜金融監管總局研究提高消費貸款額度　延長消費貸款期限
+
+  
+
+國家金融監督管理總局局長李雲澤表示，隨著中國經濟步入新發展階段，提振消費日益成為經濟增長主引擎，科技創新更是高質量發展動力源，金融監管總局將著力推動金融資源優化配置，全方位擴大國內需求，切實增強人民群眾的獲得感和滿意度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm)
+
+---
+
+# 全國兩會｜西安納入港澳「個人遊」　陝西省副省長稱成效理想
+
+  
+
+陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
+
+---
+
 # 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
 
   
@@ -313,6 +359,7 @@
 
 # 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
 
+![劉慶峰表示，現時開始關注本地產業落地和全球人才招引，有很多機會跟內地合作，集團未來亦會以香港為基地。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794341_1_20250305145125.jpg&q=75)
   
 
 全國人大會議今早在北京人民大會堂開幕。
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
-
----
-
-# 全國兩會｜李家超寄語兩會代表及委員多提建議及提案
-
-![李家超傍晚抵達北京。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794199_1_20250304181050.jpg&q=85)
-  
-
-行政長官李家超抵達北京，將列席明早在人民大會堂舉行的全國人大會議開幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm)
-
----
-
-# 全國兩會｜夏寶龍會見岑浩輝　稱勇於擔當作為
-
-![中央港澳辦、國務院港澳辦主任夏寶龍在北京會見澳門行政長官岑浩輝。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794198_1_20250304191327.jpg&q=85)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見準備列席全國人大會議開幕式的澳門行政長官岑浩輝。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm)
 
 ---

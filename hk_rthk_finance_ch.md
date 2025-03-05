@@ -1,3 +1,73 @@
+# 全國兩會｜金融監管總局研究提高消費貸款額度　延長消費貸款期限
+
+  
+
+國家金融監督管理總局局長李雲澤表示，隨著中國經濟步入新發展階段，提振消費日益成為經濟增長主引擎，科技創新更是高質量發展動力源，金融監管總局將著力推動金融資源優化配置，全方位擴大國內需求，切實增強人民群眾的獲得感和滿意度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm)
+
+---
+
+# 新西蘭央行總裁奧爾辭職　提早3年卸任
+
+![新西蘭央行總裁奧爾辭職，副總裁霍克斯比將擔任代理總裁直至本月底。（新西蘭央行圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794374_1_20250305144427.jpg&q=90)
+  
+
+新西蘭央行總裁奧爾辭職，結束7年任期，將休假至本月底離任，他原定2028年3月底卸任。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm)
+
+---
+
+# 全國兩會｜西安納入港澳「個人遊」　陝西省副省長稱成效理想
+
+  
+
+陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
+
+---
+
 # 韓股全日升約1.2%
 
 ![首爾綜合指數收報2558點，升29點，升幅1.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794371_1_20250305143610.jpg&q=90)
@@ -337,6 +407,7 @@
 
 # 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
 
+![劉慶峰表示，現時開始關注本地產業落地和全球人才招引，有很多機會跟內地合作，集團未來亦會以香港為基地。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794341_1_20250305145125.jpg&q=75)
   
 
 全國人大會議今早在北京人民大會堂開幕。
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm)
-
----
-
-# 美元兌歐元曾跌至近3個月低位
-
-![美元指數失守106水平，在紐約尾市報105.58，跌幅0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794264_1_20250305061916.jpg&q=90)
-  
-
-美元兌多數貨幣下跌，兌歐元一度跌至近3個月低位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794264-20250305.htm)
-
----
-
-# 金價上升　美元疲弱及避險需求增加
-
-![現貨金重上每盎司2900美元，較早時報2915.21美元，升幅逾0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794257_1_20250305052444.jpg&q=80)
-  
-
-金價上升，因美元疲弱，加上市場憂慮貿易衝突升級，帶動避險資金流入金市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794257-20250305.htm)
-
----
-
-# 道指低收670點　市場憂貿易戰拖累美國經濟增長
-
-![道瓊斯指數最多曾跌逾840點，收市報42520點，跌670點，跌幅近1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794262_1_20250305060009.jpg&q=90)
-  
-
-美股3大指數收市下跌，美國總統特朗普兌現關稅威脅，向加拿大、墨西哥及中國進口商品加徵關稅，並引起部分國家作出反制措施，市場憂慮關稅政策影響美國經濟增長，拖累股市表現。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm)
 
 ---
