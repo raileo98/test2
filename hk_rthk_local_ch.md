@@ -1,3 +1,33 @@
+# 90歲男子馮景棠離開塘尾道住所後失蹤　警方呼籲提供消息
+
+![失蹤男子身高約1.55米，體重約45公斤，瘦身材，長面型。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_1_20250305204045.jpg&q=90)
+![失蹤男子最後露面時身穿藍色外套、黑色長褲、黑色鞋。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_2_20250305204045.jpg&q=85)
+  
+
+一名90歲男子馮景棠昨日下午離開塘尾道的住所後失蹤，家人報案，警方呼籲市民提供消息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm)
+
+---
+
 # 全國兩會｜夏寶龍晤李家超稱中央全力支援港澳融入國家發展大局
 
   
@@ -1707,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm)
-
----
-
-# 全國兩會｜今年發展主要預期目標　國內生產總值增長5%左右
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794292_1_20250305094926.jpg&q=75)
-  
-
-國務院總理李強提出，今年國內生產總值目標增長5%左右，城鎮調查失業率5.5%左右，城鎮新增就業1200萬人以上，居民消費價格升幅2%左右，居民收入增長和經濟增長同步，國際收支保持基本平衡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm)
 
 ---

@@ -1,3 +1,61 @@
+# 南韓指援俄北韓軍人接受俄方無人機操作培訓
+
+  
+
+南韓國家情報院表示，有跡象表明支援俄羅斯的北韓軍人，接受俄羅斯方面有關無人機的操作和戰術運用培訓，正密切關注兩軍展開無人機合作的可能性。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm)
+
+---
+
+# 90歲男子馮景棠離開塘尾道住所後失蹤　警方呼籲提供消息
+
+![失蹤男子身高約1.55米，體重約45公斤，瘦身材，長面型。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_1_20250305204045.jpg&q=90)
+![失蹤男子最後露面時身穿藍色外套、黑色長褲、黑色鞋。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_2_20250305204045.jpg&q=85)
+  
+
+一名90歲男子馮景棠昨日下午離開塘尾道的住所後失蹤，家人報案，警方呼籲市民提供消息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm)
+
+---
+
 # 格陵蘭自治政府總理：既不想成為丹麥人亦不想成為美國人
 
 ![格陵蘭將舉行自治政府議會選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794433_1_20250305201506.jpg&q=90)
@@ -53,34 +111,6 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm)
-
----
-
-# 梵蒂岡稱教宗昨晚休息得很好　今早已停用呼吸機
-
-  
-
-梵蒂岡表示，留醫的教宗方濟各過去一晚使用非入侵式呼吸機協助呼吸後，今早已經停止使用呼吸機，恢復透過鼻下導管接受高流量氧氣。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm)
 
 ---
 
