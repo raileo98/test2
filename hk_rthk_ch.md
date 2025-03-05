@@ -1,3 +1,118 @@
+# 格陵蘭自治政府總理：既不想成為丹麥人亦不想成為美國人
+
+![格陵蘭將舉行自治政府議會選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794433_1_20250305201506.jpg&q=90)
+  
+
+美國總統特朗普在國會聯席會議發言時表示，美國支持格陵蘭的未來選擇，並歡迎格陵蘭加入美國，認為美國最終會得到格陵蘭。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm)
+
+---
+
+# 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
+
+![習近平（左）表示，經濟大省要挑大樑，為全國發展大局做貢獻。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=90)
+  
+
+國家主席習近平表示，要全面落實民營企業座談會精神，一視同仁對待各種所有制企業，持續優化營商環境，要深化要素市場化配置改革，主動破除地方保護、市場分割及內卷式競爭。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm)
+
+---
+
+# 梵蒂岡稱教宗昨晚休息得很好　今早已停用呼吸機
+
+  
+
+梵蒂岡表示，留醫的教宗方濟各過去一晚使用非入侵式呼吸機協助呼吸後，今早已經停止使用呼吸機，恢復透過鼻下導管接受高流量氧氣。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm)
+
+---
+
+# 全國兩會｜李書福：吉利不打價格戰　新能源汽車發展有點急功近利
+
+![李書福表示，吉利堅決不打價格戰，又指新能源汽車發展確實有點急功近利，因為行業競爭太激烈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794434_1_20250305201908.jpg&q=90)
+  
+
+全國政協委員、吉利控股集團董事長李書福表示，集團堅決不打價格戰，而是打技術戰、品質戰、服務戰、品牌戰等。他說，任何產業的可持續發展要有效率，亦要有創新能力，不能走上內卷式惡性競爭道路。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm)
+
+---
+
 # 全國兩會｜夏寶龍晤李家超稱中央全力支援港澳融入國家發展大局
 
   

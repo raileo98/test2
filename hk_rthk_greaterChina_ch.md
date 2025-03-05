@@ -1,3 +1,32 @@
+# 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
+
+![習近平（左）表示，經濟大省要挑大樑，為全國發展大局做貢獻。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=90)
+  
+
+國家主席習近平表示，要全面落實民營企業座談會精神，一視同仁對待各種所有制企業，持續優化營商環境，要深化要素市場化配置改革，主動破除地方保護、市場分割及內卷式競爭。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm)
+
+---
+
 # 全國兩會｜夏寶龍晤李家超稱中央全力支援港澳融入國家發展大局
 
   
@@ -1700,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm)
-
----
-
-# 全國兩會｜王偉中稱深圳和香港共同創新　不認為香港科技發展較慢
-
-![王偉中表示，深圳和香港都在共同創新。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794300_1_20250305094334.jpg&q=80)
-  
-
-在北京，全國人大代表、廣東省省長王偉中回應河套區發展時表示，今年會合作得越來越好，至於深圳在科技發展方面有何可取之處，他表示，深圳和香港都在共同創新。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm)
 
 ---

@@ -1,3 +1,61 @@
+# 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
+
+![習近平（左）表示，經濟大省要挑大樑，為全國發展大局做貢獻。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=90)
+  
+
+國家主席習近平表示，要全面落實民營企業座談會精神，一視同仁對待各種所有制企業，持續優化營商環境，要深化要素市場化配置改革，主動破除地方保護、市場分割及內卷式競爭。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm)
+
+---
+
+# 全國兩會｜李書福：吉利不打價格戰　新能源汽車發展有點急功近利
+
+![李書福表示，吉利堅決不打價格戰，又指新能源汽車發展確實有點急功近利，因為行業競爭太激烈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794434_1_20250305201908.jpg&q=90)
+  
+
+全國政協委員、吉利控股集團董事長李書福表示，集團堅決不打價格戰，而是打技術戰、品質戰、服務戰、品牌戰等。他說，任何產業的可持續發展要有效率，亦要有創新能力，不能走上內卷式惡性競爭道路。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm)
+
+---
+
 # 內地適度放寬科企併購貸款政策
 
 ![國家金融監管總局表示，近期開展適度放寬科技企業併購貸款政策試點，支持科企發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794430_1_20250305190506.jpg&q=55)
@@ -1659,63 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm)
-
----
-
-# 全國兩會｜今年赤字率擬4%左右　發超長期特別國債1.3萬億元
-
-![李強發表政府工作報告，指出擬發行超長期特別國債1.3萬億元人民幣，擬發行特別國債5000億元。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794302_1_20250305103753.jpg&q=20)
-  
-
-國務院總理李強表示，將實施更加積極財政政策，今年赤字率擬按4%左右安排，赤字規模5.66萬億元人民幣，並實施適度寬鬆的貨幣政策，適時降準降息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm)
-
----
-
-# 全國兩會｜高質量完成國企改革深化提升行動
-
-![報告提出，要深化財稅金融體制改革，規範稅收優惠政策。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794301_1_20250305100605.jpg&q=90)
-  
-
-國務院總理李強發表政府工作報告，表示要紮實推動重點領域改革，包括高質量完成國企改革深化提升行動，落實促進民營經濟發展政策措施，推動全國統一大市場建設，打通市場准入退出，綜合整治「內卷式」競爭。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm)
 
 ---

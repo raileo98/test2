@@ -1,3 +1,60 @@
+# 格陵蘭自治政府總理：既不想成為丹麥人亦不想成為美國人
+
+![格陵蘭將舉行自治政府議會選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794433_1_20250305201506.jpg&q=90)
+  
+
+美國總統特朗普在國會聯席會議發言時表示，美國支持格陵蘭的未來選擇，並歡迎格陵蘭加入美國，認為美國最終會得到格陵蘭。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm)
+
+---
+
+# 梵蒂岡稱教宗昨晚休息得很好　今早已停用呼吸機
+
+  
+
+梵蒂岡表示，留醫的教宗方濟各過去一晚使用非入侵式呼吸機協助呼吸後，今早已經停止使用呼吸機，恢復透過鼻下導管接受高流量氧氣。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794436-20250305.htm)
+
+---
+
 # 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
 
 ![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=75)
@@ -1679,63 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm)
-
----
-
-# 德國曼海姆汽車撞人群2死多人傷　當局稱疑犯有精神病
-
-![法證人員檢視一輛涉案汽車蒐證。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794071_1_20250304043807.jpg&q=65)
-  
-
-德國西南部城市曼海姆汽車撞向人群事件，造成兩人死亡，11人受傷，一名40歲德國籍疑犯當場被捕。警方說，暫時未發現政治動機，檢察官說，有具體跡象顯示疑犯有精神病。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm)
-
----
-
-# 以軍空襲敘利亞西北部一處軍事設施
-
-![以軍空襲敘利亞西北部一處軍事設施](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794070_1_20250304040945.jpg&q=90)
-  
-
-以色列軍方表示，星期一空襲敘利亞西北部，襲擊目標是位於拉塔基亞以東一處敘利亞軍事設施，這個設施用於儲存武器。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm)
 
 ---
