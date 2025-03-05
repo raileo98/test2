@@ -49,7 +49,6 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
 
 # Chinese firms double down on tech: Xiaomi, Haier
 
-![Xiaomi chairman Lei Jun appreciated the support of the central government, following a meeting of representatives from the private sector with President Xi Jinping. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_1_20250305112824.jpg&q=85)
 ![Zhou Yunjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=85)
   
 

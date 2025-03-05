@@ -1,3 +1,26 @@
+# 全國兩會｜發改委等部委明日下午舉行經濟主題記者會
+
+  
+
+十四屆全國人大三次會議明日下午3時舉行經濟主題記者會，國家發改委主席鄭柵潔、財政部部長藍佛安、商務部部長王文濤、人民銀行行長潘功勝、中國證監會主席吳清，將會就發展改革、財政預算、商務、金融證券等相關問題回答中外記者提問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡稱有信心助社福機構面對撥款減幅
 
   
@@ -209,7 +232,7 @@
 
 # 全國兩會｜李雲澤：去年處置不良資產3.8萬億元人民幣歷來最多
 
-![李雲澤稱去年全年共處置不良資產3.8萬億元人民幣，創歷年最多。（法新法資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794352_1_20250305125823.jpg&q=90)
+![李雲澤表示，去年全年共處置不良資產3.8萬億元人民幣，創歷年最多。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794352_2_20250305134148.jpg&q=90)
   
 
 國家金融監督管理總局局長李雲澤表示，內地金融風險穩步收斂，存量風險正有序處置，增量風險亦得到明顯遏制，特別是去年加大不良資產處置力度，全年共處置不良資產3.8萬億元人民幣，創歷年最多，守住不發生系統性風險底線。
