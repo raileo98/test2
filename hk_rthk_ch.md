@@ -1,5 +1,34 @@
+# 美元兌歐元曾跌至近4個月低位
+
+  
+
+美元兌多數貨幣下跌，兌歐元一度跌至近4個月低位。美元指數失守105水平，在紐約尾市報104.29，跌幅1.2%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm)
+
+---
+
 # 馬克龍強調拒絕簽訂脆弱俄烏停火協議
 
+![馬克龍表示，美國減少對烏克蘭支持，為歐洲未來的安全和繁榮增加更多不確定性。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794473_1_20250306062035.jpg&q=90)
   
 
 法國總統馬克龍表示，歐洲的盟友美國已經改變在俄烏衝突的立場，減少對烏克蘭支持，為歐洲未來的安全和繁榮增加更多不確定性。
@@ -115,6 +144,7 @@
 
 # 美國證實與哈馬斯就被扣押人員問題進行直接會談
 
+![萊維特證實，美國與巴勒斯坦武裝組織哈馬斯，就被扣押在加沙地帶的人員進行直接談判和討論。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794469_1_20250306062223.jpg&q=85)
   
 
 美國白宮發言人萊維特證實，美國正在與巴勒斯坦武裝組織哈馬斯，就被扣押在加沙地帶的人員進行直接談判和討論，美方已就事件同以色列磋商。
@@ -143,6 +173,7 @@
 
 # 阿根廷首都大規模停電　部分學校停課
 
+![停電期間，一間商店使用發電機發電。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794467_1_20250306061930.jpg&q=90)
   
 
 阿根廷首都布宜諾斯艾利斯發生大規模停電，範圍包括總統府、國會、經濟部及部分街區。
@@ -171,6 +202,7 @@
 
 # 美國白宮證實特朗普同意對墨加部分汽車推遲一個月徵收關稅
 
+![萊維特說，對等關稅措施仍將於4月2日生效。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794465_1_20250306061717.jpg&q=90)
   
 
 美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予部分汽車製造商一個月的豁免。
@@ -1702,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm)
-
----
-
-# 在岸人民幣兌美元高收逾200點子　創1星期新高
-
-![在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794399_1_20250305165035.jpg&q=30)
-  
-
-在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm)
 
 ---

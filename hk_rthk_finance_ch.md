@@ -1,3 +1,31 @@
+# 美元兌歐元曾跌至近4個月低位
+
+  
+
+美元兌多數貨幣下跌，兌歐元一度跌至近4個月低位。美元指數失守105水平，在紐約尾市報104.29，跌幅1.2%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm)
+
+---
+
 # 道指高收485點　中概股指數升逾6%
 
 ![道瓊斯指數早段曾跌逾100點，尾市升幅最多擴大至逾610點，收市報43006點，升485點，升幅1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794472_1_20250306054601.jpg&q=90)
@@ -1692,34 +1720,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794316-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794316-20250305.htm)
-
----
-
-# 全國兩會｜著力抓好「三農」工作　千方百計推動農業增效益
-
-![報告指出，今年要著力抓好「三農」工作，深入推進鄉村全面振興，堅持農業農村優先發展。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794322_1_20250305103818.jpg&q=1)
-  
-
-國務院總理李強在政府工作報告中表示，今年要著力抓好「三農」工作，深入推進鄉村全面振興，堅持農業農村優先發展，學習運用「千萬工程」經驗，完善強農惠農富農支持制度，千方百計推動農業增效益、農村增活力、農民增收入。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm)
 
 ---
