@@ -1,4 +1,4 @@
-# Beijing backs SARs in national integration, says Xia
+# Beijing backs SARs in national integration: Xia
 
 ![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
 ![Liaison office chief Zheng Yanxiong has outlined four key roles for local NPC deputies in Hong Kong’s development. Photo courtesy of the Liaison Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_2_20250305223240.jpg&q=90)
