@@ -1,3 +1,32 @@
+# 林志釉促醫管局審視餵食病人程序　林哲玄籲區分食物軟硬程度等級
+
+![林志釉與林哲玄都形容事件屬罕見，希望醫管局檢討相關程序及食品軟硬等級。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794442_1_20250305210253.jpg&q=40)
+  
+
+明愛醫院一名75歲男病人，懷疑被錯誤餵食固體食物導致「哽喉」，搶救無效死亡，醫管局初步認為，可能是護士與醫生溝通上出現問題。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm)
+
+---
+
 # 根源分析委員會調查明愛醫院病人進食哽喉後死亡事件
 
 ![根源分析委員會由港島東醫院聯網臨床服務統籌劉家獻擔任主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794441_1_20250305205658.jpg&q=85)
