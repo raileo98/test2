@@ -1,3 +1,72 @@
+# 全國兩會｜李慧琼對工作報告有信心　相信經整體考慮及中期需要
+
+  
+
+國務院總理李強發表政府工作報告，人大常委李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新，她對報告充滿信心。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm)
+
+---
+
+# 公務員事務局澄清沒有宣布整合「文書助理」職系　已就事件報警
+
+  
+
+對於網上流傳假消息指，政府宣布「文書助理」職系將於2027年前，全面整合至「助理文書主任」職系，公務員事務局發言人澄清，並沒作出有關宣布，並已就此報警處理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794380-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794380-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794380-20250305.htm)
+
+---
+
+# 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
+
+  
+
+在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm)
+
+---
+
 # 港股升幅擴大至逾600點　科指升逾3%
 
 ![恒生指數較早時報23547點，升605點，升幅2.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794377_1_20250305145753.jpg&q=20)
@@ -24,6 +93,7 @@
 
 # 全國兩會｜西安納入港澳「個人遊」　陝西省副省長稱成效理想
 
+![徐明非指兩地來往越來越多，未來也會有全方位計劃，包括在文物、展覽和文化旅遊等方面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794376_1_20250305150231.jpg&q=80)
   
 
 陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
@@ -70,6 +140,7 @@
 
 # 明愛醫院75歲男病人餵食期間哽到其後離世　院方致歉
 
+![明愛醫院公布，一名75歲男病人餵食期間哽到，其後不治離世。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794372_1_20250305151025.jpg&q=85)
   
   
 
@@ -836,7 +907,7 @@
 
 # 全國兩會｜王靈桂：中央堅定支持香港和澳門拼經濟謀發展惠民生
 
-![王靈桂強調，中央一定會堅定支持香港和澳門拼經濟、謀發展、惠民生。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794291_1_20250305093600.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794291_1_20250305093600.jpg&q=75)
   
 
 在北京，全國政協委員、港澳辦副主任王靈桂列席全國人大會議開幕會前，被問到中央會否再有惠港措施推出，他反問記者認為香港股市較去年有何變化，認為股市是由所有股民造起來，他們對香港有信心，所以股市就會發展得很好。
@@ -1362,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
-
----
-
-# 全國兩會｜李家超寄語兩會代表及委員多提建議及提案
-
-![李家超傍晚抵達北京。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794199_1_20250304181050.jpg&q=85)
-  
-
-行政長官李家超抵達北京，將列席明早在人民大會堂舉行的全國人大會議開幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794199-20250304.htm)
-
----
-
-# 全國兩會｜夏寶龍會見岑浩輝　稱勇於擔當作為
-
-![中央港澳辦、國務院港澳辦主任夏寶龍在北京會見澳門行政長官岑浩輝。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794198_1_20250304191327.jpg&q=85)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見準備列席全國人大會議開幕式的澳門行政長官岑浩輝。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794198-20250304.htm)
-
----
-
-# 全國兩會｜彭耀佳稱旅發局善用資源做到最好
-
-![彭耀佳表示，旅發局與所有政府資助機構一樣，要「勒緊肚皮」，善用資源，做到最好。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794197_1_20250304182236.jpg&q=80)
-  
-
-全國政協委員、即將卸任旅發局主席的彭耀佳表示，滿意自己的成績，但應由香港市民及政府對他評價，希望大家認為是合格。擔任六年旅發局主席的彭耀佳表示，多年來最難忘是疫情時零遊客，業界「冇飯食」，因此要推出措施，令業界可以生存。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794197-20250304.htm)
 
 ---

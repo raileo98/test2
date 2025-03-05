@@ -1,3 +1,49 @@
+# 全國兩會｜李慧琼對工作報告有信心　相信經整體考慮及中期需要
+
+  
+
+國務院總理李強發表政府工作報告，人大常委李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新，她對報告充滿信心。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm)
+
+---
+
+# 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
+
+  
+
+在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm)
+
+---
+
 # 港股升幅擴大至逾600點　科指升逾3%
 
 ![恒生指數較早時報23547點，升605點，升幅2.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794377_1_20250305145753.jpg&q=20)
@@ -71,6 +117,7 @@
 
 # 全國兩會｜西安納入港澳「個人遊」　陝西省副省長稱成效理想
 
+![徐明非指兩地來往越來越多，未來也會有全方位計劃，包括在文物、展覽和文化旅遊等方面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794376_1_20250305150231.jpg&q=80)
   
 
 陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
@@ -1103,7 +1150,7 @@
 
 # 全國兩會｜王靈桂：中央堅定支持香港和澳門拼經濟謀發展惠民生
 
-![王靈桂強調，中央一定會堅定支持香港和澳門拼經濟、謀發展、惠民生。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794291_1_20250305093600.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794291_1_20250305093600.jpg&q=75)
   
 
 在北京，全國政協委員、港澳辦副主任王靈桂列席全國人大會議開幕會前，被問到中央會否再有惠港措施推出，他反問記者認為香港股市較去年有何變化，認為股市是由所有股民造起來，他們對香港有信心，所以股市就會發展得很好。
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm)
-
----
-
-# 據報高盛或在年度績效考核中裁員3%至5%
-
-![路透引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，或涉及逾1395人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794269_1_20250305070433.jpg&q=90)
-  
-
-外電引述消息指，高盛計劃在今年春季的年度績效考核中裁員3%至5%，按照去年底全球員工總數4.65萬人計算，裁員或涉及逾1395人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794269-20250305.htm)
-
----
-
-# 杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施
-
-![杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794267_1_20250305064537.jpg&q=90)
-  
-
-美國對加拿大及墨西哥進口商品徵收25%關稅，加大宣布報復措施，總理杜魯多認為，美國總統特朗普的目的，是想摧毀加拿大的經濟，令美國更容易吞併加拿大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm)
 
 ---
