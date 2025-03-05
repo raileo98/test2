@@ -1,3 +1,32 @@
+# Air passenger departure tax to go up from Oct 1
+
+![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250305180720.jpg&q=65)
+  
+
+Travelers purchasing a plane ticket to fly out of Hong Kong from October 1 will have to pay HK$200 in air passenger departure tax (APDT) instead of the current HK$120, the government announced on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm)
+
+---
+
 # LeBron James first NBA player ever to score 50,000 pts
 
 ![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=90)
@@ -1708,34 +1737,5 @@ Nearly 60 percent of all adults and a third of all children in the world will be
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
-
----
-
-# Wall Street stocks dive on US tariff policy
-
-![Wall Street's Volatility Index (VIX) has hit its highest level since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794094_1_20250304084859.jpg&q=90)
-  
-
-US stocks closed sharply lower on Monday, after US President Donald Trump slapped fresh sanctions against China and levies on Mexico and Canada neared imposition, while European defence shares soared as the European Union sought increased military spending over Ukraine.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm)
 
 ---
