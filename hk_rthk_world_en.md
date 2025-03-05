@@ -1,3 +1,27 @@
+# Democrat lawmaker ejected during Trump's speech
+
+![Democrat congressman Al Green stood up and yelled at the president: "You don't have a mandate" and was led away by security. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
+  
+
+Democrats protested President Donald Trump's address to Congress on Tuesday with signs reading "No King!" and "Save Medicaid," with some turning their backs on the Republican as he spoke and one lawmaker marched out by security.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm)
+
+---
+
 # Trump hails 'unstoppable' America in Congress speech
 
 ![US President Donald Trump hailed his first few weeks in office, telling Congress his administration had accomplished great things for America. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794327_1_20250305104833.jpg&q=90)
@@ -1416,29 +1440,5 @@ President Xi Jinping on Monday held a phone conversation with his Russian counte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm)
-
----
-
-# Tens of thousands vow support for Lebanon's Hezbollah
-
-![Masses of mourners attend the funeral of former Hezbollah leaders Hassan Nasrallah and Hashem Safieddine. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792878_1_20250224083246.jpg&q=1)
-  
-
-Tens of thousands of black-clad mourners vowed support for Hezbollah at the Beirut funeral of slain leader Hassan Nasrallah on Sunday, nearly five months after he was killed in an Israeli airstrike.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 羅淑佩稱主辦方及體育園需要磨合　以後處理相關情況要汲取經驗
+
+  
+
+啟德體育園昨晚舉行的世界格蘭披治桌球大獎賽尾場賽事，有觀眾在賽事未完結被要求提早離場。文化體育及旅遊局局長羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想，她將來會責成管理公司，每次遇到類似情況都要認真處理，當局亦會觀察情況，作出相應行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm)
+
+---
+
 # 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
 
 ![羅淑佩表示，昨晚主辦單位的安排非常不理想，有關方面已經致歉，並提出補償方案。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=80)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792872-20250224.htm)
-
----
-
-# 一連兩日全運會男子手球測試賽完結　楊德強指逾4300人次入場
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792844_1_20250223184356.jpg&q=80)
-  
-
-一連兩日在啟德體藝館舉行的全運會男子手球測試賽結束。全運會統籌辦公室主任楊德強表示，首次在啟德體育園舉辦全運會測試賽，不論賽事組織、場地器材、安保、餐飲、交通安排等方面，都獲得很多經驗，當局之後會與相關部門和機構重新檢視流程，從中汲取經驗，並優化安排，為年底的正賽做好準備。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792844-20250223.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 全國兩會｜李雲澤：去年處置不良資產3.8萬億元人民幣歷來最多
+
+![李雲澤稱去年全年共處置不良資產3.8萬億元人民幣，創歷年最多。（法新法資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794352_1_20250305125823.jpg&q=90)
+  
+
+國家金融監督管理總局局長李雲澤表示，內地金融風險穩步收斂，存量風險正有序處置，增量風險亦得到明顯遏制，特別是去年加大不良資產處置力度，全年共處置不良資產3.8萬億元人民幣，創歷年最多，守住不發生系統性風險底線。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm)
+
+---
+
 # 全國兩會｜田軒稱增長目標助就業民生　蔡冠深對達標感樂觀
 
   
@@ -1408,30 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794243-20250305.htm)
-
----
-
-# 已登記會員周四起可預訂啟德體育園部分體育設施
-
-![啟德體育園部分設施陸續開放。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_1_20250305001230.jpg&q=20)
-![啟德青年運動場跑道徑下午5時後每位收費18元。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_2_20250305001230.jpg&q=90)
-  
-
-啟德體育園網站顯示，園內部分體育設施陸續開放，星期三早上10時起，公眾可查看11日內的設施租用情況。已登記會員可於星期四上午7時起，預訂未來10日內可供租用的體育運動設施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm)
 
 ---

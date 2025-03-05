@@ -1,3 +1,26 @@
+# 羅淑佩稱主辦方及體育園需要磨合　以後處理相關情況要汲取經驗
+
+  
+
+啟德體育園昨晚舉行的世界格蘭披治桌球大獎賽尾場賽事，有觀眾在賽事未完結被要求提早離場。文化體育及旅遊局局長羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想，她將來會責成管理公司，每次遇到類似情況都要認真處理，當局亦會觀察情況，作出相應行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm)
+
+---
+
 # 全國兩會｜李強稱堅決反對台獨分裂和外部勢力干涉
 
   
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm)
-
----
-
-# 港股低收64點　主板成交不足3千億元　汽車股捱沽
-
-![港股再度失守23000點，恒生指數收市報22941點，跌64點，主板成交額不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794169_1_20250304162104.jpg&q=75)
-  
-
-港股再度回軟，失守23000點水平，但午後跌幅明顯收窄。恒生指數早段最多跌近460點，低見22547點，收市報22941點，跌64點，跌幅約0.3%，主板成交額減至2695億元，是逾1星期以來首次不足3千億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794169-20250304.htm)
 
 ---
