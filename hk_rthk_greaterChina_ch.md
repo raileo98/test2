@@ -1,3 +1,61 @@
+# 全國兩會｜鄭雁雄籲港區人大「犯其至難而圖其至遠」意志擔當責任
+
+![鄭雁雄說，香港實現高品質發展的動能，需用好內聯外通的優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794448_1_20250305221151.jpg&q=80)
+  
+
+在北京，全國人大香港代表團下午舉行全體會議，審議政府工作報告。中聯辦主任鄭雁雄形容報告求真務實、凝心聚力，分析形勢科學精準，部署工作務實具體，亦回應人民的熱切期盼，對此倍感振奮、備受鼓舞。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm)
+
+---
+
+# 清遠佛山旅行團四人感染退伍軍人病　衞生防護中心列為輸入個案
+
+![衞生防護中心呼籲曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794447_1_20250305220536.jpg&q=90)
+  
+
+一個清遠佛山旅行團出現退伍軍人病群組，涉及四名團友，衞生防護中心呼籲，曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心，以便接受健康評估和醫學監察。中心亦已知會旅遊業監管局，並將個案通報廣東省衞生當局，流行病學調查仍在進行中。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm)
+
+---
+
 # 全國兩會｜張又俠何衛東參加解放軍和武警代表團審議政府工作報告
 
 ![張又俠及何衛東分別參加解放軍和武警部隊代表團分組審議政府工作報告。（網絡截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794446_1_20250305215018.jpg&q=85)
@@ -1672,63 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
-
----
-
-# 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794307_1_20250305100447.jpg&q=75)
-  
-
-全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm)
-
----
-
-# 全國兩會｜深入實施科教興國戰略　提升國家創新體系效能
-
-![李強說，要加快建設高質量教育體系，制定實施教育強國建設三年行動計劃。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794306_1_20250305100509.jpg&q=85)
-  
-
-國務院總理李強在政府工作報告中說，今年要深入實施科教興國戰略，提升國家創新體系整體效能。堅持創新引領發展，一體推進教育發展、科技創新、人才培養，築牢中國式現代化的基礎性。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm)
 
 ---
