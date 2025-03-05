@@ -1,3 +1,31 @@
+# 烏美官員通電話同意舉行進一步會談
+
+  
+
+烏克蘭總統辦公室主任葉爾馬克與美國國家安全顧問沃爾茲通電話，葉爾馬克說，烏克蘭和美國團隊同意舉行進一步會談。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm)
+
+---
+
 # 俄方對烏方願和平解決衝突表示肯定　白俄羅斯有意組織俄烏美談判
 
   
@@ -1707,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm)
-
----
-
-# 美國向中國返還41件文物藝術品
-
-![國家文物局接收美國向中國返還的41件文物藝術品。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794090_1_20250304082857.jpg&q=90)
-  
-
-國家文物局在美國紐約曼哈頓檢察官辦公室，接收美國向中國返還的41件文物藝術品，包括銅搖錢樹和陶座、素面陶鬲、素面帶蓋銅鈁、陶說唱俑等，種類涵蓋陶器、玉器、青銅器、佛造像、畫像磚及藏傳佛教文物等。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm)
 
 ---

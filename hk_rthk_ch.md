@@ -1,3 +1,31 @@
+# 烏美官員通電話同意舉行進一步會談
+
+  
+
+烏克蘭總統辦公室主任葉爾馬克與美國國家安全顧問沃爾茲通電話，葉爾馬克說，烏克蘭和美國團隊同意舉行進一步會談。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm)
+
+---
+
 # 俄方對烏方願和平解決衝突表示肯定　白俄羅斯有意組織俄烏美談判
 
   
@@ -1701,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
-
----
-
-# 全國兩會｜奇瑞汽車尹同躍稱靠實力說話　已習慣美方加關稅
-
-![尹同躍強調要自身強大、科技創新和拼搏，形容還是靠實力說話。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794386_1_20250305155528.jpg&q=85)
-  
-
-全國人大代表、奇瑞汽車董事長尹同躍表示，要全面擁抱新能源汽車，加速發展會帶來一系列變化。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm)
 
 ---
