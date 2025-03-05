@@ -1,3 +1,51 @@
+# HSI adds 1pc despite losses on Wall Street
+
+![The Hang Seng Index posts gains as China pledges to make domestic demand the "main engine" of its economic growth. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794303_1_20250305094110.jpg&q=25)
+  
+
+Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qiang announced a target GDP growth of "around 5 percent" for 2025 and pledged to make domestic demand the "main engine" of its economic growth.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm)
+
+---
+
+# Stocks rack up more losses on Wall Street
+
+![US stocks decline as a trade war between the US and its key trading partners escalates. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794279_1_20250305083014.jpg&q=50)
+  
+
+US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correction territory, as trade tensions escalated following US President Donald Trump's new tariffs on Canada, Mexico and China.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm)
+
+---
+
 # CK Hutchison to sell Panama unit after Trump pressure
 
 ![The sale to a Blackrock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=25)
@@ -1387,53 +1435,5 @@ Local shares opened lower on Wednesday led by drops in tech shares.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792227-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792227-20250219.htm)
-
----
-
-# China condemns US 'tariff shocks' at WTO
-
-![Li Chenggang, China's Ambassador to the WTO, warns against what he says is US unilateralism disrupting the rules-based multilateral trading system. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792198_1_20250219060325.jpg&q=90)
-  
-
-The sweeping tariffs threatened or imposed by US President Donald Trump risk triggering inflation, market distortions, and even a global recession, China said on Tuesday at the World Trade Organization.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792198-20250219.htm)
-
----
-
-# Jobless rate steady at 3.1pct
-
-![Hong Kong's seasonally adjusted unemployment and underemployment rates have both remained unchanged since August-October 2024. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792137_2_20250218204324.jpg&q=70)
-  
-
-Hong Kong's unemployment rate remained at 3.1 percent in the November-January period, unchanged from the previous three-month figure.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792137-20250218.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792137-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792137-20250218.htm)
 
 ---

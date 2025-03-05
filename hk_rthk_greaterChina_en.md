@@ -1,3 +1,75 @@
+# China GDP tipped to reach 5pc in 2025
+
+![Premier Li Qiang delivers the government work report. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794288_2_20250305093057.jpg&q=90)
+  
+
+China on Wednesday said it will aim for economic growth of around 5 percent in 2025.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm)
+
+---
+
+# China's Liu Jiakun wins Pritzker Prize
+
+![Liu lives and works in his birth city of Chengdu, where he prioritises the use of local materials and traditional building techniques. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794280_1_20250305083557.jpg&q=85)
+  
+
+The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday to China's Liu Jiakun, for designs that celebrate "everyday lives".
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm)
+
+---
+
+# 'China GDP could be affected by US tariffs'
+
+![A finance expert says the Chinese response is very firm and shows determination to the US. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794282_1_20250305085101.jpg&q=60)
+  
+
+An economist on Wednesday said that the latest round of US tariffs on Chinese imports could gradually reduce China's gross domestic product by some 0.3 to 0.4 percent over a 12-month period.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
+
+---
+
 # Beijing files complaint with WTO over Trump tariffs
 
 ![The move comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
@@ -1368,77 +1440,5 @@ Team China dominated the medals table at the Harbin Asian Winter Games which clo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm)
-
----
-
-# Vice education minister visits Polytechnic University
-
-![Vice Minister of Education Wu Yan, second left, visits the Polytechnic University campus in Hung Hom. Photo courtesy of Polytechnic University](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791657_1_20250214171349.jpg&q=75)
-  
-
-Vice Minister of Education Wu Yan has praised the Hong Kong Polytechnic University for its innovative research and its effort in fostering industry-academia integration.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791657-20250214.htm)
-
----
-
-# Bodies of Macau victims of Taiwan blast to head home
-
-![A suspected gas explosion at a department store in Taichung claims four lives. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791635_1_20250214154731.jpg&q=75)
-  
-
-Arrangements were being made by the Macau authorities – via the Red Cross – to return to the SAR the bodies of two residents killed in an explosion in Taiwan.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791635-20250214.htm)
-
----
-
-# Baidu to make latest Ernie AI model open-source
-
-![Baidu was among the first big Chinese companies to invest heavily in AI following the 2022 debut of OpenAI's ChatGPT. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791606_1_20250214121337.jpg&q=90)
-  
-
-Search engine giant Baidu said on Friday it would make its next-generation artificial intelligence model Ernie open-source from June 30, a major shift in strategy as competition heats up.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791606-20250214.htm)
 
 ---

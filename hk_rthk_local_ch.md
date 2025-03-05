@@ -1,3 +1,262 @@
+# 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
+
+  
+
+全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm)
+
+---
+
+# 白表居屋第二市場計劃明起接受申請　為青年新增1500個配額
+
+![「白表居屋第二市場計劃 2024」明日上午8時開始接受申請，直至本月26日晚上7時為止。（「白居二2024」網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794304_1_20250305095520.jpg&q=90)
+  
+
+房委會「白表居屋第二市場計劃 2024」於明日上午8時開始接受申請，直至本月26日晚上7時為止，為期3星期。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm)
+
+---
+
+# 全國兩會｜今年赤字率擬4%左右　發超長期特別國債1.3萬億元
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm)
+
+---
+
+# 全國兩會｜王偉中稱深圳和香港共同創新　不認為香港科技發展較慢
+
+![王偉中表示，深圳和香港都在共同創新。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794300_1_20250305094334.jpg&q=80)
+  
+
+在北京，全國人大代表、廣東省省長王偉中回應河套區發展時表示，今年會合作得越來越好，至於深圳在科技發展方面有何可取之處，他表示，深圳和香港都在共同創新。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm)
+
+---
+
+# 全國兩會｜朱葉玉如形容吳家瑋對科大及高等教育有很大貢獻
+
+![朱葉玉如形容吳家瑋對科大、高等教育和國家發展有很大貢獻，會懷念對方。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794295_1_20250305093627.jpg&q=75)
+  
+
+香港科技大學表示，創校校長吳家瑋星期日離世，終年87歲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm)
+
+---
+
+# 港股高開258點     長和升近一成半
+
+![港股高開258點，當中長和（圖）股價升近一成半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794293_1_20250305092624.jpg&q=30)
+  
+
+港股高開258點，恒指競價時段報23200點。當中公布計劃出售非中國港口資產的長和股價急升近一成半。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm)
+
+---
+
+# 全國兩會｜今年發展主要預期目標　國內生產總值增長5%左右
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794292_1_20250305094926.jpg&q=75)
+  
+
+國務院總理李強提出，今年國內生產總值目標增長5%左右，城鎮調查失業率5.5%左右，城鎮新增就業1200萬人以上，居民消費價格升幅2%左右，居民收入增長和經濟增長同步，國際收支保持基本平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm)
+
+---
+
+# 全國兩會｜王靈桂：中央堅定支持香港和澳門拼經濟謀發展惠民生
+
+![王靈桂強調，中央一定會堅定支持香港和澳門拼經濟、謀發展、惠民生。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794291_1_20250305093600.jpg&q=75)
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂列席全國人大會議開幕會前，被問到中央會否再有惠港措施推出，他反問記者認為香港股市較去年有何變化，認為股市是由所有股民造起來，他們對香港有信心，所以股市就會發展得很好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm)
+
+---
+
+# 全國兩會｜董經緯：香港維護國家安全法律體系越來越完善
+
+![董經緯指出，《香港國安法》的實施給香港一國兩制長遠發展帶來了有力保障。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794289_1_20250305093534.jpg&q=80)
+  
+
+在北京，全國人大代表、中央駐港國安公署署長董經緯接受本台訪問時表示，《香港國安法》和維護國家安全條例，兩個法律渾然一體，香港維護國家安全的法律體系越來越完善，香港一國兩制行穩致遠更加有力保障。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm)
+
+---
+
+# 全國兩會｜李強過去一年歷程不平凡　主要目標任務順利完成
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794287_1_20250305091634.jpg&q=85)
+  
+
+在北京，國務院總理李強發表政府工作報告，提到過去一年來，中國的發展歷程很不平凡，國家經濟運行總體平穩，穩中有進，全年經濟社會發展主要目標任務順利完成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm)
+
+---
+
+# 全國兩會｜十四屆全國人大三次會議開幕
+
+![第十四屆全國人大三次會議開幕會在北京人民大會堂舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794284_1_20250305091451.jpg&q=15)
+  
+
+第十四屆全國人大三次會議，今早9時在北京人民大會堂開幕。總理李強發表任內第二份政府工作報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm)
+
+---
+
 # 已登記會員周四起可預訂啟德體育園部分體育設施
 
 ![啟德體育園部分設施陸續開放。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_1_20250305001230.jpg&q=20)
@@ -1178,269 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm)
-
----
-
-# 恒指半日跌105點　比亞迪股份跌近7%
-
-![恒指中午收市報22901點，跌105點，跌幅約0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794129_1_20250304121204.jpg&q=1)
-  
-
-港股開市失守23000點，恒生指數初段低見22547點，跌約460點，其後跌幅收窄，中午收市報22901點，跌105點，跌幅約0.5%，半日主板成交額1569億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794129-20250304.htm)
-
----
-
-# 青島市委書記曾贊榮：自由行實施近一年　情況非常好
-
-![曾贊榮表示，青島與港澳有很多來往，包括科技創新、金融和航運。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794121_1_20250304120217.jpg&q=80)
-  
-
-青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
-
----
-
-# 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
-
-![羅淑佩有信心香港的啟德體育園會很受歡迎。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794118_1_20250304113156.jpg&q=75)
-  
-
-文化體育及旅遊局局長羅淑佩透露正努力促成海外足球隊於今年夏天訪港，作為球迷自己亦很期待，有消息時會公布。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm)
-
----
-
-# 羅淑佩：警方調查啟德體育園開幕禮有人將沒有門票觀眾帶入場
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794117_1_20250304111624.jpg&q=75)
-  
-
-啟德體育園上周六的開幕禮，有報道指有人在沒有門票的情況下，進入主場館觀看表演。文化體育及旅遊局局長羅淑佩出席本台節目《千禧年代》時說，局方已經聯絡警方，調查亦有進展，但現時不能透露詳情，初步發現有人不合規地將一些沒有門票的觀眾帶入場，他們亦被指沒有經過安檢程序入場，雖然事件不涉及大規模違規，但當局一定會堵塞漏洞，警方會適時採取行動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794117-20250304.htm)
-
----
-
-# 恒指曾跌逾400點　汽車股下挫
-
-![恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794116_1_20250304104110.jpg&q=10)
-  
-
-港股開市失守23000點，恒生指數初段低見22547點，跌約460點，較早時報22758點，跌248點，跌幅1.08%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794116-20250304.htm)
-
----
-
-# 丘應樺稱減烈酒稅後數量及價錢增加　冀帶動餐飲酒店等業務
-
-![丘應樺指出，減低高價烈酒稅是為促進高價烈酒貿易中心，形容勢頭不錯。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794113_1_20250304105236.jpg&q=80)
-  
-
-去年施政報告宣布，進口價200元以上的烈酒，200元以上部分的稅率由100%大幅減至10%。商務及經濟發展局局長丘應樺表示，截至今年1月的數據顯示，減低烈酒稅幾個月，情況幾振奮，量方面增加了60%，價值亦增加了1.5倍。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794113-20250304.htm)
-
----
-
-# 全國兩會 | 全國政協會議下午開幕　王滬寧發表工作報告
-
-![王滬寧將發表全國政協常委會工作報告。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794112_1_20250304105301.jpg&q=85)
-  
-
-全國政協十四屆三次會議下午3時在北京人民大會堂舉行開幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm)
-
----
-
-# 美國對中國產品提高關稅　丘應樺稱對香港影響不是很大
-
-![丘應樺說今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794107_1_20250304103736.jpg&q=75)
-  
-
-美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已決定向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm)
-
----
-
-# 恒指競價時段跌328點
-
-![恒生指數競價時段報22678點，跌328點，跌幅1.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794101_1_20250304092456.jpg&q=20)
-  
-
-港股在競價時段下跌，恒生指數報22678點，跌328點，跌幅1.43%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794101-20250304.htm)
-
----
-
-# 丘應樺稱8月辦第二屆「香港好物節」冀在東盟國家介紹香港產品
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794095_1_20250304095158.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，今年8月會舉行第二屆「香港好物節」，除了推動內地的電商平台，亦期望在東盟國家推出，因此貿發局辦事處香港館亦會在當地介紹香港的產品。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794095-20250304.htm)
-
----
-
-# 金發局：不擔心政府撥款減少影響未來工作部署
-
-![洪丕正稱會因應資源做到最大效益，認為不應只考慮撥款金額多寡。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794092_1_20250304084721.jpg&q=80)
-  
-
-新一份財政預算案相關帳目顯示，2025/26年度金發局獲得政府撥款4690萬元，比本年度修訂的4750萬元輕微減少。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794092-20250304.htm)
 
 ---

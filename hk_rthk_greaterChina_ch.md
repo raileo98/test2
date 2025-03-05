@@ -1,3 +1,329 @@
+# 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
+
+  
+
+全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm)
+
+---
+
+# 全國兩會｜深入實施科教興國戰略　提升國家創新體系效能
+
+  
+
+國務院總理李強在政府工作報告中說，今年要深入實施科教興國戰略，提升國家創新體系整體效能。堅持創新引領發展，一體推進教育發展、科技創新、人才培養，築牢中國式現代化的基礎性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm)
+
+---
+
+# 全國兩會｜今年赤字率擬4%左右　發超長期特別國債1.3萬億元
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm)
+
+---
+
+# 全國兩會｜高質量完成國企改革深化提升行動
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm)
+
+---
+
+# 全國兩會｜王偉中稱深圳和香港共同創新　不認為香港科技發展較慢
+
+![王偉中表示，深圳和香港都在共同創新。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794300_1_20250305094334.jpg&q=80)
+  
+
+在北京，全國人大代表、廣東省省長王偉中回應河套區發展時表示，今年會合作得越來越好，至於深圳在科技發展方面有何可取之處，他表示，深圳和香港都在共同創新。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm)
+
+---
+
+# 全國兩會｜今年大力提振消費　超長期特別國債3千億支持以舊換新
+
+![李強說首先要大力提振消費、提高投資效益，全方位擴大國內需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
+  
+
+國務院總理李強在政府工作報告中表示，今年經濟社會發展任務十分繁重，要突出重點、把握關鍵，著重抓好幾個方面工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm)
+
+---
+
+# 全國兩會｜周光權稱《民營經濟促進法》應可今年出台
+
+![周光權指，全國人大常委會會議在上月底才二審《民營經濟促進法》，可能需要很多調研和準備工作。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794296_1_20250305093651.jpg&q=75)
+  
+
+《民營經濟促進法》沒有納入全國人大會議三審。在北京，全國人大憲法和法律委員會副主任周光權接受本台訪問指，全國人大常委會會議在上月底才二審《民營經濟促進法》，可能需要很多調研和準備工作，因此全國人大要統籌相關安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm)
+
+---
+
+# 全國兩會｜朱葉玉如形容吳家瑋對科大及高等教育有很大貢獻
+
+![朱葉玉如形容吳家瑋對科大、高等教育和國家發展有很大貢獻，會懷念對方。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794295_1_20250305093627.jpg&q=75)
+  
+
+香港科技大學表示，創校校長吳家瑋星期日離世，終年87歲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm)
+
+---
+
+# 全國兩會｜今年發展主要預期目標　國內生產總值增長5%左右
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794292_1_20250305094926.jpg&q=75)
+  
+
+國務院總理李強提出，今年國內生產總值目標增長5%左右，城鎮調查失業率5.5%左右，城鎮新增就業1200萬人以上，居民消費價格升幅2%左右，居民收入增長和經濟增長同步，國際收支保持基本平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm)
+
+---
+
+# 全國兩會｜王靈桂：中央堅定支持香港和澳門拼經濟謀發展惠民生
+
+![王靈桂強調，中央一定會堅定支持香港和澳門拼經濟、謀發展、惠民生。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794291_1_20250305093600.jpg&q=75)
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂列席全國人大會議開幕會前，被問到中央會否再有惠港措施推出，他反問記者認為香港股市較去年有何變化，認為股市是由所有股民造起來，他們對香港有信心，所以股市就會發展得很好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm)
+
+---
+
+# 全國兩會｜董經緯：香港維護國家安全法律體系越來越完善
+
+![董經緯指出，《香港國安法》的實施給香港一國兩制長遠發展帶來了有力保障。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794289_1_20250305093534.jpg&q=80)
+  
+
+在北京，全國人大代表、中央駐港國安公署署長董經緯接受本台訪問時表示，《香港國安法》和維護國家安全條例，兩個法律渾然一體，香港維護國家安全的法律體系越來越完善，香港一國兩制行穩致遠更加有力保障。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm)
+
+---
+
+# 全國兩會｜李強過去一年歷程不平凡　主要目標任務順利完成
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794287_1_20250305091634.jpg&q=85)
+  
+
+在北京，國務院總理李強發表政府工作報告，提到過去一年來，中國的發展歷程很不平凡，國家經濟運行總體平穩，穩中有進，全年經濟社會發展主要目標任務順利完成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm)
+
+---
+
+# 全國兩會｜十四屆全國人大三次會議開幕
+
+![第十四屆全國人大三次會議開幕會在北京人民大會堂舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794284_1_20250305091451.jpg&q=15)
+  
+
+第十四屆全國人大三次會議，今早9時在北京人民大會堂開幕。總理李強發表任內第二份政府工作報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm)
+
+---
+
+# 全國兩會｜雷軍感受中央關心民企　周雲傑稱堅守創新
+
+![雷軍（左）說，小米作為製造業的建設者和受益者，將繼續堅持走科技創新、高端化發展道路；周雲傑（右）說，海爾不斷對國際標準實現突破。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794283_1_20250305085141.jpg&q=85)
+  
+
+全國人大代表、小米集團董事長雷軍表示，上月17日參加了由中共總書記、國家主席習近平主持召開的民營企業座談會，感受到中央對民營企業的關心與支持。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794283-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794283-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794283-20250305.htm)
+
+---
+
 # 全國兩會 | 全國人大會議上午開幕
 
 ![十四屆全國人大三次會議今天上午開幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794256_1_20250305051913.jpg&q=90)
@@ -1102,342 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm)
-
----
-
-# 全國兩會｜全國人大預備會議通過大會議程
-
-![十四屆全國人大三次會議舉行預備會議，通過大會議程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794123_1_20250304122301.jpg&q=55)
-  
-
-十四屆全國人大三次會議上午舉行預備會議，通過今次大會議程。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794123-20250304.htm)
-
----
-
-# 青島市委書記曾贊榮：自由行實施近一年　情況非常好
-
-![曾贊榮表示，青島與港澳有很多來往，包括科技創新、金融和航運。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794121_1_20250304120217.jpg&q=80)
-  
-
-青島市去年新增為內地赴港澳個人遊城市。全國人大代表、青島市委書記曾贊榮表示，自由行實施近一年以來，情況非常好，對青島與香港、澳門的交往帶來很大便利。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794121-20250304.htm)
-
----
-
-# 全國兩會 | 全國政協會議下午開幕　王滬寧發表工作報告
-
-![王滬寧將發表全國政協常委會工作報告。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794112_1_20250304105301.jpg&q=85)
-  
-
-全國政協十四屆三次會議下午3時在北京人民大會堂舉行開幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794112-20250304.htm)
-
----
-
-# 商務部促美方立即撤回單邊關稅措施　將採取反制措施維護自身權益
-
-![商務部敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794097_1_20250304090429.jpg&q=70)
-  
-
-美國政府以芬太尼等問題為由，宣布從當地星期二起，對中國輸美產品再次加徵關稅。中方對此強烈不滿，堅決反對，將採取反制措施堅定維護自身權益，敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm)
-
----
-
-# 美國向中國返還41件文物藝術品
-
-![國家文物局接收美國向中國返還的41件文物藝術品。（央視新聞）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794090_1_20250304082857.jpg&q=90)
-  
-
-國家文物局在美國紐約曼哈頓檢察官辦公室，接收美國向中國返還的41件文物藝術品，包括銅搖錢樹和陶座、素面陶鬲、素面帶蓋銅鈁、陶說唱俑等，種類涵蓋陶器、玉器、青銅器、佛造像、畫像磚及藏傳佛教文物等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm)
-
----
-
-# 全國兩會 | 何漢權引述夏寶龍：政協委員要成為監察者及局中人
-
-![何漢權引述夏寶龍說，政協委員除了做監察者，更重要是成為局中人，就像球賽上一名積極的運動員。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794082_1_20250304065419.jpg&q=90)
-  
-
-港澳辦主任夏寶龍在全國政協會議召開前夕，看望來自香港、澳門的全國政協委員，希望大家更好發揮「雙重積極作用」，加快推動香港由治及興，助力強國建設、民族復興作出新的更大貢獻。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794082-20250304.htm)
-
----
-
-# 特朗普提高對中國商品關稅至20%　對加墨關稅周二生效
-
-![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
-  
-
-美國白宮說，總統特朗普已簽署命令，進一步提高對中國進口商品的關稅，指中國政府未能解決芬太尼問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
-
----
-
-# 全國兩會｜何漢權引述夏寶龍寄語政協做監察者及成為局中人
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794059_1_20250303234207.jpg&q=80)
-  
-
-全國政協十四屆三次會議，明日下午在北京開幕。中央港澳辦、國務院港澳辦主任夏寶龍，晚上在全國政協禮堂看望來自香港和澳門的全國政協委員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794059-20250303.htm)
-
----
-
-# 全國兩會｜夏寶龍冀港澳政協委員發揮「 雙重積極作用」
-
-![夏寶龍希望港澳委員認真履職盡責、積極參政議政。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_1_20250303233503.jpg&q=90)
-![夏寶龍晚上到全國政協禮堂，看望來京出席會議的港澳地區全國政協委員。（國務院港澳辦）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794056_2_20250303233503.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍晚上到全國政協禮堂，看望來京出席全國政協十四屆三次會議的香港、澳門地區全國政協委員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794056-20250303.htm)
-
----
-
-# 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
-
-![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡說，由2022年底至今年1月底，各項人才入境計劃共收到超過44萬宗申請，當中超過28萬宗獲批，高才通計劃佔三分一。他又表示，為確保只有符合要求的人才獲批，申請人須提交由指定第三方認證機構或頒授院校就學歷發出的認證文件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm)
-
----
-
-# 全國兩會｜分析指中央級財政赤字有提升空間
-
-![財政部主管媒體刊登的文章指，中央政府槓桿率不足30%，未來數年中央級財政赤字在力度上仍有空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794035_1_20250303204512.jpg&q=80)
-  
-
-財政部主管媒體刊登的文章指，從結構看，中央政府槓桿率較低，仍不足30%，未來數年中央級財政赤字在力度上仍有空間，但從長遠角度看，追求財政的周期性平衡仍是目標，否則財政赤字持續累積，將加重財政負擔、加劇通脹風險等一系列問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794035-20250303.htm)
-
----
-
-# 全國兩會｜港區人大代表馬逢國為團長　副團長為吳秋北及陳勇
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794039_1_20250303212759.jpg&q=75)
-  
-
-十四屆全國人大三次會議即將開幕，港區人大代表團抵達北京，並舉行首次會議，選出馬逢國為團長，副團長分別為吳秋北及陳勇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794039-20250303.htm)
-
----
-
-# 全國兩會｜港澳全國政協委員抵全國政協禮堂　據了解與夏寶龍會面
-
-![據了解，他們與中央港澳辦、國務院港澳辦主任夏寶龍會面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794028_1_20250303211244.jpg&q=85)
-  
-
-全國政協十四屆三次會議，明日下午在北京開幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794028-20250303.htm)
-
----
-
-# 全國兩會｜全國政協十四屆三次會議發言人稱中國經濟基礎穩優勢多
-
-![劉結一表示，全國政協將持續支持大灣區建設，助力港澳在融入國家發展大局中，實現自身更好發展。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794022_1_20250303205623.jpg&q=90)
-  
-
-全國政協十四屆三次會議明日下午在北京開幕，下星期一上午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794022-20250303.htm)
 
 ---

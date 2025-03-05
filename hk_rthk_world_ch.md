@@ -1,3 +1,51 @@
+# 特朗普將於國會兩院聯席會議致辭　關稅措施及俄烏戰事等是關注點
+
+![今次是特朗普（中）再次就任總統後，首度向兩院發表講話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794297_1_20250305093422.jpg&q=80)
+  
+
+美國總統特朗普將在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm)
+
+---
+
+# 尼日利亞有公共汽車起火後爆炸　最少16名乘客死亡
+
+![尼日利亞有公共汽車起火後爆炸　最少16名乘客死亡](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794281_1_20250305084255.jpg&q=90)
+  
+
+尼日利亞有公共汽車爆炸，最少16名乘客死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm)
+
+---
+
 # 聯合國警告若加沙有關口岸續關閉將為民眾帶來毀滅性後果
 
 ![人道主義物資准入對加沙民眾來說是至關重要。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794278_1_20250305082639.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm)
-
----
-
-# 孫玉菡形容人才配對像情侶關係「和平分手」平常不過
-
-![2022年底至今年1月底，各項人才入境計劃接逾44萬宗申請，當中逾28萬宗獲批。（勞福局社交網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794048_1_20250303222852.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡說，由2022年底至今年1月底，各項人才入境計劃共收到超過44萬宗申請，當中超過28萬宗獲批，高才通計劃佔三分一。他又表示，為確保只有符合要求的人才獲批，申請人須提交由指定第三方認證機構或頒授院校就學歷發出的認證文件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794048-20250303.htm)
-
----
-
-# 德國曼海姆市有車撞人據報最少1死　司機已被拘留
-
-![多輛緊急車輛趕到事發現場協助。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794042_1_20250303212037.jpg&q=60)
-  
-
-德國西部城市曼海姆有汽車衝向人群，多人受傷倒地，當地傳媒報道，事件造成至少1人死亡。警方說，涉案司機已被拘留，正調查有沒有其他人涉案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm)
 
 ---

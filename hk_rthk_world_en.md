@@ -1,3 +1,51 @@
+# Arab leaders endorse Egypt's plan to rebuild Gaza
+
+![Egyptian foreign minister Badr Abdelatty (R) meets with Jordanian foreign minister Ayman Safadi (L) to discuss details of the Gaza reconstruction plan, ahead of the emergency Arab summit in Cairo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794298_1_20250305093303.jpg&q=75)
+  
+
+Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow its roughly two million Palestinians to remain, in a counterproposal to US President Donald Trump’s plan to depopulate the territory and redevelop it as a beach destination.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm)
+
+---
+
+# 'China GDP could be affected by US tariffs'
+
+![A finance expert says the Chinese response is very firm and shows determination to the US. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794282_1_20250305085101.jpg&q=60)
+  
+
+An economist on Wednesday said that the latest round of US tariffs on Chinese imports could gradually reduce China's gross domestic product by some 0.3 to 0.4 percent over a 12-month period.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
+
+---
+
 # Zelensky says he will work with Trump
 
 ![In his first public comments since Trump halted US military aid to Ukraine, Zelensky said his public bust-up with Trump last week was "regrettable". Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794263_1_20250305061826.jpg&q=90)
@@ -1392,53 +1440,5 @@ A contentious Trump administration proposal to give the United States US$500 bil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm)
-
----
-
-# Israel ready to resume Gaza war, PM warns
-
-![Following the latest hostage release, Israel has so far not returned 620 Palestinian prisoners under its part of the deal. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792869_1_20250224062918.jpg&q=25)
-  
-
-Israel said on Sunday it was delaying the release of hundreds of Palestinian prisoners it had planned to free the day before until militant group Hamas met its conditions.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792869-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792869-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792869-20250224.htm)
-
----
-
-# Conservatives win German vote, AfD makes record gains
-
-![Christian Democratic Union party leader Friedrich Merz speaks at party headquarters. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792868_1_20250224062241.jpg&q=75)
-  
-
-Germany's conservatives swept to victory in Sunday's elections, with their leader Friedrich Merz set to become the next chancellor, followed by the Alternative for Germany (AfD) in second place after record gains.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792868-20250224.htm)
 
 ---
