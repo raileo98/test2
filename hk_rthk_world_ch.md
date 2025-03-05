@@ -1,5 +1,6 @@
 # 美國中情局局長證實美國暫停對烏克蘭情報支持
 
+![拉特克利夫證實，美國已切斷對烏克蘭的情報支持。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794459_1_20250306005549.jpg&q=80)
   
 
 美國中央情報局局長拉特克利夫證實，美國已切斷對烏克蘭的情報支持。
