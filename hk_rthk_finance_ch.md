@@ -1,3 +1,61 @@
+# 內地適度放寬科企併購貸款政策
+
+![國家金融監管總局表示，近期開展適度放寬科技企業併購貸款政策試點，支持科企發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794430_1_20250305190506.jpg&q=55)
+  
+
+國家金融監管總局表示，近期開展適度放寬科技企業併購貸款政策試點，適度放寬商業銀行併購貸款風險管理指引部分條款，支持科企發展。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm)
+
+---
+
+# 國務院發文要求做好科技金融及綠色金融等範疇
+
+![國務院發文指，要做好科技金融、綠色金融、普惠金融、養老金融、數字金融，這五篇大文章。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794428_1_20250305185612.jpg&q=90)
+  
+
+國務院發文要求做好金融「五篇大文章」，做好科技金融、綠色金融、普惠金融、養老金融、數字金融。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm)
+
+---
+
 # 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
 
 ![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=75)
@@ -1658,63 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm)
-
----
-
-# 全國兩會｜王偉中稱深圳和香港共同創新　不認為香港科技發展較慢
-
-![王偉中表示，深圳和香港都在共同創新。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794300_1_20250305094334.jpg&q=80)
-  
-
-在北京，全國人大代表、廣東省省長王偉中回應河套區發展時表示，今年會合作得越來越好，至於深圳在科技發展方面有何可取之處，他表示，深圳和香港都在共同創新。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm)
-
----
-
-# 全國兩會｜今年大力提振消費　超長期特別國債3千億支持以舊換新
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
-  
-
-國務院總理李強在政府工作報告中表示，今年經濟社會發展任務十分繁重，要突出重點、把握關鍵，著重抓好幾個方面工作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm)
 
 ---

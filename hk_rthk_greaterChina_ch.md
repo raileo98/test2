@@ -1,3 +1,32 @@
+# 國務院發文要求做好科技金融及綠色金融等範疇
+
+![國務院發文指，要做好科技金融、綠色金融、普惠金融、養老金融、數字金融，這五篇大文章。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794428_1_20250305185612.jpg&q=90)
+  
+
+國務院發文要求做好金融「五篇大文章」，做好科技金融、綠色金融、普惠金融、養老金融、數字金融。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm)
+
+---
+
 # 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
 
   
@@ -1700,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm)
-
----
-
-# 全國兩會｜周光權稱《民營經濟促進法》應可今年出台
-
-![周光權指，全國人大常委會會議在上月底才二審《民營經濟促進法》，可能需要很多調研和準備工作。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794296_1_20250305093651.jpg&q=75)
-  
-
-《民營經濟促進法》沒有納入全國人大會議三審。在北京，全國人大憲法和法律委員會副主任周光權接受本台訪問指，全國人大常委會會議在上月底才二審《民營經濟促進法》，可能需要很多調研和準備工作，因此全國人大要統籌相關安排。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm)
 
 ---
