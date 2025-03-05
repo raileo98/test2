@@ -1,3 +1,32 @@
+# 在岸人民幣兌美元高收逾200點子　創1星期新高
+
+![在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794399_1_20250305165035.jpg&q=30)
+  
+
+在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm)
+
+---
+
 # 港股高收652點　科指升4%　長和系造好
 
 ![恒生指數尾市最多升近700點，收市報23594點，升652點，升幅2.8%，主板成交額連續兩日不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794393_1_20250305161352.jpg&q=1)
@@ -53,35 +82,6 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
-
----
-
-# 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
-
-![郭永亮表示，這次比賽相比傳統的高爾夫球比賽，要求更加嚴謹，選手用的地方和整個球場的佈局規模更大。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
-  
-
-高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
 
 ---
 

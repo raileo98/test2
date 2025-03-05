@@ -1,3 +1,32 @@
+# Hong Kong stocks finish higher
+
+![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=60)
+  
+
+Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index up 2.8 percent at 23,594.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm)
+
+---
+
 # Chinese firms double down on tech: Xiaomi, Haier
 
 ![Zhou Yunjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=85)
@@ -1706,34 +1735,5 @@ Banking giant HSBC on Wednesday revealed that Hong Kong employees whose roles ar
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792325-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792325-20250219.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.1 percent at 22,944. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792306_1_20250219172600.jpg&q=60)
-  
-
-Hong Kong stocks ended lower on Wednesday, with the benchmark Hang Seng Index down 0.1 percent at 22,944.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792306-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792306-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792306-20250219.htm)
 
 ---
