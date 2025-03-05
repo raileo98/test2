@@ -1,5 +1,29 @@
+# 海關檢獲約680公斤懷疑冰毒市值約3億6千萬元　拘捕3人
+
+  
+
+海關在葵涌偵破一宗販運毒品案件，檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元，拘捕3名懷疑涉案男子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794334-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794334-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794334-20250305.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡稱調整二元優惠計劃可提高計劃持續性
 
+![孫玉菡表示，計劃推行十多年才作金額上調整，相信安排會令到整個計劃的可持續性大大提高。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794333_1_20250305113037.jpg&q=80)
   
 
 財政預算案提出，「二元優惠計劃」將新增每月240程限制，10元以上車費則收兩折。勞工及福利局局長孫玉菡表示，計劃推行十多年才作金額上調整，相信安排會令到整個計劃的可持續性大大提高，但將來政府會否因應情況再作調整，他說，局方不可以完全否定此可能性。
