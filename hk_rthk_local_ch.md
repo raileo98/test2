@@ -1,3 +1,26 @@
+# 全國兩會｜以打擊毒品不力對華加關稅　曾偉雄批美國毫無根據
+
+  
+
+在北京，全國政協委員、警務處前處長曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據，中方會研究反制措施，認為政治不應影響禁毒合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm)
+
+---
+
 # 全國兩會｜李慧琼對工作報告有信心　相信經整體考慮及中期需要
 
 ![李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新。（李慧琼提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794381_1_20250305152500.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794202-20250304.htm)
-
----
-
-# 盧寵茂稱推進長者醫療券擴至大灣區九個城市　爭取上半年公布詳情
-
-![盧寵茂與廣州市人民政府副市長賴志鴻及其率領的代表團舉行會議，討論深化港穗醫療合作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794200_1_20250304190155.jpg&q=75)
-  
-
-醫務衞生局局長盧寵茂說，正積極推進將長者醫療券大灣區試點計劃，擴展至大灣區九個內地城市，並爭取在今年上半年內公布有關詳情，亦會充分利用醫健通平台，擴大跨境醫療紀錄互通。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794200-20250304.htm)
 
 ---

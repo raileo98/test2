@@ -1,4 +1,27 @@
-# 兩國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
+# 全國兩會｜以打擊毒品不力對華加關稅　曾偉雄批美國毫無根據
+
+  
+
+在北京，全國政協委員、警務處前處長曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據，中方會研究反制措施，認為政治不應影響禁毒合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm)
+
+---
+
+# 全國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
 
   
 
