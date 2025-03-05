@@ -1,3 +1,31 @@
+# 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
+
+  
+
+全國政協香港小組下午舉行分組討論，香港聖公會教省主教長陳謳明表示，青少年是社會明日棟樑，早日讓他們了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm)
+
+---
+
 # 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
 
   
@@ -1703,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794223-20250304.htm)
-
----
-
-# 全國兩會｜甄子丹稱本港電影業需重新評估市場及題材
-
-![甄子丹表示，電影行業有需要重新評估市場上的需求，以及如何融入內地市場。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794222_1_20250304211120.jpg&q=80)
-  
-
-本港接連有戲院倒閉，在北京出席兩會的全國政協委員甄子丹回應時表示，電影行業一定是有高有低，有需要重新評估市場上的需求，以及如何融入內地市場。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
 
 ---

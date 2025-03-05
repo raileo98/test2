@@ -1,3 +1,31 @@
+# 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
+
+  
+
+全國政協香港小組下午舉行分組討論，香港聖公會教省主教長陳謳明表示，青少年是社會明日棟樑，早日讓他們了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm)
+
+---
+
 # 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
 
   
@@ -1709,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
-
----
-
-# 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
-
-![王冬勝說，上任後召開了一次會議，過程順暢，各人有很多討論。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794221_1_20250304211152.jpg&q=80)
-  
-
-在北京，身兼港大校委會主席的全國政協委員王冬勝說，1月上任後召開了一次會議，過程順暢，各人有很多討論，認為校委會與校長張翔有良好溝通。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm)
 
 ---

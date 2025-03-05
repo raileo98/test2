@@ -1,3 +1,31 @@
+# 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
+
+  
+
+全國政協香港小組下午舉行分組討論，香港聖公會教省主教長陳謳明表示，青少年是社會明日棟樑，早日讓他們了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm)
+
+---
+
 # 在岸人民幣兌美元高收逾200點子　創1星期新高
 
 ![在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794399_1_20250305165035.jpg&q=30)
