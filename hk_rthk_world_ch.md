@@ -1,3 +1,27 @@
+# 特朗普稱從拜登繼承經濟災難　指多國對美國採取不公平貿易政策
+
+![特朗普形容美墨邊境出現國家緊急狀態，他的政府已經採取很多措施應對。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794346_1_20250305123651.jpg&q=90)
+  
+
+美國總統特朗普到國會發表演說，是他再次就任總統後，首度向兩院致辭。特朗普首先形容「美國已經回歸」，聲稱6星期前自己就職是宣告美國黃金時代到來，他的政府行動迅速，目前所做的事情比其他人的四年任期更多。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm)
+
+---
+
 # 特朗普到國會演說　稱其政府目前所做事情比別人四年任期更多
 
 ![特朗普說到目前為止，他的政府行動迅速，所做的事情比其他人的四年任期更加多。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794325_1_20250305111408.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm)
-
----
-
-# 歐盟計劃放寬車企碳排放規則　允許獲更多時間達標
-
-![馮德萊恩說，排放總體目標保持不變，企業仍需達標，但將為行業提供更多緩衝空間。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794064_1_20250304014232.jpg&q=90)
-  
-
-歐盟委員會主席馮德萊恩表示，容許歐洲汽車製造商有額外時間達到2025年的減排目標，毋須面臨罰款，讓他們有 「喘息空間」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm)
 
 ---

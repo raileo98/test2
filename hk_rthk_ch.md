@@ -1,5 +1,30 @@
+# 特朗普稱從拜登繼承經濟災難　指多國對美國採取不公平貿易政策
+
+![特朗普形容美墨邊境出現國家緊急狀態，他的政府已經採取很多措施應對。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794346_1_20250305123651.jpg&q=90)
+  
+
+美國總統特朗普到國會發表演說，是他再次就任總統後，首度向兩院致辭。特朗普首先形容「美國已經回歸」，聲稱6星期前自己就職是宣告美國黃金時代到來，他的政府行動迅速，目前所做的事情比其他人的四年任期更多。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm)
+
+---
+
 # 全國兩會｜國防預算17800多億元　增幅逾7%
 
+![國家財政部公布，的國防預算約為17847億元人民幣。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794344_1_20250305123809.jpg&q=85)
   
 
 國家財政部公布，今年的國防預算約為17847億元人民幣，增長7.2%。增幅與去年相同。
@@ -47,6 +72,7 @@
 
 # 全國兩會｜交通運輸部長劉偉稱工作重點將包括強化樞紐功能
 
+![劉偉指出在工作推進中，重點突出調整運輸結構。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794343_1_20250305123519.jpg&q=90)
   
 
 國家交通運輸部部長劉偉表示，去年全國全社會物流成本，總共減低大約4000億元，其中交通成本降低2800億元，佔三分二左右。
