@@ -319,7 +319,7 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 
 # Beijing files complaint with WTO over Trump tariffs
 
-![China's complaint with the World Trade Organization comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
+![China's complaint with the World Trade Organization comes after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
   
 
 Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.

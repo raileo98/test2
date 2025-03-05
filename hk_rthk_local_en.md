@@ -1,3 +1,32 @@
+# Hospital patient chokes to death after meal blunder
+
+![Hospital officials said they have met the patient's family to explain what happened and apologise. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=85)
+  
+
+Caritas Medical Centre on Wednesday said it is investigating what led to an elderly patient choking to death after he was given a regular meal despite not being able to eat solid food.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm)
+
+---
+
 # 'Govt will support NGOs amid funding cuts'
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794342_1_20250305121400.jpg&q=85)
@@ -1708,34 +1737,5 @@ The Education Bureau said that medical schools at Chinese University (CUHK) and 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm)
-
----
-
-# FS shoots down levy for all outbound travellers
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793462_2_20250227135507.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Thursday said a proposed levy on private cars departing Hong Kong is aimed at clawing back government spending on cross-boundary facilities, while dismissing the idea of a fee for all outbound travellers over the potential impact on the public.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm)
 
 ---

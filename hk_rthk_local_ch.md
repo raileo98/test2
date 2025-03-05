@@ -1,3 +1,59 @@
+# 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
+
+  
+
+全國政協香港小組下午舉行會議，全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm)
+
+---
+
+# 那打素醫院病人服務助理進行護理程序期間疑被非禮　警拘一名男子
+
+  
+
+雅麗氏何妙齡那打素醫院一名病人服務助理，在內科病房為一名73歲男病人進行護理程序期間，懷疑被非禮。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm)
+
+---
+
 # 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
 
 ![何猶龍認為，澳門開放多年後，已經不只是一個「賭城」，還有演唱會、表演和會展。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794391_1_20250305161534.jpg&q=85)
@@ -818,7 +874,7 @@
 
 # 海關檢獲約680公斤懷疑冰毒市值3億6千萬元　拘捕3人
 
-![海關檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794334_1_20250305121417.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794334_1_20250305121417.jpg&q=75)
   
 
 海關在葵涌偵破一宗販運毒品案件，檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元，拘捕3名懷疑涉案男子。
@@ -1682,64 +1738,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm)
-
----
-
-# 胡英明與新加坡貪污調查局局長就加強合作交流意見
-
-![胡英明（右）與新加坡貪污調查局長鄭忠輝（左）會面。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_1_20250304203608.jpg&q=80)
-![丘樹春（左一）向新加坡貪污調查局局長鄭忠輝（左二）介紹廉署法證會計組工作。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_2_20250304203608.jpg&q=60)
-  
-
-廉政專員胡英明接待新加坡貪污調查局新任局長鄭忠輝到訪廉政公署，雙方交流執法經驗，亦就加強合作交換意見。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm)
-
----
-
-# 瑪嘉烈醫院有病房爆發耳念珠菌組群涉及七名病人
-
-![院方本月1日發現一名90歲男病人帶有耳念珠菌，追蹤篩查後發現同一病房另外6名男病人亦帶有耳念珠菌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794217_1_20250304203502.jpg&q=80)
-  
-
-瑪嘉烈醫院一個內科及老人科病房爆發耳念珠菌個案組群，涉及7名病人。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794217-20250304.htm)
 
 ---

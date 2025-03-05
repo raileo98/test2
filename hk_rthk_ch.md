@@ -1,3 +1,84 @@
+# 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
+
+  
+
+全國政協香港小組下午舉行會議，全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm)
+
+---
+
+# 那打素醫院病人服務助理進行護理程序期間疑被非禮　警拘一名男子
+
+  
+
+雅麗氏何妙齡那打素醫院一名病人服務助理，在內科病房為一名73歲男病人進行護理程序期間，懷疑被非禮。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm)
+
+---
+
+# 回應加徵關稅　外交部：美方如執意損害中國利益將奉陪到底
+
+![林劍：中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。（外交部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794395_1_20250305164428.jpg&q=90)
+  
+
+在北京，外交部再回應美國再對華加徵關稅，發言人林劍表示，美方執意以芬太尼問題為藉口，再次對中國輸美的產品加徵關稅。中方多次闡明反對立場，採取正當必要的反制措施。美方如果真想解決芬太尼問題，就應該在平等、尊重、互惠的基礎上，同中方磋商解決各自關切。美方如果別有所圖，執意損害中國的利益，中方必將奉陪到底。中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm)
+
+---
+
 # 港股高收652點　科指升4%　長和系造好
 
 ![恒生指數尾市最多升近700點，收市報23594點，升652點，升幅2.8%，主板成交額連續兩日不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794393_1_20250305161352.jpg&q=1)
@@ -1471,7 +1552,7 @@
 
 # 海關檢獲約680公斤懷疑冰毒市值3億6千萬元　拘捕3人
 
-![海關檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794334_1_20250305121417.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794334_1_20250305121417.jpg&q=75)
   
 
 海關在葵涌偵破一宗販運毒品案件，檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元，拘捕3名懷疑涉案男子。

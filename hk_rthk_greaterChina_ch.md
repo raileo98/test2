@@ -1,5 +1,34 @@
+# 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
+
+  
+
+全國政協香港小組下午舉行會議，全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm)
+
+---
+
 # 回應加徵關稅　外交部：美方如執意損害中國利益將奉陪到底
 
+![林劍：中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。（外交部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794395_1_20250305164428.jpg&q=90)
   
 
 在北京，外交部再回應美國再對華加徵關稅，發言人林劍表示，美方執意以芬太尼問題為藉口，再次對中國輸美的產品加徵關稅。中方多次闡明反對立場，採取正當必要的反制措施。美方如果真想解決芬太尼問題，就應該在平等、尊重、互惠的基礎上，同中方磋商解決各自關切。美方如果別有所圖，執意損害中國的利益，中方必將奉陪到底。中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。
@@ -1703,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794222-20250304.htm)
-
----
-
-# 全國兩會｜王冬勝稱港大校委會與校長張翔有良好溝通
-
-![王冬勝說，上任後召開了一次會議，過程順暢，各人有很多討論。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794221_1_20250304211152.jpg&q=80)
-  
-
-在北京，身兼港大校委會主席的全國政協委員王冬勝說，1月上任後召開了一次會議，過程順暢，各人有很多討論，認為校委會與校長張翔有良好溝通。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm)
 
 ---

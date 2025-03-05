@@ -1,3 +1,32 @@
+# Hospital patient chokes to death after meal blunder
+
+![Hospital officials said they have met the patient's family to explain what happened and apologise. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=85)
+  
+
+Caritas Medical Centre on Wednesday said it is investigating what led to an elderly patient choking to death after he was given a regular meal despite not being able to eat solid food.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm)
+
+---
+
 # 'Govt will support NGOs amid funding cuts'
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794342_1_20250305121400.jpg&q=85)
@@ -668,7 +697,7 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
 
 # Beijing files complaint with WTO over Trump tariffs
 
-![China's complaint with the World Trade Organization comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
+![China's complaint with the World Trade Organization comes after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
   
 
 Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
@@ -1708,34 +1737,5 @@ Sunbeam Theatre – the North Point venue best known for its Cantonese opera per
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm)
-
----
-
-# Haifa attacker was Israeli Druze minority
-
-![Members of Israeli security and emergency services transport the body of the reported attacker in Haifa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794029_1_20250303192453.jpg&q=85)
-  
-
-Israel's police said the perpetrator of a stabbing attack in the northern city of Haifa on Monday was a member of Israel's Druze Arab minority who recently returned from abroad.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm)
 
 ---
