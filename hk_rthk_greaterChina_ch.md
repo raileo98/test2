@@ -1,3 +1,26 @@
+# 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
+
+  
+
+全國政協委員、新濠博亞娛樂主席兼行政總裁何猷龍接受本台訪問表示，目前澳門經濟按照特區政府「1+4」經濟適度多元發展策略推進，「1」仍然是旅遊博彩業，其實博彩公司都希望在非博彩多元化方面努力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
+
+---
+
 # 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
 
   
@@ -96,6 +119,7 @@
 # 全國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
 
 ![何小鵬相信，國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_1_20250305154643.jpg&q=85)
+![柯瑞文表示，中國數字經濟的發展潛力很大，要做好全社會的相關基礎設施。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_2_20250305160924.jpg&q=80)
   
 
 在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。
@@ -167,7 +191,7 @@
 
 # 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
 
-![呂成蹊說，粵港澳三地合辦全運會體現大灣區合作精神，有助推動體育經濟發展，亦有利大灣區融合。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_1_20250305151113.jpg&q=80)
+![譚鐵牛表示，大家應該愛惜香港這個地方，努力把香港建設得更好。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_2_20250305161050.jpg&q=75)
   
 
 在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
@@ -240,6 +264,8 @@
 # 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
 
 ![王冬勝說，國家今年有很多新計劃，有信心能夠達到增長5%水平。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_1_20250305155310.jpg&q=80)
+![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
+![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
   
 
 內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
@@ -1414,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
-
----
-
-# 外交部：中方堅決反對美方以芬太尼問題為藉口對華施壓
-
-![外交部稱，中方堅決反對美方以芬太尼問題為藉口對華施壓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794215_1_20250304201520.jpg&q=80)
-  
-
-國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書，表示中國加強國際禁毒合作，與包括美國在內的相關國家在應對芬太尼類物質問題方面，深入開展合作並取得明顯成效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
 
 ---
