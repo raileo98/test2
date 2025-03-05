@@ -1,3 +1,32 @@
+# 國際油價下跌　美國原油庫存增幅大過預期
+
+![倫敦布蘭特期油和紐約期油收市跌逾2%至近3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794475_1_20250306065313.jpg&q=90)
+  
+
+國際油價下跌，美國上周原油庫存增幅大過市場預期。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm)
+
+---
+
 # 美元兌歐元曾跌至近4個月低位
 
 ![美元指數失守105水平，在紐約尾市報104.29，跌幅1.2%。歐元兌美元在尾市升約1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794474_1_20250306064822.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm)
-
----
-
-# 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
-
-![陳謳明認為，早日讓青少年了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794401_1_20250305171241.jpg&q=85)
-  
-
-全國政協香港小組下午舉行分組討論，香港聖公會教省主教長陳謳明表示，青少年是社會明日棟樑，早日讓他們了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm)
 
 ---

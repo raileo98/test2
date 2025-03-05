@@ -1,3 +1,32 @@
+# 國際油價下跌　美國原油庫存增幅大過預期
+
+![倫敦布蘭特期油和紐約期油收市跌逾2%至近3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794475_1_20250306065313.jpg&q=90)
+  
+
+國際油價下跌，美國上周原油庫存增幅大過市場預期。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm)
+
+---
+
 # 美元兌歐元曾跌至近4個月低位
 
 ![美元指數失守105水平，在紐約尾市報104.29，跌幅1.2%。歐元兌美元在尾市升約1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794474_1_20250306064822.jpg&q=90)
@@ -1692,34 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794324-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794324-20250305.htm)
-
----
-
-# 財新中國2月服務業PMI升至51.4
-
-![財新公布，2月中國通用服務業經營活動指數升至51.4。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794316_1_20250305101212.jpg&q=60)
-  
-
-財新公布，經季節調整後，2月中國通用服務業經營活動指數升至51.4，高過1月的51。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794316-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794316-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794316-20250305.htm)
 
 ---
