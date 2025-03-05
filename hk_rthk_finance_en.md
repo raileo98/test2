@@ -1,3 +1,28 @@
+# Chinese firms double down on tech: Xiaomi, Haier
+
+![Xiaomi chairman Lei Jun appreciated the support of the central government, following a meeting of representatives from the private sector with President Xi Jinping. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_1_20250305112824.jpg&q=85)
+![Zhou Junjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=85)
+  
+
+Chinese companies are doubling down on innovation as part of efforts to contribute to the national drive of developing "new quality productive forces", with leaders convening in Beijing for the annual Two Sessions meetings.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
+
+---
+
 # Domestic demand 'main engine and anchor' of growth
 
 ![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
@@ -1411,29 +1436,5 @@ Hong Kong stocks ended lower on Wednesday, with the benchmark Hang Seng Index do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792306-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792306-20250219.htm)
-
----
-
-# HSBC beats forecasts as profits rise 6 pct in 2024
-
-![HSBC said pre-tax profits rose six percent to $32.3 billion in 2024 as the bank undergoes a structural overhaul. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792282_1_20250219150836.jpg&q=65)
-  
-
-HSBC posted an annual profit on Wednesday that beat estimates, helped by increased revenue in its wealth and markets businesses.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792282-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792282-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792282-20250219.htm)
 
 ---

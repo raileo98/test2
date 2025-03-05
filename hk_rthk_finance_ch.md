@@ -1,3 +1,26 @@
+# 全國兩會｜李強工作報告定出今年國內生產總值目標增長為5%左右
+
+  
+
+第十四屆全國人大三次會議早上在北京開幕，國務院總理李強發表任內第二份政府工作報告，當中定出今年國內生產總值目標增長為5%左右。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm)
+
+---
+
 # 恒指半日升378點　長和升逾21%
 
 ![恒指早段曾升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升幅1.65%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794339_1_20250305121134.jpg&q=1)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm)
-
----
-
-# 美股初段跌約1%或以上　金融股急挫　美元指數失守106
-
-![美股初段沽壓大，3大指數跌約1%或以上，金融股跌幅較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794238_1_20250304224748.jpg&q=90)
-  
-
-美股初段沽壓大，3大指數跌約1%或以上。金融股跌幅較大，花旗跌逾6%，高盛跌逾4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm)
 
 ---

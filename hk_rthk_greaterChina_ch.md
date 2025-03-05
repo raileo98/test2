@@ -1,3 +1,26 @@
+# 全國兩會｜李強工作報告定出今年國內生產總值目標增長為5%左右
+
+  
+
+第十四屆全國人大三次會議早上在北京開幕，國務院總理李強發表任內第二份政府工作報告，當中定出今年國內生產總值目標增長為5%左右。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm)
+
+---
+
 # 全國兩會｜國防預算17800多億元　增幅逾7%
 
 ![國家財政部公布，的國防預算約為17847億元人民幣。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794344_1_20250305123809.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm)
-
----
-
-# 全國兩會｜王滬寧：以習近平為核心帶領沉著應變順利完成目標任務
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794164_1_20250304174906.jpg&q=80)
-  
-
-全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧發表工作報告提到，去年是中華人民共和國成立75周年，是實現「十四五」規劃目標任務的關鍵一年。以習近平為核心的中共中央團結帶領全黨全國各族人民，沉著應變、綜合施策，順利完成全年經濟社會發展主要目標任務，中國式現代化取得新的重大成就，堅定全黨全國各族人民奪取新時代中國特色社會主義新勝利的決心和信心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm)
 
 ---
