@@ -1,3 +1,27 @@
+# China defence spending to go up by 7.2pc this year
+
+![Delegates from the military arrive at the Great Hall of the People in Beijing for the opening NPC session. Growth in China's defence spending in 2025 is set to be the same as a year ago. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794329_1_20250305110705.jpg&q=85)
+  
+
+China said its military spending will rise by 7.2 percent in 2025, the same increase as a year ago.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm)
+
+---
+
 # Premier Li pledges to uphold One Country, Two Systems
 
 ![Premier Li Qiang says Beijing supports the two SARs in improving their economies and people's livelihoods.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794323_1_20250305102940.jpg&q=90)
@@ -120,7 +144,7 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 
 # Beijing files complaint with WTO over Trump tariffs
 
-![The move comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
+![China's complaint with the World Trade Organization comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
   
 
 Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
@@ -1413,29 +1437,5 @@ China urged Nato to adopt a "rational and pragmatic" attitude and establish an "
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm)
-
----
-
-# Thai police arrest 10 in case involving Chinese actor
-
-![Senior inspector general of the Thai police, Thatchai Pitaneelaboot, told the press that the 10 suspects will be repatriated to China. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791747_1_20250215122059.jpg&q=90)
-  
-
-Authorities in Thailand said they arrested 10 Chinese nationals in connection with the case involving Chinese actor Wang Xing and have handed them over to the immigration department for repatriation to China.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm)
 
 ---

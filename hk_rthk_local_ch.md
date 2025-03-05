@@ -1,3 +1,28 @@
+# 孫東率團訪西班牙出席世界移動通信大會　到訪生物醫學研究園
+
+![孫東在西班牙巴塞羅那出席香港科技館酒會，並見證了香港貿易發展局與巴塞羅那市議會就促進兩地企業間的商貿關係簽署諒解備忘錄。 （政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794330_1_20250305111510.jpg&q=50)
+![孫東訪問西班牙巴塞羅那生物醫學研究園。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794330_2_20250305111510.jpg&q=35)
+  
+
+創新科技及工業局局長孫東率領業界代表團訪問西班牙巴塞羅那，並出席世界移動通信大會2025。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm)
+
+---
+
 # 財政預算案2025｜甯漢豪：改劃住宅地何時推出要看市場反應
 
 ![甯漢豪強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794326_1_20250305105547.jpg&q=80)
@@ -1418,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm)
-
----
-
-# 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
-
-![白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794145_1_20250304140145.jpg&q=85)
-  
-
-全國人大代表、佛山市長白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中，也非常歡迎香港市民到佛山旅遊，認為沒有任何障礙，有助增加兩地人民的感情。他又說非常歡迎港企到佛山發展，會為他們創造最好的環境。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm)
 
 ---

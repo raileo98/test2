@@ -1,3 +1,28 @@
+# 孫東率團訪西班牙出席世界移動通信大會　到訪生物醫學研究園
+
+![孫東在西班牙巴塞羅那出席香港科技館酒會，並見證了香港貿易發展局與巴塞羅那市議會就促進兩地企業間的商貿關係簽署諒解備忘錄。 （政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794330_1_20250305111510.jpg&q=50)
+![孫東訪問西班牙巴塞羅那生物醫學研究園。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794330_2_20250305111510.jpg&q=35)
+  
+
+創新科技及工業局局長孫東率領業界代表團訪問西班牙巴塞羅那，並出席世界移動通信大會2025。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm)
+
+---
+
 # 日本央行：若經濟和物價走勢符合預期　將繼續加息
 
 ![日本央行副總裁內田真一表示，如果經濟和物價走勢符合央行預期，央行將會繼續加息。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794328_1_20250305104909.jpg&q=30)
@@ -48,6 +73,7 @@
 
 # 特朗普到國會演說　稱其政府目前所做事情比別人四年任期更多
 
+![特朗普說到目前為止，他的政府行動迅速，所做的事情比其他人的四年任期更加多。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794325_1_20250305111408.jpg&q=85)
   
 
 美國總統特朗普在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。特朗普發言時，兩側分別是眾議院議長約翰遜，以及兼任參議院議長的副總統萬斯。

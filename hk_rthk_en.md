@@ -1,3 +1,27 @@
+# China defence spending to go up by 7.2pc this year
+
+![Delegates from the military arrive at the Great Hall of the People in Beijing for the opening NPC session. Growth in China's defence spending in 2025 is set to be the same as a year ago. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794329_1_20250305110705.jpg&q=85)
+  
+
+China said its military spending will rise by 7.2 percent in 2025, the same increase as a year ago.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm)
+
+---
+
 # Trump hails 'unstoppable' America in Congress speech
 
 ![US President Donald Trump hailed his first few weeks in office, telling Congress his administration had accomplished great things for America. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794327_1_20250305104833.jpg&q=90)
@@ -313,7 +337,7 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
 
 # Beijing files complaint with WTO over Trump tariffs
 
-![The move comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
+![China's complaint with the World Trade Organization comes a day after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=75)
   
 
 Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
@@ -461,7 +485,7 @@ The founding president of the Hong Kong University of Science and Technology (HK
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794196_1_20250304175846.jpg&q=75)
   
 
-The chairman of a leading casino and hospitality group in Macau said on Tuesday that his city and Hong Kong should work together to attract more foreign investors.
+The chairman of a leading casino and hospitality group in Macau said on Tuesday that Hong Kong and Macau should work together to attract more foreign investors.
 
   
 
@@ -1418,29 +1442,5 @@ China's factory activity grew at a faster pace in February, driven by stronger s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm)
-
----
-
-# CE to travel to Beijing for NPC opening
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793957_1_20250303111954.jpg&q=80)
-  
-
-Chief Executive John Lee will head to Beijing on Tuesday to attend the annual opening meeting of the National People’s Congress (NPC).
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm)
 
 ---

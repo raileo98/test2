@@ -124,7 +124,7 @@ The founding president of the Hong Kong University of Science and Technology (HK
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794196_1_20250304175846.jpg&q=75)
   
 
-The chairman of a leading casino and hospitality group in Macau said on Tuesday that his city and Hong Kong should work together to attract more foreign investors.
+The chairman of a leading casino and hospitality group in Macau said on Tuesday that Hong Kong and Macau should work together to attract more foreign investors.
 
   
 
@@ -140,6 +140,30 @@ The chairman of a leading casino and hospitality group in Macau said on Tuesday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm)
+
+---
+
+# CPPCC outlines modernisation push and self-improvement
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794177_1_20250304165718.jpg&q=85)
+  
+
+The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm)
 
 ---
 
@@ -1414,29 +1438,5 @@ The sailing industry on Thursday said they welcomed Financial Secretary Paul Cha
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm)
-
----
-
-# Universities 'fully prepared' for funding cut
-
-![Several public universities say it will find ways to absorb an imminent spending cut. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793373_1_20250226212540.jpg&q=75)
-  
-
-Several public universities on Wednesday said they understood the public finance challenges faced by the government, and are fully prepared for a funding cut.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793373-20250226.htm)
 
 ---
