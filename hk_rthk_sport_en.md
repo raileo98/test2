@@ -1,3 +1,27 @@
+# Snooker fans won't be kicked out again: minister
+
+![Sports Secretary Rosanna Law attended an opening ceremony for the tournament on Tuesday evening. Photo courtesy of World Snooker Grand Prix 2025.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=75)
+  
+
+Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
+
+---
+
 # Real Madrid, Arsenal post big Champions League wins
 
 ![Real Madrid's Rodrygo celebrates scoring the opening goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_1_20250305071751.jpg&q=90)
@@ -1423,29 +1447,5 @@ Hong Kong, China's men's curlers on Friday fell short of a podium finish at the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791597-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791597-20250214.htm)
-
----
-
-# Fenerbahce, Real Sociedad earn wins in Europa League
-
-![Fenerbahce players celerate after beating Anderlecht in the first leg of their Europa League play-off tie. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791564_1_20250214071304.jpg&q=90)
-  
-
-Jose Mourinho's Fenerbahce won 3-0 at home to Anderlecht in the first leg of their Europa League knockout phase play-off tie, while Real Sociedad triumphed 2-1 away to Midtjylland.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791564-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791564-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791564-20250214.htm)
 
 ---

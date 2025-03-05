@@ -1,3 +1,27 @@
+# Snooker fans won't be kicked out again: minister
+
+![Sports Secretary Rosanna Law attended an opening ceremony for the tournament on Tuesday evening. Photo courtesy of World Snooker Grand Prix 2025.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=75)
+  
+
+Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
+
+---
+
 # '5pc target is no easy feat but can be achieved'
 
 ![Peter Wong said he's confident of achieving the growth target, judging from the stimulus measures rolled out over the past year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_1_20250305123650.jpg&q=85)
@@ -1415,29 +1439,5 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
-
----
-
-# Man dies in Yuen Long Highway pile-up
-
-![A seven-vehicle collision occurred at around 7:30am near the Shap Pat Heung Interchange. Image: social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793440_1_20250227102925.jpg&q=75)
-  
-
-A man died and seven others were injured following a seven-vehicle collision on Yuen Long Highway on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793440-20250227.htm)
 
 ---

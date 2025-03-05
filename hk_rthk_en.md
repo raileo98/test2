@@ -1,3 +1,27 @@
+# Snooker fans won't be kicked out again: minister
+
+![Sports Secretary Rosanna Law attended an opening ceremony for the tournament on Tuesday evening. Photo courtesy of World Snooker Grand Prix 2025.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=75)
+  
+
+Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
+
+---
+
 # Democrat lawmaker ejected during Trump's speech
 
 ![Democrat congressman Al Green stood up and yelled at the president: "You don't have a mandate" and was led away by security. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
@@ -1414,29 +1438,5 @@ Conservation groups are warning that around a quarter of almost 900 different sp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm)
-
----
-
-# HK's retail sales drop 3.2 percent in January
-
-![Hong Kong's retail sales dropped for the 11th consecutive month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794002_1_20250303165314.jpg&q=80)
-  
-
-Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking the 11th consecutive month of declines.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm)
 
 ---
