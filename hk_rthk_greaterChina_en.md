@@ -1,3 +1,51 @@
+# Premier Li pledges to uphold One Country, Two Systems
+
+![Premier Li Qiang says Beijing supports the two SARs in improving their economies and people's livelihoods.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794323_1_20250305102940.jpg&q=90)
+  
+
+Premier Li Qiang on Wednesday said Beijing would continue to fully implement the One Country, Two Systems policy and have the two SARs administered by patriots.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm)
+
+---
+
+# China to foster more breakthroughs in technology
+
+![China will work to combine digital technologies with its manufacturing and market strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794321_1_20250305102235.jpg&q=90)
+  
+
+China on Wednesday said it will boost support for the application of AI models to foster more breakthroughs in technology.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm)
+
+---
+
 # China GDP growth tipped to reach 5pc in 2025
 
 ![Premier Li Qiang delivers the government work report. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794288_2_20250305093057.jpg&q=90)
@@ -1389,53 +1437,5 @@ Authorities in Thailand said they arrested 10 Chinese nationals in connection wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791747-20250215.htm)
-
----
-
-# China will 'play along to the end': FM
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791712_1_20250215033058.jpg&q=90)
-  
-
-Foreign Minister Wang Yi said China's policy toward the United States is consistent and stable, but if the US persists in suppressing China, China will have no choice but to "play along to the end."
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791712-20250215.htm)
-
----
-
-# Harbin Asian Winter Games makes a grand exit
-
-![The closing ceremony of the Harbin Asian Winter Games took place at the Harbin International Conference, Exhibition and Sports Centre. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791693_1_20250214212028.jpg&q=10)
-  
-
-The 2025 Asian Winter Games concluded on Friday in Harbin, marking an historic achievement for the Hong Kong, China delegation, as they delivered their best-ever performance in the competition.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm)
 
 ---

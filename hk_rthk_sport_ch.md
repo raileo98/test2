@@ -1,3 +1,51 @@
+# 桌球賽觀眾被要求提早離場　主辦單位致歉並提出補償方案
+
+![組委會對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794320_1_20250305103841.jpg&q=85)
+  
+
+世界格蘭披治桌球大獎賽賽事組委會發聲明，對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。組委會又提出補償方案，持有昨晚7時半的1號枱門票的觀眾，可於今明兩日上午10時半至晚上8時，憑票尾到G門對面的賽事紀念品售賣點，兌換今明兩日任何場次同等票價的可售門票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm)
+
+---
+
+# 全國兩會｜辦好全運會和世界運動會　開展全民健身運動
+
+![報告提到要辦好第十五屆全國運動會和第十二屆世界運動會。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794315_1_20250305103449.jpg&q=80)
+  
+
+在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
+
+---
+
 # 歐聯16強首回合阿仙奴及阿士東維拉分別奏凱
 
 ![阿仙奴擊敗對手，賽後球員表現興奮。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794270_1_20250305072122.jpg&q=80)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792843-20250223.htm)
-
----
-
-# 全運會男子手球測試賽　港隊不敵江蘇得亞軍
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792840_1_20250223180304.jpg&q=65)
-  
-
-在啟德體藝館舉行的全運會男子手球測試賽，港隊在決賽不敵江蘇屈居亞軍。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792840-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792840-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792840-20250223.htm)
-
----
-
-# 全運會男子手球測試賽啟德舉行　廣東挫澳門得季軍
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792837_1_20250223162637.jpg&q=65)
-  
-
-全運會男子手球測試賽下午在啟德體藝館分別舉行季軍戰和冠軍戰。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm](https://news.rthk.hk/rthk/ch/component/k2/1792837-20250223.htm)
 
 ---

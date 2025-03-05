@@ -1,5 +1,29 @@
+# 特朗普到國會演說　稱其政府目前所做事情比別人四年任期更多
+
+  
+
+美國總統特朗普在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。特朗普發言時，兩側分別是眾議院議長約翰遜，以及兼任參議院議長的副總統萬斯。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm)
+
+---
+
 # 全國兩會｜李強稱深入推進練兵備戰　堅定捍衛國家主權
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794312_1_20250305103610.jpg&q=90)
   
 
 國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794064-20250304.htm)
-
----
-
-# 德國曼海姆汽車撞人群增至2死　德國籍疑犯當場被捕
-
-![法證人員在現場檢視涉及衝撞人群事件的汽車。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794063_1_20250304012819.jpg&q=90)
-  
-
-德國西南部城市曼海姆汽車衝撞人群事件，增至兩人死亡，數人重傷，一名40歲德國籍疑犯當場被捕。警方說，暫時未發現政治動機。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm)
 
 ---

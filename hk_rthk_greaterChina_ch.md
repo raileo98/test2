@@ -1,5 +1,102 @@
+# 全國兩會｜著力抓好「三農」工作　千方百計推動農業增效益
+
+![報告指出，今年要著力抓好「三農」工作，深入推進鄉村全面振興，堅持農業農村優先發展。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794322_1_20250305103818.jpg&q=1)
+  
+
+國務院總理李強在政府工作報告中表示，今年要著力抓好「三農」工作，深入推進鄉村全面振興，堅持農業農村優先發展，學習運用「千萬工程」經驗，完善強農惠農富農支持制度，千方百計推動農業增效益、農村增活力、農民增收入。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm)
+
+---
+
+# 全國兩會｜政府工作人員要廉潔奉公　堅定不移推進反腐敗鬥爭
+
+![報告表示，各級政府及工作人員要深刻領悟「兩個確立」的決定性意義，增加「四個意識」、堅定「四個自信」、做到「兩個維護」。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794319_1_20250305103308.jpg&q=85)
+  
+
+在北京，總理李強發表政府工作報告，提到應對新挑戰、完成新任務，對政府工作提出新的更高要求。報告表示，各級政府及工作人員要深刻領悟「兩個確立」的決定性意義，增加「四個意識」、堅定「四個自信」、做到「兩個維護」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm)
+
+---
+
+# 全國兩會｜提升粵港澳大灣區等經濟發展優勢區城創新能力
+
+![報告指出，提升京津冀、長三角、粵港澳大灣區等經濟發展優勢區城的創新能力和幅射帶動作用。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794318_1_20250305103426.jpg&q=1)
+  
+
+國務院總理李強在政府工作報告指出，要加大區域戰略實施力度，發揮區域協調發展戰略、區域重大戰略、主體功能區戰略的疊加效應，積極培育新的增長極。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm)
+
+---
+
+# 全國兩會｜辦好全運會和世界運動會　開展全民健身運動
+
+![報告提到要辦好第十五屆全國運動會和第十二屆世界運動會。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794315_1_20250305103449.jpg&q=80)
+  
+
+在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
+
+---
+
 # 全國兩會｜李強：堅定不移貫徹落實「一國兩制」「港人治港」方針
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794314_1_20250305103514.jpg&q=80)
   
 
 在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
@@ -23,6 +120,7 @@
 
 # 全國兩會｜持續用力推動房地產市場止跌回穩
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794313_1_20250305103718.jpg&q=90)
   
 
 國務院總理李強發表政府工作報告，表示要持續用力推動房地產市場止跌回穩，因城施策調減限制性措施，合理控制新增房地產用地供應，盤活存量用地和商辦用房，推進收購存量商品房。拓寬保障性住房再貸款使用範圍，繼續做好保交房工作，有效防範房企債務違約風險，並穩妥化解地方政府債務風險。
@@ -46,6 +144,7 @@
 
 # 全國兩會｜李強稱深入推進練兵備戰　堅定捍衛國家主權
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794312_1_20250305103610.jpg&q=90)
   
 
 國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
@@ -69,7 +168,11 @@
 
 # 全國兩會｜李強：穩定擴大就業　讓多勞者、技高者及創新者多得
 
+![李強在政府工作報告指出，提高技能人才待遇水準，讓多勞者多得、技高者多得、創新者多得。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794311_1_20250305103932.jpg&q=85)
   
+
+國務院總理李強在政府工作報告指出，要更大力度穩定和擴大就業，完善就業優先政策，加大各類資金資源統籌支持力度，促進充分就業、提高就業質量，實施重點領域、重點行業、城鄉基層和中小微企業就業支持計劃，用足用好穩崗返還、稅費減兔、就業補貼等政策。
+
   
 
 
@@ -113,7 +216,11 @@
 
 # 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
 
+![李強表示，要深入分析「十五五」時期新的階段性特徵。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794309_1_20250305103705.jpg&q=70)
   
+
+在北京，總理李強在政府工作報告中指出，今年將開展「十五五」規劃編制工作，要深入分析「十五五」時期新的階段性特徵，科學確定發展目標，謀劃好重大戰略任務、重大政策舉措、重大工程項目，更好發揮規劃對經濟社會發展的引領指導作用。
+
   
 
 
@@ -181,7 +288,11 @@
 
 # 全國兩會｜今年赤字率擬4%左右　發超長期特別國債1.3萬億元
 
+![李強發表政府工作報告，指出擬發行超長期特別國債1.3萬億元人民幣，擬發行特別國債5000億元。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794302_1_20250305103753.jpg&q=20)
   
+
+國務院總理李強表示，將實施更加積極財政政策，今年赤字率擬按4%左右安排，赤字規模5.66萬億元人民幣，並實施適度寬鬆的貨幣政策，適時降準降息。
+
   
 
 
@@ -441,7 +552,7 @@
 
 # 全國兩會｜雷軍感受中央關心民企　周雲傑稱堅守創新
 
-![雷軍（左）說，小米作為製造業的建設者和受益者，將繼續堅持走科技創新、高端化發展道路；周雲傑（右）說，海爾不斷對國際標準實現突破。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794283_1_20250305085141.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794283_1_20250305085141.jpg&q=85)
   
 
 全國人大代表、小米集團董事長雷軍表示，上月17日參加了由中共總書記、國家主席習近平主持召開的民營企業座談會，感受到中央對民營企業的關心與支持。
@@ -1327,101 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
-
----
-
-# 全國兩會｜佛山市長白濤：積極爭取一簽多行擴展到佛山
-
-![白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794145_1_20250304140145.jpg&q=85)
-  
-
-全國人大代表、佛山市長白濤表示，會積極爭取一簽多行擴展到佛山，目前仍在推進的過程中，也非常歡迎香港市民到佛山旅遊，認為沒有任何障礙，有助增加兩地人民的感情。他又說非常歡迎港企到佛山發展，會為他們創造最好的環境。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm)
-
----
-
-# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
-
-![婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794142_1_20250304134623.jpg&q=90)
-  
-
-全國人大會議新聞發言人婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口，地位獨特、貢獻重大、作用不可替代。中央出台一系列政策舉措，全力支持港澳參與粵港澳大灣區建設。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm)
-
----
-
-# 全國兩會｜小鵬汽車董事長何小鵬：期待香港發展低空經濟
-
-![何小鵬說期待香港推出相關政策支持低空經濟。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794141_1_20250304152414.jpg&q=75)
-  
-
-全國人大代表、小鵬汽車董事長何小鵬表示，國家一直支持民營企業，最近幾年對實體行業支持更多，包括農業上都有支持，如果從第三產業逐漸向第二產業、第一產業更平衡、更全面的話，所有民營企業家都會很開心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm)
-
----
-
-# 全國兩會｜北京協和醫院院長張抒揚：與香港科技大學有科研合作
-
-![張抒揚表示，雙方在醫學項目、醫學教育、醫生培養等有合作。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794140_1_20250304134217.jpg&q=75)
-  
-
-全國人大代表、北京協和醫院院長張抒揚接受本台訪問表示，該醫院與香港科技大學在科技、科研有合作，雙方亦在醫學項目、醫學教育、醫生培養等有合作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm)
 
 ---

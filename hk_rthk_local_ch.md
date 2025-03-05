@@ -1,5 +1,102 @@
+# 財政預算案2025｜甯漢豪：改劃住宅地何時推出要看市場反應
+
+![甯漢豪強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794326_1_20250305105547.jpg&q=80)
+  
+
+財政預算案提出，計劃將部分商業用地改劃作住宅地，發展局局長甯漢豪舉例說，未來幾年原本有幾幅在沙田石門的商業地，考慮到今年沙田小瀝源住宅地市場反應幾好，有空間可改劃作住宅用途，但她強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm)
+
+---
+
+# 桌球賽觀眾被要求提早離場　主辦單位致歉並提出補償方案
+
+![組委會對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794320_1_20250305103841.jpg&q=85)
+  
+
+世界格蘭披治桌球大獎賽賽事組委會發聲明，對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。組委會又提出補償方案，持有昨晚7時半的1號枱門票的觀眾，可於今明兩日上午10時半至晚上8時，憑票尾到G門對面的賽事紀念品售賣點，兌換今明兩日任何場次同等票價的可售門票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm)
+
+---
+
+# 全國兩會｜提升粵港澳大灣區等經濟發展優勢區城創新能力
+
+![報告指出，提升京津冀、長三角、粵港澳大灣區等經濟發展優勢區城的創新能力和幅射帶動作用。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794318_1_20250305103426.jpg&q=1)
+  
+
+國務院總理李強在政府工作報告指出，要加大區域戰略實施力度，發揮區域協調發展戰略、區域重大戰略、主體功能區戰略的疊加效應，積極培育新的增長極。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm)
+
+---
+
+# 財政預算案2025｜孫玉菡：有信心能幫助社福機構面對減幅
+
+![孫玉菡相信在推行鬆綁措施後，有信心能幫助機構面對減幅。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794317_1_20250305102726.jpg&q=85)
+  
+
+財政預算案提出至2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，部分社福開支，例如綜援及長生津等不會削減，而社福機構的撥款就需要削減，但政府會協助中小型社福機構承擔4%開支，削減幅度降至3%，相信在推行鬆綁措施後，有信心能幫助機構面對減幅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm)
+
+---
+
 # 全國兩會｜李強：堅定不移貫徹落實「一國兩制」「港人治港」方針
 
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794314_1_20250305103514.jpg&q=80)
   
 
 在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
@@ -47,7 +144,11 @@
 
 # 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
 
+![李強表示，要深入分析「十五五」時期新的階段性特徵。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794309_1_20250305103705.jpg&q=70)
   
+
+在北京，總理李強在政府工作報告中指出，今年將開展「十五五」規劃編制工作，要深入分析「十五五」時期新的階段性特徵，科學確定發展目標，謀劃好重大戰略任務、重大政策舉措、重大工程項目，更好發揮規劃對經濟社會發展的引領指導作用。
+
   
 
 
@@ -115,7 +216,11 @@
 
 # 全國兩會｜今年赤字率擬4%左右　發超長期特別國債1.3萬億元
 
+![李強發表政府工作報告，指出擬發行超長期特別國債1.3萬億元人民幣，擬發行特別國債5000億元。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794302_1_20250305103753.jpg&q=20)
   
+
+國務院總理李強表示，將實施更加積極財政政策，今年赤字率擬按4%左右安排，赤字規模5.66萬億元人民幣，並實施適度寬鬆的貨幣政策，適時降準降息。
+
   
 
 
@@ -1337,101 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm)
-
----
-
-# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
-
-![婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794142_1_20250304134623.jpg&q=90)
-  
-
-全國人大會議新聞發言人婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口，地位獨特、貢獻重大、作用不可替代。中央出台一系列政策舉措，全力支持港澳參與粵港澳大灣區建設。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm)
-
----
-
-# 全國兩會｜小鵬汽車董事長何小鵬：期待香港發展低空經濟
-
-![何小鵬說期待香港推出相關政策支持低空經濟。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794141_1_20250304152414.jpg&q=75)
-  
-
-全國人大代表、小鵬汽車董事長何小鵬表示，國家一直支持民營企業，最近幾年對實體行業支持更多，包括農業上都有支持，如果從第三產業逐漸向第二產業、第一產業更平衡、更全面的話，所有民營企業家都會很開心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794141-20250304.htm)
-
----
-
-# 全國兩會｜北京協和醫院院長張抒揚：與香港科技大學有科研合作
-
-![張抒揚表示，雙方在醫學項目、醫學教育、醫生培養等有合作。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794140_1_20250304134217.jpg&q=75)
-  
-
-全國人大代表、北京協和醫院院長張抒揚接受本台訪問表示，該醫院與香港科技大學在科技、科研有合作，雙方亦在醫學項目、醫學教育、醫生培養等有合作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm)
-
----
-
-# 恒指下午初段跌幅收窄
-
-![恒生指數較早時報22931點，跌75點，跌幅0.33%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794136_1_20250304130638.jpg&q=30)
-  
-
-港股下午開市初段跌幅收窄，恒生指數較早時報22931點，跌75點，跌幅0.33%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Trump hails 'unstoppable' America in Congress speech
+
+![US President Donald Trump hailed his first few weeks in office, telling Congress his administration had accomplished great things for America. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794327_1_20250305104833.jpg&q=90)
+  
+
+US President Donald Trump took a victory lap in a speech to Congress on Tuesday, exulting in a series of dramatic actions that have upended American foreign policy, ignited a trade war with close allies and slashed the federal workforce since he took office six weeks ago.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm)
+
+---
+
 # Arab leaders endorse Egypt's plan to rebuild Gaza
 
 ![Egyptian foreign minister Badr Abdelatty (R) meets with Jordanian foreign minister Ayman Safadi (L) to discuss details of the Gaza reconstruction plan, ahead of the emergency Arab summit in Cairo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794298_1_20250305093303.jpg&q=75)
@@ -1416,29 +1440,5 @@ Tens of thousands of black-clad mourners vowed support for Hezbollah at the Beir
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792878-20250224.htm)
-
----
-
-# Zelensky says progress made on reaching deal with US
-
-![Ukrainian president, Volodymyr Zelensky, had earlier declined a US draft agreement on exploitation of his country's valuable minerals. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792870_1_20250224063736.jpg&q=75)
-  
-
-A contentious Trump administration proposal to give the United States US$500 billion worth of profits from Ukraine's rare earth minerals as compensation for its wartime assistance to Kyiv has been taken off the table, President Volodymyr Zelensky said on Sunday, indicating a more equitable deal was in the works.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792870-20250224.htm)
 
 ---
