@@ -1,3 +1,33 @@
+# Liverpool stun PSG in Champions League; Barca cruise
+
+![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=90)
+![Raphinha's goal in the 61st minute proved to be the winner Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_2_20250306071920.jpg&q=90)
+  
+
+Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the first leg of their heavyweight Champions League last-16 tie, as Barcelona claimed a 1-0 win at Benfica despite the Catalan giants playing most of the game with 10 men.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
+
+---
+
 # NZ crush South Africa to reach Champions Trophy final
 
 ![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=90)
@@ -1715,34 +1745,5 @@ Arsenal brushed off their shortage of specialist strikers on Saturday as midfiel
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791802-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791802-20250215.htm)
-
----
-
-# Tennis world number one Sinner gets 3-month doping ban
-
-![Australian Open champion Jannik Sinner says he accepts responsibility for his team's mistakes. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791789_1_20250215183106.jpg&q=90)
-  
-
-Jannik Sinner has accepted a three-month ban from tennis after the world number one admitted team mistakes led to him twice testing positive for traces of the banned substance clostebol in March last year.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791789-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791789-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791789-20250215.htm)
 
 ---

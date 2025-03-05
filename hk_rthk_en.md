@@ -1,3 +1,33 @@
+# Liverpool stun PSG in Champions League; Barca cruise
+
+![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=90)
+![Raphinha's goal in the 61st minute proved to be the winner Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_2_20250306071920.jpg&q=90)
+  
+
+Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the first leg of their heavyweight Champions League last-16 tie, as Barcelona claimed a 1-0 win at Benfica despite the Catalan giants playing most of the game with 10 men.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
+
+---
+
 # NZ crush South Africa to reach Champions Trophy final
 
 ![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=90)
@@ -1709,34 +1739,5 @@ Facial recognition technology could be deployed at Kai Tak Sports Park and other
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
-
----
-
-# Security tightened in Beijing ahead of Two Sessions
-
-![Authorities step up patrols and ID checks in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793999_1_20250303164358.jpg&q=35)
-  
-
-Authorities in the capital have stepped up security ahead of the annual “Two Sessions” meetings.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm)
 
 ---
