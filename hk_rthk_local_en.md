@@ -1,3 +1,32 @@
+# CPPCC member slams extra US tariffs on China
+
+![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=75)
+  
+
+Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on Wednesday slammed the US move to slap additional tariff on Chinese exports because of the fentanyl crisis.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm)
+
+---
+
 # 'HK has key role to play in national development'
 
 ![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
@@ -1708,34 +1737,5 @@ Education Secretary Christine Choi on Thursday said there is "never a good time"
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm)
-
----
-
-# 'AI R&D institute could open as early as next year'
-
-![Sun Dong says the planned Hong Kong AI Research and Development Institute could commence operation as early as next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793505_1_20250227171607.jpg&q=85)
-  
-
-Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a new Hong Kong AI Research and Development Institute could commence operation as early as next year.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm)
 
 ---

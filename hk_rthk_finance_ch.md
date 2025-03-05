@@ -1,3 +1,55 @@
+# 財政預算案2025｜機場離境稅修訂條例周五刊憲若通過十月生效
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm)
+
+---
+
+# 全國兩會｜譚炯提出強化投融資機制　支持國家重大項目建設
+
+![譚炯稱要健全政府投資支持基礎性、公益性、長遠性重大項目建設長效機制。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794417_1_20250305175521.jpg&q=80)
+  
+
+全國政協委員、國家開發銀行黨委副書記譚炯提出，強化投融資機制，以支持國家重大項目建設，包括加強頂層設計，完善跨部門跨區域重大項目協調推進機制，以推動政府、企業、金融機構深化合作，協同發力共同參與重大項目謀劃建設和運營。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm)
+
+---
+
 # 全國兩會｜滙豐：消費信心或正在好轉　高盛：觀望促消費具體措施
 
 ![滙豐認為內地政府工作報告釋出強勁的國內政策支持信號以提振內需，又相信消費信心或正在好轉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794403_1_20250305170242.jpg&q=85)
@@ -1661,63 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm)
-
----
-
-# 全國兩會｜今年發展主要預期目標　國內生產總值增長5%左右
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794292_1_20250305094926.jpg&q=75)
-  
-
-國務院總理李強提出，今年國內生產總值目標增長5%左右，城鎮調查失業率5.5%左右，城鎮新增就業1200萬人以上，居民消費價格升幅2%左右，居民收入增長和經濟增長同步，國際收支保持基本平衡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm)
-
----
-
-# 全國兩會｜王靈桂：中央堅定支持香港和澳門拼經濟謀發展惠民生
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794291_1_20250305093600.jpg&q=75)
-  
-
-在北京，全國政協委員、港澳辦副主任王靈桂列席全國人大會議開幕會前，被問到中央會否再有惠港措施推出，他反問記者認為香港股市較去年有何變化，認為股市是由所有股民造起來，他們對香港有信心，所以股市就會發展得很好。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm)
 
 ---

@@ -1,3 +1,32 @@
+# CPPCC member slams extra US tariffs on China
+
+![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=75)
+  
+
+Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on Wednesday slammed the US move to slap additional tariff on Chinese exports because of the fentanyl crisis.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm)
+
+---
+
 # 'HK has key role to play in national development'
 
 ![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
@@ -1708,34 +1737,5 @@ The World Trade Organization (WTO) said on Wednesday that discussions on trade t
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
-
----
-
-# More support to come under CEPA, says Beijing
-
-![Beijing and local officials held a forum on the latest amendment to the Mainland and Hong Kong Closer Economic Partnership Arrangement (CEPA). Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792333_1_20250219190456.jpg&q=85)
-  
-
-A Beijing commerce official on Wednesday pledged further support for Hong Kong under the Mainland and Hong Kong Closer Economic Partnership Arrangement (CEPA), the city's free-trade deal with the mainland.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm)
 
 ---

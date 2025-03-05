@@ -1,3 +1,26 @@
+# 財政預算案2025｜機場離境稅修訂條例周五刊憲若通過十月生效
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm)
+
+---
+
 # 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
 
 ![曾偉雄表示，國家一直有履行就芬太尼管控的國際義務，以及2018年國家主席習近平對美方作出的承調，防止中國非法販運芬太尼到美國的效果明顯。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=85)
@@ -1712,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
-
----
-
-# 口岸爆炸案警長稱兩被告到羅湖站沒有離境而是再次返回站內
-
-![口岸爆炸案高等法院踏入第63天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794229_1_20250304214602.jpg&q=80)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第63天審訊。控方播放當年2月2日的九巴及港鐵閉路電視片段，偵緝警長稱從片段中認出女被告楊怡斯，指出九巴總站位於上水，上水港鐵站閉路電視亦拍攝到楊怡斯與一名男子登上列車及在羅湖站下車，當日下午約3時半、羅湖站曾發生爆炸；控方開案陳詞指稱，楊怡斯與該男子當日下午，將炸彈放置到羅湖站列車的車廂內。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm)
 
 ---

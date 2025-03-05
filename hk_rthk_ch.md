@@ -1,3 +1,55 @@
+# 財政預算案2025｜機場離境稅修訂條例周五刊憲若通過十月生效
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm)
+
+---
+
+# 全國兩會｜譚炯提出強化投融資機制　支持國家重大項目建設
+
+![譚炯稱要健全政府投資支持基礎性、公益性、長遠性重大項目建設長效機制。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794417_1_20250305175521.jpg&q=80)
+  
+
+全國政協委員、國家開發銀行黨委副書記譚炯提出，強化投融資機制，以支持國家重大項目建設，包括加強頂層設計，完善跨部門跨區域重大項目協調推進機制，以推動政府、企業、金融機構深化合作，協同發力共同參與重大項目謀劃建設和運營。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm)
+
+---
+
 # 澳門立法會選舉《提名委員會確認申請表》明起供索取
 
 ![澳門第八屆立法會選舉將在今年9月14日進行投票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794413_1_20250305174324.jpg&q=55)

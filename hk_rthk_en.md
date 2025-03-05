@@ -1,3 +1,32 @@
+# CPPCC member slams extra US tariffs on China
+
+![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=75)
+  
+
+Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on Wednesday slammed the US move to slap additional tariff on Chinese exports because of the fentanyl crisis.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm)
+
+---
+
 # 'HK has key role to play in national development'
 
 ![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
@@ -1708,34 +1737,5 @@ A local economics academic said he does not expect major policy shifts in the "T
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
-
----
-
-# Forest sink Ipswich on pens to reach FA Cup quarters
-
-![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=90)
-  
-
-Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cup quarter-finals after a 1-1 draw at the City Ground.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
 
 ---
