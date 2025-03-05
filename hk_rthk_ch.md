@@ -1,3 +1,27 @@
+# 滬股高收0.53%　創業板近乎持平
+
+![上證指數今早窄幅上落，午後轉升，收市報3341點，升17點，升幅0.53%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794379_1_20250305150444.jpg&q=60)
+  
+
+內地股市3大指數反覆靠穩，算力租賃、人形機器人股份造好，房地產、太陽能股份下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm)
+
+---
+
 # 全國兩會｜李慧琼對工作報告有信心　相信經整體考慮及中期需要
 
   
@@ -46,6 +70,7 @@
 
 # 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
 
+![呂成蹊說，粵港澳三地合辦全運會體現大灣區合作精神，有助推動體育經濟發展，亦有利大灣區融合。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_1_20250305151113.jpg&q=80)
   
 
 在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
