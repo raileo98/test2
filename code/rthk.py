@@ -555,6 +555,7 @@ async def process_category(category, url):
     
     for item in results:
         if item is not None:
+            print( f"item: { item }" )
             md_articles.append(item)
 
     # 產生 RSS XML 字串，同執行 HTML 清理等工作
@@ -606,6 +607,7 @@ async def process_category(category, url):
         md_lines.append(f"原文連結：[{article['url']}]({article['url']})\n")
         md_lines.append("---\n")
 
+        print( f'article: { article }' )
         print( f"article['markdown']: { article['markdown'] }" )
     
     md_str = "\n".join(md_lines)
