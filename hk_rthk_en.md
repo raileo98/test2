@@ -1,3 +1,32 @@
+# Indian festival to hit streets of Lan Kwai Fong
+
+![The "Incredible India Festival" will be held on March 15 and 16 at Lan Kwai Fong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794437_1_20250305203811.jpg&q=60)
+  
+
+A vibrant festival celebrating Indian culture through dance, music and cuisine, is set to brighten up the streets of Lan Kwai Fong later this month.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm)
+
+---
+
 # Air passenger departure tax to go up from Oct 1
 
 ![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250305180720.jpg&q=65)
@@ -1708,34 +1737,5 @@ The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tari
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm)
-
----
-
-# Study paints grim picture of obesity
-
-![Researchers estimate that 3.8 billion adults will be overweight or obese in 15 years. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794096_1_20250304090417.jpg&q=85)
-  
-
-Nearly 60 percent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
 
 ---

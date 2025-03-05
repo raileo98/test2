@@ -1,3 +1,26 @@
+# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
+
+---
+
 # 林志釉促醫管局審視餵食病人程序　林哲玄籲區分食物軟硬程度等級
 
 ![林志釉與林哲玄都形容事件屬罕見，希望醫管局檢討相關程序及食品軟硬等級。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794442_1_20250305210253.jpg&q=40)
@@ -1708,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm)
-
----
-
-# 全國兩會｜王偉中稱深圳和香港共同創新　不認為香港科技發展較慢
-
-![王偉中表示，深圳和香港都在共同創新。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794300_1_20250305094334.jpg&q=80)
-  
-
-在北京，全國人大代表、廣東省省長王偉中回應河套區發展時表示，今年會合作得越來越好，至於深圳在科技發展方面有何可取之處，他表示，深圳和香港都在共同創新。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm)
 
 ---

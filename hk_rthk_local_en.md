@@ -1,3 +1,32 @@
+# Indian festival to hit streets of Lan Kwai Fong
+
+![The "Incredible India Festival" will be held on March 15 and 16 at Lan Kwai Fong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794437_1_20250305203811.jpg&q=60)
+  
+
+A vibrant festival celebrating Indian culture through dance, music and cuisine, is set to brighten up the streets of Lan Kwai Fong later this month.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm)
+
+---
+
 # Air passenger departure tax to go up from Oct 1
 
 ![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250305180720.jpg&q=65)
@@ -1708,34 +1737,5 @@ Labour and welfare chief Chris Sun on Thursday said it will take time for the au
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm)
-
----
-
-# Lam Cheuk-ting, six others jailed over Yuen Long riot
-
-![The District Court jailed former lawmaker Lam Cheuk-ting and six others for rioting in Yuen Long in 2019. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793502_1_20250227171029.jpg&q=40)
-  
-
-Former lawmaker Lam Cheuk-ting and six others were on Thursday sentenced to between 25 and 37 months behind bars each, after earlier being found guilty of rioting in Yuen Long in 2019.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm)
 
 ---

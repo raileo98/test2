@@ -1,3 +1,55 @@
+# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
+
+---
+
+# 美國2月ADP私人市場新增職位7.7萬個　遠遜預期
+
+![美國2月ADP私人市場新增職位7.7萬個，遠低於市場預期的14萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794443_1_20250305212722.jpg&q=85)
+  
+
+人力資源服務公司ADP報告指，美國2月私人市場新增職位7.7萬個，遠低於市場預期的14萬個，亦遠低於1月向上修訂後的18.6萬個。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm)
+
+---
+
 # 林志釉促醫管局審視餵食病人程序　林哲玄籲區分食物軟硬程度等級
 
 ![林志釉與林哲玄都形容事件屬罕見，希望醫管局檢討相關程序及食品軟硬等級。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794442_1_20250305210253.jpg&q=40)

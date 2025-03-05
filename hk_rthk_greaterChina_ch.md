@@ -1,3 +1,26 @@
+# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
+
+---
+
 # 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
 
 ![習近平（左）表示，經濟大省要挑大樑，為全國發展大局做貢獻。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=90)
@@ -1700,34 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm)
-
----
-
-# 全國兩會｜高質量完成國企改革深化提升行動
-
-![報告提出，要深化財稅金融體制改革，規範稅收優惠政策。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794301_1_20250305100605.jpg&q=90)
-  
-
-國務院總理李強發表政府工作報告，表示要紮實推動重點領域改革，包括高質量完成國企改革深化提升行動，落實促進民營經濟發展政策措施，推動全國統一大市場建設，打通市場准入退出，綜合整治「內卷式」競爭。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm)
 
 ---

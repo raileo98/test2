@@ -1,3 +1,55 @@
+# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
+
+---
+
+# 美國2月ADP私人市場新增職位7.7萬個　遠遜預期
+
+![美國2月ADP私人市場新增職位7.7萬個，遠低於市場預期的14萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794443_1_20250305212722.jpg&q=85)
+  
+
+人力資源服務公司ADP報告指，美國2月私人市場新增職位7.7萬個，遠低於市場預期的14萬個，亦遠低於1月向上修訂後的18.6萬個。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm)
+
+---
+
 # 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
 
 ![習近平（左）表示，經濟大省要挑大樑，為全國發展大局做貢獻。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=90)
@@ -1659,63 +1711,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm)
-
----
-
-# 內地股市開市後窄幅上落
-
-![內地股市窄幅上落。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794305_1_20250305094743.jpg&q=80)
-  
-
-內地股市窄幅上落。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794305-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794305-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794305-20250305.htm)
-
----
-
-# 白表居屋第二市場計劃明起接受申請　為青年新增1500個配額
-
-![「白表居屋第二市場計劃 2024」明日上午8時開始接受申請，直至本月26日晚上7時為止。（「白居二2024」網站截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794304_1_20250305095520.jpg&q=90)
-  
-
-房委會「白表居屋第二市場計劃 2024」於明日上午8時開始接受申請，直至本月26日晚上7時為止，為期3星期。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm)
 
 ---
