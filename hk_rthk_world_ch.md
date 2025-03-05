@@ -1,3 +1,31 @@
+# 美商務部長︰若加拿大能阻止芬太尼　特朗普或對部分行業減免關稅
+
+  
+
+美國商務部長盧特尼克透露，總統特朗普預料將公布調整對加拿大和墨西哥商品加徵的關稅，可能給予汽車等行業部分減免。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm)
+
+---
+
 # 美國停向烏方分享情報　若安排好和談並建立信任特朗普或恢復軍援
 
 ![沃爾茲說，如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794453_1_20250305223835.jpg&q=90)
@@ -1708,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm)
-
----
-
-# 特朗普提高對中國商品關稅至20%　對加墨關稅周二生效
-
-![白宮說，特朗普已簽署命令，進一步提高對中國進口商品的關稅至20%。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794076_1_20250304054306.jpg&q=90)
-  
-
-美國白宮說，總統特朗普已簽署命令，進一步提高對中國進口商品的關稅，指中國政府未能解決芬太尼問題。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
 
 ---

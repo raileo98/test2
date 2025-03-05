@@ -1,3 +1,32 @@
+# 世界格蘭披治桌球大獎賽　賽會接147名觀眾查詢涉265張門票
+
+![賽事組委會表示，截至晚上10時，接獲147位觀眾查詢，合共涉及265張門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794457_1_20250305235549.jpg&q=85)
+  
+
+世界格蘭披治桌球大獎賽的賽事組委會表示，截至晚上10時，接獲147位觀眾查詢，合共涉及265張門票，當中38位觀眾已於星期三即時換取門票入場觀看賽事，其餘觀眾將獲安排陸續領取星期四賽事的門票。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm)
+
+---
+
 # 前小學校長被控挪用校董會一千多萬元　因被告身亡控方撤回控罪
 
 ![控方透露已取被告死亡證，申請撤回控罪，獲法庭批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794452_1_20250305223247.jpg&q=80)
@@ -1714,34 +1743,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
-
----
-
-# 李家超：將團結各界更好發揮「一國兩制」制度優勢和香港獨特優勢
-
-![李家超說，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794310_1_20250305100656.jpg&q=80)
-  
-
-十四屆全國人大三次會議在北京開幕，總理李強發表政府工作報告，正在北京的行政長官李家超列席。李家超在本地報章撰文表示，很榮幸以香港特區行政長官的身份列席開幕會，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm)
 
 ---
