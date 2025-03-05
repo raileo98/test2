@@ -1,3 +1,23 @@
+# 明愛醫院75歲男病人餵食期間哽到其後離世　院方致歉
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm)
+
+---
+
 # 鄭泳舜對有觀眾被請離場感失望詫異　稱不能再有同類事件發生
 
 ![鄭泳舜對觀眾突然被請離場感到失望及詫異，認為對球迷非常不公平。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794368_1_20250305142241.jpg&q=85)
@@ -1416,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794176-20250304.htm)
-
----
-
-# 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
-
-![特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794189_1_20250304180706.jpg&q=80)
-  
-
-特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
 
 ---

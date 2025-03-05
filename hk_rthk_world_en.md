@@ -1,3 +1,27 @@
+# Rain offers hope in Japan's worst wildfire in 50 years
+
+![The wildfire broke out on February 26, and firefighting efforts including Japan Self-Defense Forces, have continued while thousands have evacuated their homes. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794373_1_20250305144046.jpg&q=90)
+  
+
+Wet weather looked poised to offer relief Wednesday as Japan battled its worst wildfire in half a century in a northern region hit by record-low rainfall.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm)
+
+---
+
 # Democrat lawmaker ejected during Trump's speech
 
 ![Democrat congressman Al Green stood up and yelled at the president: "You don't have a mandate" and was led away by security. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
@@ -1416,29 +1440,5 @@ Three improvised explosive devices were thrown at the Russian consulate in the s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm)
-
----
-
-# Xi praises efforts to defuse Ukraine crisis
-
-![President Xi Jinping says China and Russia are good neighbours and true friends supporting each other. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792982_1_20250224190145.jpg&q=90)
-  
-
-President Xi Jinping on Monday held a phone conversation with his Russian counterpart Vladimir Putin on the third anniversary of the war in Ukraine and said China is happy to see efforts by Moscow and others to defuse the crisis.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm)
 
 ---

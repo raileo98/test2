@@ -1,3 +1,47 @@
+# 台股回升1.2%收市
+
+![台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794369_1_20250305142804.jpg&q=85)
+  
+
+台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm)
+
+---
+
+# 明愛醫院75歲男病人餵食期間哽到其後離世　院方致歉
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm)
+
+---
+
 # 鄭泳舜對有觀眾被請離場感失望詫異　稱不能再有同類事件發生
 
 ![鄭泳舜對觀眾突然被請離場感到失望及詫異，認為對球迷非常不公平。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794368_1_20250305142241.jpg&q=85)

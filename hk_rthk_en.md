@@ -1,3 +1,27 @@
+# Rain offers hope in Japan's worst wildfire in 50 years
+
+![The wildfire broke out on February 26, and firefighting efforts including Japan Self-Defense Forces, have continued while thousands have evacuated their homes. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794373_1_20250305144046.jpg&q=90)
+  
+
+Wet weather looked poised to offer relief Wednesday as Japan battled its worst wildfire in half a century in a northern region hit by record-low rainfall.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm)
+
+---
+
 # Snooker fans won't be kicked out again: minister
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=75)
@@ -1414,29 +1438,5 @@ Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm)
-
----
-
-# 'Hundreds of species at risk of local extinction'
-
-![WWF-Hong Kong says it hopes to discuss its findings with government officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794010_1_20250303173647.jpg&q=90)
-  
-
-Conservation groups are warning that around a quarter of almost 900 different species assessed in Hong Kong are at risk of local extinction, with types of birds and freshwater fish among the most in danger of disappearing from the territory.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm)
 
 ---

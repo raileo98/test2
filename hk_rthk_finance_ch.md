@@ -1,3 +1,27 @@
+# 台股回升1.2%收市
+
+![台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794369_1_20250305142804.jpg&q=85)
+  
+
+台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm)
+
+---
+
 # 全國兩會｜金融監管總局擬擴大對科技企業併購貸款等4項試點工作
 
 ![李雲澤表示，今年金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794366_1_20250305140933.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm)
-
----
-
-# 全國兩會 | 全國人大會議上午開幕
-
-![十四屆全國人大三次會議今天上午開幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794256_1_20250305051913.jpg&q=90)
-  
-
-十四屆全國人大三次會議今天上午開幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794256-20250305.htm)
 
 ---
