@@ -1,3 +1,27 @@
+# 回應加徵關稅　外交部：美方如執意損害中國利益將奉陪到底
+
+  
+
+在北京，外交部再回應美國再對華加徵關稅，發言人林劍表示，美方執意以芬太尼問題為藉口，再次對中國輸美的產品加徵關稅。中方多次闡明反對立場，採取正當必要的反制措施。美方如果真想解決芬太尼問題，就應該在平等、尊重、互惠的基礎上，同中方磋商解決各自關切。美方如果別有所圖，執意損害中國的利益，中方必將奉陪到底。中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm)
+
+---
+
 # 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
 
 ![何猶龍認為，澳門開放多年後，已經不只是一個「賭城」，還有演唱會、表演和會展。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794391_1_20250305161534.jpg&q=85)
@@ -1708,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794221-20250304.htm)
-
----
-
-# 商務部對原產美國進口相關光纖產品發起反規避調查
-
-![商務部對原產於美國的進口相關光纖產品發起反規避調查。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794220_1_20250304203849.jpg&q=90)
-  
-
-在北京，商務部發布公告，對原產於美國的進口相關光纖產品發起反規避調查。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
 
 ---
