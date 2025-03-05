@@ -1,3 +1,31 @@
+# 美國白宮證實特朗普同意對墨加部分汽車推遲一個月徵收關稅
+
+  
+
+美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予汽車製造商一個月的豁免。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm)
+
+---
+
 # 澤連斯基稱與美國合作取得積極進展　冀下周有初步成果
 
 ![澤連斯基表示，與美國的合作已經取得積極進展，雙方可能很快再次舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794463_1_20250306030953.jpg&q=80)
@@ -1702,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm)
-
----
-
-# 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
-  
-
-高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
 
 ---

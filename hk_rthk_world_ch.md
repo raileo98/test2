@@ -1,3 +1,31 @@
+# 美國白宮證實特朗普同意對墨加部分汽車推遲一個月徵收關稅
+
+  
+
+美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予汽車製造商一個月的豁免。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm)
+
+---
+
 # 澤連斯基稱與美國合作取得積極進展　冀下周有初步成果
 
 ![澤連斯基表示，與美國的合作已經取得積極進展，雙方可能很快再次舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794463_1_20250306030953.jpg&q=80)
@@ -1708,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm)
-
----
-
-# 美國對中國產品提高關稅　丘應樺稱對香港影響不是很大
-
-![丘應樺說今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794107_1_20250304103736.jpg&q=75)
-  
-
-美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已決定向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm)
 
 ---
