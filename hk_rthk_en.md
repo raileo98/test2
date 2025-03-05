@@ -1,3 +1,28 @@
+# 5pc is no easy feat, SAR deputies say on growth target
+
+![Peter Wong said he's confident of achieving the growth target, judging from the stimulus measures rolled out over the past year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_1_20250305123650.jpg&q=85)
+![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=85)
+  
+
+Hong Kong's deputies to the National People's Congress and the Chinese People's Political Consultative Conference have given their backing to the country's growth target of around five percent target this year, saying it was no easy feat but achievable.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm)
+
+---
+
 # CE encouraged by Premier's work report
 
 ![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=80)
@@ -1414,29 +1439,5 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm)
-
----
-
-# CPPCC annual session to run till March 10
-
-![Liu Jieyi says 2024 was a critical year for realising goals and tasks set forth in the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303172238.jpg&q=80)
-  
-
-The annual session of China's top political advisory body will run from Tuesday to March 10, authorities announced on Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm)
 
 ---

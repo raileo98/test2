@@ -1,3 +1,26 @@
+# 全國兩會｜田軒稱增長目標助就業民生　蔡冠深對達標感樂觀
+
+  
+
+全國人大代表、經濟學者田軒認為，將今年國內生產總值增長目標訂於5%左右，是保持政策延續性，有助穩就業惠民生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm)
+
+---
+
 # 全國兩會｜李強稱堅決反對台獨分裂和外部勢力干涉
 
   
