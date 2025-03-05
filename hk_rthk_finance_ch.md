@@ -1,3 +1,27 @@
+# 內地股市半日個別發展
+
+![上證綜合指數上午收市報3334點，升10點，升幅0.32%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794335_1_20250305113512.jpg&q=80)
+  
+
+滬深股市半日個別發展，工程機械、通信服務等板塊上升；房地產、光伏設備等股份下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm)
+
+---
+
 # 財政預算案2025｜孫玉菡稱調整二元優惠計劃可提高計劃持續性
 
 ![孫玉菡表示，計劃推行十多年才作金額上調整，相信安排會令到整個計劃的可持續性大大提高。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794333_1_20250305113037.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
-
-![羅淑佩出席開幕禮並致辭。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_1_20250304221216.jpg&q=80)
-  
-
-「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮，首日比賽有超過4200人入場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm)
 
 ---
