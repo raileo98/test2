@@ -1,3 +1,27 @@
+# 港股升幅擴大至逾600點　科指升逾3%
+
+![恒生指數較早時報23547點，升605點，升幅2.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794377_1_20250305145753.jpg&q=20)
+  
+
+港股升幅擴大至逾600點，恒生指數較早時報23547點，升605點，升幅2.64%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm)
+
+---
+
 # 全國兩會｜金融監管總局研究提高消費貸款額度　延長消費貸款期限
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm)
-
----
-
-# 港股美國預託證券與本港收市比較個別發展
-
-![滙控ADR較本港收市升逾2%，友邦升近1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794265_1_20250305062430.jpg&q=85)
-  
-
-港股美國預託證券(ADR)與本港收市比較個別發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794265-20250305.htm)
 
 ---
