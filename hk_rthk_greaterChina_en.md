@@ -1,3 +1,32 @@
+# 'HK has key role to play in national development'
+
+![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
+  
+
+Hong Kong and Macau will always have the central government's backing in terms of developing the economy and improving people's livelihood, a senior official in charge of the SARs' affairs pledged on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm)
+
+---
+
 # Market regulator vows e-commerce malpractice crackdown
 
 ![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=80)
@@ -1708,34 +1737,5 @@ A Beijing commerce official on Wednesday pledged further support for Hong Kong u
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792333-20250219.htm)
-
----
-
-# 'Ne Zha 2' to hit HK cinemas on Saturday
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792229_1_20250219103021.jpg&q=90)
-  
-
-Record-breaking blockbuster "Ne Zha 2" is set for general release in Hong Kong on Saturday, as it dethroned Disney's "Inside Out 2" and became the highest grossing animated film of all time -- based on domestic ticketing data.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792229-20250219.htm)
 
 ---

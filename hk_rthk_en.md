@@ -1,3 +1,61 @@
+# 'HK has key role to play in national development'
+
+![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
+  
+
+Hong Kong and Macau will always have the central government's backing in terms of developing the economy and improving people's livelihood, a senior official in charge of the SARs' affairs pledged on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm)
+
+---
+
+# More spectators expected at this year's LIV Golf HK
+
+![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=80)
+  
+
+Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm)
+
+---
+
 # Market regulator vows e-commerce malpractice crackdown
 
 ![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=80)
@@ -1679,63 +1737,5 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
-
----
-
-# Trump signs order to further hike tariffs on China
-
-![The order raises a previously imposed 10 percent tariff on China to 20 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794081_1_20250304063119.jpg&q=90)
-  
-
-US President Donald Trump has signed an order to hike tariffs on Chinese imports further, the White House said Monday, citing what it called Beijing's failure to tackle the illicit fentanyl trade.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
-
----
-
-# 'City should unite in supporting HK govt'
-
-![Junius Ho, left, says Xia Baolong and CPPCC delegates discuss the global political and economic situation, while Ho Hon-kuen, right, quoted Xia as saying Hong Kong should work together as a whole. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794055_1_20250303231507.jpg&q=90)
-  
-
-Hong Kong delegates to the nation's top political advisory body who met with senior mainland official Xia Baolong in Beijing on Monday evening quoted him as saying the city should unite in supporting Chief Executive John Lee's administration.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
 
 ---

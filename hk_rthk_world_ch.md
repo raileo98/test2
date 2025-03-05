@@ -1,3 +1,32 @@
+# 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
+
+![曾偉雄表示，國家一直有履行就芬太尼管控的國際義務，以及2018年國家主席習近平對美方作出的承調，防止中國非法販運芬太尼到美國的效果明顯。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=85)
+  
+
+在北京，國務院總理李強發表政府工作報告，提到支持香港澳門深化國際交往合作。警務處前處長、全國政協委員曾偉雄表示，十四五規劃綱要下，國家給予香港的定位非常強調「國際」，要做到國際化八大中心，政府工作報告強調國際化是合時，他認為，這是香港在發展上要更留意的地方，亦為十五五規劃打好基礎，希望大家一起努力加把勁。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
+
+---
+
 # 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
 
 ![中方反對在國際經貿關係中濫施脅迫、施壓的手段。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794387_1_20250305161843.jpg&q=25)
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm)
-
----
-
-# 特朗普：不會再容忍澤連斯基言論
-
-![特朗普上星期五在白宮與澤連斯基會面時，兩人在傳媒前激烈爭吵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794067_1_20250304024702.jpg&q=90)
-  
-
-美國總統特朗普稱，對烏克蘭總統澤連斯基的言論「不會再容忍下去」。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm)
 
 ---

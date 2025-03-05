@@ -1,3 +1,32 @@
+# More spectators expected at this year's LIV Golf HK
+
+![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=80)
+  
+
+Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm)
+
+---
+
 # Snooker fans won't be kicked out again: minister
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=75)
@@ -1718,34 +1747,5 @@ Team China dominated the medals table at the Harbin Asian Winter Games which clo
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm)
-
----
-
-# SAR's men's curlers miss out on bronze in Harbin
-
-![The SAR men's curling squad fell 10-3 to the national team in the bronze medal showdown. Photo courtesy of SF&OC.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791597_1_20250214112430.jpg&q=85)
-  
-
-Hong Kong, China's men's curlers on Friday fell short of a podium finish at the Asian Winter Games, as the national team secured their 25th bronze and 83rd medal overall in Harbin.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791597-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791597-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791597-20250214.htm)
 
 ---

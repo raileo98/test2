@@ -1,3 +1,61 @@
+# 澳門立法會選舉《提名委員會確認申請表》明起供索取
+
+![澳門第八屆立法會選舉將在今年9月14日進行投票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794413_1_20250305174324.jpg&q=55)
+  
+
+澳門第八屆立法會選舉管理委員會由明天開始，提供《提名委員會確認申請表》，有意組織提名委員會的人士，最遲要將申請表在下月6日前交回。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm)
+
+---
+
+# 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
+
+![曾偉雄表示，國家一直有履行就芬太尼管控的國際義務，以及2018年國家主席習近平對美方作出的承調，防止中國非法販運芬太尼到美國的效果明顯。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=85)
+  
+
+在北京，國務院總理李強發表政府工作報告，提到支持香港澳門深化國際交往合作。警務處前處長、全國政協委員曾偉雄表示，十四五規劃綱要下，國家給予香港的定位非常強調「國際」，要做到國際化八大中心，政府工作報告強調國際化是合時，他認為，這是香港在發展上要更留意的地方，亦為十五五規劃打好基礎，希望大家一起努力加把勁。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
+
+---
+
 # 全國兩會｜岑浩輝稱澳門特區持續維護好國家主權安全及發展利益
 
 ![岑浩輝列席十四屆全國人大三次會議開幕會議。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794406_1_20250305172503.jpg&q=80)

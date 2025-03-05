@@ -1,3 +1,61 @@
+# 'HK has key role to play in national development'
+
+![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
+  
+
+Hong Kong and Macau will always have the central government's backing in terms of developing the economy and improving people's livelihood, a senior official in charge of the SARs' affairs pledged on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm)
+
+---
+
+# More spectators expected at this year's LIV Golf HK
+
+![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=80)
+  
+
+Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm)
+
+---
+
 # Hospital patient chokes to death after meal blunder
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=85)
@@ -1679,63 +1737,5 @@ Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a ne
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm)
-
----
-
-# Govt won't rely on land sales for revenue: Paul Chan
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793467_1_20250227134032.jpg&q=85)
-  
-
-Financial Secretary Paul Chan said on Thursday that the government no longer wants to rely heavily on land sales as a main source of revenue.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm)
-
----
-
-# HKU and CUHK to get 60 more medical training places
-
-![CUHK says it will announce details for the “second degree entry track” in due course. Photo courtesy of CUHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793464_1_20250227125822.jpg&q=65)
-  
-
-The Education Bureau said that medical schools at Chinese University (CUHK) and the University of Hong Kong (HKU) would have 60 more training places in the next academic year.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm)
 
 ---

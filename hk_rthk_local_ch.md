@@ -1,3 +1,32 @@
+# 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
+
+![曾偉雄表示，國家一直有履行就芬太尼管控的國際義務，以及2018年國家主席習近平對美方作出的承調，防止中國非法販運芬太尼到美國的效果明顯。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=85)
+  
+
+在北京，國務院總理李強發表政府工作報告，提到支持香港澳門深化國際交往合作。警務處前處長、全國政協委員曾偉雄表示，十四五規劃綱要下，國家給予香港的定位非常強調「國際」，要做到國際化八大中心，政府工作報告強調國際化是合時，他認為，這是香港在發展上要更留意的地方，亦為十五五規劃打好基礎，希望大家一起努力加把勁。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
+
+---
+
 # 鄧炳強指《明報》有關林卓廷文章誤導讀者　予以譴責
 
 ![鄧炳強認為，作者身為法律教授卻再次發表偏頗文章，以歪曲的觀點誤導讀者。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794405_1_20250305172531.jpg&q=80)
@@ -1712,34 +1741,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794229-20250304.htm)
-
----
-
-# 全國兩會｜曾偉雄稱23條實施一年有達到原本效果
-
-![曾偉雄認為，23條法律條文與很多地方比較並「不辣」。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794227_1_20250304212105.jpg&q=75)
-  
-
-在北京，警務處前處長曾偉雄說，基本法23條實施一年，有達到原本的效果，法律條文與很多地方比較並「不辣」，應該對法院有信心，法庭一直運作良好，並具有國際聲譽。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794227-20250304.htm)
 
 ---
