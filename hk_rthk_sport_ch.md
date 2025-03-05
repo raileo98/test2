@@ -1,3 +1,32 @@
+# 歐聯16強首回合國米挫飛燕諾　利物浦勝聖日耳門　拜仁巴塞報捷
+
+![利物浦作客一球小勝對手。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794479_1_20250306072423.jpg&q=80)
+  
+
+歐聯16強首回合，國際米蘭在2:0擊敗飛燕諾。利物浦亦報捷，一球小勝巴黎聖日耳門。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794479-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794479-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794479-20250306.htm)
+
+---
+
 # 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
 
 ![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=75)
@@ -1712,34 +1741,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm)
-
----
-
-# 啟德體育園周六開幕　明起一連三晚外牆上演LED燈光展
-
-![啟德體育園將於本星期六開幕，當日傍晚6時半將舉行開幕典禮。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793120_1_20250225181658.jpg&q=15)
-  
-
-啟德體育園將於本星期六開幕，當日傍晚6時半將舉行開幕典禮，由行政長官李家超主持開幕儀式，體育園明晚起一連三晚在外牆上演LED燈光展。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm)
 
 ---

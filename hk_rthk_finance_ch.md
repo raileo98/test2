@@ -1,3 +1,61 @@
+# 港股美國預託證券普遍較本港收市上升
+
+![阿里巴巴ADR較本港收市升逾5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794477_1_20250306065717.jpg&q=35)
+  
+
+港股美國預託證券(ADR)與本港收市比較普遍上升。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm)
+
+---
+
+# 紐約期金高收近0.2%
+
+![紐約期金收市報每盎司2926美元，升幅近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794476_1_20250306065442.jpg&q=90)
+  
+
+金價微升，因美元持續疲弱。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm)
+
+---
+
 # 國際油價下跌　美國原油庫存增幅大過預期
 
 ![倫敦布蘭特期油和紐約期油收市跌逾2%至近3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794475_1_20250306065313.jpg&q=90)
@@ -1667,59 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm)
-
----
-
-# 特朗普到國會演說　稱其政府目前所做事情比別人四年任期更多
-
-![特朗普說到目前為止，他的政府行動迅速，所做的事情比其他人的四年任期更加多。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794325_1_20250305111408.jpg&q=85)
-  
-
-美國總統特朗普在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。特朗普發言時，兩側分別是眾議院議長約翰遜，以及兼任參議院議長的副總統萬斯。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm)
-
----
-
-# 日股半日升25點
-
-![日經平均指數上午收市報37356點，升25點，升幅0.07%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794324_1_20250305103556.jpg&q=85)
-  
-
-日本股市半日靠穩，日經平均指數上午收市報37356點，升25點，升幅0.07%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794324-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794324-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794324-20250305.htm)
 
 ---
