@@ -1,3 +1,74 @@
+# 韓股全日升約1.2%
+
+![首爾綜合指數收報2558點，升29點，升幅1.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794371_1_20250305143610.jpg&q=90)
+  
+
+南韓股市造好，首爾綜合指數收報2558點，升29點，升幅1.16%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm)
+
+---
+
+# 日股高收0.23%
+
+![日經指數收報37418點，升87點，升幅0.23%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794370_1_20250305143449.jpg&q=75)
+  
+
+日股反覆靠穩，日經指數收報37418點，升87點，升幅0.23%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm)
+
+---
+
+# 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
+
+  
+
+內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
+
+---
+
 # 台股回升1.2%收市
 
 ![台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794369_1_20250305142804.jpg&q=85)

@@ -1,3 +1,74 @@
+# 韓股全日升約1.2%
+
+![首爾綜合指數收報2558點，升29點，升幅1.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794371_1_20250305143610.jpg&q=90)
+  
+
+南韓股市造好，首爾綜合指數收報2558點，升29點，升幅1.16%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm)
+
+---
+
+# 日股高收0.23%
+
+![日經指數收報37418點，升87點，升幅0.23%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794370_1_20250305143449.jpg&q=75)
+  
+
+日股反覆靠穩，日經指數收報37418點，升87點，升幅0.23%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm)
+
+---
+
+# 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
+
+  
+
+內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
+
+---
+
 # 台股回升1.2%收市
 
 ![台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794369_1_20250305142804.jpg&q=85)
@@ -1364,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794262-20250305.htm)
-
----
-
-# 歐盟批評美國對加拿大和墨西哥加徵關稅
-
-![歐盟委員會發言人呼籲美國重新考慮其做法，並努力尋求一個有利於各方合作、基於規則的解決方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794258_1_20250305052921.jpg&q=90)
-  
-
-歐盟批評美國對加拿大和墨西哥加徵關稅，並呼籲美方重新考慮其貿易政策。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm)
-
----
-
-# 國際油價下跌　受增產及貿易戰拖累
-
-![倫敦布蘭特期油和紐約期油均一度跌至多月低位，最終分別低收0.8%及近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794255_1_20250305051758.jpg&q=90)
-  
-
-國際期油價格跌至多月低位，石油輸出國組織及其盟友(OPEC+)決定按計劃在4月增產，而美國對加拿大、墨西哥及中國如期加徵關稅，引發部分國家採取反制措施，抑制經濟活動和能源需求，對油價構成壓力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794255-20250305.htm)
-
----
-
-# 歐股收市下跌　特朗普兌現關稅威脅
-
-![德國DAX指數收市報22326點，跌820點，跌幅3.5%，從周一創下的歷史高位回落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794252_1_20250305050821.jpg&q=90)
-  
-
-歐洲主要股市收市下跌，英國和德國股市從周一創下的歷史高位跌逾1%至逾3%。美國開始對加拿大、墨西哥及中國進口商品加徵關稅，市場憂慮歐盟將成為下一個目標，汽車股首當其衝。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794252-20250305.htm)
 
 ---
