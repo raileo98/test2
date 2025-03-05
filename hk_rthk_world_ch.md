@@ -1,3 +1,31 @@
+# 馬克龍強調拒絕簽訂脆弱俄烏停火協議
+
+  
+
+法國總統馬克龍表示，歐洲的盟友美國已經改變在俄烏衝突的立場，減少對烏克蘭支持，為歐洲未來的安全和繁榮增加更多不確定性。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm)
+
+---
+
 # 美國證實與哈馬斯就被扣押人員問題進行直接會談
 
   
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
-
----
-
-# 金與正譴責美航母訪南韓釜山　強調北韓考慮採行動增強威脅
-
-![美國海軍核動力航空母艦「卡爾文森」號日前抵達南韓釜山訪問。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794122_1_20250304115552.jpg&q=90)
-  
-
-美國海軍核動力航空母艦「卡爾文森」號訪問南韓港口釜山。北韓領袖金正恩胞妹、勞動黨中央委員會副部長金與正譴責美方無視北韓的安全關切，習慣性地作出挑釁行為，強調北韓將慎重考慮採取行動，增強戰略性威脅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm)
 
 ---

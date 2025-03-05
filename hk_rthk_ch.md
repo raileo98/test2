@@ -1,3 +1,89 @@
+# 馬克龍強調拒絕簽訂脆弱俄烏停火協議
+
+  
+
+法國總統馬克龍表示，歐洲的盟友美國已經改變在俄烏衝突的立場，減少對烏克蘭支持，為歐洲未來的安全和繁榮增加更多不確定性。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm)
+
+---
+
+# 道指高收485點　中概股指數升逾6%
+
+![道瓊斯指數早段曾跌逾100點，尾市升幅最多擴大至逾610點，收市報43006點，升485點，升幅1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794472_1_20250306054601.jpg&q=90)
+  
+
+美股3大指數收市升逾1%，美國總統特朗普放寬對墨西哥和加拿大加徵的關稅，給予汽車製造商1個月的豁免，抵銷美國上月ADP私人市場新增職位只有7.7萬個，遠差過預期的影響。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm)
+
+---
+
+# 聯儲局褐皮書：美國經濟活動略有增長　各地憂慮關稅政策不確定性
+
+![聯儲局發布的褐皮書顯示，自1月中旬以來，美國經濟活動略有增長，但各地企業都關注關稅政策帶來不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794470_1_20250306052428.jpg&q=40)
+  
+
+美國聯儲局發布的褐皮書顯示，自1月中旬以來，經濟活動略有增長，但全國各地的企業都表示，美國總統特朗普政府的新政策，特別是關稅政策帶來不確定性。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm)
+
+---
+
 # 德國股市高收逾3%　改革債務規則並設基礎設施基金
 
 ![德國DAX指數收市報23081點，升754點，升幅近3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794468_1_20250306050939.jpg&q=90)
@@ -1645,88 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm)
-
----
-
-# 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=80)
-  
-
-全國政協香港小組下午舉行會議，討論全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm)
-
----
-
-# 那打素醫院病人服務助理進行護理程序期間疑被非禮　警拘一名男子
-
-![院方高度關注事件，強烈譴責涉嫌非禮本院員工的行為，並會採取「零容忍」態度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794396_1_20250305170802.jpg&q=85)
-  
-
-雅麗氏何妙齡那打素醫院一名病人服務助理，在內科病房為一名73歲男病人進行護理程序期間，懷疑被非禮。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794396-20250305.htm)
-
----
-
-# 回應加徵關稅　外交部：美方如執意損害中國利益將奉陪到底
-
-![林劍：中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。（外交部網站）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794395_1_20250305164428.jpg&q=90)
-  
-
-在北京，外交部再回應美國再對華加徵關稅，發言人林劍表示，美方執意以芬太尼問題為藉口，再次對中國輸美的產品加徵關稅。中方多次闡明反對立場，採取正當必要的反制措施。美方如果真想解決芬太尼問題，就應該在平等、尊重、互惠的基礎上，同中方磋商解決各自關切。美方如果別有所圖，執意損害中國的利益，中方必將奉陪到底。中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm)
 
 ---

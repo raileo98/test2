@@ -1,3 +1,61 @@
+# 道指高收485點　中概股指數升逾6%
+
+![道瓊斯指數早段曾跌逾100點，尾市升幅最多擴大至逾610點，收市報43006點，升485點，升幅1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794472_1_20250306054601.jpg&q=90)
+  
+
+美股3大指數收市升逾1%，美國總統特朗普放寬對墨西哥和加拿大加徵的關稅，給予汽車製造商1個月的豁免，抵銷美國上月ADP私人市場新增職位只有7.7萬個，遠差過預期的影響。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm)
+
+---
+
+# 聯儲局褐皮書：美國經濟活動略有增長　各地憂慮關稅政策不確定性
+
+![聯儲局發布的褐皮書顯示，自1月中旬以來，美國經濟活動略有增長，但各地企業都關注關稅政策帶來不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794470_1_20250306052428.jpg&q=40)
+  
+
+美國聯儲局發布的褐皮書顯示，自1月中旬以來，經濟活動略有增長，但全國各地的企業都表示，美國總統特朗普政府的新政策，特別是關稅政策帶來不確定性。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm)
+
+---
+
 # 德國股市高收逾3%　改革債務規則並設基礎設施基金
 
 ![德國DAX指數收市報23081點，升754點，升幅近3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794468_1_20250306050939.jpg&q=90)
@@ -1663,63 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm)
-
----
-
-# 全國兩會｜提升粵港澳大灣區等經濟發展優勢區城創新能力
-
-![報告指出，提升京津冀、長三角、粵港澳大灣區等經濟發展優勢區城的創新能力和幅射帶動作用。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794318_1_20250305103426.jpg&q=1)
-  
-
-國務院總理李強在政府工作報告指出，要加大區域戰略實施力度，發揮區域協調發展戰略、區域重大戰略、主體功能區戰略的疊加效應，積極培育新的增長極。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm)
-
----
-
-# 財政預算案2025｜孫玉菡：有信心能幫助社福機構面對減幅
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794317_1_20250305102726.jpg&q=85)
-  
-
-財政預算案提出至2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，部分社福開支，例如綜援及長生津等不會削減，而社福機構的撥款就需要削減，但政府會協助中小型社福機構承擔4%開支，削減幅度降至3%，相信在推行鬆綁措施後，有信心能幫助機構面對減幅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm)
 
 ---
