@@ -1,3 +1,27 @@
+# CE encouraged by Premier's work report
+
+![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=80)
+  
+
+Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm)
+
+---
+
 # Chinese firms double down on tech: Xiaomi, Haier
 
 ![Xiaomi chairman Lei Jun appreciated the support of the central government, following a meeting of representatives from the private sector with President Xi Jinping. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_1_20250305112824.jpg&q=85)
@@ -1414,29 +1438,5 @@ China hopes that all parties and stakeholders can participate in the peace talks
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792134-20250218.htm)
-
----
-
-# China urges US to correct mistakes in Taiwan wording
-
-![Guo Jiakun says there is only one China and the government of the People's Republic of China is the only legal government representing the whole of China. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792015_1_20250217215233.jpg&q=90)
-  
-
-The so-called "update" to the Taiwan fact sheet displayed on the US State Department website is another example of Washington using the Taiwan question to contain China, and China urges the US to immediately correct its mistakes, Foreign Ministry spokesman Guo Jiakun said on Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm)
 
 ---

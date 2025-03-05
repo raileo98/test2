@@ -1,3 +1,27 @@
+# CE encouraged by Premier's work report
+
+![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=80)
+  
+
+Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm)
+
+---
+
 # Chinese firms double down on tech: Xiaomi, Haier
 
 ![Xiaomi chairman Lei Jun appreciated the support of the central government, following a meeting of representatives from the private sector with President Xi Jinping. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_1_20250305112824.jpg&q=85)
@@ -1414,29 +1438,5 @@ The annual session of China's top political advisory body will run from Tuesday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm)
-
----
-
-# ICAC sees three percent rise in graft allegations
-
-![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
-  
-
-The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
 
 ---

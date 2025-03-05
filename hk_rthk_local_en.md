@@ -1,3 +1,27 @@
+# CE encouraged by Premier's work report
+
+![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=80)
+  
+
+Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm)
+
+---
+
 # Premier Li pledges to uphold One Country, Two Systems
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794323_1_20250305102940.jpg&q=90)
@@ -1414,29 +1438,5 @@ An Executive Councillor on Thursday said most of Hong Kong's senior citizens wil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793427-20250227.htm)
-
----
-
-# 'More plans to develop sailing facilities needed'
-
-![The head of Hong Kong's yacht club says the SAR and the surrounding area feature a beautiful coastline. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793423_1_20250227084713.jpg&q=80)
-  
-
-The sailing industry on Thursday said they welcomed Financial Secretary Paul Chan’s plan to build a new waterfront landmark in Hung Hom, with a yacht club mooted there.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793423-20250227.htm)
 
 ---
