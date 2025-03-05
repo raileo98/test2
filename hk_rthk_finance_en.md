@@ -1,3 +1,27 @@
+# Domestic demand 'main engine and anchor' of growth
+
+![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
+  
+
+Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in the government work report he delivered at the start of the National People's Congress session.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
+
+---
+
 # HSI adds 1pc despite losses on Wall Street
 
 ![The Hang Seng Index posts gains as China pledges to make domestic demand the "main engine" of its economic growth. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794303_1_20250305094110.jpg&q=25)
@@ -1411,29 +1435,5 @@ HSBC posted an annual profit on Wednesday that beat estimates, helped by increas
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792282-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792282-20250219.htm)
-
----
-
-# HK shares open lower
-
-![A slide in tech shares led the drop at the start of the trading day on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792227_1_20250219104511.jpg&q=55)
-  
-
-Local shares opened lower on Wednesday led by drops in tech shares.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792227-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792227-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792227-20250219.htm)
 
 ---

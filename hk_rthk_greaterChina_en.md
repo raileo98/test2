@@ -1,3 +1,27 @@
+# Domestic demand 'main engine and anchor' of growth
+
+![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
+  
+
+Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in the government work report he delivered at the start of the National People's Congress session.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
+
+---
+
 # China defence spending to go up by 7.2pc this year
 
 ![Delegates from the military arrive at the Great Hall of the People in Beijing for the opening NPC session. Growth in China's defence spending in 2025 is set to be the same as a year ago. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794329_1_20250305110705.jpg&q=85)
@@ -1413,29 +1437,5 @@ A special event in the United States has been shining a spotlight on the achieve
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm)
-
----
-
-# FM tells Nato to be 'rational and pragmatic'
-
-![Foreign Minister Wang Yi speaks during the 61st Munich Security Conference in Munich, Germany. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791785_1_20250215180709.jpg&q=90)
-  
-
-China urged Nato to adopt a "rational and pragmatic" attitude and establish an "objective and correct understanding" of China, the foreign ministry said on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791785-20250215.htm)
 
 ---
