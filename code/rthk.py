@@ -338,6 +338,8 @@ async def process_article(fg, category, article):
         print(f'{articleTitle} done!')
         memUsage()
 
+        print( f"feedDescription: { feedDescription }" )
+        
         # 同時利用 markdownify 將 HTML 轉 Markdown，並回傳文章資料（方便後續 .md 寫檔）
         md_content = md(feedDescription)
         print( f'md_content: { md_content }' )
