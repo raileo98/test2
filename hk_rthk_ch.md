@@ -1,5 +1,35 @@
+# 根源分析委員會調查明愛醫院病人進食哽喉後死亡事件
+
+![根源分析委員會由港島東醫院聯網臨床服務統籌劉家獻擔任主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794441_1_20250305205658.jpg&q=85)
+  
+
+明愛醫院一名原本要進食流質或糊狀食物的75歲男病人，被餵食一般食物，病人哽到，其後死亡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm)
+
+---
+
 # 南韓指援俄北韓軍人接受俄方無人機操作培訓
 
+![金正恩去年曾視察無人機測試。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794439_1_20250305205300.jpg&q=90)
   
 
 南韓國家情報院表示，有跡象表明支援俄羅斯的北韓軍人，接受俄羅斯方面有關無人機的操作和戰術運用培訓，正密切關注兩軍展開無人機合作的可能性。

@@ -1,3 +1,32 @@
+# 根源分析委員會調查明愛醫院病人進食哽喉後死亡事件
+
+![根源分析委員會由港島東醫院聯網臨床服務統籌劉家獻擔任主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794441_1_20250305205658.jpg&q=85)
+  
+
+明愛醫院一名原本要進食流質或糊狀食物的75歲男病人，被餵食一般食物，病人哽到，其後死亡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm)
+
+---
+
 # 90歲男子馮景棠離開塘尾道住所後失蹤　警方呼籲提供消息
 
 ![失蹤男子身高約1.55米，體重約45公斤，瘦身材，長面型。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_1_20250305204045.jpg&q=90)
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm)
-
----
-
-# 港股高開258點     長和升近一成半
-
-![港股高開258點，當中長和（圖）股價升近一成半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794293_1_20250305092624.jpg&q=30)
-  
-
-港股高開258點，恒指競價時段報23200點。當中公布計劃出售非中國港口資產的長和股價急升近一成半。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm)
 
 ---
