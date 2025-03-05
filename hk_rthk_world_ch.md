@@ -1,3 +1,31 @@
+# 俄方對烏方願和平解決衝突表示肯定　白俄羅斯有意組織俄烏美談判
+
+  
+
+克里姆林宮發言人佩斯科夫說，俄羅斯對烏克蘭總統澤連斯基表示願意透過談判和平解決衝突持肯定態度。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm)
+
+---
+
 # 美國中情局局長證實美國暫停對烏克蘭情報支持
 
 ![拉特克利夫證實，美國已切斷對烏克蘭的情報支持。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794459_1_20250306005549.jpg&q=80)
@@ -1708,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm)
-
----
-
-# 據報美國暫停對烏克蘭軍事援助
-
-![據報美國暫停對烏克蘭的軍事援助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794086_1_20250304083718.jpg&q=80)
-  
-
-據報美國暫停對烏克蘭的軍事援助。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm)
 
 ---

@@ -1,3 +1,31 @@
+# 俄方對烏方願和平解決衝突表示肯定　白俄羅斯有意組織俄烏美談判
+
+  
+
+克里姆林宮發言人佩斯科夫說，俄羅斯對烏克蘭總統澤連斯基表示願意透過談判和平解決衝突持肯定態度。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm)
+
+---
+
 # 美國中情局局長證實美國暫停對烏克蘭情報支持
 
 ![拉特克利夫證實，美國已切斷對烏克蘭的情報支持。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794459_1_20250306005549.jpg&q=80)
@@ -1702,35 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm)
-
----
-
-# 全國兩會｜有人大及政協均認為國家重視民企　定有政策支持
-
-![郭蘭峰表示，民企是中國式現代化建設的重要力量，當局一定會有相關支持的政策措施。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794385_1_20250305163043.jpg&q=75)
-![陳天石說，現時國家推出很多政策，對民企是很好的消息，是一支強心針。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794385_2_20250305163043.jpg&q=80)
-  
-
-全國人大代表、國家發改委黨組成員郭蘭峰表示，國家重視民營企業，民企是中國式現代化建設的重要力量，當局一定會有相關支持的政策措施，但未有透露推出的時間表。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm)
 
 ---
