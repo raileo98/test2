@@ -1,3 +1,32 @@
+# 全國兩會｜張又俠何衛東參加解放軍和武警代表團審議政府工作報告
+
+![張又俠及何衛東分別參加解放軍和武警部隊代表團分組審議政府工作報告。（網絡截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794446_1_20250305215018.jpg&q=85)
+  
+
+在北京，解放軍和武警部隊代表團分組審議政府工作報告，中央政治局委員、中央軍委副主席張又俠及何衛東分別參加小組審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm)
+
+---
+
 # 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
 
 ![夏寶龍（右）會見李家超（左），李家超說，會加快發展國際創新科技中心建設。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794444_1_20250305214532.jpg&q=90)
@@ -58,6 +87,7 @@
 
 # 全國兩會｜夏寶龍晤李家超稱中央全力支援港澳融入國家發展大局
 
+![夏寶龍（右）會見李家超（左），夏寶龍相信香港特區政府和社會各界一定會把握機遇。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794432_1_20250305214643.jpg&q=90)
   
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
@@ -1700,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm)
-
----
-
-# 全國兩會｜今年赤字率擬4%左右　發超長期特別國債1.3萬億元
-
-![李強發表政府工作報告，指出擬發行超長期特別國債1.3萬億元人民幣，擬發行特別國債5000億元。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794302_1_20250305103753.jpg&q=20)
-  
-
-國務院總理李強表示，將實施更加積極財政政策，今年赤字率擬按4%左右安排，赤字規模5.66萬億元人民幣，並實施適度寬鬆的貨幣政策，適時降準降息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm)
 
 ---
