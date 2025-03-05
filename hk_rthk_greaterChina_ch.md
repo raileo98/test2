@@ -1,3 +1,26 @@
+# 全國兩會｜李強稱堅決反對台獨分裂和外部勢力干涉
+
+  
+
+政府工作報告在港澳方面的部份，強調堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」原則。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm)
+
+---
+
 # 全國兩會｜李強稱中國願與國際社會共同推動構建人類命運共同體
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm)
-
----
-
-# 全國兩會｜王滬寧稱今年要為實現「十五五」良好開局打牢基礎
-
-![王滬寧表示，今年是「十四五」規劃收官之年，也是進一步全面深化改革的重要一年。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794168_1_20250304164948.jpg&q=90)
-  
-
-全國政協十四屆三次會議在北京人民大會堂召開，政協主席王滬寧表示，今年是「十四五」規劃收官之年，也是進一步全面深化改革的重要一年；要助力高品質完成「十四五」規劃目標任務、為實現「十五五」良好開局打牢基礎。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 全國兩會｜李強稱堅決反對台獨分裂和外部勢力干涉
+
+  
+
+政府工作報告在港澳方面的部份，強調堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」原則。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm)
+
+---
+
 # 全國兩會｜李強稱中國願與國際社會共同推動構建人類命運共同體
 
   
