@@ -1,3 +1,61 @@
+# 港股美國預託證券普遍較本港收市上升
+
+![阿里巴巴ADR較本港收市升逾5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794477_1_20250306065717.jpg&q=35)
+  
+
+港股美國預託證券(ADR)與本港收市比較普遍上升。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm)
+
+---
+
+# 紐約期金高收近0.2%
+
+![紐約期金收市報每盎司2926美元，升幅近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794476_1_20250306065442.jpg&q=90)
+  
+
+金價微升，因美元持續疲弱。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm)
+
+---
+
 # 歐聯16強首回合國米挫飛燕諾　利物浦勝聖日耳門　拜仁巴塞報捷
 
 ![利物浦作客一球小勝對手。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794479_1_20250306072423.jpg&q=80)
@@ -1677,63 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm)
-
----
-
-# 全國兩會｜滙豐：消費信心或正在好轉　高盛：觀望促消費具體措施
-
-![滙豐認為內地政府工作報告釋出強勁的國內政策支持信號以提振內需，又相信消費信心或正在好轉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794403_1_20250305170242.jpg&q=85)
-  
-
-滙豐報告認為，內地今年財政目標整體符合預期，財政政策起到主導作用，赤字佔國內生產總值（GDP）達到4%創新高，經濟增長目標維持5%左右展現信心，並釋出強勁國內政策支持信號以提振內需，又相信消費信心可能正在好轉。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm)
-
----
-
-# 海關檢42隻受管制瀕危物種活蜥蝪　藏奶粉罐抽濕機企圖偷運入境
-
-![海關檢獲的懷疑受管制屬瀕危物種的活蜥蝪。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794404_1_20250305171151.jpg&q=80)
-  
-
-42隻共約值21萬元的懷疑受管制屬瀕危物種的活蜥蝪，分別被收藏在抽濕機、空氣清新機及奶粉罐內，企圖以空運貨物形式偷運入境，被機場海關發現，案件轉交漁護署跟進。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm)
 
 ---
