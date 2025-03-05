@@ -1,3 +1,27 @@
+# 港股高收652點　科指升4%　長和系造好
+
+![恒生指數尾市最多升近700點，收市報23594點，升652點，升幅2.8%，主板成交額連續兩日不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794393_1_20250305161352.jpg&q=1)
+  
+
+港股午後升幅持續擴大，恒生指數最多升近700點，曾升穿23600點水平，收市報23594點，升652點，升幅2.8%。主板成交額連續兩日不足3千億元，減至約2587億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm)
+
+---
+
 # 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
 
   
@@ -312,6 +336,7 @@
 # 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
 
 ![譚鐵牛表示，大家應該愛惜香港這個地方，努力把香港建設得更好。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_2_20250305161050.jpg&q=75)
+![呂成蹊說，粵港澳三地合辦全運會體現大灣區合作精神，有助推動體育經濟發展，亦有利大灣區融合。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_3_20250305161201.jpg&q=80)
   
 
 在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。

@@ -1,3 +1,27 @@
+# 港股高收652點　科指升4%　長和系造好
+
+![恒生指數尾市最多升近700點，收市報23594點，升652點，升幅2.8%，主板成交額連續兩日不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794393_1_20250305161352.jpg&q=1)
+  
+
+港股午後升幅持續擴大，恒生指數最多升近700點，曾升穿23600點水平，收市報23594點，升652點，升幅2.8%。主板成交額連續兩日不足3千億元，減至約2587億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm)
+
+---
+
 # 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
 
   
@@ -18,6 +42,53 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
+
+---
+
+# 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
+
+![郭永亮表示，這次比賽相比傳統的高爾夫球比賽，要求更加嚴謹，選手用的地方和整個球場的佈局規模更大。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
+  
+
+高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
+
+---
+
+# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
+
+  
+
+對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
 
 ---
 
@@ -193,6 +264,7 @@
 # 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
 
 ![譚鐵牛表示，大家應該愛惜香港這個地方，努力把香港建設得更好。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_2_20250305161050.jpg&q=75)
+![呂成蹊說，粵港澳三地合辦全運會體現大灣區合作精神，有助推動體育經濟發展，亦有利大灣區融合。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_3_20250305161201.jpg&q=80)
   
 
 在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
@@ -1367,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm)
-
----
-
-# 標普全球香港PMI跌至49　創8個月低位
-
-![標普全球2月香港PMI經季節調整後跌至49，低過1月的51，是8個月以來最低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794285_1_20250305090512.jpg&q=20)
-  
-
-標普全球公布，2月香港採購經理指數(PMI)經季節調整後跌至49，低過1月的51，是8個月以來最低，反映營商環境自去年9月以來首次轉差。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm)
-
----
-
-# 全國兩會｜李強過去一年歷程不平凡　主要目標任務順利完成
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794287_1_20250305091634.jpg&q=85)
-  
-
-在北京，國務院總理李強發表政府工作報告，提到過去一年來，中國的發展歷程很不平凡，國家經濟運行總體平穩，穩中有進，全年經濟社會發展主要目標任務順利完成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm)
-
----
-
-# 台股開市後上升
-
-![台灣加權指數較早時報22823點，升226點，升幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794286_1_20250305090712.jpg&q=80)
-  
-
-台灣股市上升。加權指數較早時報22823點，升226點，升幅1%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794286-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794286-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794286-20250305.htm)
 
 ---
