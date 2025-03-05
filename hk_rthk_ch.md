@@ -197,7 +197,7 @@
 
 # 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
 
-![郭永亮表示，這次比賽相比傳統的高爾夫球比賽，要求更加嚴謹，選手用的地方和整個球場的佈局規模更大。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
   
 
 高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。

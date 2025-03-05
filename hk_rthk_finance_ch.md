@@ -173,36 +173,6 @@
 
 ---
 
-# 全國兩會｜以打擊毒品不力對華加關稅　曾偉雄批美國毫無根據
-
-![曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794384_1_20250305155507.jpg&q=80)
-![譚允芝說，會不斷優化防詐騙措施，並與不同平台更緊密合作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794384_2_20250305155507.jpg&q=80)
-  
-
-在北京，全國政協委員、警務處前處長曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據，中方會研究反制措施，認為政治不應影響禁毒合作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm)
-
----
-
 # 全國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
 
 ![何小鵬相信，國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_1_20250305154643.jpg&q=85)
@@ -1715,5 +1685,34 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm)
+
+---
+
+# 標普全球香港PMI跌至49　創8個月低位
+
+![標普全球2月香港PMI經季節調整後跌至49，低過1月的51，是8個月以來最低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794285_1_20250305090512.jpg&q=20)
+  
+
+標普全球公布，2月香港採購經理指數(PMI)經季節調整後跌至49，低過1月的51，是8個月以來最低，反映營商環境自去年9月以來首次轉差。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794285-20250305.htm)
 
 ---
