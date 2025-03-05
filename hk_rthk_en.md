@@ -1,3 +1,27 @@
+# 'China's economic goals reasonable and attainable'
+
+![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=75)
+  
+
+Experts on Wednesday said China's economic goals announced at the opening session of this year's National People's Congress are reasonable and attainable.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm)
+
+---
+
 # Domestic demand 'main engine and anchor' of growth
 
 ![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
@@ -1413,34 +1437,5 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
-
----
-
-# 'Anora' the big winner with 5 Oscars
-
-![“Anora” won best director, best picture, best actress and other Academy Awards at the Oscars on Sunday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_1_20250303124425.jpg&q=75)
-![Sean Baker claimed four of the five Oscars attributed to "Anora". Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_2_20250303124425.jpg&q=90)
-![Actress Mikey Madison helped complete a dominant performance for "Anora" at the Academy Awards. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_3_20250303124425.jpg&q=90)
-![Adrian Brody won the second Oscar of his career for his role in "The Brutalist". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_4_20250303124425.jpg&q=90)
-![Zoe Saldaña earned her first Academy Award for best supporting actress in “Emilia Pérez”. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_5_20250303124425.jpg&q=85)
-![Kieran Culkin received the best supporting actor award for playing one of two cousins who travel to Poland to study their family's roots in "A Real Pain". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_6_20250303124425.jpg&q=90)
-  
-
-"Anora", the story of a sex worker who gets a chance at a new life when she marries a wealthy client on a whim, won five Academy Awards on Sunday, including the coveted best picture Oscar.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm)
 
 ---

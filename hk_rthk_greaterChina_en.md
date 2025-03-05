@@ -1,3 +1,27 @@
+# 'China's economic goals reasonable and attainable'
+
+![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=75)
+  
+
+Experts on Wednesday said China's economic goals announced at the opening session of this year's National People's Congress are reasonable and attainable.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm)
+
+---
+
 # Domestic demand 'main engine and anchor' of growth
 
 ![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
@@ -1413,29 +1437,5 @@ President Xi Jinping on Monday called for efforts to promote the healthy and hig
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm)
-
----
-
-# Asian American women in the spotlight at US awards
-
-![Honourees of the Outstanding Asian American Women Who Dared gala say the event comes at a crucial time, as US President Donald Trump aggressively moves to stamp out diversity, equity and inclusiveness. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791931_1_20250217101545.jpg&q=40)
-  
-
-A special event in the United States has been shining a spotlight on the achievements of Asian American women, in areas ranging from academics to sports.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791931-20250217.htm)
 
 ---
