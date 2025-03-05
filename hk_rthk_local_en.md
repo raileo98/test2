@@ -1,10 +1,10 @@
-# 5pc is no easy feat, SAR deputies say on growth target
+# '5pc target is no easy feat but can be achieved'
 
 ![Peter Wong said he's confident of achieving the growth target, judging from the stimulus measures rolled out over the past year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_1_20250305123650.jpg&q=85)
 ![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=85)
   
 
-Hong Kong's deputies to the National People's Congress and the Chinese People's Political Consultative Conference have given their backing to the country's growth target of around five percent target this year, saying it was no easy feat but achievable.
+Hong Kong's deputies to the National People's Congress (NPC) and the Chinese People's Political Consultative Conference (CPPCC) have given their backing to the country's economic growth target of around five percent target this year, saying it was no easy feat but achievable.
 
   
 

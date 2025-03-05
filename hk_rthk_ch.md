@@ -1,3 +1,166 @@
+# 財政預算案2025｜孫玉菡稱有信心助社福機構面對撥款減幅
+
+  
+
+財政預算案提出至2027/28年度，累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，社福機構撥款需要削減，當局將推行鬆綁措施，有信心能幫助機構面對減幅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm)
+
+---
+
+# 甯漢豪稱勿忘過去多年承受土地不足痛苦　指規劃及造地要持續進行
+
+  
+
+發展局局長甯漢豪表示，未來幾年原本有幾幅沙田石門的商業地，考慮到今年度推售沙田小瀝源住宅地市場反應幾好，有空間可改劃住宅用途，但何時推出，會動態看市場反應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm)
+
+---
+
+# 全國兩會｜霍啟剛稱政府工作報告穩大局　吳秋北指香港有更多發展
+
+  
+
+國務院總理李強發表內任第二份政府工作報告，在北京，港區人大代表霍啟剛表示，當前確實面臨很多挑戰，世界局面正在變化，工作報告有「穩大局」面向世界的角色，同時「穩信心」，對過往一年的經濟指標給予肯定。他又認為報告為未來的前進步伐提供清晰路徑及藍圖。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
+
+---
+
+# 恒指下午初段升逾400點
+
+![恒生指數較早時報23361點，升419點，升幅1.83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794358_1_20250305131459.jpg&q=75)
+  
+
+港股下午開市初段升逾400點，恒生指數較早時報23361點，升419點，升幅1.83%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm)
+
+---
+
+# 全國兩會｜市監總局將制定出台直播電商監管辦法規範直播交易行為
+
+  
+
+國家市場監管總局局長羅文表示，部分主播惡意炒作，虛假行銷，帶來假冒偽劣產品現象比較突出，消費者反映強烈亦十分突出。市監總局將壓實平台審核責任，加強產品品質專項抽檢，加大監管執法力度，嚴厲打擊虛假廣告、虛假宣傳等行為，維護公平競爭秩序，不斷提升網售產品品質。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm)
+
+---
+
+# 有桌球賽觀眾被要求提早離場　羅淑佩指主辦單位安排非常不理想
+
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結就有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm)
+
+---
+
+# 全國兩會｜恒生：內地今年經濟增長5%左右目標符合預期
+
+![恒生銀行首席經濟師薛俊昇表示，政府工作報告提出今年內地經濟增長目標5%左右，符合預期，預測今年內地經濟將增長4.9%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794356_1_20250305131302.jpg&q=50)
+  
+
+國務院總理李強在政府工作報告表示，今年經濟增長目標5%左右，赤字率計劃按4%左右安排，比上年提高1個百分點。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm)
+
+---
+
 # 銅鑼灣「醫衞醫療中心」疑不當處理醫療器材被暫時吊銷牌照
 
   

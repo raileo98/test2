@@ -1,3 +1,119 @@
+# 財政預算案2025｜孫玉菡稱有信心助社福機構面對撥款減幅
+
+  
+
+財政預算案提出至2027/28年度，累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，社福機構撥款需要削減，當局將推行鬆綁措施，有信心能幫助機構面對減幅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm)
+
+---
+
+# 甯漢豪稱勿忘過去多年承受土地不足痛苦　指規劃及造地要持續進行
+
+  
+
+發展局局長甯漢豪表示，未來幾年原本有幾幅沙田石門的商業地，考慮到今年度推售沙田小瀝源住宅地市場反應幾好，有空間可改劃住宅用途，但何時推出，會動態看市場反應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm)
+
+---
+
+# 全國兩會｜霍啟剛稱政府工作報告穩大局　吳秋北指香港有更多發展
+
+  
+
+國務院總理李強發表內任第二份政府工作報告，在北京，港區人大代表霍啟剛表示，當前確實面臨很多挑戰，世界局面正在變化，工作報告有「穩大局」面向世界的角色，同時「穩信心」，對過往一年的經濟指標給予肯定。他又認為報告為未來的前進步伐提供清晰路徑及藍圖。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
+
+---
+
+# 恒指下午初段升逾400點
+
+![恒生指數較早時報23361點，升419點，升幅1.83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794358_1_20250305131459.jpg&q=75)
+  
+
+港股下午開市初段升逾400點，恒生指數較早時報23361點，升419點，升幅1.83%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm)
+
+---
+
+# 有桌球賽觀眾被要求提早離場　羅淑佩指主辦單位安排非常不理想
+
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結就有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm)
+
+---
+
 # 銅鑼灣「醫衞醫療中心」疑不當處理醫療器材被暫時吊銷牌照
 
   
@@ -1317,127 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794187-20250304.htm)
-
----
-
-# 旅發局「香港盛匯超級三月」與逾1500間商舖推優惠
-
-![旅發局推出「香港盛匯超級三月」推廣活動。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_2_20250304171141.jpg&q=85)
-![香港國際七人欖球賽本月於啟德體育園舉辦。 （旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794180_3_20250304171141.jpg&q=85)
-  
-
-本港在3月份有多項國際盛事舉行，旅遊發展局推出「香港盛匯超級三月」推廣活動，與超過1500間商舖推出多項優惠，提供 160多項餐飲、購物及娛樂優惠。旅發局總幹事程鼎一表示，旅發局將串連城中不同盛事，加大宣傳力度，就相關推廣活動制定攻略，涵蓋全方位需要，希望延長旅客逗留時間及刺激消費，擴大盛事效益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794180-20250304.htm)
-
----
-
-# 去年訪港旅客人均消費按年跌兩成　內地客近年新低跌至5000元
-
-![旅發局會繼續推廣「旅遊+」以及「盛事+」，希望令旅客感到「一場來到」都願意多消費。 （新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_1_20250304170903.jpg&q=35)
-![本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794179_2_20250304171004.jpg&q=90)
-  
-
-旅遊發展局數據顯示，本港去年整體旅客人均消費為5500元，較2023年的6900元下跌兩成。 仍是本港最大客源的內地旅客，人均消費下跌至5000元，是自2017年以來最低；非內地旅客消費表現較佳，人均消費6600元，當中長途市場旅客人均消費7500元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm)
-
----
-
-# 前藝人王賢誌入稟申請破產　法庭正式頒布破產令
-
-![聆案官核對所需文件，確認沒有任何人反對，正式頒令王賢誌破產。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794178_1_20250304165814.jpg&q=85)
-  
-
-前藝人王賢誌去年入稟申請破產，案件上月開庭處理時有債權人到庭旁聽，懷疑王賢誌向其借貸時隱瞞負債，聆案官當時已清晰表示此非反對破產令的理由。破產案今日在高等法院再訊，聆案官黃健棠核對所需文件，確認沒有任何人反對王賢誌破產後，正式頒令王賢誌破產。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm)
-
----
-
-# 陳美寶：空運物流帶動香港貿易和經濟發展屬本港重要支柱
-
-![陳美寶表示，希望簡化中轉貨物規管架構和法例法規，盡量發揮香港自由港特色。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794175_1_20250304165325.jpg&q=30)
-  
-
-運輸及物流局局長陳美寶表示，香港機場成績有目共睹，尤其本港近年面對政治或社會情況挑戰，即使疫情亦無損香港機場在空運、貨運、物流方面表現。去年整體空運貨物吞吐量動力持續，錄得超過490萬公噸，較2023年升14%。她說，整體空運貨物佔香港外貿總值45%，認為空運物流帶動香港貿易和經濟發展，是本港重要支柱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm)
-
----
-
-# 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=80)
-  
-
-高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm)
 
 ---
