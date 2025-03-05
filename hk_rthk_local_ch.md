@@ -1,3 +1,27 @@
+# 恒指半日升378點　長和升逾21%
+
+![恒指早段曾升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升幅1.65%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794339_1_20250305121134.jpg&q=1)
+  
+
+港股重上23000點，恒生指數早段高見23513點，升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升378點，升幅1.65%，半日主板成交額近1352億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm)
+
+---
+
 # 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
 
   
@@ -46,6 +70,7 @@
 
 # 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
 
+![李家超列席第十四屆全國人民代表大會第三次會議開幕會。（李家超社交專頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794336_1_20250305121454.jpg&q=55)
   
 
 行政長官李家超列席第十四屆全國人民代表大會第三次會議開幕會。對於總理李強在政府工作報告中，指出要全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」原則；支持香港發展經濟、改善民生，深化國際交往合作，更好融入國家發展大局，保持香港長期繁榮穩定。總理又提到，要提升粵港澳大灣區等經濟發展優勢區域的創新能力和輻射帶動作用。
@@ -1416,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794166-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794166-20250304.htm)
-
----
-
-# 本港2月住宅樓宇買賣合約註冊量按月跌約12%
-
-![本港2月送交註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794163_1_20250304151750.jpg&q=45)
-  
-
-本港2月送交土地註冊處註冊的住宅樓宇買賣合約3200份，按月下跌11.7%，按年上升34.7%；合約總值230億元，按月下跌13.9%，按年上升20.5%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794163-20250304.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 恒指半日升378點　長和升逾21%
+
+![恒指早段曾升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升幅1.65%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794339_1_20250305121134.jpg&q=1)
+  
+
+港股重上23000點，恒生指數早段高見23513點，升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升378點，升幅1.65%，半日主板成交額近1352億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm)
+
+---
+
 # 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
 
   
@@ -1411,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm)
-
----
-
-# 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
-
-![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
-![夏寶龍希望代表以高度的責任感及使命感，認真依法履職，積極反映民意、建言獻策。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_2_20250304215734.jpg&q=75)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍下午到北京飯店，看望出席十四屆全國人大三次會議的香港及澳門特別行政區全國人大代表。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
 
 ---

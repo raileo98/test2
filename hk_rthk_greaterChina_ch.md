@@ -1,3 +1,49 @@
+# 全國兩會｜國防預算17800多億元　增幅逾7%
+
+  
+
+國家財政部公布，今年的國防預算約為17847億元人民幣，增長7.2%。增幅與去年相同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794344-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794344-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794344-20250305.htm)
+
+---
+
+# 全國兩會｜交通運輸部長劉偉稱工作重點將包括強化樞紐功能
+
+  
+
+國家交通運輸部部長劉偉表示，去年全國全社會物流成本，總共減低大約4000億元，其中交通成本降低2800億元，佔三分二左右。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794343-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794343-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794343-20250305.htm)
+
+---
+
 # 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
 
   
@@ -23,6 +69,7 @@
 
 # 全國兩會｜教育部懷進鵬稱今年將發布人工智能教育白皮書
 
+![懷進鵬說，中國今年將發布人工智能教育白皮書，為學生提供更好的數字化、智能化時代素養和能力。 （新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794340_1_20250305122427.jpg&q=90)
   
 
 在北京，十四屆全國人大三次會議今日開幕，國家教育部部長懷進鵬表示，Deep Seek和機器人在最近一段時間引起國內外廣泛關注，一方面說明中國科技創新和人才培養的效果，同時亦提出面對重大科技變化和產業變革，教育要如何應對。
@@ -46,6 +93,7 @@
 
 # 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
 
+![李家超列席第十四屆全國人民代表大會第三次會議開幕會。（李家超社交專頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794336_1_20250305121454.jpg&q=55)
   
 
 行政長官李家超列席第十四屆全國人民代表大會第三次會議開幕會。對於總理李強在政府工作報告中，指出要全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」原則；支持香港發展經濟、改善民生，深化國際交往合作，更好融入國家發展大局，保持香港長期繁榮穩定。總理又提到，要提升粵港澳大灣區等經濟發展優勢區域的創新能力和輻射帶動作用。
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794164-20250304.htm)
-
----
-
-# 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
-
-![陳思源表示，正全方位開展跨境詐騙的執法合作。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794161_1_20250304164852.jpg&q=85)
-  
-
-全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm)
-
----
-
-# 全國兩會｜全國政協會議正式開幕
-
-![全國政協會議在北京大會堂開幕。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794158_1_20250304152201.jpg&q=50)
-  
-
-全國政協十四屆三次會議下午在北京人民大會堂開幕，中共中央總書記、國家主席、軍委主席習近平等黨和國家領導人出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794158-20250304.htm)
 
 ---

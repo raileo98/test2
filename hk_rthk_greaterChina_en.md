@@ -1,3 +1,28 @@
+# Chinese firms double down on tech: Xiaomi, Haier
+
+![Xiaomi chairman Lei Jun appreciated the support of the central government, following a meeting of representatives from the private sector with President Xi Jinping. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_1_20250305112824.jpg&q=85)
+![Zhou Junjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=85)
+  
+
+Chinese companies are doubling down on innovation as part of efforts to contribute to the national drive of developing "new quality productive forces", with leaders convening in Beijing for the annual Two Sessions meetings.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
+
+---
+
 # 'China's economic goals reasonable and attainable'
 
 ![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=75)
@@ -120,7 +145,7 @@ China on Wednesday said it will boost support for the application of AI models t
 
 # China GDP growth tipped to reach 5pc in 2025
 
-![Premier Li Qiang delivers the government work report. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794288_2_20250305093057.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794288_2_20250305093057.jpg&q=90)
   
 
 China on Wednesday said it will aim for economic growth of around 5 percent in 2025.
@@ -1413,29 +1438,5 @@ The so-called "update" to the Taiwan fact sheet displayed on the US State Depart
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1792015-20250217.htm)
-
----
-
-# President Xi attends gathering on private enterprises
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791960_1_20250217130159.jpg&q=80)
-  
-
-President Xi Jinping on Monday called for efforts to promote the healthy and high-quality development of China's private sector.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791960-20250217.htm)
 
 ---
