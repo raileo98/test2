@@ -96,7 +96,7 @@ President Volodymyr Zelensky on Tuesday said he wanted to "make things right" wi
 
 # CK Hutchison to sell Panama unit after Trump pressure
 
-![The sale to a Blackrock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=25)
+![The sale to a BlackRock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=25)
   
 
 Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama Canal port operator to a BlackRock Inc-backed consortium, following intense pressure from US President Donald Trump.
