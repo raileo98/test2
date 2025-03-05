@@ -1,3 +1,31 @@
+# 羅馬尼亞將兩名俄外交官列「不受歡迎的人」　俄方稱將有措施回應
+
+  
+
+羅馬尼亞將兩名俄羅斯駐當地使館外交官，列為「不受歡迎的人」，俄羅斯外交部就表示，將採取措施回應。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm)
+
+---
+
 # 烏美官員通電話同意舉行進一步會談
 
   
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm)
-
----
-
-# 商務部促美方立即撤回單邊關稅措施　將採取反制措施維護自身權益
-
-![商務部敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794097_1_20250304090429.jpg&q=70)
-  
-
-美國政府以芬太尼等問題為由，宣布從當地星期二起，對中國輸美產品再次加徵關稅。中方對此強烈不滿，堅決反對，將採取反制措施堅定維護自身權益，敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm)
 
 ---

@@ -1,3 +1,31 @@
+# 羅馬尼亞將兩名俄外交官列「不受歡迎的人」　俄方稱將有措施回應
+
+  
+
+羅馬尼亞將兩名俄羅斯駐當地使館外交官，列為「不受歡迎的人」，俄羅斯外交部就表示，將採取措施回應。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm)
+
+---
+
 # 烏美官員通電話同意舉行進一步會談
 
   
@@ -1700,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm)
-
----
-
-# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
-
-![中方反對在國際經貿關係中濫施脅迫、施壓的手段。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794387_1_20250305161843.jpg&q=25)
-  
-
-對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
 
 ---
