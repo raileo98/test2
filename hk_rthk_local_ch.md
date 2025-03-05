@@ -1,3 +1,89 @@
+# 桌球賽有賽事未完結就要求觀眾離場　羅淑佩：非常不理想
+
+  
+
+在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，昨晚有賽事未完結就要求觀眾提早離場，賽事組委會發聲明致歉及提出補償方案。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794424-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794424-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794424-20250305.htm)
+
+---
+
+# 桌球大獎賽截至下午4時組委會接獲30名觀眾查詢涉51張門票
+
+![賽事組委會表示，其餘觀眾將獲安排陸續領取今日或明日賽事的門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794421_1_20250305180501.jpg&q=85)
+  
+
+世界格蘭披治桌球大獎賽昨晚其中一場賽事，有觀眾在賽事未完結前，被要求提早離場，賽事組委會提出補償方案，持有昨晚7時半的1號枱門票的觀眾，可於今明兩日憑票尾兌換今明兩日任何場次同等票價的可售門票。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm)
+
+---
+
+# 8歲男童感染乙型流感併發心肌炎情況危殆　已接種流感疫苗
+
+![連同這名男童，流感季節自1月初開始以來，中心累計已接獲10宗兒童感染流感病毒的嚴重個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794420_1_20250305180156.jpg&q=80)
+  
+
+一名過往健康良好、已接種本年度的季節性流感疫苗的8歲男童，感染乙型流感併發心肌炎，目前情況危殆，男童潛伏期內沒有外遊，他的兩名家居接觸者近日亦出現上呼吸道病徵。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794420-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794420-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794420-20250305.htm)
+
+---
+
 # 財政預算案2025｜機場離境稅修訂條例周五刊憲若通過十月生效
 
 ![政府發言人說，飛機乘客離境稅的建議增幅只佔一般市民和訪港旅客的整體出行成本很小部分。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794418_1_20250305175642.jpg&q=80)
@@ -145,7 +231,7 @@
 
 # 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
 
-![鄭志剛表示，香港作為國家對外開放重要窗口，在推動中外文化交流方面具有獨特優勢。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=80)
   
 
 全國政協香港小組下午舉行會議，討論全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
@@ -554,7 +640,6 @@
 
 # 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
 
-![王冬勝說，國家今年有很多新計劃，有信心能夠達到增長5%水平。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_1_20250305155310.jpg&q=80)
 ![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
 ![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
 ![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=75)
@@ -1653,93 +1738,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm)
-
----
-
-# 縱容囚犯管有手提電話及帶香煙　兩名懲教助理及一囚犯還押候判
-
-![法官指，32歲囚犯實屬主腦，服刑時犯案理應加刑，案件押後至下月8日判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794236_1_20250304222237.jpg&q=80)
-  
-
-兩名懲教助理2020年縱容32歲囚犯在塘福懲教所管有及使用手提電話，並為囚犯將未經授權香煙帶進監獄，連同另外兩名涉案釋囚被控串謀觸犯公職人員行為不當等罪。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm)
-
----
-
-# 蔡若蓮讚揚吳家瑋致力以科研推動香港邁向知識型經濟轉型
-
-![蔡若蓮說，吳家瑋領導創立科大，擔任科大校長期間為學校發展奠定堅實基礎。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794235_1_20250304220652.jpg&q=80)
-  
-
-科大創校校長吳家瑋離世，終年87歲，教育局局長蔡若蓮深表哀悼，並向其家人致以最深切的慰問。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm)
-
----
-
-# 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
-
-![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
-![夏寶龍希望代表以高度的責任感及使命感，認真依法履職，積極反映民意、建言獻策。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_2_20250304215734.jpg&q=75)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍下午到北京飯店，看望出席十四屆全國人大三次會議的香港及澳門特別行政區全國人大代表。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
 
 ---

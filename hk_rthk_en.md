@@ -1,3 +1,32 @@
+# 'Mild inflation target still a concern'
+
+![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=90)
+  
+
+Economists have struck a cautious note on China's plan to lower the nation's inflation target from three to two percent in the coming year, citing prolonged deflationary pressure.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm)
+
+---
+
 # CPPCC member slams extra US tariffs on China
 
 ![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=75)
@@ -1708,34 +1737,5 @@ US President Donald Trump said on Monday that 25 percent taxes on imports from M
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm)
-
----
-
-# 'No major policy shifts at Two Sessions expected'
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793998_1_20250303165106.jpg&q=75)
-  
-
-A local economics academic said he does not expect major policy shifts in the "Two Sessions" meetings in Beijing, saying it's important for the central government to focus on stabilising sentiment and continuing with high-quality growth.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
 
 ---

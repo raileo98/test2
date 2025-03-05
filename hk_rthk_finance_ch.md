@@ -1,3 +1,31 @@
+# 全國兩會｜馬建堂：國家就美國關稅措施一定會認真準備應對預案
+
+  
+
+全國政協經濟委員會副主任馬建堂相信，國家有關部門就美國對中國的關稅措施一定會認真準備應對預案，按國家利益，準確精準反制。他指出，中國是經濟大國，以內需為主，有超大規模市場及非常健全產業體系，雖然不願見到衝擊，但一定可以度過難關。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm)
+
+---
+
 # 財政預算案2025｜機場離境稅修訂條例周五刊憲若通過十月生效
 
 ![政府發言人說，飛機乘客離境稅的建議增幅只佔一般市民和訪港旅客的整體出行成本很小部分。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794418_1_20250305175642.jpg&q=80)
@@ -604,7 +632,6 @@
 
 # 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
 
-![王冬勝說，國家今年有很多新計劃，有信心能夠達到增長5%水平。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_1_20250305155310.jpg&q=80)
 ![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
 ![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
 ![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=75)
@@ -1690,34 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm)
-
----
-
-# 港股高開258點     長和升近一成半
-
-![港股高開258點，當中長和（圖）股價升近一成半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794293_1_20250305092624.jpg&q=30)
-  
-
-港股高開258點，恒指競價時段報23200點。當中公布計劃出售非中國港口資產的長和股價急升近一成半。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm)
 
 ---

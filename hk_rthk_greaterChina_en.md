@@ -1,3 +1,32 @@
+# 'Mild inflation target still a concern'
+
+![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=90)
+  
+
+Economists have struck a cautious note on China's plan to lower the nation's inflation target from three to two percent in the coming year, citing prolonged deflationary pressure.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm)
+
+---
+
 # CPPCC member slams extra US tariffs on China
 
 ![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=75)
@@ -1708,34 +1737,5 @@ Myanmar on Thursday handed over the first batch of hundreds of Chinese scam cent
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm)
-
----
-
-# 'Constructive' talks after China blasts tariffs at WTO
-
-![The US, Nicaragua, Namibia, Malaysia, Trinidad and Tobago and Russia took part in the WTO discussions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792389_2_20250220104914.jpg&q=90)
-  
-
-The World Trade Organization (WTO) said on Wednesday that discussions on trade tensions were "constructive", after China accused the US of imposing "tariff shocks" that could upend the global trading system.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
 
 ---

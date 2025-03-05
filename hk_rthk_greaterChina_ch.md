@@ -1,3 +1,60 @@
+# 全國兩會｜李強：堅持獨立自主的和平外交政策
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794410_1_20250305181925.jpg&q=85)
+  
+
+國務院總理李強回顧去年工作時提到，國家主席習近平等黨和國家領導人出訪多國，推動構建人類命運共同體，為促進世界和平與發展作出了重要貢獻。李強說中國反對霸權主義和強權政治，要堅持獨立自主的和平外交政策，堅持走和平發展道路，堅定奉行互利共贏的開放戰略。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794410-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794410-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794410-20250305.htm)
+
+---
+
+# 全國兩會｜馬建堂：國家就美國關稅措施一定會認真準備應對預案
+
+  
+
+全國政協經濟委員會副主任馬建堂相信，國家有關部門就美國對中國的關稅措施一定會認真準備應對預案，按國家利益，準確精準反制。他指出，中國是經濟大國，以內需為主，有超大規模市場及非常健全產業體系，雖然不願見到衝擊，但一定可以度過難關。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm)
+
+---
+
 # 全國兩會｜譚炯提出強化投融資機制　支持國家重大項目建設
 
 ![譚炯稱要健全政府投資支持基礎性、公益性、長遠性重大項目建設長效機制。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794417_1_20250305175521.jpg&q=80)
@@ -203,7 +260,7 @@
 
 # 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
 
-![鄭志剛表示，香港作為國家對外開放重要窗口，在推動中外文化交流方面具有獨特優勢。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=80)
   
 
 全國政協香港小組下午舉行會議，討論全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
@@ -580,7 +637,6 @@
 
 # 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
 
-![王冬勝說，國家今年有很多新計劃，有信心能夠達到增長5%水平。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_1_20250305155310.jpg&q=80)
 ![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
 ![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
 ![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=75)
@@ -1674,63 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm)
-
----
-
-# 全國兩會｜十四屆全國人大三次會議開幕
-
-![第十四屆全國人大三次會議開幕會在北京人民大會堂舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794284_1_20250305091451.jpg&q=15)
-  
-
-第十四屆全國人大三次會議，今早9時在北京人民大會堂開幕。總理李強發表任內第二份政府工作報告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm)
-
----
-
-# 全國兩會｜雷軍感受中央關心民企　周雲傑稱堅守創新
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794283_1_20250305085141.jpg&q=85)
-  
-
-全國人大代表、小米集團董事長雷軍表示，上月17日參加了由中共總書記、國家主席習近平主持召開的民營企業座談會，感受到中央對民營企業的關心與支持。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794283-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794283-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794283-20250305.htm)
 
 ---

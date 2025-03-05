@@ -1,3 +1,32 @@
+# 桌球大獎賽截至下午4時組委會接獲30名觀眾查詢涉51張門票
+
+![賽事組委會表示，其餘觀眾將獲安排陸續領取今日或明日賽事的門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794421_1_20250305180501.jpg&q=85)
+  
+
+世界格蘭披治桌球大獎賽昨晚其中一場賽事，有觀眾在賽事未完結前，被要求提早離場，賽事組委會提出補償方案，持有昨晚7時半的1號枱門票的觀眾，可於今明兩日憑票尾兌換今明兩日任何場次同等票價的可售門票。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm)
+
+---
+
 # 桌球大獎賽消委會接7宗投訴　其中一宗與被要求離開有關
 
 ![消委會表示，截至今早，共接獲7宗投訴，其中1宗與賽事進行至接近午夜時，被要求離開有關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794390_1_20250305160004.jpg&q=75)
@@ -1712,34 +1741,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm)
-
----
-
-# 涉高於原價放售啟德體育園開幕門票　三人被捕當中兩人根本無門票
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793109_1_20250225170743.jpg&q=85)
-  
-
-警方拘捕3人涉嫌在具名登記下，以高於原價出售啟德體育園開幕禮門票，有機會違反法例盜竊罪第16A條的欺詐罪，一經定罪可判處監禁14年。他們獲准保釋候查，3月下旬報到，不排除會更多人被捕。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm)
 
 ---
