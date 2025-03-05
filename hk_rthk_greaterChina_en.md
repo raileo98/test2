@@ -1,6 +1,5 @@
 # '5pc target is no easy feat but can be achieved'
 
-![Peter Wong said he's confident of achieving the growth target, judging from the stimulus measures rolled out over the past year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_1_20250305123650.jpg&q=85)
 ![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=85)
   
 

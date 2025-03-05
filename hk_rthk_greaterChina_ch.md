@@ -791,7 +791,7 @@
 
 # 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
 
-![陳思源表示，會持續打擊跨境詐騙罪案。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794307_1_20250305100447.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794307_1_20250305100447.jpg&q=75)
   
 
 全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
@@ -1031,7 +1031,7 @@
 
 # 全國兩會｜董經緯：香港維護國家安全法律體系越來越完善
 
-![董經緯指出，《香港國安法》的實施給香港一國兩制長遠發展帶來了有力保障。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794289_1_20250305093534.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794289_1_20250305093534.jpg&q=80)
   
 
 在北京，全國人大代表、中央駐港國安公署署長董經緯接受本台訪問時表示，《香港國安法》和維護國家安全條例，兩個法律渾然一體，香港維護國家安全的法律體系越來越完善，香港一國兩制行穩致遠更加有力保障。
