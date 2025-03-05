@@ -1,3 +1,31 @@
+# 海關檢42隻受管制瀕危物種活蜥蝪　藏奶粉罐抽濕機企圖偷運入境
+
+  
+
+42隻共約值21萬元的懷疑受管制屬瀕危物種的活蜥蝪，分別被收藏在抽濕機、空氣清新機及奶粉罐內，企圖以空運貨物形式偷運入境，被機場海關發現，案件轉交漁護署跟進。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm)
+
+---
+
 # 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
 
   
@@ -85,6 +113,7 @@
 
 # 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
 
+![鄭志剛表示，香港作為國家對外開放重要窗口，在推動中外文化交流方面具有獨特優勢。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=80)
   
 
 全國政協香港小組下午舉行會議，討論全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
@@ -113,6 +142,7 @@
 
 # 那打素醫院病人服務助理進行護理程序期間疑被非禮　警拘一名男子
 
+![院方高度關注事件，強烈譴責涉嫌非禮本院員工的行為，並會採取「零容忍」態度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794396_1_20250305170802.jpg&q=85)
   
 
 雅麗氏何妙齡那打素醫院一名病人服務助理，在內科病房為一名73歲男病人進行護理程序期間，懷疑被非禮。
@@ -774,6 +804,7 @@
 ![王冬勝說，國家今年有很多新計劃，有信心能夠達到增長5%水平。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_1_20250305155310.jpg&q=80)
 ![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
 ![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
+![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=75)
   
 
 內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。

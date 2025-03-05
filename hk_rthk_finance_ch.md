@@ -519,6 +519,7 @@
 ![王冬勝說，國家今年有很多新計劃，有信心能夠達到增長5%水平。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_1_20250305155310.jpg&q=80)
 ![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
 ![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
+![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=75)
   
 
 內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
