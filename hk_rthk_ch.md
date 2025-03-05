@@ -1,3 +1,90 @@
+# 味千料去年盈轉虧　虧損不多於4000萬元人民幣
+
+![味千中國預料去年虧損不多於4000萬元人民幣，由於錄得投資物業重估虧損、營運成本上升等所致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794445_1_20250305213126.jpg&q=85)
+  
+
+味千中國發盈利警告，預料去年虧損不多於4000萬元人民幣，前年盈利1.81億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm)
+
+---
+
+# 美股初段靠穩　道指升逾百點　美元指數跌穿105關口
+
+![美元指數跌穿105關口，一度跌至104.49附近，創近4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794454_1_20250305224218.jpg&q=90)
+  
+
+美股初段靠穩。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm)
+
+---
+
+# 美國停向烏方分享情報　若安排好和談並建立信任特朗普或恢復軍援
+
+![沃爾茲說，如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794453_1_20250305223835.jpg&q=90)
+  
+
+白宮國家安全顧問沃爾茲確認，美國已暫停向烏克蘭分享情報，又說如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm)
+
+---
+
 # 前小學校長被控挪用校董會一千多萬元　因被告身亡控方撤回控罪
 
 ![控方透露已取被告死亡證，申請撤回控罪，獲法庭批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794452_1_20250305223247.jpg&q=80)

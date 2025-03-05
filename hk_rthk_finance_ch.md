@@ -1,3 +1,61 @@
+# 味千料去年盈轉虧　虧損不多於4000萬元人民幣
+
+![味千中國預料去年虧損不多於4000萬元人民幣，由於錄得投資物業重估虧損、營運成本上升等所致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794445_1_20250305213126.jpg&q=85)
+  
+
+味千中國發盈利警告，預料去年虧損不多於4000萬元人民幣，前年盈利1.81億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm)
+
+---
+
+# 美股初段靠穩　道指升逾百點　美元指數跌穿105關口
+
+![美元指數跌穿105關口，一度跌至104.49附近，創近4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794454_1_20250305224218.jpg&q=90)
+  
+
+美股初段靠穩。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm)
+
+---
+
 # 全國兩會｜鄭雁雄籲港區人大「犯其至難而圖其至遠」意志擔當責任
 
 ![鄭雁雄說，香港實現高品質發展的動能，需用好內聯外通的優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794448_1_20250305221151.jpg&q=80)
@@ -1663,63 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm)
-
----
-
-# 港股升幅擴大至逾500點　長和股價升逾兩成
-
-![港股升幅擴大至逾500點，長和股價升逾兩成。(港台圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794308_1_20250305095621.jpg&q=20)
-  
-
-港股升逾500點，恒生指數高見23513點，最新報23488點，升546點。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm)
-
----
-
-# 全國兩會｜李強：穩定擴大就業　讓多勞者、技高者及創新者多得
-
-![李強在政府工作報告指出，提高技能人才待遇水準，讓多勞者多得、技高者多得、創新者多得。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794311_1_20250305103932.jpg&q=85)
-  
-
-國務院總理李強在政府工作報告指出，要更大力度穩定和擴大就業，完善就業優先政策，加大各類資金資源統籌支持力度，促進充分就業、提高就業質量，實施重點領域、重點行業、城鄉基層和中小微企業就業支持計劃，用足用好穩崗返還、稅費減兔、就業補貼等政策。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm)
 
 ---

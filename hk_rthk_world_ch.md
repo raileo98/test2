@@ -1,3 +1,32 @@
+# 美國停向烏方分享情報　若安排好和談並建立信任特朗普或恢復軍援
+
+![沃爾茲說，如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794453_1_20250305223835.jpg&q=90)
+  
+
+白宮國家安全顧問沃爾茲確認，美國已暫停向烏克蘭分享情報，又說如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm)
+
+---
+
 # 南韓指援俄北韓軍人接受俄方無人機操作培訓
 
 ![金正恩去年曾視察無人機測試。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794439_1_20250305205300.jpg&q=90)
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
-
----
-
-# 特朗普：台積電將在美國新投資至少1000億美元
-
-![特朗普與商務部長盧特尼克（左）及魏哲家（右）陪同下在白宮會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794075_1_20250304052431.jpg&q=90)
-  
-
-美國總統特朗普說，晶片製造商台積電將在美國再投資至少1000億美元，興建尖端晶片製造設施。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm)
 
 ---
