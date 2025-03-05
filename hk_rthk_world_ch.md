@@ -1,3 +1,51 @@
+# 聯合國警告若加沙有關口岸續關閉將為民眾帶來毀滅性後果
+
+![人道主義物資准入對加沙民眾來說是至關重要。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794278_1_20250305082639.jpg&q=90)
+  
+
+聯合國人道主義事務協調廳發表報告，指出通往加沙地帶的凱雷姆沙洛姆口岸、齊基姆口岸及埃雷茲口岸，連續第三日禁止貨物通行，警告有關口岸若繼續被關閉，將為剛開始從貧困及饑餓中見到曙光的加沙民眾，帶來毀滅性後果。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm)
+
+---
+
+# 白宮官員據報與澤連斯基團隊秘密會談　促烏方讓談判重回正軌
+
+![特朗普（右）日前在白宮與澤連斯基（左）不歡而散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794277_1_20250305081348.jpg&q=85)
+  
+
+美國總統特朗普日前在白宮與烏克蘭總統澤連斯基不歡而散的事件，餘波未了，白宮高級官員據報與澤連斯基團隊進行秘密會談。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm)
+
+---
+
 # 《環看天下》：特朗普提高對華商品關稅至20%　中方採反制措施
 
 ![美國國內有專家質疑特朗普指關稅措施能惠及國民的說法。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794273_1_20250305073756.jpg&q=85)
@@ -166,7 +214,7 @@
 
 ---
 
-# 克宮：普京沒有及與美國聯合開採稀土
+# 克宮：普京未提及與美國聯合開採稀土
 
 ![佩斯科夫表示，俄美關係正常化應該包括美國解除對俄制裁。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794249_1_20250305032959.jpg&q=90)
   
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794042-20250303.htm)
-
----
-
-# 克宮：澤連斯基政權不希望和平　應要有人迫使他改變
-
-![佩斯科夫表示，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794034_1_20250303204549.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，烏克蘭總統澤連斯基的政權不希望和平，希望俄烏戰爭繼續下去。俄方認為，應該要有人迫使澤連斯基改變立場及實現和平，這一點非常重要。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794034-20250303.htm)
-
----
-
-# 澤連斯基稱烏克蘭需和平而非戰爭　指歐洲所有人將形成共同立場
-
-![澤連斯基說穩固而持久的和平，以及關於結束衝突的正確協議，是歐洲共同的真正優先事項。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794040_1_20250303214159.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基在網上發布片段，表示烏克蘭需要和平，而非無休止的戰爭，強調安全保障是實現這個目標的關鍵。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794040-20250303.htm)
 
 ---

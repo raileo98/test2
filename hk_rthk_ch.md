@@ -1,3 +1,99 @@
+# 聯合國警告若加沙有關口岸續關閉將為民眾帶來毀滅性後果
+
+![人道主義物資准入對加沙民眾來說是至關重要。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794278_1_20250305082639.jpg&q=90)
+  
+
+聯合國人道主義事務協調廳發表報告，指出通往加沙地帶的凱雷姆沙洛姆口岸、齊基姆口岸及埃雷茲口岸，連續第三日禁止貨物通行，警告有關口岸若繼續被關閉，將為剛開始從貧困及饑餓中見到曙光的加沙民眾，帶來毀滅性後果。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm)
+
+---
+
+# 韓股初段升逾1%
+
+![首爾綜合指數較早時報2557點，升28點，升幅1.15%。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794276_1_20250305080950.jpg&q=90)
+  
+
+南韓股市在開市初段升逾1%，首爾綜合指數較早時報2557點，升28點，升幅1.15%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794276-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794276-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794276-20250305.htm)
+
+---
+
+# 日股初段靠穩
+
+![日經平均指數較早時報37389點，升58點，升幅0.16%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794275_1_20250305080746.jpg&q=25)
+  
+
+日本股市在開市初段靠穩，日經平均指數較早時報37389點，升58點，升幅0.16%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm)
+
+---
+
+# 白宮官員據報與澤連斯基團隊秘密會談　促烏方讓談判重回正軌
+
+![特朗普（右）日前在白宮與澤連斯基（左）不歡而散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794277_1_20250305081348.jpg&q=85)
+  
+
+美國總統特朗普日前在白宮與烏克蘭總統澤連斯基不歡而散的事件，餘波未了，白宮高級官員據報與澤連斯基團隊進行秘密會談。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm)
+
+---
+
 # 威廉姆斯：關稅帶來通脹風險　利率政策仍處於良好位置
 
 ![紐約聯儲銀行總裁威廉姆斯預計，特朗普政府的關稅政策將在一定程度上推高美國通脹，仍存有很多不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794274_1_20250305073549.jpg&q=75)
@@ -430,7 +526,7 @@
 
 ---
 
-# 克宮：普京沒有及與美國聯合開採稀土
+# 克宮：普京未提及與美國聯合開採稀土
 
 ![佩斯科夫表示，俄美關係正常化應該包括美國解除對俄制裁。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794249_1_20250305032959.jpg&q=90)
   
@@ -1343,101 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794201-20250304.htm)
-
----
-
-# 全國兩會｜余國樑：港隊目標在今屆全運會乒乓球項目可打入八強
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794208_1_20250304190316.jpg&q=80)
-  
-
-在北京，全國政協委員、中國香港乒乓總會主席余國樑說，今屆全運會乒乓球項目在澳門舉行，各省市都會派出精英參與，港隊暫時未有心水名單，但目標可以打入八強。他說，港隊的黃鎮廷與杜凱琹年紀漸長，有計劃推動年青運動員，認為他們成績理想，但需要累積更多經驗。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794208-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794208-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794208-20250304.htm)
-
----
-
-# 全國兩會｜劉永好：如何適應新形勢為民企最大挑戰
-
-![劉永好表示，目前民營企業面對的最大挑戰是如何適應新形勢。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794206_1_20250304182907.jpg&q=75)
-  
-
-國家主席習近平上月出席民營企業座談會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm)
-
----
-
-# 全國兩會｜人大會議明日召開　七項議程未提民營經濟促進法
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794205_1_20250304184051.jpg&q=80)
-  
-
-第十四屆全國人大三次會議明日上午在北京召開，下星期二閉幕，會期七日。今次大會有七項議程，包括審議政府工作報告、國民經濟與社會發展計劃草案等，但沒有提及備受關注的《民營經濟促進法》草案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm)
-
----
-
-# 訪港旅客去年人均消費較前年減少1400元
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794207_1_20250304183434.jpg&q=80)
-  
-
-旅發局數據顯示，去年訪港旅客人均消費，比前年減少1400元，內地旅客更加減少1500元。旅發局表示，今年會加強對外宣傳，營造「全年無休」的體驗。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm)
 
 ---

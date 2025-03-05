@@ -1,3 +1,51 @@
+# 韓股初段升逾1%
+
+![首爾綜合指數較早時報2557點，升28點，升幅1.15%。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794276_1_20250305080950.jpg&q=90)
+  
+
+南韓股市在開市初段升逾1%，首爾綜合指數較早時報2557點，升28點，升幅1.15%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794276-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794276-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794276-20250305.htm)
+
+---
+
+# 日股初段靠穩
+
+![日經平均指數較早時報37389點，升58點，升幅0.16%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794275_1_20250305080746.jpg&q=25)
+  
+
+日本股市在開市初段靠穩，日經平均指數較早時報37389點，升58點，升幅0.16%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm)
+
+---
+
 # 威廉姆斯：關稅帶來通脹風險　利率政策仍處於良好位置
 
 ![紐約聯儲銀行總裁威廉姆斯預計，特朗普政府的關稅政策將在一定程度上推高美國通脹，仍存有很多不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794274_1_20250305073549.jpg&q=75)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794145-20250304.htm)
-
----
-
-# 全國兩會｜港澳屬國家對外重要窗口　全力支持參與大灣區建設
-
-![婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794142_1_20250304134623.jpg&q=90)
-  
-
-全國人大會議新聞發言人婁勤儉表示，香港及澳門一直是國家對外開放的重要窗口，地位獨特、貢獻重大、作用不可替代。中央出台一系列政策舉措，全力支持港澳參與粵港澳大灣區建設。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794142-20250304.htm)
-
----
-
-# 全國兩會｜常委會續審議各方意見　推動民營經濟促進法盡快出台
-
-![婁勤儉說民營經濟伴隨改革開放偉大歷史蓬勃發展，是國家社會主義市場經濟的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794139_1_20250304134339.jpg&q=90)
-  
-
-在北京，全國人大會議新聞發言人婁勤儉回應《民營經濟促進法》立法進展時表示，將根據常委會繼續審議情況和各方面的意見建議，認真做好草案修改完善工作，推動法律盡快出台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm)
 
 ---
