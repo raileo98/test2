@@ -1,3 +1,32 @@
+# NZ crush South Africa to reach Champions Trophy final
+
+![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=90)
+  
+
+Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50-run win over South Africa in Lahore to set up a rematch with India in the Champions Trophy final.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm)
+
+---
+
 # LeBron James first NBA player ever to score 50,000 pts
 
 ![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=90)
@@ -1715,34 +1744,5 @@ Jannik Sinner has accepted a three-month ban from tennis after the world number 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791789-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791789-20250215.htm)
-
----
-
-# Under-fire Guardiola mocks Liverpool
-
-![Manchester City coach Pep Guardiola says Liverpool's point tally falls short of the champions' record. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791728_1_20250215090255.jpg&q=90)
-  
-
-Pep Guardiola has taunted Premier League leaders Liverpool over their failure to match Manchester City's record 100-point tally.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791728-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791728-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791728-20250215.htm)
 
 ---
