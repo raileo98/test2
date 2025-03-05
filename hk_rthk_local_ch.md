@@ -1,3 +1,32 @@
+# 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
+
+![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=75)
+  
+
+截至2025年3月5日下午5時，消費者委員會共接獲10宗與「世界格蘭披治桌球大獎賽」相關的投訴，其中7宗涉及消費者對心儀球員退賽的不滿，認為未能觀賞該球員參與的賽事是貨不對辦；另有3宗則涉及3月4日晚部分觀眾不滿在比賽結束前被要求提早離場，10宗個案涉及金額共16885元。消委會正積極與主辦單位聯絡處理個案。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm)
+
+---
+
 # 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
 
   
@@ -1707,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm)
-
----
-
-# 全國兩會｜董經緯：香港維護國家安全法律體系越來越完善
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794289_1_20250305093534.jpg&q=80)
-  
-
-在北京，全國人大代表、中央駐港國安公署署長董經緯接受本台訪問時表示，《香港國安法》和維護國家安全條例，兩個法律渾然一體，香港維護國家安全的法律體系越來越完善，香港一國兩制行穩致遠更加有力保障。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm)
 
 ---

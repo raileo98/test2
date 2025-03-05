@@ -1,3 +1,32 @@
+# 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
+
+![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=75)
+  
+
+截至2025年3月5日下午5時，消費者委員會共接獲10宗與「世界格蘭披治桌球大獎賽」相關的投訴，其中7宗涉及消費者對心儀球員退賽的不滿，認為未能觀賞該球員參與的賽事是貨不對辦；另有3宗則涉及3月4日晚部分觀眾不滿在比賽結束前被要求提早離場，10宗個案涉及金額共16885元。消委會正積極與主辦單位聯絡處理個案。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm)
+
+---
+
 # 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
 
   
@@ -1687,34 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm)
-
----
-
-# 特朗普將於國會兩院聯席會議致辭　關稅措施及俄烏戰事等是關注點
-
-![今次是特朗普（中）再次就任總統後，首度向兩院發表講話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794297_1_20250305093422.jpg&q=80)
-  
-
-美國總統特朗普將在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm)
 
 ---

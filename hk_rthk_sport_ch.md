@@ -1,3 +1,32 @@
+# 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
+
+![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=75)
+  
+
+截至2025年3月5日下午5時，消費者委員會共接獲10宗與「世界格蘭披治桌球大獎賽」相關的投訴，其中7宗涉及消費者對心儀球員退賽的不滿，認為未能觀賞該球員參與的賽事是貨不對辦；另有3宗則涉及3月4日晚部分觀眾不滿在比賽結束前被要求提早離場，10宗個案涉及金額共16885元。消委會正積極與主辦單位聯絡處理個案。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm)
+
+---
+
 # 桌球大獎賽截至下午4時組委會接獲30名觀眾查詢涉51張門票
 
 ![賽事組委會表示，其餘觀眾將獲安排陸續領取今日或明日賽事的門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794421_1_20250305180501.jpg&q=85)
@@ -1712,34 +1741,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm)
-
----
-
-# 54名頂尖高爾夫球手下月「LIV Golf 香港站」競技
-
-![「LIV Golf 2025香港站」將於粉嶺球場上演，是「香港盛匯超級三月」一個重頭體育盛事。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793115_1_20250225181355.jpg&q=75)
-  
-
-54名世界頂尖高爾夫球手將於下月7日至9日在「LIV Golf 香港站」同場競技。知名韓裔 DJ 兼音樂製作人金敏姬將於下月8日的的第二輪比賽結束後，擔任表演嘉賓。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm)
 
 ---
