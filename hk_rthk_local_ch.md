@@ -1,3 +1,61 @@
+# 口岸爆炸案辯方質疑警長無法肯定閉路電視拍攝是否被告
+
+![口岸爆炸案高等法院踏入第64天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794426_1_20250305184541.jpg&q=80)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第64天審訊。控方今展示涉案手機通訊群組記錄，懷疑屬於被告楊怡斯的帳戶向群組發送將軍澳尚德停車場的相片，控方開案陳詞指，涉案群組成員計劃在當年3月於將軍澳放置炸彈。辯方盤問調查本案的偵緝警長時，質疑警長無法肯定閉路電視拍攝到的女子是楊怡斯，警長不同意。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm)
+
+---
+
+# 桌球大獎賽未完先要求觀眾離場　羅淑佩：主辦方與體育園需磨合
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794423_1_20250305184339.jpg&q=85)
+  
+
+世界格蘭披治桌球大獎賽一連六天於啟德體藝館上演，昨天首天賽事到晚上11時許尾場仍未結束，主辦方在現場發放訊息，要求觀眾離場，當時場內仍有約數十名觀眾。主辦方就事件致歉，安排受影響觀眾可以兌換今明兩天同等票價門票。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm)
+
+---
+
 # 桌球賽有賽事未完結就要求觀眾離場　羅淑佩：非常不理想
 
   
@@ -1679,64 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm)
-
----
-
-# 全國兩會｜十四屆全國人大三次會議開幕
-
-![第十四屆全國人大三次會議開幕會在北京人民大會堂舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794284_1_20250305091451.jpg&q=15)
-  
-
-第十四屆全國人大三次會議，今早9時在北京人民大會堂開幕。總理李強發表任內第二份政府工作報告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794284-20250305.htm)
-
----
-
-# 已登記會員周四起可預訂啟德體育園部分體育設施
-
-![啟德體育園部分設施陸續開放。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_1_20250305001230.jpg&q=20)
-![啟德青年運動場跑道徑下午5時後每位收費18元。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_2_20250305001230.jpg&q=90)
-  
-
-啟德體育園網站顯示，園內部分體育設施陸續開放，星期三早上10時起，公眾可查看11日內的設施租用情況。已登記會員可於星期四上午7時起，預訂未來10日內可供租用的體育運動設施。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm)
 
 ---

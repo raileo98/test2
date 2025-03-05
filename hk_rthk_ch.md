@@ -1,3 +1,61 @@
+# 口岸爆炸案辯方質疑警長無法肯定閉路電視拍攝是否被告
+
+![口岸爆炸案高等法院踏入第64天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794426_1_20250305184541.jpg&q=80)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第64天審訊。控方今展示涉案手機通訊群組記錄，懷疑屬於被告楊怡斯的帳戶向群組發送將軍澳尚德停車場的相片，控方開案陳詞指，涉案群組成員計劃在當年3月於將軍澳放置炸彈。辯方盤問調查本案的偵緝警長時，質疑警長無法肯定閉路電視拍攝到的女子是楊怡斯，警長不同意。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm)
+
+---
+
+# 桌球大獎賽未完先要求觀眾離場　羅淑佩：主辦方與體育園需磨合
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794423_1_20250305184339.jpg&q=85)
+  
+
+世界格蘭披治桌球大獎賽一連六天於啟德體藝館上演，昨天首天賽事到晚上11時許尾場仍未結束，主辦方在現場發放訊息，要求觀眾離場，當時場內仍有約數十名觀眾。主辦方就事件致歉，安排受影響觀眾可以兌換今明兩天同等票價門票。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm)
+
+---
+
 # 全國兩會｜李強：今年國內生產總值增長目標5%左右
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794411_1_20250305183804.jpg&q=75)
@@ -460,7 +518,7 @@
 
 ---
 
-# 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
+# 全國兩會｜蒲淳：要加快統一大市場建設　加力擴大市場開放
 
 ![蒲淳認為，未能建成統一大市場，就不能發揮社會主義制度優勢。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794402_1_20250305172607.jpg&q=90)
   
