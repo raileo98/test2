@@ -1,3 +1,33 @@
+# Beijing backs SARs in national integration, says Xia
+
+![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
+![Liaison office chief Zheng Yanxiong has outlined four key roles for local NPC deputies in Hong Kong’s development. Photo courtesy of the Liaison Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_2_20250305223240.jpg&q=90)
+  
+
+Hong Kong and Macau have the full backing of the central government in integrating into the country’s development, a senior Beijing official said on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
+
+---
+
 # 'Mild inflation target still a concern'
 
 ![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=90)
@@ -1708,34 +1738,5 @@ US President Donald Trump said on Wednesday he expects President Xi Jinping to v
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm)
-
----
-
-# Myanmar returns first batch of Chinese scam workers
-
-![Two double-decker coaches have delivered a first round of returning workers to the border post in the western Thai town of Mae Sot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792418_1_20250220113134.jpg&q=85)
-  
-
-Myanmar on Thursday handed over the first batch of hundreds of Chinese scam centre workers who are set to be repatriated through Thailand in the coming days.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792418-20250220.htm)
 
 ---

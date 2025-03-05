@@ -1,3 +1,62 @@
+# US pauses intelligence sharing with Ukraine
+
+![The Central Intelligence Agency director John Ratcliffe describes the pause as temporary. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794449_1_20250305221949.jpg&q=90)
+  
+
+The United States has "paused" intelligence sharing with Ukraine after a dramatic breakdown in relations between Kyiv and the White House, CIA director John Ratcliffe said on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm)
+
+---
+
+# Beijing backs SARs in national integration, says Xia
+
+![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
+![Liaison office chief Zheng Yanxiong has outlined four key roles for local NPC deputies in Hong Kong’s development. Photo courtesy of the Liaison Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_2_20250305223240.jpg&q=90)
+  
+
+Hong Kong and Macau have the full backing of the central government in integrating into the country’s development, a senior Beijing official said on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
+
+---
+
 # World's most accurate clock goes on sale for US$3.3mn
 
 ![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=85)
@@ -1679,63 +1738,5 @@ Elon Musk's SpaceX called off the latest test flight of its Starship rocket just
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm)
-
----
-
-# UN sets new date for talks on global plastics treaty
-
-![Previous talks on a legally binding treaty broke down in December following opposition from a bloc of mainly oil-producing countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794100_2_20250304101336.jpg&q=90)
-  
-
-A new round of negotiations for an international treaty on reducing global plastics pollution will be held in Geneva in August, the United Nations Environment Programme (Unep) said on Monday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm)
-
----
-
-# Hong Kong stocks open lower
-
-![President Trump's latest tariffs announcement dents sentiments across world stock markets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794105_1_20250304094634.jpg&q=40)
-  
-
-Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as investors awaited the upcoming annual parliamentary sessions to gauge Beijing's policy path.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm)
 
 ---

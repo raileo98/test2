@@ -1,3 +1,61 @@
+# 前小學校長被控挪用校董會一千多萬元　因被告身亡控方撤回控罪
+
+![控方透露已取被告死亡證，申請撤回控罪，獲法庭批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794452_1_20250305223247.jpg&q=80)
+  
+
+前小學校長涉挪用優才（楊殷有娣）學校校董會1000多萬元，被控盜竊罪。案件早前首次提堂當日早上，被告墮樓搶救後證實不治身亡。案件今早於觀塘裁判法院再訊，控方透露已取被告死亡證，申請撤回控罪，獲署理主任裁判官梁嘉琪批准。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm)
+
+---
+
+# 醫管局高層莊慧敏與丈夫盜竊罪成　申請終院上訴許可被駁回
+
+![法官指，上訴時已處理相關事項，上訴方如今只是包裝成不同辭據，因此駁回申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794450_1_20250305222639.jpg&q=80)
+  
+
+醫管局總行政經理莊慧敏與丈夫骨科醫生趙名宇，前年涉在黃埔花園一間超市偷取刺身、水果等共值逾1600元的食物，審訊後兩人被裁定盜竊罪成，各被判罰款5000元。兩夫婦上訴指，受警員誤導又威逼利誘才不自願地招認，遭暫委法官姚勳智駁回上訴。兩夫婦今日在高等法院再申請終審法院上訴許可證明書，法官指上訴時已處理上述事項，上訴方如今僅將之包裝成不同辭據，駁回申請。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm)
+
+---
+
 # 全國兩會｜鄭雁雄籲港區人大「犯其至難而圖其至遠」意志擔當責任
 
 ![鄭雁雄說，香港實現高品質發展的動能，需用好內聯外通的優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794448_1_20250305221151.jpg&q=80)
@@ -1685,59 +1743,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm)
-
----
-
-# 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
-
-![李強表示，要深入分析「十五五」時期新的階段性特徵。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794309_1_20250305103705.jpg&q=70)
-  
-
-在北京，總理李強在政府工作報告中指出，今年將開展「十五五」規劃編制工作，要深入分析「十五五」時期新的階段性特徵，科學確定發展目標，謀劃好重大戰略任務、重大政策舉措、重大工程項目，更好發揮規劃對經濟社會發展的引領指導作用。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
-
----
-
-# 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794307_1_20250305100447.jpg&q=75)
-  
-
-全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794307-20250305.htm)
 
 ---

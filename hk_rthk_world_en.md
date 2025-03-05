@@ -1,3 +1,32 @@
+# US pauses intelligence sharing with Ukraine
+
+![The Central Intelligence Agency director John Ratcliffe describes the pause as temporary. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794449_1_20250305221949.jpg&q=90)
+  
+
+The United States has "paused" intelligence sharing with Ukraine after a dramatic breakdown in relations between Kyiv and the White House, CIA director John Ratcliffe said on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm)
+
+---
+
 # World's most accurate clock goes on sale for US$3.3mn
 
 ![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=85)
@@ -1711,34 +1740,5 @@ Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm)
-
----
-
-# Canada, Mexico tariffs are going forward: Trump
-
-![US President Donald Trump wants to impose 25 percent tariffs on Canada and Mexico as soon as March 4. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793020_1_20250225073658.jpg&q=85)
-  
-
-US President Donald Trump said on Monday that his tariffs on Canada and Mexico are starting next month, ending a month-long suspension on the planned import taxes that could potentially hurt economic growth and worsen inflation.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm)
 
 ---
