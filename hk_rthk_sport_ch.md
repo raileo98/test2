@@ -1,5 +1,30 @@
-# 啟德體育園：未來幾日如賽事進行至深夜　將與主辦方協調安排交通
+# 鄭泳舜對有觀眾被請離場感失望詫異　稱不能再有同類事件發生
 
+![鄭泳舜對觀眾突然被請離場感到失望及詫異，認為對球迷非常不公平。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794368_1_20250305142241.jpg&q=85)
+  
+
+昨晚在啟德體藝館舉行的世界格蘭披治桌大獎賽，有觀眾在賽事未完結時，被要求離場。民建聯立法會議員鄭泳舜對觀眾突然被請離場感到失望及詫異，認為十分罕見，對球迷非常不公平，要求園區與任何主辦機構都要汲取不足之處及經驗，不能再有同類事件發生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm)
+
+---
+
+# 啟德體育園：未來幾日賽事如進行至深夜　將與主辦方協調安排交通
+
+![啟德體育園表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794365_1_20250305140452.jpg&q=30)
   
 
 昨晚世界格蘭披治桌球大獎賽的賽事進行至接近午夜時，有觀眾被要求離開。啟德體育園回應表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。
@@ -1416,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793016-20250225.htm)
-
----
-
-# 蕭澤頤：警隊必定做好準備　確保啟德體育園開幕安全有序進行
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792965_1_20250224211617.jpg&q=90)
-  
-
-警務處處長蕭澤頤出席警察隊員佐級協會新春團拜，他致辭時表示，去年整體治安情況大致保持平穩，多項傳統罪案例如兇殺案、行劫、爆竊、傷人及嚴重毆打案也錄得下跌，不少甚至是多年以來或是有記錄以來的新低；破案率亦相當高，個別罪案的破案率更是有記錄以來最高，例如行劫案的破案率達到92.2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm](https://news.rthk.hk/rthk/ch/component/k2/1792965-20250224.htm)
 
 ---

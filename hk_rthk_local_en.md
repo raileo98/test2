@@ -1,6 +1,6 @@
 # Snooker fans won't be kicked out again: minister
 
-![Sports Secretary Rosanna Law attended an opening ceremony for the tournament on Tuesday evening. Photo courtesy of World Snooker Grand Prix 2025.](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=75)
   
 
 Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.

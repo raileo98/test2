@@ -1,5 +1,54 @@
-# 啟德體育園：未來幾日如賽事進行至深夜　將與主辦方協調安排交通
+# 鄭泳舜對有觀眾被請離場感失望詫異　稱不能再有同類事件發生
 
+![鄭泳舜對觀眾突然被請離場感到失望及詫異，認為對球迷非常不公平。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794368_1_20250305142241.jpg&q=85)
+  
+
+昨晚在啟德體藝館舉行的世界格蘭披治桌大獎賽，有觀眾在賽事未完結時，被要求離場。民建聯立法會議員鄭泳舜對觀眾突然被請離場感到失望及詫異，認為十分罕見，對球迷非常不公平，要求園區與任何主辦機構都要汲取不足之處及經驗，不能再有同類事件發生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm)
+
+---
+
+# 全國兩會｜金融監管總局擬擴大對科技企業併購貸款等4項試點工作
+
+![李雲澤表示，今年金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794366_1_20250305140933.jpg&q=80)
+  
+
+國家金融監督管理總局局長李雲澤表示，去年金融監管總局將金融資產投資公司股權投資試點範圍擴大到全國18個城市，取得積極成效，簽約金額已經超過3500億元人民幣。今年，金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm)
+
+---
+
+# 啟德體育園：未來幾日賽事如進行至深夜　將與主辦方協調安排交通
+
+![啟德體育園表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794365_1_20250305140452.jpg&q=30)
   
 
 昨晚世界格蘭披治桌球大獎賽的賽事進行至接近午夜時，有觀眾被要求離開。啟德體育園回應表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。
@@ -23,7 +72,7 @@
 
 # 全國兩會｜發改委等部委明日下午舉行經濟主題記者會
 
-![十四屆全國人大三次會議明日下午3時舉行經濟主題記者會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794363_1_20250305134700.jpg&q=50)
+![發改委等部委明日下午舉行經濟主題記者會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794363_2_20250305140618.jpg&q=80)
   
 
 十四屆全國人大三次會議明日下午3時舉行經濟主題記者會，國家發改委主席鄭柵潔、財政部部長藍佛安、商務部部長王文濤、人民銀行行長潘功勝、中國證監會主席吳清，將會就發展改革、財政預算、商務、金融證券等相關問題回答中外記者提問。
