@@ -1,3 +1,26 @@
+# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
+
+  
+
+對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
+
+---
+
 # 全國兩會｜李強稱中國願與國際社會共同推動構建人類命運共同體
 
 ![李強表示，中國願同國際社會一道，推動構建人類命運共同體。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794349_1_20250305130626.jpg&q=40)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm)
-
----
-
-# 回應日本制裁　俄羅斯宣布禁止日本外相等9人入境
-
-![俄方宣布，對日本外相岩屋毅等9人採取無限期禁止入境措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794066_1_20250304022945.jpg&q=90)
-  
-
-俄羅斯外交部發布公告稱，俄方對包括日本外相岩屋毅以及日本駐烏克蘭大使等9人採取無限期禁止入境措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
+
+  
+
+對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
+
+---
+
 # 全國兩會｜有人大及政協均認為國家重視民企　定有政策支持
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794207-20250304.htm)
-
----
-
-# 新光戲院凌晨拉閘結業　劇迷不捨
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794194_1_20250304182353.jpg&q=65)
-  
-
-屹立北角逾半世紀的新光戲院，凌晨正式拉閘結業。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794194-20250304.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
+
+  
+
+對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
+
+---
+
 # 全國兩會｜奇瑞汽車尹同躍稱靠實力說話　已習慣美方加關稅
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
-
----
-
-# 全國兩會｜馬逢國引述夏寶龍冀人大支持政府發展經濟
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794213_1_20250304203636.jpg&q=80)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍與港澳區人大代表會面。港區人大代表團團長馬逢國在會後表示，夏寶龍高度肯定他們過去一年的各方面工作，包括配合人大工作、支持特區政府，認為有好成績。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794213-20250304.htm)
 
 ---

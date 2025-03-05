@@ -1,3 +1,49 @@
+# 男病人哽喉後不治　明愛醫院稱涉事護士學生有根據指引餵食
+
+  
+
+明愛醫院一名75歲男病人，懷疑被餵錯正常餐而「哽喉」，搶救無效後死亡。醫管局成立根源分析委員會調查事件，8星期內完成調查，醫管局及院方向公眾及家屬致歉。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm)
+
+---
+
+# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
+
+  
+
+對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
+
+---
+
 # 全國兩會｜奇瑞汽車尹同躍稱靠實力說話　已習慣美方加關稅
 
   
