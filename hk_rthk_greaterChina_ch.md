@@ -1,3 +1,32 @@
+# 全國兩會｜李強︰持續用力推動房地產市場止跌回穩
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794409_1_20250305184936.jpg&q=20)
+  
+
+國務院總理李強說，要有效防範化解重點領域風險，牢牢守住不發生系統性風險底線，包括持續用力推動房地產市場止跌回穩，合理控制新增房地產用地供應。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm)
+
+---
+
 # 全國兩會｜李強：今年國內生產總值增長目標5%左右
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794411_1_20250305183804.jpg&q=75)
@@ -1701,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794295-20250305.htm)
-
----
-
-# 全國兩會｜今年發展主要預期目標　國內生產總值增長5%左右
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794292_1_20250305094926.jpg&q=75)
-  
-
-國務院總理李強提出，今年國內生產總值目標增長5%左右，城鎮調查失業率5.5%左右，城鎮新增就業1200萬人以上，居民消費價格升幅2%左右，居民收入增長和經濟增長同步，國際收支保持基本平衡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm)
 
 ---

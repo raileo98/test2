@@ -1,4 +1,4 @@
-# 口岸爆炸案辯方質疑警長無法肯定閉路電視拍攝是否被告
+# 口岸爆炸案警長稱雖沒見過真人　但可從閉路電視片段認出被告
 
 ![口岸爆炸案高等法院踏入第64天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794426_1_20250305184541.jpg&q=80)
   
