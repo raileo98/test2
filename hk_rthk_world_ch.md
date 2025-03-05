@@ -1,3 +1,31 @@
+# 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
+
+  
+
+在北京，港區全國人大代表團團長馬逢國表示，非常印象深刻，今次是多年以來人大會議以來，最精簡的一次總理政府工作報告，用了不足1小時就讀完，
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
+
+---
+
 # 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
 
 ![曾偉雄表示，國家一直有履行就芬太尼管控的國際義務，以及2018年國家主席習近平對美方作出的承調，防止中國非法販運芬太尼到美國的效果明顯。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=85)
@@ -1708,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794069-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794069-20250304.htm)
-
----
-
-# 特朗普：可能4月2日對進口農產品徵收關稅
-
-![特朗普告訴美國農民準備好開始生產大量的農產品，並在美國境內銷售。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794068_1_20250304033600.jpg&q=90)
-  
-
-美國總統特朗普表示，可能在4月2日對進口農產品徵收關稅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm)
 
 ---

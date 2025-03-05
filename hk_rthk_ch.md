@@ -1,3 +1,31 @@
+# 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
+
+  
+
+在北京，港區全國人大代表團團長馬逢國表示，非常印象深刻，今次是多年以來人大會議以來，最精簡的一次總理政府工作報告，用了不足1小時就讀完，
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
+
+---
+
 # 全國兩會｜李強︰持續用力推動房地產市場止跌回穩
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794409_1_20250305184936.jpg&q=20)

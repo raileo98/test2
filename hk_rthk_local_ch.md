@@ -1,3 +1,31 @@
+# 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
+
+  
+
+在北京，港區全國人大代表團團長馬逢國表示，非常印象深刻，今次是多年以來人大會議以來，最精簡的一次總理政府工作報告，用了不足1小時就讀完，
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
+
+---
+
 # 口岸爆炸案警長稱雖沒見過真人　但可從閉路電視片段認出被告
 
 ![口岸爆炸案高等法院踏入第64天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794426_1_20250305184541.jpg&q=80)
@@ -1708,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794289-20250305.htm)
-
----
-
-# 全國兩會｜李強過去一年歷程不平凡　主要目標任務順利完成
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794287_1_20250305091634.jpg&q=85)
-  
-
-在北京，國務院總理李強發表政府工作報告，提到過去一年來，中國的發展歷程很不平凡，國家經濟運行總體平穩，穩中有進，全年經濟社會發展主要目標任務順利完成。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794287-20250305.htm)
 
 ---
