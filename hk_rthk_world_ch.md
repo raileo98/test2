@@ -1,3 +1,31 @@
+# 澤連斯基稱與美國合作取得積極進展　冀下周有初步成果
+
+  
+
+烏克蘭總統澤連斯基表示，與美國的合作已經取得積極進展，雙方可能很快再次舉行會談。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm)
+
+---
+
 # 羅馬尼亞將兩名俄外交官列「不受歡迎的人」　俄方稱將有措施回應
 
   
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm)
-
----
-
-# 《環看天下》：施紀賢晤澤連斯基　據報私下促修補同特朗普關係
-
-![施紀賢（右）日前在首相府與到訪的澤連斯基會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794106_1_20250304095259.jpg&q=85)
-  
-
-美國總統特朗普與烏克蘭總統澤連斯基上星期五在美國白宮舉行會晤，不歡而散。澤連斯基之後轉到英國，獲英國同歐洲國家一再承諾提供堅定支持。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm)
 
 ---

@@ -1,3 +1,31 @@
+# 澤連斯基稱與美國合作取得積極進展　冀下周有初步成果
+
+  
+
+烏克蘭總統澤連斯基表示，與美國的合作已經取得積極進展，雙方可能很快再次舉行會談。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm)
+
+---
+
 # 羅馬尼亞將兩名俄外交官列「不受歡迎的人」　俄方稱將有措施回應
 
   
@@ -1699,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
-
----
-
-# 男病人哽喉後不治　明愛醫院稱涉事護士學生有根據指引餵食
-
-![關慧敏指，涉事護士學生當時根據指示餵食病人，期間有檢視病人有無吞嚥及咀嚼，亦「細啖細啖」地餵食。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794388_1_20250305160048.jpg&q=85)
-  
-
-明愛醫院一名75歲男病人，懷疑被餵錯正常餐而「哽喉」，搶救無效後死亡。醫管局成立根源分析委員會調查事件，8星期內完成調查，醫管局及院方向公眾及家屬致歉。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm)
 
 ---
