@@ -1,5 +1,35 @@
+# 全國兩會｜岑浩輝稱澳門特區持續維護好國家主權安全及發展利益
+
+![岑浩輝列席十四屆全國人大三次會議開幕會議。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794406_1_20250305172503.jpg&q=80)
+  
+
+澳門行政長官岑浩輝說，特區政府將繼續堅定不移，全面準確落實「一國兩制」方針，鞏固和發展好具澳門特色「一國兩制」成功實踐所取得的成就。他又表示，國家安全是「一國兩制」的根本原則，澳門特區要持續維護好國家主權、安全及發展利益。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm)
+
+---
+
 # 鄧炳強指《明報》有關林卓廷文章誤導讀者　予以譴責
 
+![鄧炳強認為，作者身為法律教授卻再次發表偏頗文章，以歪曲的觀點誤導讀者。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794405_1_20250305172531.jpg&q=80)
   
 
 保安局局長鄧炳強回應《明報》一篇由港大法律學院客席教授陳文敏撰寫有關林卓廷7.21案裁決的文章，指文章罔顧事實、誤導讀者，令人以為法庭裁決不公，對此予以譴責。
@@ -86,6 +116,7 @@
 
 # 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
 
+![蒲淳認為，未能建成統一大市場，就不能發揮社會主義制度優勢。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794402_1_20250305172607.jpg&q=90)
   
 
 全國政協委員、國家市場監督管理總局原副局長蒲淳表示，要加快統一大市場建設，他指出最大障礙在於地方保護主義，認為未能建成統一大市場，就不能發揮社會主義制度優勢。
