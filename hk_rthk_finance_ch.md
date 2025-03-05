@@ -1,3 +1,90 @@
+# 全國兩會｜持續用力推動房地產市場止跌回穩
+
+  
+
+國務院總理李強發表政府工作報告，表示要持續用力推動房地產市場止跌回穩，因城施策調減限制性措施，合理控制新增房地產用地供應，盤活存量用地和商辦用房，推進收購存量商品房。拓寬保障性住房再貸款使用範圍，繼續做好保交房工作，有效防範房企債務違約風險，並穩妥化解地方政府債務風險。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm)
+
+---
+
+# 港股升幅擴大至逾500點　長和股價升逾兩成
+
+![港股升幅擴大至逾500點，長和股價升逾兩成。(港台圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794308_1_20250305095621.jpg&q=20)
+  
+
+港股升逾500點，恒生指數高見23513點，最新報23488點，升546點。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm)
+
+---
+
+# 全國兩會｜李強：穩定擴大就業　讓多勞者、技高者及創新者多得
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm)
+
+---
+
+# 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
+
+---
+
 # 內地股市開市後窄幅上落
 
 ![內地股市窄幅上落。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794305_1_20250305094743.jpg&q=80)
@@ -44,7 +131,11 @@
 
 # 全國兩會｜高質量完成國企改革深化提升行動
 
+![報告提出，要深化財稅金融體制改革，規範稅收優惠政策。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794301_1_20250305100605.jpg&q=90)
   
+
+國務院總理李強發表政府工作報告，表示要紮實推動重點領域改革，包括高質量完成國企改革深化提升行動，落實促進民營經濟發展政策措施，推動全國統一大市場建設，打通市場准入退出，綜合整治「內卷式」競爭。
+
   
 
 
@@ -88,7 +179,7 @@
 
 # 全國兩會｜今年大力提振消費　超長期特別國債3千億支持以舊換新
 
-![李強說首先要大力提振消費、提高投資效益，全方位擴大國內需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
   
 
 國務院總理李強在政府工作報告中表示，今年經濟社會發展任務十分繁重，要突出重點、把握關鍵，著重抓好幾個方面工作。
@@ -1336,102 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794179-20250304.htm)
-
----
-
-# 前藝人王賢誌入稟申請破產　法庭正式頒布破產令
-
-![聆案官核對所需文件，確認沒有任何人反對，正式頒令王賢誌破產。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794178_1_20250304165814.jpg&q=85)
-  
-
-前藝人王賢誌去年入稟申請破產，案件上月開庭處理時有債權人到庭旁聽，懷疑王賢誌向其借貸時隱瞞負債，聆案官當時已清晰表示此非反對破產令的理由。破產案今日在高等法院再訊，聆案官黃健棠核對所需文件，確認沒有任何人反對王賢誌破產後，正式頒令王賢誌破產。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794178-20250304.htm)
-
----
-
-# 陳美寶：空運物流帶動香港貿易和經濟發展屬本港重要支柱
-
-![陳美寶表示，希望簡化中轉貨物規管架構和法例法規，盡量發揮香港自由港特色。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794175_1_20250304165325.jpg&q=30)
-  
-
-運輸及物流局局長陳美寶表示，香港機場成績有目共睹，尤其本港近年面對政治或社會情況挑戰，即使疫情亦無損香港機場在空運、貨運、物流方面表現。去年整體空運貨物吞吐量動力持續，錄得超過490萬公噸，較2023年升14%。她說，整體空運貨物佔香港外貿總值45%，認為空運物流帶動香港貿易和經濟發展，是本港重要支柱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794175-20250304.htm)
-
----
-
-# 新地旗下機場空運中心大樓續租15年　將投入至少4億元升級
-
-![郭炳聯稱要讓本港空運中心運作能與時並進，打造成為世界上最有效率空運中心。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_1_20250304164738.jpg&q=15)
-![林天福表示，現時全球經濟面對很多不明朗因素，香港更要保持競爭力（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_2_20250304164738.jpg&q=20)
-  
-
-新地與機管局達成協議，新地旗下機場空運中心大樓將續租15年，直至2043年，新地將投入至少4億元升級優化大樓設施，讓企業客戶可按需要調配倉庫佈局，亦會引入智能數碼化系統等。新地預計，全新空運中心明年初起分階段落成，貨運吞吐量可提升達30%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm)
-
----
-
-# 全國兩會｜回應美國加關稅　謝鋒：關稅戰貿易戰損人害己
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794170_1_20250304165406.jpg&q=85)
-  
-
-在北京，全國政協委員、駐美大使謝鋒接受本台訪問，回應美國增加對華產品關稅時表示，想起已故領導人毛澤東在上世紀60年代初講過的兩句詩：暮色蒼茫看勁松，亂雲飛渡仍從容。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794170-20250304.htm)
 
 ---

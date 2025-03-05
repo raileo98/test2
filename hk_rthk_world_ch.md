@@ -1,3 +1,26 @@
+# 全國兩會｜李強稱深入推進練兵備戰　堅定捍衛國家主權
+
+  
+
+國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
+
+---
+
 # 特朗普將於國會兩院聯席會議致辭　關稅措施及俄烏戰事等是關注點
 
 ![今次是特朗普（中）再次就任總統後，首度向兩院發表講話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794297_1_20250305093422.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794063-20250304.htm)
-
----
-
-# 德黑蘭稱國際原子能機構關於伊朗核計劃說法不實
-
-![伊朗外交部發言人巴加埃說，伊朗的核計劃已多次被證明是在全面保障監督協定和《核不擴散條約》的框架內進行。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794061_1_20250304003636.jpg&q=90)
-  
-
-伊朗外交部表示，國際原子能機構及總幹事格羅西關於伊朗核計劃性質的說法「不實」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794061-20250304.htm)
 
 ---

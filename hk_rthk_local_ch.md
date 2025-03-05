@@ -1,5 +1,73 @@
+# 全國兩會｜李強：堅定不移貫徹落實「一國兩制」「港人治港」方針
+
+  
+
+在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
+
+---
+
+# 李家超：將團結各界更好發揮「一國兩制」制度優勢和香港獨特優勢
+
+![李家超說，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794310_1_20250305100656.jpg&q=80)
+  
+
+十四屆全國人大三次會議在北京開幕，總理李強發表政府工作報告，正在北京的行政長官李家超列席。李家超在本地報章撰文表示，很榮幸以香港特區行政長官的身份列席開幕會，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm)
+
+---
+
+# 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
+
+---
+
 # 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
 
+![陳思源表示，會持續打擊跨境詐騙罪案。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794307_1_20250305100447.jpg&q=75)
   
 
 全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
@@ -1365,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794136-20250304.htm)
-
----
-
-# 全國兩會｜李家超出發前往北京　列席明日全國人大開幕會
-
-![李家超前赴北京，列席明日舉行的全國人大開幕會。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794133_1_20250304134025.jpg&q=80)
-  
-
-行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm)
-
----
-
-# 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
-
-![丘應樺說不少香港企業已遷移生產線，相信加徵關稅對香港影響不是很大。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794127_1_20250304131139.jpg&q=80)
-  
-
-對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
-
----
-
-# 羅淑佩：啟德體育園開幕禮有人不合規將觀眾帶入場　已聯絡警方
-
-![羅淑佩說初步調查發現上星期六啟德體育園開幕禮，有人不合規將一些沒有門票的觀眾帶入場看表演。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794125_1_20250304123719.jpg&q=40)
-  
-
-文化體育及旅遊局局長羅淑佩表示，初步調查發現上星期六啟德體育園開幕禮，有人不合規將一些沒有門票的觀眾，帶入場看表演，當局已經聯絡警方，亦會堵塞漏洞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794125-20250304.htm)
 
 ---

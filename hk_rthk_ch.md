@@ -1,5 +1,163 @@
+# 全國兩會｜李強：堅定不移貫徹落實「一國兩制」「港人治港」方針
+
+  
+
+在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
+
+---
+
+# 全國兩會｜持續用力推動房地產市場止跌回穩
+
+  
+
+國務院總理李強發表政府工作報告，表示要持續用力推動房地產市場止跌回穩，因城施策調減限制性措施，合理控制新增房地產用地供應，盤活存量用地和商辦用房，推進收購存量商品房。拓寬保障性住房再貸款使用範圍，繼續做好保交房工作，有效防範房企債務違約風險，並穩妥化解地方政府債務風險。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm)
+
+---
+
+# 港股升幅擴大至逾500點　長和股價升逾兩成
+
+![港股升幅擴大至逾500點，長和股價升逾兩成。(港台圖片)](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794308_1_20250305095621.jpg&q=20)
+  
+
+港股升逾500點，恒生指數高見23513點，最新報23488點，升546點。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm)
+
+---
+
+# 全國兩會｜李強稱深入推進練兵備戰　堅定捍衛國家主權
+
+  
+
+國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
+
+---
+
+# 全國兩會｜李強：穩定擴大就業　讓多勞者、技高者及創新者多得
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm)
+
+---
+
+# 李家超：將團結各界更好發揮「一國兩制」制度優勢和香港獨特優勢
+
+![李家超說，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794310_1_20250305100656.jpg&q=80)
+  
+
+十四屆全國人大三次會議在北京開幕，總理李強發表政府工作報告，正在北京的行政長官李家超列席。李家超在本地報章撰文表示，很榮幸以香港特區行政長官的身份列席開幕會，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm)
+
+---
+
+# 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
+
+---
+
 # 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
 
+![陳思源表示，會持續打擊跨境詐騙罪案。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794307_1_20250305100447.jpg&q=75)
   
 
 全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
@@ -23,6 +181,7 @@
 
 # 全國兩會｜深入實施科教興國戰略　提升國家創新體系效能
 
+![李強說，要加快建設高質量教育體系，制定實施教育強國建設三年行動計劃。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794306_1_20250305100509.jpg&q=85)
   
 
 國務院總理李強在政府工作報告中說，今年要深入實施科教興國戰略，提升國家創新體系整體效能。堅持創新引領發展，一體推進教育發展、科技創新、人才培養，築牢中國式現代化的基礎性。
@@ -114,7 +273,11 @@
 
 # 全國兩會｜高質量完成國企改革深化提升行動
 
+![報告提出，要深化財稅金融體制改革，規範稅收優惠政策。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794301_1_20250305100605.jpg&q=90)
   
+
+國務院總理李強發表政府工作報告，表示要紮實推動重點領域改革，包括高質量完成國企改革深化提升行動，落實促進民營經濟發展政策措施，推動全國統一大市場建設，打通市場准入退出，綜合整治「內卷式」競爭。
+
   
 
 
@@ -158,7 +321,7 @@
 
 # 全國兩會｜今年大力提振消費　超長期特別國債3千億支持以舊換新
 
-![李強說首先要大力提振消費、提高投資效益，全方位擴大國內需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
   
 
 國務院總理李強在政府工作報告中表示，今年經濟社會發展任務十分繁重，要突出重點、把握關鍵，著重抓好幾個方面工作。
@@ -1257,175 +1420,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm)
-
----
-
-# 已登記會員周四起可預訂啟德體育園部分體育設施
-
-![啟德體育園部分設施陸續開放。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_1_20250305001230.jpg&q=20)
-![啟德青年運動場跑道徑下午5時後每位收費18元。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794240_2_20250305001230.jpg&q=90)
-  
-
-啟德體育園網站顯示，園內部分體育設施陸續開放，星期三早上10時起，公眾可查看11日內的設施租用情況。已登記會員可於星期四上午7時起，預訂未來10日內可供租用的體育運動設施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794240-20250304.htm)
-
----
-
-# 長和向貝萊德財團出售巴拿馬港口9成權益、和記港口非中國資產
-
-![長和發公告指，向貝萊德等公司合組的財團，出售巴拿馬港口9成權益，以及和記港口8成實際權益，但不包括位於中國的港口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794239_1_20250304232315.jpg&q=90)
-  
-
-長和發公告指，向貝萊德、美國投資管理公司Global Infrastructure Partners及Terminal Investment Limited合組的財團，出售和記港口持有的巴拿馬港口90%權益，已達成原則性協議；有關港口為巴拿馬巴關博亞及克里斯托瓦關港口。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794239-20250304.htm)
-
----
-
-# 美股初段跌約1%或以上　金融股急挫　美元指數失守106
-
-![美股初段沽壓大，3大指數跌約1%或以上，金融股跌幅較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794238_1_20250304224748.jpg&q=90)
-  
-
-美股初段沽壓大，3大指數跌約1%或以上。金融股跌幅較大，花旗跌逾6%，高盛跌逾4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794238-20250304.htm)
-
----
-
-# 日本稱無採取引導日圓貶值政策　將與美方繼續密切協商
-
-![林芳正說，日本並無採取所謂的引導日圓貶值政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794237_1_20250304223736.jpg&q=90)
-  
-
-日本政府否認美國總統特朗普有關引導日圓貶值的指控，內閣官房長官林芳正說，日本並無採取所謂的引導日圓貶值政策，將與美國財政部長貝森特繼續保持密切協商。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm)
-
----
-
-# 縱容囚犯管有手提電話及帶香煙　兩名懲教助理及一囚犯還押候判
-
-![法官指，32歲囚犯實屬主腦，服刑時犯案理應加刑，案件押後至下月8日判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794236_1_20250304222237.jpg&q=80)
-  
-
-兩名懲教助理2020年縱容32歲囚犯在塘福懲教所管有及使用手提電話，並為囚犯將未經授權香煙帶進監獄，連同另外兩名涉案釋囚被控串謀觸犯公職人員行為不當等罪。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794236-20250304.htm)
-
----
-
-# 蔡若蓮讚揚吳家瑋致力以科研推動香港邁向知識型經濟轉型
-
-![蔡若蓮說，吳家瑋領導創立科大，擔任科大校長期間為學校發展奠定堅實基礎。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794235_1_20250304220652.jpg&q=80)
-  
-
-科大創校校長吳家瑋離世，終年87歲，教育局局長蔡若蓮深表哀悼，並向其家人致以最深切的慰問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794235-20250304.htm)
-
----
-
-# 全國兩會｜夏寶龍籲加快推動香港由治及興及澳門經濟適度多元發展
-
-![夏寶龍（後排左四）到北京飯店看望出席的港澳代表。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_1_20250304215734.jpg&q=80)
-![夏寶龍希望代表以高度的責任感及使命感，認真依法履職，積極反映民意、建言獻策。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794233_2_20250304215734.jpg&q=75)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍下午到北京飯店，看望出席十四屆全國人大三次會議的香港及澳門特別行政區全國人大代表。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794233-20250304.htm)
 
 ---

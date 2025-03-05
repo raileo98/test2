@@ -1,4 +1,4 @@
-# China GDP tipped to reach 5pc in 2025
+# China GDP growth tipped to reach 5pc in 2025
 
 ![Premier Li Qiang delivers the government work report. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794288_2_20250305093057.jpg&q=90)
   
@@ -355,6 +355,30 @@ A local economics academic said he does not expect major policy shifts in the "T
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
+
+---
+
+# Trump signs order to further hike tariffs on China
+
+![The order raises a previously imposed 10 percent tariff on China to 20 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794081_1_20250304063119.jpg&q=90)
+  
+
+US President Donald Trump has signed an order to hike tariffs on Chinese imports further, the White House said Monday, citing what it called Beijing's failure to tackle the illicit fentanyl trade.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
 
 ---
 
@@ -1413,32 +1437,5 @@ The 2025 Asian Winter Games concluded on Friday in Harbin, marking an historic a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791693-20250214.htm)
-
----
-
-# Team China top medals table at Asian Winter Games
-
-![Team China win silver in the women's curling. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791656_1_20250214171324.jpg&q=75)
-![Kazakhstan won the gold medal in men's ice hockey. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791656_2_20250214171324.jpg&q=70)
-![Japan came out on top in the women's ice hockey final. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791656_3_20250214171324.jpg&q=75)
-![South Korea tops the podium in the women's curling gold medal game. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791656_4_20250214171324.jpg&q=85)
-  
-
-Team China dominated the medals table at the Harbin Asian Winter Games which close on Friday evening.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm](https://news.rthk.hk/rthk/en/component/k2/1791656-20250214.htm)
 
 ---

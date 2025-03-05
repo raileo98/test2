@@ -1,5 +1,139 @@
+# 全國兩會｜李強：堅定不移貫徹落實「一國兩制」「港人治港」方針
+
+  
+
+在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
+
+---
+
+# 全國兩會｜持續用力推動房地產市場止跌回穩
+
+  
+
+國務院總理李強發表政府工作報告，表示要持續用力推動房地產市場止跌回穩，因城施策調減限制性措施，合理控制新增房地產用地供應，盤活存量用地和商辦用房，推進收購存量商品房。拓寬保障性住房再貸款使用範圍，繼續做好保交房工作，有效防範房企債務違約風險，並穩妥化解地方政府債務風險。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm)
+
+---
+
+# 全國兩會｜李強稱深入推進練兵備戰　堅定捍衛國家主權
+
+  
+
+國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
+
+---
+
+# 全國兩會｜李強：穩定擴大就業　讓多勞者、技高者及創新者多得
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm)
+
+---
+
+# 李家超：將團結各界更好發揮「一國兩制」制度優勢和香港獨特優勢
+
+![李家超說，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794310_1_20250305100656.jpg&q=80)
+  
+
+十四屆全國人大三次會議在北京開幕，總理李強發表政府工作報告，正在北京的行政長官李家超列席。李家超在本地報章撰文表示，很榮幸以香港特區行政長官的身份列席開幕會，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm)
+
+---
+
+# 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
+
+---
+
 # 全國兩會｜公安部稱加強與港澳警方協作　建立打擊電訊詐騙機制
 
+![陳思源表示，會持續打擊跨境詐騙罪案。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794307_1_20250305100447.jpg&q=75)
   
 
 全國政協委員、公安部副部長陳思源表示，會持續打擊跨境詐騙罪案，包括先加強國際執法合作，同時進一步加強與港澳警方密切協作和對接，也要建立好打擊電訊詐騙工作機制。
@@ -23,6 +157,7 @@
 
 # 全國兩會｜深入實施科教興國戰略　提升國家創新體系效能
 
+![李強說，要加快建設高質量教育體系，制定實施教育強國建設三年行動計劃。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794306_1_20250305100509.jpg&q=85)
   
 
 國務院總理李強在政府工作報告中說，今年要深入實施科教興國戰略，提升國家創新體系整體效能。堅持創新引領發展，一體推進教育發展、科技創新、人才培養，築牢中國式現代化的基礎性。
@@ -66,7 +201,11 @@
 
 # 全國兩會｜高質量完成國企改革深化提升行動
 
+![報告提出，要深化財稅金融體制改革，規範稅收優惠政策。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794301_1_20250305100605.jpg&q=90)
   
+
+國務院總理李強發表政府工作報告，表示要紮實推動重點領域改革，包括高質量完成國企改革深化提升行動，落實促進民營經濟發展政策措施，推動全國統一大市場建設，打通市場准入退出，綜合整治「內卷式」競爭。
+
   
 
 
@@ -110,7 +249,7 @@
 
 # 全國兩會｜今年大力提振消費　超長期特別國債3千億支持以舊換新
 
-![李強說首先要大力提振消費、提高投資效益，全方位擴大國內需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794299_1_20250305094736.jpg&q=75)
   
 
 國務院總理李強在政府工作報告中表示，今年經濟社會發展任務十分繁重，要突出重點、把握關鍵，著重抓好幾個方面工作。
@@ -1284,149 +1423,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794140-20250304.htm)
-
----
-
-# 全國兩會｜常委會續審議各方意見　推動民營經濟促進法盡快出台
-
-![婁勤儉說民營經濟伴隨改革開放偉大歷史蓬勃發展，是國家社會主義市場經濟的重要組成部分。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794139_1_20250304134339.jpg&q=90)
-  
-
-在北京，全國人大會議新聞發言人婁勤儉回應《民營經濟促進法》立法進展時表示，將根據常委會繼續審議情況和各方面的意見建議，認真做好草案修改完善工作，推動法律盡快出台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794139-20250304.htm)
-
----
-
-# 全國兩會｜美方單邊加關稅違世貿規則　中方冀平等磋商解決問題
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794134_1_20250304150747.jpg&q=90)
-  
-
-在北京，全國人大會議新聞發言人婁勤儉，回應美國對中國出口產品再加徵一成關稅時表示，美方單邊加徵關稅的做法，違反世貿組織規則，干擾全球產業鏈供應鏈安全穩定，希望美方與中方相向而行，通過平等磋商找到解決問題的辦法。中方也願同世界各國加強合作，共同維護來之不易的多邊貿易體制，反對單邊主義、保護主義，攜手推動普惠包容的經濟全球化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794134-20250304.htm)
-
----
-
-# 一間中資企業與科威特簽總值逾5億美元基建項目合同
-
-![科威特官員曾到新城項目現場視察。（能建葛洲壩集團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794124_1_20250304120056.jpg&q=85)
-  
-
-一間中資企業與科威特簽署總值超過5億美元基建項目合同。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm)
-
----
-
-# 全國兩會｜李家超出發前往北京　列席明日全國人大開幕會
-
-![李家超前赴北京，列席明日舉行的全國人大開幕會。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794133_1_20250304134025.jpg&q=80)
-  
-
-行政長官李家超中午出發前赴北京，列席明日舉行的第十四屆全國人民代表大會第三次會議的開幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794133-20250304.htm)
-
----
-
-# 全國兩會｜DeepSeek 獲關注　婁勤儉稱團隊值得點讚
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794131_1_20250304131031.jpg&q=85)
-  
-
-全國人大會議新聞發言人婁勤儉表示，中國政府高度重視人工智能技術的發展和風險防範，依法保護數據隱私和安全，同時反對泛化國家安全概念、反對將經貿科技問題政治化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794131-20250304.htm)
-
----
-
-# 全國兩會｜全國人大會議明早開幕　下周二下午閉幕
-
-![婁勤儉表示，今屆全國人大會議將有三次全體會議，並有7項大會議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794126_1_20250304122207.jpg&q=90)
-  
-
-第十四屆全國人大三次會議明日上午將在北京人民大會堂開幕，會期7天，下星期二下午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794126-20250304.htm)
 
 ---

@@ -243,7 +243,7 @@ A new round of negotiations for an international treaty on reducing global plast
 ![Researchers estimate that 3.8 billion adults will be overweight or obese in 15 years. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794096_1_20250304090417.jpg&q=85)
   
 
-Nearly 60 per cent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
+Nearly 60 percent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
 
   
 
