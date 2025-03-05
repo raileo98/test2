@@ -1,3 +1,32 @@
+# World's most accurate clock goes on sale for US$3.3mn
+
+![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=85)
+  
+
+Resembling a squat, wide fridge, the world's most accurate clock went on sale for US$3.3 million in Japan on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm)
+
+---
+
 # Rain offers hope in Japan's worst wildfire in 50 years
 
 ![The wildfire broke out on February 26, and firefighting efforts including Japan Self-Defense Forces, have continued while thousands have evacuated their homes. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794373_1_20250305144046.jpg&q=90)
@@ -1711,34 +1740,5 @@ US President Donald Trump said on Monday that his tariffs on Canada and Mexico a
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm)
-
----
-
-# Explosives thrown at Russian consulate in France
-
-![Bomb-squad officers prepare a de-mining robot in front of the Russian consulate in Marseille, France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792988_1_20250224204408.jpg&q=90)
-  
-
-Three improvised explosive devices were thrown at the Russian consulate in the southern French port city of Marseille on Monday but no one was injured, a police source said.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm)
 
 ---

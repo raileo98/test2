@@ -1,3 +1,32 @@
+# World's most accurate clock goes on sale for US$3.3mn
+
+![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=85)
+  
+
+Resembling a squat, wide fridge, the world's most accurate clock went on sale for US$3.3 million in Japan on Wednesday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm)
+
+---
+
 # Indian festival to hit streets of Lan Kwai Fong
 
 ![The "Incredible India Festival" will be held on March 15 and 16 at Lan Kwai Fong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794437_1_20250305203811.jpg&q=60)
@@ -1708,34 +1737,5 @@ Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm)
-
----
-
-# China warns of countermeasures against new US tariffs
-
-![China urges the US to immediately withdraw its unilateral tariff measures, calling them "unreasonable and groundless". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794108_1_20250304100322.jpg&q=75)
-  
-
-The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tariffs set to take effect later in the day, reiterating its stance that the Trump administration was trying to "shift the blame" and "bully" Beijing over fentanyl flows.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm)
 
 ---
