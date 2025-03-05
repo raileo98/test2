@@ -4,9 +4,12 @@
   
 
 Labour and welfare minister Chris Sun on Wednesday said the government would help NGOs save costs by streamlining administrative procedures amid funding cuts due to the fiscal deficit.
+  
 
   
 
+
+  
 
 ---
 
@@ -18,6 +21,8 @@ Labour and welfare minister Chris Sun on Wednesday said the government would hel
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm)
 
 ---
@@ -28,9 +33,12 @@ Labour and welfare minister Chris Sun on Wednesday said the government would hel
   
 
 Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
+  
 
   
 
+
+  
 
 ---
 
@@ -42,6 +50,8 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
 
 ---
@@ -52,9 +62,12 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
   
 
 Hong Kong's deputies to the National People's Congress (NPC) and the Chinese People's Political Consultative Conference (CPPCC) have given their backing to the country's economic growth target of around five percent target this year, saying it was no easy feat but achievable.
+  
 
   
 
+
+  
 
 ---
 
@@ -66,6 +79,8 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm)
 
 ---
@@ -76,9 +91,12 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
   
 
 Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
+  
 
   
 
+
+  
 
 ---
 
@@ -90,6 +108,8 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm)
 
 ---
@@ -100,9 +120,12 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
   
 
 Premier Li Qiang on Wednesday said Beijing would continue to fully implement the One Country, Two Systems policy and have the two SARs administered by patriots.
+  
 
   
 
+
+  
 
 ---
 
@@ -114,6 +137,8 @@ Premier Li Qiang on Wednesday said Beijing would continue to fully implement the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm)
 
 ---
@@ -124,9 +149,12 @@ Premier Li Qiang on Wednesday said Beijing would continue to fully implement the
   
 
 Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama Canal port operator to a BlackRock Inc-backed consortium, following intense pressure from US President Donald Trump.
+  
 
   
 
+
+  
 
 ---
 
@@ -137,6 +165,8 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
 
@@ -149,9 +179,12 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
   
 
 World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
+  
 
   
 
+
+  
 
 ---
 
@@ -163,6 +196,8 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
 
 ---
@@ -173,9 +208,12 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
   
 
 A Beijing official overseeing Hong Kong and Macau affairs has told delegates to the national legislative body to ride on the stock market boom and boost economic development in the territory.
+  
 
   
 
+
+  
 
 ---
 
@@ -187,6 +225,8 @@ A Beijing official overseeing Hong Kong and Macau affairs has told delegates to 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm)
 
 ---
@@ -197,9 +237,12 @@ A Beijing official overseeing Hong Kong and Macau affairs has told delegates to 
   
 
 The founding president of the Hong Kong University of Science and Technology (HKUST) has died last Sunday at the age of 87.
+  
 
   
 
+
+  
 
 ---
 
@@ -211,6 +254,8 @@ The founding president of the Hong Kong University of Science and Technology (HK
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794219-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794219-20250304.htm)
 
 ---
@@ -221,9 +266,12 @@ The founding president of the Hong Kong University of Science and Technology (HK
   
 
 The chairman of a leading casino and hospitality group in Macau said on Tuesday that Hong Kong and Macau should work together to attract more foreign investors.
+  
 
   
 
+
+  
 
 ---
 
@@ -235,6 +283,8 @@ The chairman of a leading casino and hospitality group in Macau said on Tuesday 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm)
 
 ---
@@ -245,9 +295,12 @@ The chairman of a leading casino and hospitality group in Macau said on Tuesday 
   
 
 The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.
+  
 
   
 
+
+  
 
 ---
 
@@ -259,6 +312,8 @@ The chairman of the Chinese People's Political Consultative Conference (CPPCC) o
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm)
 
 ---
@@ -269,9 +324,12 @@ The chairman of the Chinese People's Political Consultative Conference (CPPCC) o
   
 
 The firm which operates the Octopus Card on Tuesday said it hopes to shorten the process needed to implement the government's plans to scale back the HK$2 elderly transport subsidy scheme.
+  
 
   
 
+
+  
 
 ---
 
@@ -283,6 +341,8 @@ The firm which operates the Octopus Card on Tuesday said it hopes to shorten the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm)
 
 ---
@@ -293,9 +353,12 @@ The firm which operates the Octopus Card on Tuesday said it hopes to shorten the
   
 
 Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Kong on Tuesday as a newly minted SAR resident.
+  
 
   
 
+
+  
 
 ---
 
@@ -307,6 +370,8 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
 
 ---
@@ -317,9 +382,12 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
   
 
 Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't know whether new US tariffs on Chinese goods will also cover Hong Kong products, but in any case transit trade could be hit in the short term.
+  
 
   
 
+
+  
 
 ---
 
@@ -331,6 +399,8 @@ Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm)
 
 ---
@@ -341,9 +411,12 @@ Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't
   
 
 Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without permission, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
+  
 
   
 
+
+  
 
 ---
 
@@ -355,6 +428,8 @@ Facial recognition technology could be deployed at Kai Tak Sports Park and other
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
 
 ---
@@ -365,9 +440,12 @@ Facial recognition technology could be deployed at Kai Tak Sports Park and other
   
 
 A local economics academic said he does not expect major policy shifts in the "Two Sessions" meetings in Beijing, saying it's important for the central government to focus on stabilising sentiment and continuing with high-quality growth.
+  
 
   
 
+
+  
 
 ---
 
@@ -379,6 +457,8 @@ A local economics academic said he does not expect major policy shifts in the "T
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
 
 ---
@@ -389,9 +469,12 @@ A local economics academic said he does not expect major policy shifts in the "T
   
 
 Hong Kong delegates to the nation's top political advisory body who met with senior mainland official Xia Baolong in Beijing on Monday evening quoted him as saying the city should unite in supporting Chief Executive John Lee's administration.
+  
 
   
 
+
+  
 
 ---
 
@@ -403,6 +486,8 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
 
 ---
@@ -413,9 +498,12 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
   
 
 Sunbeam Theatre – the North Point venue best known for its Cantonese opera performances – put on its last show on Monday night, bidding farewell to fans and opera lovers after more than half a century.
+  
 
   
 
+
+  
 
 ---
 
@@ -427,6 +515,8 @@ Sunbeam Theatre – the North Point venue best known for its Cantonese opera per
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm)
 
 ---
@@ -437,9 +527,12 @@ Sunbeam Theatre – the North Point venue best known for its Cantonese opera per
   
 
 Conservation groups are warning that around a quarter of almost 900 different species assessed in Hong Kong are at risk of local extinction, with types of birds and freshwater fish among the most in danger of disappearing from the territory.
+  
 
   
 
+
+  
 
 ---
 
@@ -451,6 +544,8 @@ Conservation groups are warning that around a quarter of almost 900 different sp
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm)
 
 ---
@@ -461,9 +556,12 @@ Conservation groups are warning that around a quarter of almost 900 different sp
   
 
 Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking the 11th consecutive month of declines.
+  
 
   
 
+
+  
 
 ---
 
@@ -475,6 +573,8 @@ Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking th
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm)
 
 ---
@@ -485,9 +585,12 @@ Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking th
   
 
 Taxis that offer a variety of ways to pay and come equipped with systems to keep an eye on the driver are about to arrive on the city's streets, with officials saying the only way is up when it comes to service quality.
+  
 
   
 
+
+  
 
 ---
 
@@ -499,6 +602,8 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm)
 
 ---
@@ -509,9 +614,12 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
   
 
 The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
+  
 
   
 
+
+  
 
 ---
 
@@ -523,6 +631,8 @@ The ICAC on Monday said it received 2,058 reports of corruption last year, up th
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
 
 ---
@@ -533,9 +643,12 @@ The ICAC on Monday said it received 2,058 reports of corruption last year, up th
   
 
 Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+  
 
   
 
+
+  
 
 ---
 
@@ -547,6 +660,8 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
 
 ---
@@ -557,9 +672,12 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
   
 
 Chief Executive John Lee will head to Beijing on Tuesday to attend the annual opening meeting of the National People’s Congress (NPC).
+  
 
   
 
+
+  
 
 ---
 
@@ -571,6 +689,8 @@ Chief Executive John Lee will head to Beijing on Tuesday to attend the annual op
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm)
 
 ---
@@ -581,9 +701,12 @@ Chief Executive John Lee will head to Beijing on Tuesday to attend the annual op
   
 
 Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – from the development of artificial intelligence to a low-altitude economy – as the SAR seeks to further integrate into the nation's development.
+  
 
   
 
+
+  
 
 ---
 
@@ -595,6 +718,8 @@ Hong Kong delegates attending the "Two Sessions" meetings this year said they're
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
 
 ---
@@ -605,9 +730,12 @@ Hong Kong delegates attending the "Two Sessions" meetings this year said they're
   
 
 A lawmaker on Monday said the Kai Tak Stadium places Hong Kong on the map as a "hot destination" for major concerts and events, after the Kai Tak Sports Park officially opened over the weekend.
+  
 
   
 
+
+  
 
 ---
 
@@ -619,6 +747,8 @@ A lawmaker on Monday said the Kai Tak Stadium places Hong Kong on the map as a "
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm)
 
 ---
@@ -629,9 +759,12 @@ A lawmaker on Monday said the Kai Tak Stadium places Hong Kong on the map as a "
   
 
 A local delegate to the country’s top advisory body plans to ask for measures on facilitating people flow within the Greater Bay Area, during the upcoming “Two Sessions” meetings in Beijing.
+  
 
   
 
+
+  
 
 ---
 
@@ -643,6 +776,8 @@ A local delegate to the country’s top advisory body plans to ask for measures 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
 
 ---
@@ -653,9 +788,12 @@ A local delegate to the country’s top advisory body plans to ask for measures 
   
 
 Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understood the need for a pay freeze given the government’s deficit.
+  
 
   
 
+
+  
 
 ---
 
@@ -667,6 +805,8 @@ Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understo
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793871-20250302.htm)
 
 ---
@@ -677,9 +817,12 @@ Civil Service Secretary Ingrid Yeung on Sunday said most civil servants understo
   
 
 Financial Secretary Paul Chan on Sunday said officials plan to go ahead with a proposed land departure tax for private cars, saying this represented a wealthier demographic in society.
+  
 
   
 
+
+  
 
 ---
 
@@ -691,6 +834,8 @@ Financial Secretary Paul Chan on Sunday said officials plan to go ahead with a p
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793870-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793870-20250302.htm)
 
 ---
@@ -701,9 +846,12 @@ Financial Secretary Paul Chan on Sunday said officials plan to go ahead with a p
   
 
 Technology and innovation chief Sun Dong on Sunday said policies related to artificial intelligence (AI) mentioned in last month's budget show the government’s commitment to high-quality development.
+  
 
   
 
+
+  
 
 ---
 
@@ -715,6 +863,8 @@ Technology and innovation chief Sun Dong on Sunday said policies related to arti
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm)
 
 ---
@@ -725,9 +875,12 @@ Technology and innovation chief Sun Dong on Sunday said policies related to arti
   
 
 The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old, who travelled to the country in early February, is now stable at Queen Elizabeth Hospital.
+  
 
   
 
+
+  
 
 ---
 
@@ -739,6 +892,8 @@ The Centre for Health Protection (CHP) says people should make sure they are ful
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm)
 
 ---
@@ -749,9 +904,12 @@ The Centre for Health Protection (CHP) says people should make sure they are ful
   
 
 Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
+  
 
   
 
+
+  
 
 ---
 
@@ -763,6 +921,8 @@ Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
 
 ---
@@ -773,9 +933,12 @@ Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled
   
 
 A fencing duel between movie star Donnie Yen and Olympic gold medallist Vivian Kong, a medley performance by celebrity couple George Lam and Sally Yeh, and a surprise appearance by singer and actor Andy Lau were some of the highlights for the opening ceremony of Kai Tak Sports Park on Saturday night.
+  
 
   
 
+
+  
 
 ---
 
@@ -787,6 +950,8 @@ A fencing duel between movie star Donnie Yen and Olympic gold medallist Vivian K
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm)
 
 ---
@@ -797,9 +962,12 @@ A fencing duel between movie star Donnie Yen and Olympic gold medallist Vivian K
   
 
 The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the chief executive told the crowd during the opening ceremony on Saturday night.
+  
 
   
 
+
+  
 
 ---
 
@@ -810,6 +978,8 @@ The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the c
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm)
 
@@ -822,9 +992,12 @@ The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the c
   
 
 Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening ceremony on Saturday night, but some were left confused by the rules of admission.
+  
 
   
 
+
+  
 
 ---
 
@@ -836,6 +1009,8 @@ Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm)
 
 ---
@@ -846,9 +1021,12 @@ Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening 
   
 
 Five taxi companies which were awarded licences to operate taxi fleets will roll out the long-awaited service next week, according to the secretary for transport and logistics.
+  
 
   
 
+
+  
 
 ---
 
@@ -860,6 +1038,8 @@ Five taxi companies which were awarded licences to operate taxi fleets will roll
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm)
 
 ---
@@ -870,9 +1050,12 @@ Five taxi companies which were awarded licences to operate taxi fleets will roll
   
 
 Hong Kong-based singer songwriter Khalil Fong has died at the age of 41, his music label revealed on Saturday.
+  
 
   
 
+
+  
 
 ---
 
@@ -884,6 +1067,8 @@ Hong Kong-based singer songwriter Khalil Fong has died at the age of 41, his mus
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793788-20250301.htm)
 
 ---
@@ -894,9 +1079,12 @@ Hong Kong-based singer songwriter Khalil Fong has died at the age of 41, his mus
   
 
 Financial Secretary Paul Chan on Saturday said his proposal to freeze civil servant pay aims to show the government's determination in achieving a fiscal balance.
+  
 
   
 
+
+  
 
 ---
 
@@ -908,6 +1096,8 @@ Financial Secretary Paul Chan on Saturday said his proposal to freeze civil serv
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793772-20250301.htm)
 
 ---
@@ -918,9 +1108,12 @@ Financial Secretary Paul Chan on Saturday said his proposal to freeze civil serv
   
 
 Users will be able to check the remaining number of discounted trips using an Octopus card reader when changes to the HK$2 elderly transport subsidy take effect, the labour and welfare chief Chris Sun said on Saturday.
+  
 
   
 
+
+  
 
 ---
 
@@ -932,6 +1125,8 @@ Users will be able to check the remaining number of discounted trips using an Oc
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm)
 
 ---
@@ -942,9 +1137,12 @@ Users will be able to check the remaining number of discounted trips using an Oc
   
 
 Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the way for basketball betting will be passed by lawmakers by September this year.
+  
 
   
 
+
+  
 
 ---
 
@@ -956,6 +1154,8 @@ Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm)
 
 ---
@@ -966,9 +1166,12 @@ Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the 
   
 
 An unspecified number of air traffic control staff have been suspended over an incident involving two cargo planes that triggered an alert after take-off.
+  
 
   
 
+
+  
 
 ---
 
@@ -980,6 +1183,8 @@ An unspecified number of air traffic control staff have been suspended over an i
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm)
 
 ---
@@ -990,9 +1195,12 @@ An unspecified number of air traffic control staff have been suspended over an i
   
 
 The Transport and Logistics Bureau is aiming to complete a review on the fixed penalties for traffic-related offences and various fees and tolls this year, its chief said on Friday.
+  
 
   
 
+
+  
 
 ---
 
@@ -1004,6 +1212,8 @@ The Transport and Logistics Bureau is aiming to complete a review on the fixed p
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm)
 
 ---
@@ -1014,9 +1224,12 @@ The Transport and Logistics Bureau is aiming to complete a review on the fixed p
   
 
 Hong Kong's fencing king and two-time Olympic gold medallist Edgar Cheung has encouraged students to never give up in the face of adversity.
+  
 
   
 
+
+  
 
 ---
 
@@ -1028,6 +1241,8 @@ Hong Kong's fencing king and two-time Olympic gold medallist Edgar Cheung has en
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm)
 
 ---
@@ -1038,9 +1253,12 @@ Hong Kong's fencing king and two-time Olympic gold medallist Edgar Cheung has en
   
 
 The government said on Friday that eight residential plots it plans to roll out in the coming financial year can house around 4,450 flats, more than a fifth less than the figure from the current fiscal year.
+  
 
   
 
+
+  
 
 ---
 
@@ -1052,6 +1270,8 @@ The government said on Friday that eight residential plots it plans to roll out 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm)
 
 ---
@@ -1062,9 +1282,12 @@ The government said on Friday that eight residential plots it plans to roll out 
   
 
 Secretary for Commerce and Economic Development Algernon Yau on Friday said authorities are seeking clarifications as to whether new additional tariffs on Chinese imports announced by the US also cover goods from Hong Kong.
+  
 
   
 
+
+  
 
 ---
 
@@ -1076,6 +1299,8 @@ Secretary for Commerce and Economic Development Algernon Yau on Friday said auth
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm)
 
 ---
@@ -1086,9 +1311,12 @@ Secretary for Commerce and Economic Development Algernon Yau on Friday said auth
   
 
 Hong Kong Unison, a group advocating the rights of the city's ethnic minorities, on Friday announced it was starting its dissolution process, saying its “historical mission has been successfully accomplished.”
+  
 
   
 
+
+  
 
 ---
 
@@ -1100,6 +1328,8 @@ Hong Kong Unison, a group advocating the rights of the city's ethnic minorities,
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm)
 
 ---
@@ -1110,9 +1340,12 @@ Hong Kong Unison, a group advocating the rights of the city's ethnic minorities,
   
 
 Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of the Kai Tak Sports Park is only the beginning of many mega events in March, adding that preparations are in the final stage.
+  
 
   
 
+
+  
 
 ---
 
@@ -1124,6 +1357,8 @@ Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm)
 
 ---
@@ -1134,9 +1369,12 @@ Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of
   
 
 The government says people attending the opening ceremony for Kai Tak Sports Park on Saturday evening must get their tickets by 3pm on the day.
+  
 
   
 
+
+  
 
 ---
 
@@ -1148,6 +1386,8 @@ The government says people attending the opening ceremony for Kai Tak Sports Par
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm)
 
 ---
@@ -1158,9 +1398,12 @@ The government says people attending the opening ceremony for Kai Tak Sports Par
   
 
 Hong Kong home prices retreated to their lowest level in nearly eight and a half years in January.
+  
 
   
 
+
+  
 
 ---
 
@@ -1172,6 +1415,8 @@ Hong Kong home prices retreated to their lowest level in nearly eight and a half
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
 
 ---
@@ -1182,9 +1427,12 @@ Hong Kong home prices retreated to their lowest level in nearly eight and a half
   
 
 Financial Secretary Paul Chan on Friday said overseas firms were still keen on the mainland market and on Hong Kong's position as a gateway to that, a day after US President Donald Trump said a further 10 percent levies on China would be going ahead.
+  
 
   
 
+
+  
 
 ---
 
@@ -1196,6 +1444,8 @@ Financial Secretary Paul Chan on Friday said overseas firms were still keen on t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm)
 
 ---
@@ -1206,9 +1456,12 @@ Financial Secretary Paul Chan on Friday said overseas firms were still keen on t
   
 
 The SAR government has condemned members of the US Senate Committee on Foreign Affairs, accusing them of making baseless allegations against Hong Kong's national security law.
+  
 
   
 
+
+  
 
 ---
 
@@ -1220,6 +1473,8 @@ The SAR government has condemned members of the US Senate Committee on Foreign A
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm)
 
 ---
@@ -1230,9 +1485,12 @@ The SAR government has condemned members of the US Senate Committee on Foreign A
   
 
 Support for private businesses is a very important area that will be addressed during the upcoming "Two Sessions" meetings in Beijing, according to Hong Kong's sole delegate to the country's top legislature.
+  
 
   
 
+
+  
 
 ---
 
@@ -1244,6 +1502,8 @@ Support for private businesses is a very important area that will be addressed d
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
 
 ---
@@ -1254,9 +1514,12 @@ Support for private businesses is a very important area that will be addressed d
   
 
 The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt is still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
+  
 
   
 
+
+  
 
 ---
 
@@ -1268,6 +1531,8 @@ The Secretary for Financial Services and the Treasury Christopher Hui said the S
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
 
 ---
@@ -1278,9 +1543,12 @@ The Secretary for Financial Services and the Treasury Christopher Hui said the S
   
 
 Labour and welfare chief Chris Sun on Thursday said it will take time for the authorities to prepare for changes to the HK$2 transport subsidy scheme, which will be implemented no later than September next year.
+  
 
   
 
+
+  
 
 ---
 
@@ -1292,6 +1560,8 @@ Labour and welfare chief Chris Sun on Thursday said it will take time for the au
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793531-20250227.htm)
 
 ---
@@ -1302,9 +1572,12 @@ Labour and welfare chief Chris Sun on Thursday said it will take time for the au
   
 
 Former lawmaker Lam Cheuk-ting and six others were on Thursday sentenced to between 25 and 37 months behind bars each, after earlier being found guilty of rioting in Yuen Long in 2019.
+  
 
   
 
+
+  
 
 ---
 
@@ -1316,6 +1589,8 @@ Former lawmaker Lam Cheuk-ting and six others were on Thursday sentenced to betw
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793502-20250227.htm)
 
 ---
@@ -1326,9 +1601,12 @@ Former lawmaker Lam Cheuk-ting and six others were on Thursday sentenced to betw
   
 
 Education Secretary Christine Choi on Thursday said there is "never a good time" to scrap the HK$2,500 student grant but the current financial situation makes it necessary.
+  
 
   
 
+
+  
 
 ---
 
@@ -1340,6 +1618,8 @@ Education Secretary Christine Choi on Thursday said there is "never a good time"
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793521-20250227.htm)
 
 ---
@@ -1350,9 +1630,12 @@ Education Secretary Christine Choi on Thursday said there is "never a good time"
   
 
 Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a new Hong Kong AI Research and Development Institute could commence operation as early as next year.
+  
 
   
 
+
+  
 
 ---
 
@@ -1364,6 +1647,8 @@ Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a ne
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793505-20250227.htm)
 
 ---
@@ -1374,9 +1659,12 @@ Secretary for Innovation, Technology and Industry Sun Dong on Thursday said a ne
   
 
 Financial Secretary Paul Chan said on Thursday that the government no longer wants to rely heavily on land sales as a main source of revenue.
+  
 
   
 
+
+  
 
 ---
 
@@ -1388,6 +1676,8 @@ Financial Secretary Paul Chan said on Thursday that the government no longer wan
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793467-20250227.htm)
 
 ---
@@ -1398,9 +1688,12 @@ Financial Secretary Paul Chan said on Thursday that the government no longer wan
   
 
 The Education Bureau said that medical schools at Chinese University (CUHK) and the University of Hong Kong (HKU) would have 60 more training places in the next academic year.
+  
 
   
 
+
+  
 
 ---
 
@@ -1412,6 +1705,8 @@ The Education Bureau said that medical schools at Chinese University (CUHK) and 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793464-20250227.htm)
 
 ---
@@ -1422,9 +1717,12 @@ The Education Bureau said that medical schools at Chinese University (CUHK) and 
   
 
 Financial Secretary Paul Chan on Thursday said a proposed levy on private cars departing Hong Kong is aimed at clawing back government spending on cross-boundary facilities, while dismissing the idea of a fee for all outbound travellers over the potential impact on the public.
+  
 
   
 
+
+  
 
 ---
 
@@ -1435,6 +1733,8 @@ Financial Secretary Paul Chan on Thursday said a proposed levy on private cars d
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793462-20250227.htm)
 

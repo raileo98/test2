@@ -4,9 +4,12 @@
   
 
 港股午後升幅持續擴大，恒生指數最多升近700點，曾升穿23600點水平，收市報23594點，升652點，升幅2.8%。主板成交額連續兩日不足3千億元，減至約2587億元。
+  
 
   
 
+
+  
 
 ---
 
@@ -18,18 +21,24 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm)
 
 ---
 
 # 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
 
+![何猶龍認為，澳門開放多年後，已經不只是一個「賭城」，還有演唱會、表演和會展。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794391_1_20250305161534.jpg&q=85)
   
 
 全國政協委員、新濠博亞娛樂主席兼行政總裁何猷龍接受本台訪問表示，目前澳門經濟按照特區政府「1+4」經濟適度多元發展策略推進，「1」仍然是旅遊博彩業，其實博彩公司都希望在非博彩多元化方面努力。
+  
 
   
 
+
+  
 
 ---
 
@@ -41,6 +50,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
 
 ---
@@ -51,9 +62,12 @@
   
 
 高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
+  
 
   
 
+
+  
 
 ---
 
@@ -65,18 +79,24 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
 
 ---
 
 # 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
 
+![中方反對在國際經貿關係中濫施脅迫、施壓的手段。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794387_1_20250305161843.jpg&q=25)
   
 
 對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
+  
 
   
 
+
+  
 
 ---
 
@@ -88,6 +108,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
 
 ---
@@ -98,9 +120,12 @@
   
 
 全國人大代表、奇瑞汽車董事長尹同躍表示，要全面擁抱新能源汽車，加速發展會帶來一系列變化。
+  
 
   
 
+
+  
 
 ---
 
@@ -112,6 +137,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm)
 
 ---
@@ -121,9 +148,12 @@
   
 
 全國人大代表、國家發改委黨組成員郭蘭峰表示，國家重視民營企業，民企是中國式現代化建設的重要力量，當局一定會有相關支持的政策措施，但未有透露推出的時間表。
+  
 
   
 
+
+  
 
 ---
 
@@ -134,6 +164,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm)
 
@@ -146,9 +178,12 @@
   
 
 在北京，全國政協委員、警務處前處長曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據，中方會研究反制措施，認為政治不應影響禁毒合作。
+  
 
   
 
+
+  
 
 ---
 
@@ -159,6 +194,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm)
 
@@ -171,9 +208,12 @@
   
 
 在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。
+  
 
   
 
+
+  
 
 ---
 
@@ -185,6 +225,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
 
 ---
@@ -195,9 +237,12 @@
   
 
 國家金融監管總局主管媒體《中國銀行保險報》報道指，當局近期再次批覆5家保險公司開展長期投資改革試點，規模合共600億元人民幣。5家險企包括人保壽險、中國人壽、太平人壽、新華人壽、平安人壽。
+  
 
   
 
+
+  
 
 ---
 
@@ -209,6 +254,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm)
 
 ---
@@ -219,9 +266,12 @@
   
 
 內地股市3大指數反覆靠穩，算力租賃、人形機器人股份造好，房地產、太陽能股份下跌。
+  
 
   
 
+
+  
 
 ---
 
@@ -233,6 +283,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm)
 
 ---
@@ -243,9 +295,12 @@
   
 
 國務院總理李強發表政府工作報告，人大常委李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新，她對報告充滿信心。
+  
 
   
 
+
+  
 
 ---
 
@@ -256,6 +311,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm)
 
@@ -268,9 +325,12 @@
   
 
 在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
+  
 
   
 
+
+  
 
 ---
 
@@ -282,6 +342,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm)
 
 ---
@@ -292,9 +354,12 @@
   
 
 港股升幅擴大至逾600點，恒生指數較早時報23547點，升605點，升幅2.64%。
+  
 
   
 
+
+  
 
 ---
 
@@ -306,6 +371,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm)
 
 ---
@@ -316,9 +383,12 @@
   
 
 國家金融監督管理總局局長李雲澤表示，隨著中國經濟步入新發展階段，提振消費日益成為經濟增長主引擎，科技創新更是高質量發展動力源，金融監管總局將著力推動金融資源優化配置，全方位擴大國內需求，切實增強人民群眾的獲得感和滿意度。
+  
 
   
 
+
+  
 
 ---
 
@@ -330,6 +400,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm)
 
 ---
@@ -340,9 +412,12 @@
   
 
 新西蘭央行總裁奧爾辭職，結束7年任期，將休假至本月底離任，他原定2028年3月底卸任。
+  
 
   
 
+
+  
 
 ---
 
@@ -354,6 +429,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm)
 
 ---
@@ -364,9 +441,12 @@
   
 
 陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
+  
 
   
 
+
+  
 
 ---
 
@@ -377,6 +457,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
 
@@ -391,7 +473,6 @@
 
   
 
-
 ---
 
 原始網址 Original URL：
@@ -401,6 +482,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm)
 
@@ -415,7 +498,6 @@
 
   
 
-
 ---
 
 原始網址 Original URL：
@@ -425,6 +507,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm)
 
@@ -438,9 +522,12 @@
   
 
 內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
+  
 
   
 
+
+  
 
 ---
 
@@ -451,6 +538,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
 
@@ -465,7 +554,6 @@
 
   
 
-
 ---
 
 原始網址 Original URL：
@@ -475,6 +563,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm)
 
@@ -486,9 +576,12 @@
   
 
 國家金融監督管理總局局長李雲澤表示，去年金融監管總局將金融資產投資公司股權投資試點範圍擴大到全國18個城市，取得積極成效，簽約金額已經超過3500億元人民幣。今年，金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。
+  
 
   
 
+
+  
 
 ---
 
@@ -499,6 +592,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm)
 
@@ -513,7 +608,6 @@
 
   
 
-
 ---
 
 原始網址 Original URL：
@@ -523,6 +617,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm)
 
@@ -535,9 +631,12 @@
   
 
 國務院總理李強發表內任第二份政府工作報告，在北京，港區人大代表霍啟剛表示，當前確實面臨很多挑戰，世界局面正在變化，工作報告有「穩大局」面向世界的角色，同時「穩信心」，對過往一年的經濟指標給予肯定。他又認為報告為未來的前進步伐提供清晰路徑及藍圖。
+  
 
   
 
+
+  
 
 ---
 
@@ -549,6 +648,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
 
 ---
@@ -559,9 +660,12 @@
   
 
 港股下午開市初段升逾400點，恒生指數較早時報23361點，升419點，升幅1.83%。
+  
 
   
 
+
+  
 
 ---
 
@@ -573,6 +677,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm)
 
 ---
@@ -583,9 +689,12 @@
   
 
 國家市場監管總局局長羅文表示，部分主播惡意炒作，虛假行銷，帶來假冒偽劣產品現象比較突出，消費者反映強烈亦十分突出。市監總局將壓實平台審核責任，加強產品質量專項抽檢，加大監管執法力度，嚴厲打擊虛假廣告、虛假宣傳等行為，維護公平競爭秩序，不斷提升網售產品質量。
+  
 
   
 
+
+  
 
 ---
 
@@ -597,6 +706,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm)
 
 ---
@@ -607,9 +718,12 @@
   
 
 國務院總理李強在政府工作報告表示，今年經濟增長目標5%左右，赤字率計劃按4%左右安排，比上年提高1個百分點。
+  
 
   
 
+
+  
 
 ---
 
@@ -621,6 +735,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm)
 
 ---
@@ -631,9 +747,12 @@
   
 
 國家金融監督管理總局局長李雲澤表示，內地金融風險穩步收斂，存量風險正有序處置，增量風險亦得到明顯遏制，特別是去年加大不良資產處置力度，全年共處置不良資產3.8萬億元人民幣，創歷年最多，守住不發生系統性風險底線。
+  
 
   
 
+
+  
 
 ---
 
@@ -644,6 +763,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm)
 
@@ -656,9 +777,12 @@
   
 
 全國人大代表、經濟學者田軒認為，將今年國內生產總值增長目標訂於5%左右，是保持政策延續性，有助穩就業惠民生。
+  
 
   
 
+
+  
 
 ---
 
@@ -670,6 +794,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm)
 
 ---
@@ -680,9 +806,12 @@
   
 
 第十四屆全國人大三次會議早上在北京開幕，國務院總理李強發表任內第二份政府工作報告，當中定出今年國內生產總值目標增長為5%左右。
+  
 
   
 
+
+  
 
 ---
 
@@ -694,6 +823,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm)
 
 ---
@@ -704,9 +835,12 @@
   
 
 港股重上23000點，恒生指數早段高見23513點，升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升378點，升幅1.65%，半日主板成交額近1352億元。
+  
 
   
 
+
+  
 
 ---
 
@@ -718,6 +852,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm)
 
 ---
@@ -728,9 +864,12 @@
   
 
 全國人大會議今早在北京人民大會堂開幕。
+  
 
   
 
+
+  
 
 ---
 
@@ -742,6 +881,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
 
 ---
@@ -752,9 +893,12 @@
   
 
 滬深股市半日個別發展，工程機械、通信服務等板塊上升；房地產、光伏設備等股份下跌。
+  
 
   
 
+
+  
 
 ---
 
@@ -766,6 +910,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm)
 
 ---
@@ -776,9 +922,12 @@
   
 
 財政預算案提出，「二元優惠計劃」將新增每月240程限制，10元以上車費則收兩折。勞工及福利局局長孫玉菡表示，計劃推行十多年才作金額上調整，相信安排會令到整個計劃的可持續性大大提高，但將來政府會否因應情況再作調整，他說，局方不可以完全否定此可能性。
+  
 
   
 
+
+  
 
 ---
 
@@ -790,6 +939,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794333-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794333-20250305.htm)
 
 ---
@@ -800,9 +951,12 @@
   
 
 日本央行副總裁內田真一表示，如果經濟和物價走勢符合央行預期，央行將會繼續加息。
+  
 
   
 
+
+  
 
 ---
 
@@ -814,6 +968,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794328-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794328-20250305.htm)
 
 ---
@@ -824,9 +980,12 @@
   
 
 財政預算案提出，計劃將部分商業用地改劃作住宅地，發展局局長甯漢豪舉例說，未來幾年原本有幾幅在沙田石門的商業地，考慮到今年沙田小瀝源住宅地市場反應幾好，有空間可改劃作住宅用途，但她強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。
+  
 
   
 
+
+  
 
 ---
 
@@ -838,6 +997,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm)
 
 ---
@@ -848,9 +1009,12 @@
   
 
 美國總統特朗普在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。特朗普發言時，兩側分別是眾議院議長約翰遜，以及兼任參議院議長的副總統萬斯。
+  
 
   
 
+
+  
 
 ---
 
@@ -861,6 +1025,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm)
 
@@ -875,7 +1041,6 @@
 
   
 
-
 ---
 
 原始網址 Original URL：
@@ -885,6 +1050,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794324-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794324-20250305.htm)
 
@@ -896,9 +1063,12 @@
   
 
 財新公布，經季節調整後，2月中國通用服務業經營活動指數升至51.4，高過1月的51。
+  
 
   
 
+
+  
 
 ---
 
@@ -910,6 +1080,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794316-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794316-20250305.htm)
 
 ---
@@ -920,9 +1092,12 @@
   
 
 國務院總理李強在政府工作報告中表示，今年要著力抓好「三農」工作，深入推進鄉村全面振興，堅持農業農村優先發展，學習運用「千萬工程」經驗，完善強農惠農富農支持制度，千方百計推動農業增效益、農村增活力、農民增收入。
+  
 
   
 
+
+  
 
 ---
 
@@ -934,6 +1109,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm)
 
 ---
@@ -944,9 +1121,12 @@
   
 
 國務院總理李強在政府工作報告指出，要加大區域戰略實施力度，發揮區域協調發展戰略、區域重大戰略、主體功能區戰略的疊加效應，積極培育新的增長極。
+  
 
   
 
+
+  
 
 ---
 
@@ -958,6 +1138,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm)
 
 ---
@@ -968,9 +1150,12 @@
   
 
 財政預算案提出至2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，部分社福開支，例如綜援及長生津等不會削減，而社福機構的撥款就需要削減，但政府會協助中小型社福機構承擔4%開支，削減幅度降至3%，相信在推行鬆綁措施後，有信心能幫助機構面對減幅。
+  
 
   
 
+
+  
 
 ---
 
@@ -982,6 +1167,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm)
 
 ---
@@ -992,9 +1179,12 @@
   
 
 在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
+  
 
   
 
+
+  
 
 ---
 
@@ -1006,6 +1196,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
 
 ---
@@ -1016,9 +1208,12 @@
   
 
 在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
+  
 
   
 
+
+  
 
 ---
 
@@ -1030,6 +1225,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
 
 ---
@@ -1040,9 +1237,12 @@
   
 
 國務院總理李強發表政府工作報告，表示要持續用力推動房地產市場止跌回穩，因城施策調減限制性措施，合理控制新增房地產用地供應，盤活存量用地和商辦用房，推進收購存量商品房。拓寬保障性住房再貸款使用範圍，繼續做好保交房工作，有效防範房企債務違約風險，並穩妥化解地方政府債務風險。
+  
 
   
 
+
+  
 
 ---
 
@@ -1054,6 +1254,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm)
 
 ---
@@ -1064,9 +1266,12 @@
   
 
 港股升逾500點，恒生指數高見23513點，最新報23488點，升546點。
+  
 
   
 
+
+  
 
 ---
 
@@ -1078,6 +1283,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794308-20250305.htm)
 
 ---
@@ -1088,9 +1295,12 @@
   
 
 國務院總理李強在政府工作報告指出，要更大力度穩定和擴大就業，完善就業優先政策，加大各類資金資源統籌支持力度，促進充分就業、提高就業質量，實施重點領域、重點行業、城鄉基層和中小微企業就業支持計劃，用足用好穩崗返還、稅費減兔、就業補貼等政策。
+  
 
   
 
+
+  
 
 ---
 
@@ -1101,6 +1311,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm)
 
@@ -1115,7 +1327,6 @@
 
   
 
-
 ---
 
 原始網址 Original URL：
@@ -1125,6 +1336,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
 
@@ -1136,9 +1349,12 @@
   
 
 國務院總理李強在政府工作報告中說，今年要深入實施科教興國戰略，提升國家創新體系整體效能。堅持創新引領發展，一體推進教育發展、科技創新、人才培養，築牢中國式現代化的基礎性。
+  
 
   
 
+
+  
 
 ---
 
@@ -1150,6 +1366,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794306-20250305.htm)
 
 ---
@@ -1160,9 +1378,12 @@
   
 
 內地股市窄幅上落。
+  
 
   
 
+
+  
 
 ---
 
@@ -1174,6 +1395,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794305-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794305-20250305.htm)
 
 ---
@@ -1184,9 +1407,12 @@
   
 
 房委會「白表居屋第二市場計劃 2024」於明日上午8時開始接受申請，直至本月26日晚上7時為止，為期3星期。
+  
 
   
 
+
+  
 
 ---
 
@@ -1198,6 +1424,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794304-20250305.htm)
 
 ---
@@ -1208,9 +1436,12 @@
   
 
 國務院總理李強表示，將實施更加積極財政政策，今年赤字率擬按4%左右安排，赤字規模5.66萬億元人民幣，並實施適度寬鬆的貨幣政策，適時降準降息。
+  
 
   
 
+
+  
 
 ---
 
@@ -1222,6 +1453,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794302-20250305.htm)
 
 ---
@@ -1232,9 +1465,12 @@
   
 
 國務院總理李強發表政府工作報告，表示要紮實推動重點領域改革，包括高質量完成國企改革深化提升行動，落實促進民營經濟發展政策措施，推動全國統一大市場建設，打通市場准入退出，綜合整治「內卷式」競爭。
+  
 
   
 
+
+  
 
 ---
 
@@ -1246,6 +1482,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794301-20250305.htm)
 
 ---
@@ -1256,9 +1494,12 @@
   
 
 在北京，全國人大代表、廣東省省長王偉中回應河套區發展時表示，今年會合作得越來越好，至於深圳在科技發展方面有何可取之處，他表示，深圳和香港都在共同創新。
+  
 
   
 
+
+  
 
 ---
 
@@ -1270,6 +1511,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794300-20250305.htm)
 
 ---
@@ -1280,9 +1523,12 @@
   
 
 國務院總理李強在政府工作報告中表示，今年經濟社會發展任務十分繁重，要突出重點、把握關鍵，著重抓好幾個方面工作。
+  
 
   
 
+
+  
 
 ---
 
@@ -1294,6 +1540,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794299-20250305.htm)
 
 ---
@@ -1304,9 +1552,12 @@
   
 
 美國總統特朗普將在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。
+  
 
   
 
+
+  
 
 ---
 
@@ -1318,6 +1569,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm)
 
 ---
@@ -1328,9 +1581,12 @@
   
 
 《民營經濟促進法》沒有納入全國人大會議三審。在北京，全國人大憲法和法律委員會副主任周光權接受本台訪問指，全國人大常委會會議在上月底才二審《民營經濟促進法》，可能需要很多調研和準備工作，因此全國人大要統籌相關安排。
+  
 
   
 
+
+  
 
 ---
 
@@ -1342,6 +1598,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794296-20250305.htm)
 
 ---
@@ -1352,9 +1610,12 @@
   
 
 港股高開258點，恒指競價時段報23200點。當中公布計劃出售非中國港口資產的長和股價急升近一成半。
+  
 
   
 
+
+  
 
 ---
 
@@ -1366,6 +1627,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794293-20250305.htm)
 
 ---
@@ -1376,9 +1639,12 @@
   
 
 國務院總理李強提出，今年國內生產總值目標增長5%左右，城鎮調查失業率5.5%左右，城鎮新增就業1200萬人以上，居民消費價格升幅2%左右，居民收入增長和經濟增長同步，國際收支保持基本平衡。
+  
 
   
 
+
+  
 
 ---
 
@@ -1390,6 +1656,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794292-20250305.htm)
 
 ---
@@ -1400,9 +1668,12 @@
   
 
 在北京，全國政協委員、港澳辦副主任王靈桂列席全國人大會議開幕會前，被問到中央會否再有惠港措施推出，他反問記者認為香港股市較去年有何變化，認為股市是由所有股民造起來，他們對香港有信心，所以股市就會發展得很好。
+  
 
   
 
+
+  
 
 ---
 
@@ -1413,6 +1684,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm)
 
@@ -1427,7 +1700,6 @@
 
   
 
-
 ---
 
 原始網址 Original URL：
@@ -1437,6 +1709,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm)
 

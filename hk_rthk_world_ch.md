@@ -1,11 +1,15 @@
 # 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
 
+![中方反對在國際經貿關係中濫施脅迫、施壓的手段。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794387_1_20250305161843.jpg&q=25)
   
 
 對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
+  
 
   
 
+
+  
 
 ---
 
@@ -17,6 +21,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
 
 ---
@@ -27,9 +33,12 @@
   
 
 國務院總理李強表示，新的一年要堅持獨立自主的和平外交政策，奉行互利共贏戰略，反對霸權主義、強權政治、單邊主義和保護主義，中國願同國際社會一道，推動構建人類命運共同體。
+  
 
   
 
+
+  
 
 ---
 
@@ -41,6 +50,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm)
 
 ---
@@ -51,9 +62,12 @@
   
 
 美國總統特朗普到國會發表演說，是他再次就任總統後，首度向兩院致辭。特朗普首先形容「美國已經回歸」，聲稱6星期前自己就職是宣告美國黃金時代到來，他的政府行動迅速，目前所做的事情比其他人的四年任期更多。
+  
 
   
 
+
+  
 
 ---
 
@@ -65,6 +79,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm)
 
 ---
@@ -75,9 +91,12 @@
   
 
 美國總統特朗普在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。特朗普發言時，兩側分別是眾議院議長約翰遜，以及兼任參議院議長的副總統萬斯。
+  
 
   
 
+
+  
 
 ---
 
@@ -89,6 +108,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm)
 
 ---
@@ -99,9 +120,12 @@
   
 
 國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
+  
 
   
 
+
+  
 
 ---
 
@@ -113,6 +137,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
 
 ---
@@ -123,9 +149,12 @@
   
 
 美國總統特朗普將在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。
+  
 
   
 
+
+  
 
 ---
 
@@ -137,6 +166,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm)
 
 ---
@@ -147,9 +178,12 @@
   
 
 尼日利亞有公共汽車爆炸，最少16名乘客死亡。
+  
 
   
 
+
+  
 
 ---
 
@@ -161,6 +195,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm)
 
 ---
@@ -171,9 +207,12 @@
   
 
 聯合國人道主義事務協調廳發表報告，指出通往加沙地帶的凱雷姆沙洛姆口岸、齊基姆口岸及埃雷茲口岸，連續第三日禁止貨物通行，警告有關口岸若繼續被關閉，將為剛開始從貧困及饑餓中見到曙光的加沙民眾，帶來毀滅性後果。
+  
 
   
 
+
+  
 
 ---
 
@@ -185,6 +224,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm)
 
 ---
@@ -195,9 +236,12 @@
   
 
 美國總統特朗普日前在白宮與烏克蘭總統澤連斯基不歡而散的事件，餘波未了，白宮高級官員據報與澤連斯基團隊進行秘密會談。
+  
 
   
 
+
+  
 
 ---
 
@@ -209,6 +253,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm)
 
 ---
@@ -219,9 +265,12 @@
   
 
 美國總統特朗普正式下令由當地星期二開始，對中國輸美產品加徵的關稅，由之前的10%提高至20%。
+  
 
   
 
+
+  
 
 ---
 
@@ -233,6 +282,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm)
 
 ---
@@ -243,9 +294,12 @@
   
 
 烏克蘭總統澤連斯基表示，他上星期與美國總統特朗普的爭吵「令人遺憾」，他與團隊已準備好在美國總統的強力領導下展開工作，以實現持久和平。
+  
 
   
 
+
+  
 
 ---
 
@@ -257,6 +311,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm)
 
 ---
@@ -267,9 +323,12 @@
   
 
 美國對加拿大及墨西哥進口商品徵收25%關稅，加大宣布報復措施，總理杜魯多認為，美國總統特朗普的目的，是想摧毀加拿大的經濟，令美國更容易吞併加拿大。
+  
 
   
 
+
+  
 
 ---
 
@@ -281,6 +340,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm)
 
 ---
@@ -291,9 +352,12 @@
   
 
 巴基斯坦西北部開伯爾-普什圖省一座軍營遭到襲擊，造成12名平民死亡、32人受傷。6名恐怖分子在交火中被擊斃。總統扎爾達里發表聲明，強烈譴責襲擊。
+  
 
   
 
+
+  
 
 ---
 
@@ -305,6 +369,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm)
 
 ---
@@ -315,9 +381,12 @@
   
 
 白俄羅斯總統盧卡申科簽署法律，批准白俄羅斯和俄羅斯在聯盟國家框架內的安全保障條約。
+  
 
   
 
+
+  
 
 ---
 
@@ -329,6 +398,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794260-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794260-20250305.htm)
 
 ---
@@ -339,9 +410,12 @@
   
 
 歐盟批評美國對加拿大和墨西哥加徵關稅，並呼籲美方重新考慮其貿易政策。
+  
 
   
 
+
+  
 
 ---
 
@@ -353,6 +427,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm)
 
 ---
@@ -363,9 +439,12 @@
   
 
 阿拉伯國家領導人達成共識，將設立一個信託基金，為加沙地帶重建提供資金，並敦促國際社會捐款，以加快重建進程。
+  
 
   
 
+
+  
 
 ---
 
@@ -377,6 +456,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm)
 
 ---
@@ -387,9 +468,12 @@
   
 
 俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京只是表達俄羅斯有意與美國在稀土金屬領域開展合作，並探討相關潛在機遇，並未提及聯合開採。
+  
 
   
 
+
+  
 
 ---
 
@@ -401,6 +485,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm)
 
 ---
@@ -411,9 +497,12 @@
   
 
 烏克蘭總統澤連斯基發表視像講話表示，他已指示國防和情報部門負責人聯繫美方官員，以「獲取有關凍結援助的官方信息」。
+  
 
   
 
+
+  
 
 ---
 
@@ -425,6 +514,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm)
 
 ---
@@ -435,9 +526,12 @@
   
 
 墨西哥總統辛鮑姆表示，墨西哥將採取措施應對美國加徵關稅，措施將於周日宣佈。她強調，美方指責墨西哥打擊販毒不力的言論「非常無理、純屬誹謗、毫無依據」。
+  
 
   
 
+
+  
 
 ---
 
@@ -449,6 +543,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm)
 
 ---
@@ -459,9 +555,12 @@
   
 
 美國對加拿大及墨西哥進口產品徵收25%關稅的措施周二起生效，加拿大宣布對美國商品徵收25%報復性關稅。
+  
 
   
 
+
+  
 
 ---
 
@@ -473,6 +572,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm)
 
 ---
@@ -483,9 +584,12 @@
   
 
 加拿大總理杜魯多宣布，對從美國進口的產品徵收25%的報復性關稅。他認為，美國總統特朗普徵收關稅的目的是令加拿大經濟 「崩潰」，從而使美國 「更容易 」吞併加拿大。
+  
 
   
 
+
+  
 
 ---
 
@@ -497,6 +601,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm)
 
 ---
@@ -507,9 +613,12 @@
   
 
 針對美國暫停對烏克蘭軍事援助，烏克蘭總理什梅加爾說，烏方將「絕對冷靜地」繼續通過一切可用的外交渠道與美方開展合作。
+  
 
   
 
+
+  
 
 ---
 
@@ -521,6 +630,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm)
 
 ---
@@ -531,9 +642,12 @@
   
 
 烏克蘭總統澤連斯基表示，他上周與美國總統特朗普的爭吵「令人遺憾」，他已準備好在美國總統領導下展開工作，以實現持久和平。
+  
 
   
 
+
+  
 
 ---
 
@@ -545,6 +659,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm)
 
 ---
@@ -555,9 +671,12 @@
   
 
 美國國務院發表聲明，宣布將也門胡塞武裝列為「外國恐怖組織」。
+  
 
   
 
+
+  
 
 ---
 
@@ -569,6 +688,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm)
 
 ---
@@ -579,9 +700,12 @@
   
 
 日本政府否認美國總統特朗普有關引導日圓貶值的指控，內閣官房長官林芳正說，日本並無採取所謂的引導日圓貶值政策，將與美國財政部長貝森特繼續保持密切協商。
+  
 
   
 
+
+  
 
 ---
 
@@ -593,6 +717,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm)
 
 ---
@@ -603,9 +729,12 @@
   
 
 美國總統特朗普據報決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
+  
 
   
 
+
+  
 
 ---
 
@@ -617,6 +746,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm)
 
 ---
@@ -627,9 +758,12 @@
   
 
 日本東京電力公司宣布，已完成福島第一核電站污水排海後空出來的一個儲罐的拆除工作。
+  
 
   
 
+
+  
 
 ---
 
@@ -641,6 +775,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm)
 
 ---
@@ -651,9 +787,12 @@
   
 
 海關總署發布公告說，中國海關近期在進口的美國原木中檢出小蠹、天牛等檢疫性林木害蟲。為防止有害生物傳入，保護國家農林業生產和生態安全，根據《中華人民共和國生物安全法》、《中華人民共和國進出境動植物檢疫法》及其實施條例、國際植物檢疫措施標準等相關規定，海關總署決定即日起暫停美國原木進口。
+  
 
   
 
+
+  
 
 ---
 
@@ -665,6 +804,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm)
 
 ---
@@ -675,9 +816,12 @@
   
 
 在北京，商務部發布公告，對原產於美國的進口相關光纖產品發起反規避調查。
+  
 
   
 
+
+  
 
 ---
 
@@ -688,6 +832,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
 
@@ -700,9 +846,12 @@
   
 
 廉政專員胡英明接待新加坡貪污調查局新任局長鄭忠輝到訪廉政公署，雙方交流執法經驗，亦就加強合作交換意見。
+  
 
   
 
+
+  
 
 ---
 
@@ -714,6 +863,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm)
 
 ---
@@ -724,9 +875,12 @@
   
 
 俄羅斯克里姆林宮發言人佩斯科夫表示，如果美國停止向基輔提供軍事援助，將是對和平的最大貢獻。
+  
 
   
 
+
+  
 
 ---
 
@@ -738,6 +892,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm)
 
 ---
@@ -748,9 +904,12 @@
   
 
 國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書，表示中國加強國際禁毒合作，與包括美國在內的相關國家在應對芬太尼類物質問題方面，深入開展合作並取得明顯成效。
+  
 
   
 
+
+  
 
 ---
 
@@ -762,6 +921,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
 
 ---
@@ -772,9 +933,12 @@
   
 
 歐盟委員會主席馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃，調動近8000億歐元打造一個安全而有韌性的歐洲。
+  
 
   
 
+
+  
 
 ---
 
@@ -786,6 +950,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm)
 
 ---
@@ -796,9 +962,12 @@
   
 
 在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
+  
 
   
 
+
+  
 
 ---
 
@@ -810,6 +979,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm)
 
 ---
@@ -820,9 +991,12 @@
   
 
 國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書。
+  
 
   
 
+
+  
 
 ---
 
@@ -833,6 +1007,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm)
 
@@ -845,9 +1021,12 @@
   
 
 「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+  
 
   
 
+
+  
 
 ---
 
@@ -859,6 +1038,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
 
 ---
@@ -869,9 +1050,12 @@
   
 
 特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
+  
 
   
 
+
+  
 
 ---
 
@@ -883,6 +1067,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
 
 ---
@@ -893,9 +1079,12 @@
   
 
 在北京，全國政協委員、中國政府歐洲事務特別代表盧沙野接受訪問時表示，中國政府對烏克蘭危機政策清楚，形容都寫在紙上，除了特使奔走穿梭，亦提供幾批人道主義援助，沒有向烏克蘭提供武器。
+  
 
   
 
+
+  
 
 ---
 
@@ -907,6 +1096,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794186-20250304.htm)
 
 ---
@@ -917,9 +1108,12 @@
   
 
 在北京，外交部回應美國政府對所有中國輸美商品進一步加徵關稅，發言人林劍表示，中國人民從來不信邪、不怕鬼，從來不吃霸道霸凌那一套，施壓、脅迫和威脅不是同中方打交道的正確方式。對中國搞極限施壓，是找錯了對象，打錯了算盤，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。
+  
 
   
 
+
+  
 
 ---
 
@@ -931,6 +1125,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm)
 
 ---
@@ -941,9 +1137,12 @@
   
 
 全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。
+  
 
   
 
+
+  
 
 ---
 
@@ -955,6 +1154,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm)
 
 ---
@@ -965,9 +1166,12 @@
   
 
 美國將對中國產品加徵的關稅，由之前的10%提高到20%。在北京，商務部、國務院關稅稅則委員會接連發布多項對美反制措施。
+  
 
   
 
+
+  
 
 ---
 
@@ -979,6 +1183,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
 
 ---
@@ -989,9 +1195,12 @@
   
 
 南韓氣象廳持續向慶尚道、忠清道、江原道地區發布大雪預警，全國41艘客船和4個航班停航，部分道路關閉。消防部門表示，已展開超過130次搶險救援行動，今次大雪沒有造成人員傷亡。
+  
 
   
 
+
+  
 
 ---
 
@@ -1003,6 +1212,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm)
 
 ---
@@ -1013,9 +1224,12 @@
   
 
 一間中資企業與科威特簽署總值超過5億美元基建項目合同。
+  
 
   
 
+
+  
 
 ---
 
@@ -1027,6 +1241,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm)
 
 ---
@@ -1037,9 +1253,12 @@
   
 
 對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
+  
 
   
 
+
+  
 
 ---
 
@@ -1051,6 +1270,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
 
 ---
@@ -1061,9 +1282,12 @@
   
 
 美國海軍核動力航空母艦「卡爾文森」號訪問南韓港口釜山。北韓領袖金正恩胞妹、勞動黨中央委員會副部長金與正譴責美方無視北韓的安全關切，習慣性地作出挑釁行為，強調北韓將慎重考慮採取行動，增強戰略性威脅。
+  
 
   
 
+
+  
 
 ---
 
@@ -1075,6 +1299,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794122-20250304.htm)
 
 ---
@@ -1085,9 +1311,12 @@
   
 
 美國傳媒引述白宮官員表示，總統特朗普決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
+  
 
   
 
+
+  
 
 ---
 
@@ -1099,6 +1328,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794119-20250304.htm)
 
 ---
@@ -1109,9 +1340,12 @@
   
 
 加拿大總理杜魯多表示，如果美國的關稅措施生效，加拿大將從星期二開始，對價值300億加元的美國進口產品徵收25%關稅。
+  
 
   
 
+
+  
 
 ---
 
@@ -1123,6 +1357,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794114-20250304.htm)
 
 ---
@@ -1133,9 +1369,12 @@
   
 
 美國總統特朗普已簽署命令，對中國產品加徵的關稅由之前的10%提高至20%。商務及經濟發展局局長丘應樺在本台節目《千禧年代》表示，美國國土安全局和海關文件，早前把香港貨品納入加徵關稅是錯誤決定，因為香港是單獨的關稅區，特區政府已決定向世貿提出申訴，今次再加中國10%的關稅是否包括香港貨品，仍然很不清晰。
+  
 
   
 
+
+  
 
 ---
 
@@ -1147,6 +1386,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794107-20250304.htm)
 
 ---
@@ -1157,9 +1398,12 @@
   
 
 美國總統特朗普與烏克蘭總統澤連斯基上星期五在美國白宮舉行會晤，不歡而散。澤連斯基之後轉到英國，獲英國同歐洲國家一再承諾提供堅定支持。
+  
 
   
 
+
+  
 
 ---
 
@@ -1171,6 +1415,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794106-20250304.htm)
 
 ---
@@ -1181,9 +1427,12 @@
   
 
 美國政府以芬太尼等問題為由，宣布從當地星期二起，對中國輸美產品再次加徵關稅。中方對此強烈不滿，堅決反對，將採取反制措施堅定維護自身權益，敦促美方尊重其他國家權益，立即撤回無理無據、損人不利己的單邊關稅措施。
+  
 
   
 
+
+  
 
 ---
 
@@ -1195,6 +1444,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794097-20250304.htm)
 
 ---
@@ -1205,9 +1456,12 @@
   
 
 國家文物局在美國紐約曼哈頓檢察官辦公室，接收美國向中國返還的41件文物藝術品，包括銅搖錢樹和陶座、素面陶鬲、素面帶蓋銅鈁、陶說唱俑等，種類涵蓋陶器、玉器、青銅器、佛造像、畫像磚及藏傳佛教文物等。
+  
 
   
 
+
+  
 
 ---
 
@@ -1219,6 +1473,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794090-20250304.htm)
 
 ---
@@ -1229,9 +1485,12 @@
   
 
 據報美國暫停對烏克蘭的軍事援助。
+  
 
   
 
+
+  
 
 ---
 
@@ -1243,6 +1502,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm)
 
 ---
@@ -1253,9 +1514,12 @@
   
 
 美國總統特朗普表示，俄烏戰事爆發後，美國一直支持烏克蘭，烏克蘭總統澤連斯基應該對美國提供的軍事援助「更加感激」。對於有報道說，美國可能停止對烏克蘭的軍援，特朗普說，現在未有討論，又不認為兩國之間的礦產協議已經告吹。
+  
 
   
 
+
+  
 
 ---
 
@@ -1267,6 +1531,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm)
 
 ---
@@ -1277,9 +1543,12 @@
   
 
 美國白宮說，總統特朗普已簽署命令，進一步提高對中國進口商品的關稅，指中國政府未能解決芬太尼問題。
+  
 
   
 
+
+  
 
 ---
 
@@ -1291,6 +1560,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794076-20250304.htm)
 
 ---
@@ -1301,9 +1572,12 @@
   
 
 美國總統特朗普說，晶片製造商台積電將在美國再投資至少1000億美元，興建尖端晶片製造設施。
+  
 
   
 
+
+  
 
 ---
 
@@ -1315,6 +1589,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794075-20250304.htm)
 
 ---
@@ -1325,9 +1601,12 @@
   
 
 德國西南部城市曼海姆汽車撞向人群事件，造成兩人死亡，11人受傷，一名40歲德國籍疑犯當場被捕。警方說，暫時未發現政治動機，檢察官說，有具體跡象顯示疑犯有精神病。
+  
 
   
 
+
+  
 
 ---
 
@@ -1339,6 +1618,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794071-20250304.htm)
 
 ---
@@ -1349,9 +1630,12 @@
   
 
 以色列軍方表示，星期一空襲敘利亞西北部，襲擊目標是位於拉塔基亞以東一處敘利亞軍事設施，這個設施用於儲存武器。
+  
 
   
 
+
+  
 
 ---
 
@@ -1363,6 +1647,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794070-20250304.htm)
 
 ---
@@ -1373,9 +1659,12 @@
   
 
 梵蒂岡表示，因肺炎住院的教宗方濟各周一出現兩次呼吸困難，需要進行支氣管鏡檢查。
+  
 
   
 
+
+  
 
 ---
 
@@ -1387,6 +1676,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794069-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794069-20250304.htm)
 
 ---
@@ -1397,9 +1688,12 @@
   
 
 美國總統特朗普表示，可能在4月2日對進口農產品徵收關稅。
+  
 
   
 
+
+  
 
 ---
 
@@ -1411,6 +1705,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794068-20250304.htm)
 
 ---
@@ -1421,9 +1717,12 @@
   
 
 美國總統特朗普稱，對烏克蘭總統澤連斯基的言論「不會再容忍下去」。
+  
 
   
 
+
+  
 
 ---
 
@@ -1434,6 +1733,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794067-20250304.htm)
 

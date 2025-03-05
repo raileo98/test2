@@ -4,9 +4,12 @@
   
 
 Labour and welfare minister Chris Sun on Wednesday said the government would help NGOs save costs by streamlining administrative procedures amid funding cuts due to the fiscal deficit.
+  
 
   
 
+
+  
 
 ---
 
@@ -18,6 +21,8 @@ Labour and welfare minister Chris Sun on Wednesday said the government would hel
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm)
 
 ---
@@ -28,9 +33,12 @@ Labour and welfare minister Chris Sun on Wednesday said the government would hel
   
 
 Wet weather looked poised to offer relief Wednesday as Japan battled its worst wildfire in half a century in a northern region hit by record-low rainfall.
+  
 
   
 
+
+  
 
 ---
 
@@ -42,6 +50,8 @@ Wet weather looked poised to offer relief Wednesday as Japan battled its worst w
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm)
 
 ---
@@ -52,9 +62,12 @@ Wet weather looked poised to offer relief Wednesday as Japan battled its worst w
   
 
 Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
+  
 
   
 
+
+  
 
 ---
 
@@ -66,6 +79,8 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
 
 ---
@@ -76,9 +91,12 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
   
 
 Democrats protested President Donald Trump's address to Congress on Tuesday with signs reading "No King!" and "Save Medicaid," with some turning their backs on the Republican as he spoke and one lawmaker marched out by security.
+  
 
   
 
+
+  
 
 ---
 
@@ -90,6 +108,8 @@ Democrats protested President Donald Trump's address to Congress on Tuesday with
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm)
 
 ---
@@ -100,9 +120,12 @@ Democrats protested President Donald Trump's address to Congress on Tuesday with
   
 
 Hong Kong's deputies to the National People's Congress (NPC) and the Chinese People's Political Consultative Conference (CPPCC) have given their backing to the country's economic growth target of around five percent target this year, saying it was no easy feat but achievable.
+  
 
   
 
+
+  
 
 ---
 
@@ -114,6 +137,8 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm)
 
 ---
@@ -124,9 +149,12 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
   
 
 Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
+  
 
   
 
+
+  
 
 ---
 
@@ -138,6 +166,8 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm)
 
 ---
@@ -148,9 +178,12 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
   
 
 Chinese companies are doubling down on innovation as part of efforts to contribute to the national drive of developing "new quality productive forces", with leaders convening in Beijing for the annual Two Sessions meetings.
+  
 
   
 
+
+  
 
 ---
 
@@ -162,6 +195,8 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
 
 ---
@@ -172,9 +207,12 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
   
 
 Experts on Wednesday said China's economic goals announced at the opening session of this year's National People's Congress are reasonable and attainable.
+  
 
   
 
+
+  
 
 ---
 
@@ -186,6 +224,8 @@ Experts on Wednesday said China's economic goals announced at the opening sessio
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm)
 
 ---
@@ -196,9 +236,12 @@ Experts on Wednesday said China's economic goals announced at the opening sessio
   
 
 Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in his government work report.
+  
 
   
 
+
+  
 
 ---
 
@@ -210,6 +253,8 @@ Premier Li Qiang on Wednesday said the nation will vigorously boost consumption 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
 
 ---
@@ -220,9 +265,12 @@ Premier Li Qiang on Wednesday said the nation will vigorously boost consumption 
   
 
 China said its military spending will rise by 7.2 percent in 2025, the same increase as a year ago.
+  
 
   
 
+
+  
 
 ---
 
@@ -234,6 +282,8 @@ China said its military spending will rise by 7.2 percent in 2025, the same incr
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm)
 
 ---
@@ -244,9 +294,12 @@ China said its military spending will rise by 7.2 percent in 2025, the same incr
   
 
 US President Donald Trump took a victory lap in a speech to Congress on Tuesday, exulting in a series of dramatic actions that have upended American foreign policy, ignited a trade war with close allies and slashed the federal workforce since he took office six weeks ago.
+  
 
   
 
+
+  
 
 ---
 
@@ -258,6 +311,8 @@ US President Donald Trump took a victory lap in a speech to Congress on Tuesday,
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm)
 
 ---
@@ -268,9 +323,12 @@ US President Donald Trump took a victory lap in a speech to Congress on Tuesday,
   
 
 Premier Li Qiang on Wednesday said Beijing would continue to fully implement the One Country, Two Systems policy and have the two SARs administered by patriots.
+  
 
   
 
+
+  
 
 ---
 
@@ -282,6 +340,8 @@ Premier Li Qiang on Wednesday said Beijing would continue to fully implement the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm)
 
 ---
@@ -292,9 +352,12 @@ Premier Li Qiang on Wednesday said Beijing would continue to fully implement the
   
 
 China on Wednesday said it will boost support for the application of AI models to foster more breakthroughs in technology.
+  
 
   
 
+
+  
 
 ---
 
@@ -306,6 +369,8 @@ China on Wednesday said it will boost support for the application of AI models t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm)
 
 ---
@@ -316,9 +381,12 @@ China on Wednesday said it will boost support for the application of AI models t
   
 
 Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qiang announced a target GDP growth of "around 5 percent" for 2025 and pledged to make domestic demand the "main engine" of its economic growth.
+  
 
   
 
+
+  
 
 ---
 
@@ -330,6 +398,8 @@ Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qi
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm)
 
 ---
@@ -340,9 +410,12 @@ Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qi
   
 
 Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow its roughly two million Palestinians to remain, in a counterproposal to US President Donald Trump’s plan to depopulate the territory and redevelop it as a beach destination.
+  
 
   
 
+
+  
 
 ---
 
@@ -354,6 +427,8 @@ Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm)
 
 ---
@@ -364,9 +439,12 @@ Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow 
   
 
 China on Wednesday said it will aim for economic growth of around 5 percent in 2025.
+  
 
   
 
+
+  
 
 ---
 
@@ -378,6 +456,8 @@ China on Wednesday said it will aim for economic growth of around 5 percent in 2
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm)
 
 ---
@@ -388,9 +468,12 @@ China on Wednesday said it will aim for economic growth of around 5 percent in 2
   
 
 The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday to China's Liu Jiakun, for designs that celebrate "everyday lives".
+  
 
   
 
+
+  
 
 ---
 
@@ -402,6 +485,8 @@ The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm)
 
 ---
@@ -412,9 +497,12 @@ The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday 
   
 
 US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correction territory, as trade tensions escalated following US President Donald Trump's new tariffs on Canada, Mexico and China.
+  
 
   
 
+
+  
 
 ---
 
@@ -426,6 +514,8 @@ US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correc
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm)
 
 ---
@@ -436,9 +526,12 @@ US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correc
   
 
 An economist on Wednesday said that the latest round of US tariffs on Chinese imports could gradually reduce China's gross domestic product by some 0.3 to 0.4 percent over a 12-month period.
+  
 
   
 
+
+  
 
 ---
 
@@ -449,6 +542,8 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
 
@@ -461,9 +556,12 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
   
 
 Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-1 Champions League last 16 first-leg win.
+  
 
   
 
+
+  
 
 ---
 
@@ -475,6 +573,8 @@ Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm)
 
 ---
@@ -485,9 +585,12 @@ Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-
   
 
 President Volodymyr Zelensky on Tuesday said he wanted to "make things right" with Donald Trump and work under the US president's "strong leadership" to secure a lasting peace in Ukraine.
+  
 
   
 
+
+  
 
 ---
 
@@ -499,6 +602,8 @@ President Volodymyr Zelensky on Tuesday said he wanted to "make things right" wi
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
 
 ---
@@ -509,9 +614,12 @@ President Volodymyr Zelensky on Tuesday said he wanted to "make things right" wi
   
 
 Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA season after suffering a torn anterior cruciate ligament (ACL) in his left knee, according to media reports.
+  
 
   
 
+
+  
 
 ---
 
@@ -523,6 +631,8 @@ Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA seaso
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm)
 
 ---
@@ -533,9 +643,12 @@ Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA seaso
   
 
 Virat Kohli produced a trademark innings with a polished 84 as India pulled off a tense chase to beat Australia by four wickets in the first semi-final of the Champions Trophy.
+  
 
   
 
+
+  
 
 ---
 
@@ -547,6 +660,8 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm)
 
 ---
@@ -557,9 +672,12 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
   
 
 Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
+  
 
   
 
+
+  
 
 ---
 
@@ -571,6 +689,8 @@ Beijing said on Tuesday it had filed a complaint with the World Trade Organizati
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm)
 
 ---
@@ -581,9 +701,12 @@ Beijing said on Tuesday it had filed a complaint with the World Trade Organizati
   
 
 Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama Canal port operator to a BlackRock Inc-backed consortium, following intense pressure from US President Donald Trump.
+  
 
   
 
+
+  
 
 ---
 
@@ -594,6 +717,8 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
 
@@ -606,9 +731,12 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
   
 
 World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
+  
 
   
 
+
+  
 
 ---
 
@@ -620,6 +748,8 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
 
 ---
@@ -630,9 +760,12 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
   
 
 A Beijing official overseeing Hong Kong and Macau affairs has told delegates to the national legislative body to ride on the stock market boom and boost economic development in the territory.
+  
 
   
 
+
+  
 
 ---
 
@@ -644,6 +777,8 @@ A Beijing official overseeing Hong Kong and Macau affairs has told delegates to 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm)
 
 ---
@@ -654,9 +789,12 @@ A Beijing official overseeing Hong Kong and Macau affairs has told delegates to 
   
 
 EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise some US$844 billion for Europe's defence, and help provide "immediate" military support for Ukraine after Washington suspended military aid.
+  
 
   
 
+
+  
 
 ---
 
@@ -668,6 +806,8 @@ EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm)
 
 ---
@@ -678,9 +818,12 @@ EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise 
   
 
 The founding president of the Hong Kong University of Science and Technology (HKUST) has died last Sunday at the age of 87.
+  
 
   
 
+
+  
 
 ---
 
@@ -692,6 +835,8 @@ The founding president of the Hong Kong University of Science and Technology (HK
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794219-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794219-20250304.htm)
 
 ---
@@ -702,9 +847,12 @@ The founding president of the Hong Kong University of Science and Technology (HK
   
 
 The chairman of a leading casino and hospitality group in Macau said on Tuesday that Hong Kong and Macau should work together to attract more foreign investors.
+  
 
   
 
+
+  
 
 ---
 
@@ -716,6 +864,8 @@ The chairman of a leading casino and hospitality group in Macau said on Tuesday 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm)
 
 ---
@@ -726,9 +876,12 @@ The chairman of a leading casino and hospitality group in Macau said on Tuesday 
   
 
 China's ambassador to the United States says while China needs to firmly defend its interests, it will continue to handle Sino-US relations based on mutual respect, peaceful coexistence, and win-win cooperation.
+  
 
   
 
+
+  
 
 ---
 
@@ -740,6 +893,8 @@ China's ambassador to the United States says while China needs to firmly defend 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm)
 
 ---
@@ -750,9 +905,12 @@ China's ambassador to the United States says while China needs to firmly defend 
   
 
 China vowed on Tuesday to fight to the "bitter end" if the United States pushes a trade war, after Washington and Beijing exchanged a salvo of tariffs.
+  
 
   
 
+
+  
 
 ---
 
@@ -764,6 +922,8 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
 
 ---
@@ -774,9 +934,12 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
   
 
 Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down 0.3 percent at 22,941.
+  
 
   
 
+
+  
 
 ---
 
@@ -788,6 +951,8 @@ Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm)
 
 ---
@@ -798,9 +963,12 @@ Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down
   
 
 The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.
+  
 
   
 
+
+  
 
 ---
 
@@ -812,6 +980,8 @@ The chairman of the Chinese People's Political Consultative Conference (CPPCC) o
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm)
 
 ---
@@ -822,9 +992,12 @@ The chairman of the Chinese People's Political Consultative Conference (CPPCC) o
   
 
 The firm which operates the Octopus Card on Tuesday said it hopes to shorten the process needed to implement the government's plans to scale back the HK$2 elderly transport subsidy scheme.
+  
 
   
 
+
+  
 
 ---
 
@@ -836,6 +1009,8 @@ The firm which operates the Octopus Card on Tuesday said it hopes to shorten the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794167-20250304.htm)
 
 ---
@@ -846,9 +1021,12 @@ The firm which operates the Octopus Card on Tuesday said it hopes to shorten the
   
 
 Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Kong on Tuesday as a newly minted SAR resident.
+  
 
   
 
+
+  
 
 ---
 
@@ -860,6 +1038,8 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
 
 ---
@@ -870,9 +1050,12 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
   
 
 Canada will slap tariffs on US imports beginning on Tuesday in response to levies pledged by President Donald Trump, Prime Minister Justin Trudeau said on Monday, adding "there is no justification" for Washington's actions.
+  
 
   
 
+
+  
 
 ---
 
@@ -884,6 +1067,8 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
 
 ---
@@ -894,9 +1079,12 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
   
 
 Entrepreneurs and leaders of mainland private enterprises have expressed hope that Beijing will roll out more supportive measures to assist with the nation's industrial upgrade, while balancing the development of various industries.
+  
 
   
 
+
+  
 
 ---
 
@@ -908,6 +1096,8 @@ Entrepreneurs and leaders of mainland private enterprises have expressed hope th
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm)
 
 ---
@@ -918,9 +1108,12 @@ Entrepreneurs and leaders of mainland private enterprises have expressed hope th
   
 
 China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.
+  
 
   
 
+
+  
 
 ---
 
@@ -932,6 +1125,8 @@ China’s economy has a solid foundation with new growth drivers despite facing 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
 
 ---
@@ -942,9 +1137,12 @@ China’s economy has a solid foundation with new growth drivers despite facing 
   
 
 The president of the Peking Union Medical College Hospital on Tuesday said she hopes the Hong Kong University of Science and Technology (HKUST) will fully consider its plan to set up the SAR's third medical school.
+  
 
   
 
+
+  
 
 ---
 
@@ -956,6 +1154,8 @@ The president of the Peking Union Medical College Hospital on Tuesday said she h
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm)
 
 ---
@@ -966,9 +1166,12 @@ The president of the Peking Union Medical College Hospital on Tuesday said she h
   
 
 The secretary of the Qingdao Municipal Party Committee, and also a delegate to the National People's Congress, on Tuesday said the expansion of the Individual Visit Scheme to Qingdao provided great convenience for exchanges between Qingdao and the two SARs.
+  
 
   
 
+
+  
 
 ---
 
@@ -980,6 +1183,8 @@ The secretary of the Qingdao Municipal Party Committee, and also a delegate to t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm)
 
 ---
@@ -990,9 +1195,12 @@ The secretary of the Qingdao Municipal Party Committee, and also a delegate to t
   
 
 China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range of between 10 and 15 percent hikes to import levies covering a basket of American agricultural and food products, while placing 25 US firms under export and investment restrictions.
+  
 
   
 
+
+  
 
 ---
 
@@ -1004,6 +1212,8 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
 
 ---
@@ -1014,9 +1224,12 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
   
 
 Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't know whether new US tariffs on Chinese goods will also cover Hong Kong products, but in any case transit trade could be hit in the short term.
+  
 
   
 
+
+  
 
 ---
 
@@ -1028,6 +1241,8 @@ Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm)
 
 ---
@@ -1038,9 +1253,12 @@ Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't
   
 
 US President Donald Trump has paused military aid to Ukraine following his clash with Ukrainian President Volodymyr Zelensky last week, a White House official said, deepening the fissure that has opened between the two one-time allies.
+  
 
   
 
+
+  
 
 ---
 
@@ -1052,6 +1270,8 @@ US President Donald Trump has paused military aid to Ukraine following his clash
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm)
 
 ---
@@ -1062,9 +1282,12 @@ US President Donald Trump has paused military aid to Ukraine following his clash
   
 
 Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without permission, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
+  
 
   
 
+
+  
 
 ---
 
@@ -1076,6 +1299,8 @@ Facial recognition technology could be deployed at Kai Tak Sports Park and other
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
 
 ---
@@ -1086,9 +1311,12 @@ Facial recognition technology could be deployed at Kai Tak Sports Park and other
   
 
 Authorities in the capital have stepped up security ahead of the annual “Two Sessions” meetings.
+  
 
   
 
+
+  
 
 ---
 
@@ -1100,6 +1328,8 @@ Authorities in the capital have stepped up security ahead of the annual “Two S
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm)
 
 ---
@@ -1110,9 +1340,12 @@ Authorities in the capital have stepped up security ahead of the annual “Two S
   
 
 Elon Musk's SpaceX called off the latest test flight of its Starship rocket just before its scheduled launch on Monday, citing an unspecified problem with the behemoth spacecraft.
+  
 
   
 
+
+  
 
 ---
 
@@ -1124,6 +1357,8 @@ Elon Musk's SpaceX called off the latest test flight of its Starship rocket just
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm)
 
 ---
@@ -1134,9 +1369,12 @@ Elon Musk's SpaceX called off the latest test flight of its Starship rocket just
   
 
 A new round of negotiations for an international treaty on reducing global plastics pollution will be held in Geneva in August, the United Nations Environment Programme (Unep) said on Monday.
+  
 
   
 
+
+  
 
 ---
 
@@ -1148,6 +1386,8 @@ A new round of negotiations for an international treaty on reducing global plast
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm)
 
 ---
@@ -1158,9 +1398,12 @@ A new round of negotiations for an international treaty on reducing global plast
   
 
 Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as investors awaited the upcoming annual parliamentary sessions to gauge Beijing's policy path.
+  
 
   
 
+
+  
 
 ---
 
@@ -1172,6 +1415,8 @@ Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm)
 
 ---
@@ -1182,9 +1427,12 @@ Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as 
   
 
 The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tariffs set to take effect later in the day, reiterating its stance that the Trump administration was trying to "shift the blame" and "bully" Beijing over fentanyl flows.
+  
 
   
 
+
+  
 
 ---
 
@@ -1196,6 +1444,8 @@ The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tari
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm)
 
 ---
@@ -1206,9 +1456,12 @@ The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tari
   
 
 Nearly 60 percent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
+  
 
   
 
+
+  
 
 ---
 
@@ -1220,6 +1473,8 @@ Nearly 60 percent of all adults and a third of all children in the world will be
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
 
 ---
@@ -1230,9 +1485,12 @@ Nearly 60 percent of all adults and a third of all children in the world will be
   
 
 US stocks closed sharply lower on Monday, after US President Donald Trump slapped fresh sanctions against China and levies on Mexico and Canada neared imposition, while European defence shares soared as the European Union sought increased military spending over Ukraine.
+  
 
   
 
+
+  
 
 ---
 
@@ -1244,6 +1502,8 @@ US stocks closed sharply lower on Monday, after US President Donald Trump slappe
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm)
 
 ---
@@ -1254,9 +1514,12 @@ US stocks closed sharply lower on Monday, after US President Donald Trump slappe
   
 
 US President Donald Trump said on Monday that 25 percent taxes on imports from Mexico and Canada would start on Tuesday, sparking renewed fears of a North American trade war that already showed signs of pushing up inflation and hindering growth.
+  
 
   
 
+
+  
 
 ---
 
@@ -1268,6 +1531,8 @@ US President Donald Trump said on Monday that 25 percent taxes on imports from M
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm)
 
 ---
@@ -1278,9 +1543,12 @@ US President Donald Trump said on Monday that 25 percent taxes on imports from M
   
 
 A local economics academic said he does not expect major policy shifts in the "Two Sessions" meetings in Beijing, saying it's important for the central government to focus on stabilising sentiment and continuing with high-quality growth.
+  
 
   
 
+
+  
 
 ---
 
@@ -1292,6 +1560,8 @@ A local economics academic said he does not expect major policy shifts in the "T
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
 
 ---
@@ -1302,9 +1572,12 @@ A local economics academic said he does not expect major policy shifts in the "T
   
 
 Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cup quarter-finals after a 1-1 draw at the City Ground.
+  
 
   
 
+
+  
 
 ---
 
@@ -1316,6 +1589,8 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
 
 ---
@@ -1326,9 +1601,12 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
   
 
 US President Donald Trump has signed an order to hike tariffs on Chinese imports further, the White House said Monday, citing what it called Beijing's failure to tackle the illicit fentanyl trade.
+  
 
   
 
+
+  
 
 ---
 
@@ -1340,6 +1618,8 @@ US President Donald Trump has signed an order to hike tariffs on Chinese imports
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
 
 ---
@@ -1350,9 +1630,12 @@ US President Donald Trump has signed an order to hike tariffs on Chinese imports
   
 
 Hong Kong delegates to the nation's top political advisory body who met with senior mainland official Xia Baolong in Beijing on Monday evening quoted him as saying the city should unite in supporting Chief Executive John Lee's administration.
+  
 
   
 
+
+  
 
 ---
 
@@ -1364,6 +1647,8 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
 
 ---
@@ -1374,9 +1659,12 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
   
 
 A car driven into a crowd in the German city of Mannheim on Monday killed one person and injured several, police said, adding that one person had been arrested.
+  
 
   
 
+
+  
 
 ---
 
@@ -1388,6 +1676,8 @@ A car driven into a crowd in the German city of Mannheim on Monday killed one pe
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm)
 
 ---
@@ -1398,9 +1688,12 @@ A car driven into a crowd in the German city of Mannheim on Monday killed one pe
   
 
 Sunbeam Theatre – the North Point venue best known for its Cantonese opera performances – put on its last show on Monday night, bidding farewell to fans and opera lovers after more than half a century.
+  
 
   
 
+
+  
 
 ---
 
@@ -1412,6 +1705,8 @@ Sunbeam Theatre – the North Point venue best known for its Cantonese opera per
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm)
 
 ---
@@ -1422,9 +1717,12 @@ Sunbeam Theatre – the North Point venue best known for its Cantonese opera per
   
 
 Israel's police said the perpetrator of a stabbing attack in the northern city of Haifa on Monday was a member of Israel's Druze Arab minority who recently returned from abroad.
+  
 
   
 
+
+  
 
 ---
 
@@ -1435,6 +1733,8 @@ Israel's police said the perpetrator of a stabbing attack in the northern city o
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm)
 

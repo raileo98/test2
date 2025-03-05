@@ -4,9 +4,12 @@
   
 
 啟德體育園昨晚舉行世界格蘭披治桌球大獎賽，消委會表示，截至今早，共接獲7宗投訴，其中1宗與賽事進行至接近午夜時，被要求離開有關。
+  
 
   
 
+
+  
 
 ---
 
@@ -18,6 +21,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm)
 
 ---
@@ -28,9 +33,12 @@
   
 
 高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
+  
 
   
 
+
+  
 
 ---
 
@@ -42,6 +50,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
 
 ---
@@ -52,9 +62,12 @@
   
 
 昨晚在啟德體藝館舉行的世界格蘭披治桌大獎賽，有觀眾在賽事未完結時，被要求離場。民建聯立法會議員鄭泳舜對觀眾突然被請離場感到失望及詫異，認為十分罕見，對球迷非常不公平，要求園區與任何主辦機構都要汲取不足之處及經驗，不能再有同類事件發生。
+  
 
   
 
+
+  
 
 ---
 
@@ -66,6 +79,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794368-20250305.htm)
 
 ---
@@ -76,9 +91,12 @@
   
 
 昨晚世界格蘭披治桌球大獎賽的賽事進行至接近午夜時，有觀眾被要求離開。啟德體育園回應表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。
+  
 
   
 
+
+  
 
 ---
 
@@ -90,6 +108,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm)
 
 ---
@@ -100,9 +120,12 @@
   
 
 啟德體育園昨晚舉行的世界格蘭披治桌球大獎賽尾場賽事，有觀眾在賽事未完結被要求提早離場。文化體育及旅遊局局長羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想，她將來會責成管理公司，每次遇到類似情況都要認真處理，當局亦會觀察情況，作出相應行動。
+  
 
   
 
+
+  
 
 ---
 
@@ -114,6 +137,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm)
 
 ---
@@ -124,9 +149,12 @@
   
 
 在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚賽事未完結，有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。文化體育及旅遊局局長羅淑佩表示，昨晚主辦單位的安排非常不理想，她亦向受影響球迷表達關心和致歉。
+  
 
   
 
+
+  
 
 ---
 
@@ -138,6 +166,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm)
 
 ---
@@ -148,9 +178,12 @@
   
 
 世界格蘭披治桌球大獎賽賽事組委會發聲明，對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。組委會又提出補償方案，持有昨晚7時半的1號枱門票的觀眾，可於今明兩日上午10時半至晚上8時，憑票尾到G門對面的賽事紀念品售賣點，兌換今明兩日任何場次同等票價的可售門票。
+  
 
   
 
+
+  
 
 ---
 
@@ -162,6 +195,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm)
 
 ---
@@ -172,9 +207,12 @@
   
 
 在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
+  
 
   
 
+
+  
 
 ---
 
@@ -186,6 +224,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
 
 ---
@@ -196,9 +236,12 @@
   
 
 阿仙奴及阿士東維拉，分別在歐聯16強首回合戰，擊敗對手。
+  
 
   
 
+
+  
 
 ---
 
@@ -210,6 +253,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794270-20250305.htm)
 
 ---
@@ -220,9 +265,12 @@
   
 
 「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮，首日比賽有超過4200人入場。
+  
 
   
 
+
+  
 
 ---
 
@@ -233,6 +281,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794226-20250304.htm)
 
@@ -245,9 +295,12 @@
   
 
 「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
+  
 
   
 
+
+  
 
 ---
 
@@ -259,6 +312,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
 
 ---
@@ -269,9 +324,12 @@
   
 
 高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
+  
 
   
 
+
+  
 
 ---
 
@@ -283,6 +341,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm)
 
 ---
@@ -293,9 +353,12 @@
   
 
 「世界格蘭披治桌球大獎賽」今日起一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
+  
 
   
 
+
+  
 
 ---
 
@@ -307,6 +370,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794148-20250304.htm)
 
 ---
@@ -317,9 +382,12 @@
   
 
 文化體育及旅遊局局長羅淑佩透露正努力促成海外足球隊於今年夏天訪港，作為球迷自己亦很期待，有消息時會公布。
+  
 
   
 
+
+  
 
 ---
 
@@ -331,6 +399,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794118-20250304.htm)
 
 ---
@@ -341,9 +411,12 @@
   
 
 英格蘭足總盃第五圈，諾定咸森林互射12碼淘汰葉士域治，取得最後一個8強席位。
+  
 
   
 
+
+  
 
 ---
 
@@ -355,6 +428,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm)
 
 ---
@@ -365,9 +440,12 @@
   
 
 意大利甲組足球聯賽，祖雲達斯主場2:0擊敗維羅納。
+  
 
   
 
+
+  
 
 ---
 
@@ -379,6 +457,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm)
 
 ---
@@ -389,9 +469,12 @@
   
 
 大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
+  
 
   
 
+
+  
 
 ---
 
@@ -403,6 +486,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
 
 ---
@@ -413,9 +498,12 @@
   
 
 對於有報道指啟德體育園開幕當日，懷疑有人收取每位過千元報酬，帶未有購票人士入場，並可攜帶長雨傘及專業攝影器材等違禁品入場，毋須安檢及驗票。
+  
 
   
 
+
+  
 
 ---
 
@@ -427,6 +515,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793988-20250303.htm)
 
 ---
@@ -437,9 +527,12 @@
   
 
 曼聯爭取衛冕英格蘭足總盃失敗，他們在第五圈主場互射十二碼不敵富咸出局。
+  
 
   
 
+
+  
 
 ---
 
@@ -451,6 +544,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1793916-20250303.htm)
 
 ---
@@ -461,9 +556,12 @@
   
 
 一連兩日在中環海濱及維港舉行的全運會三項鐵人測試賽結束。全運會統籌辦主任楊德強表示，會與各相關機構及政府部門檢討賽事流程和各項細節，為今年年底舉辦的正賽做好準備。
+  
 
   
 
+
+  
 
 ---
 
@@ -475,6 +573,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793901-20250302.htm)
 
 ---
@@ -485,9 +585,12 @@
   
 
 世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
+  
 
   
 
+
+  
 
 ---
 
@@ -499,6 +602,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
 
 ---
@@ -509,9 +614,12 @@
   
 
 英格蘭足總盃第五圈，英超的曼城3:1反勝英冠的普利芧夫晉級。
+  
 
   
 
+
+  
 
 ---
 
@@ -523,6 +631,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm)
 
 ---
@@ -533,9 +643,12 @@
   
 
 啟德體育園開幕典禮，昨晚在啟德體育園主場館舉行，歷時2小時，有3萬多名觀眾出席。行政長官李家超在開幕致辭說，懷著興奮心情見證啟德體育園開幕。
+  
 
   
 
+
+  
 
 ---
 
@@ -547,6 +660,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793846-20250302.htm)
 
 ---
@@ -557,9 +672,12 @@
   
 
 桌球手奧蘇利雲因健康狀況，將缺席星期二起，在啟德體藝館舉行的世界格蘭披治桌球大獎賽2025。主辦單位稱是今日接獲奧蘇利雲的通知，而排名33位的賀辛將取代奧蘇利雲參賽。
+  
 
   
 
+
+  
 
 ---
 
@@ -571,6 +689,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793834-20250301.htm)
 
 ---
@@ -581,9 +701,12 @@
   
 
 啟德體育園舉行開幕典禮，財政司司長陳茂波表示，表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
+  
 
   
 
+
+  
 
 ---
 
@@ -595,6 +718,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793831-20250301.htm)
 
 ---
@@ -605,9 +730,12 @@
   
 
 歷時約2小時的啟德體育園開幕典禮，晚上約8時40分結束。接近典禮完結時，啟德體育園上蓋發放煙花，有觀眾說感覺震撼，又說節目緊湊，看見很多本地明星，表演精彩。
+  
 
   
 
+
+  
 
 ---
 
@@ -619,6 +747,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793826-20250301.htm)
 
 ---
@@ -629,9 +759,12 @@
   
 
 啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
+  
 
   
 
+
+  
 
 ---
 
@@ -642,6 +775,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793824-20250301.htm)
 
@@ -654,9 +789,12 @@
   
 
 啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
+  
 
   
 
+
+  
 
 ---
 
@@ -667,6 +805,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm)
 
@@ -679,9 +819,12 @@
   
 
 啟德體育園開幕禮傍晚6時半舉行，先後有多位奧運名將等上台表演。
+  
 
   
 
+
+  
 
 ---
 
@@ -692,6 +835,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm)
 
@@ -704,9 +849,12 @@
   
 
 行政長官李家超表示，啟德體育園開幕典禮今晚舉行，很高興親臨現場，與市民一同見證歷史性時刻。節目豐富多彩，香港和內地跨年齡、跨世代的體育、文化、演藝界精英傾情獻藝，為啟德體育園的啟用揭開精彩序幕。
+  
 
   
 
+
+  
 
 ---
 
@@ -718,6 +866,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793818-20250301.htm)
 
 ---
@@ -728,9 +878,12 @@
   
 
 啟德體育園舉行開幕典禮，先播放開場短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅表演。
+  
 
   
 
+
+  
 
 ---
 
@@ -742,6 +895,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793815-20250301.htm)
 
 ---
@@ -752,9 +907,12 @@
   
 
 啟德體育園晚上舉行開幕典禮，行政長官李家超主持開幕儀式，他致辭表示，與大家一樣懷著興奮和期待的心情，見證啟德體育園，作為一個世界級香港新地標的開幕典禮。
+  
 
   
 
+
+  
 
 ---
 
@@ -766,6 +924,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793811-20250301.htm)
 
 ---
@@ -776,9 +936,12 @@
   
 
 啟德體育園開幕典禮晚上約6時半在主場館舉行，多位主禮嘉賓出席，包括李家超伉儷、鄭雁雄伉儷，政務司司長陳國基及立法會主席梁君彥等。
+  
 
   
 
+
+  
 
 ---
 
@@ -790,6 +953,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793809-20250301.htm)
 
 ---
@@ -800,9 +965,12 @@
   
 
 啟德體育園開幕禮的入場觀眾，需預先換領實體門票，當局原定今日下午3時為換票截止時間，但最後彈性安排給遲到的人兌換門票。有遲到的市民和旅客都滿意當局安排。
+  
 
   
 
+
+  
 
 ---
 
@@ -814,6 +982,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793808-20250301.htm)
 
 ---
@@ -824,9 +994,12 @@
   
 
 啟德體育園今日正式啟用，開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，持票觀眾已陸續進場。
+  
 
   
 
+
+  
 
 ---
 
@@ -838,6 +1011,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793807-20250301.htm)
 
 ---
@@ -848,9 +1023,12 @@
   
 
 啟德體育園將於傍晚6時半，舉行開幕典禮，持票觀眾早前已陸續入場。開幕典禮採用「三面台」設計，行政長官李家超將主持開幕儀式。
+  
 
   
 
+
+  
 
 ---
 
@@ -862,6 +1040,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
 
 ---
@@ -872,9 +1052,12 @@
   
 
 啟德體育園傍晚6時半舉行開幕禮，觀眾陸續入場，近5時人流越來越多，場地設有不少安檢櫃台。
+  
 
   
 
+
+  
 
 ---
 
@@ -886,6 +1069,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm)
 
 ---
@@ -896,9 +1081,12 @@
   
 
 啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
+  
 
   
 
+
+  
 
 ---
 
@@ -910,6 +1098,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm)
 
 ---
@@ -920,9 +1110,12 @@
   
 
 2024巴黎奧運獎牌「失色」事件，巴黎奧組委說會更換損壞的獎牌。
+  
 
   
 
+
+  
 
 ---
 
@@ -934,6 +1127,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm)
 
 ---
@@ -944,9 +1139,12 @@
   
 
 英格蘭足總盃16強，阿士東維拉2:0擊敗英冠球隊卡迪夫城，十年來首次晉級8強。阿辛斯奧包辦兩個入球。
+  
 
   
 
+
+  
 
 ---
 
@@ -958,6 +1156,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793752-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793752-20250301.htm)
 
 ---
@@ -968,9 +1168,12 @@
   
 
 世界格蘭披治桌球大獎賽首次在香港舉行，賽事在3月4日、下周二起一連6日在啟德體育園啟德體藝館舉行。全球排名前32名的桌球選手將會參與。3月8日及9日早上11時將舉行表演賽，大會免費派發共4000張表演賽門票。
+  
 
   
 
+
+  
 
 ---
 
@@ -982,6 +1185,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm)
 
 ---
@@ -992,9 +1197,12 @@
   
 
 港隊體操代表石偉雄宣布退役，結束26年的運動生涯。
+  
 
   
 
+
+  
 
 ---
 
@@ -1005,6 +1213,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm)
 
@@ -1018,9 +1228,12 @@
   
 
 「香港劍神」張家朗在去年巴黎奧運衞冕成功，再奪花劍個人賽金牌，「林大輝慈善基金傑出運動員獎勵計劃」向張家朗頒發337.5萬元獎金，表揚他的傑出表現。
+  
 
   
 
+
+  
 
 ---
 
@@ -1032,6 +1245,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm)
 
 ---
@@ -1042,9 +1257,12 @@
   
 
 文化體育及旅遊局局長羅淑佩表示，去年本港旅遊業繼續復蘇，訪港旅客人次穩步增長，中央政府推出多項惠港措施，亦令本港自從去年年底開始，整體市面人流暢旺，在剛過去的聖誕新年和農曆新年期間，零售、餐飲等行業都反映生意額是錄得增長。她期望今年可以迎來4900萬人次訪港旅客，相比去年增加約一成。
+  
 
   
 
+
+  
 
 ---
 
@@ -1056,6 +1274,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm)
 
 ---
@@ -1066,9 +1286,12 @@
   
 
 啟德體育園明日傍晚6時半在主場館舉行開幕典禮。體育專員蔡健斌說，觀眾下午4時半可以開始入場，一定要持實體門票才能進場，呼籲已購買電子門票換領券的市民，明天下午3時前到啟德體藝館換領實體票。
+  
 
   
 
+
+  
 
 ---
 
@@ -1080,6 +1303,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm)
 
 ---
@@ -1090,9 +1315,12 @@
   
 
 啟德體育園明晚舉行開幕典禮，九巴表示有多條路線可前往會場，另設6條散場特別線，方便市民出行。
+  
 
   
 
+
+  
 
 ---
 
@@ -1104,6 +1332,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793626-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793626-20250228.htm)
 
 ---
@@ -1114,9 +1344,12 @@
   
 
 啟德體育園啟德主場館明日傍晚舉行開幕典禮，體育專員蔡健斌說，入場的市民需要持實體門票，呼籲盡早到啟德體藝館換領。截至昨晚，公開發售的8500張門票中，已換領了3500張實體票。他呼籲市民盡早換領，避免需時換票耽誤入場時間，今日的換領時間由中午12時至晚上10時，明日的換領時間由上午9時至下午3時。
+  
 
   
 
+
+  
 
 ---
 
@@ -1128,6 +1361,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793620-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793620-20250228.htm)
 
 ---
@@ -1138,9 +1373,12 @@
   
 
 啟德體育園明晚舉行開幕禮。
+  
 
   
 
+
+  
 
 ---
 
@@ -1152,6 +1390,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793608-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793608-20250228.htm)
 
 ---
@@ -1162,9 +1402,12 @@
   
 
 意大利網球手贊歷冼拿被撤銷勞倫斯體育大獎的最佳男運動員提名。
+  
 
   
 
+
+  
 
 ---
 
@@ -1176,6 +1419,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793583-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793583-20250228.htm)
 
 ---
@@ -1186,9 +1431,12 @@
   
 
 英格蘭超級足球聯賽，在降班區的李斯特城搶分失敗，0:2不敵韋斯咸。
+  
 
   
 
+
+  
 
 ---
 
@@ -1200,6 +1448,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793581-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793581-20250228.htm)
 
 ---
@@ -1210,9 +1460,12 @@
   
 
 第十五屆全國運動會三項鐵人項目測試賽，將於周六和周日在中環海濱及維港舉行，當局歡迎市民到場觀賞。
+  
 
   
 
+
+  
 
 ---
 
@@ -1224,6 +1477,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm)
 
 ---
@@ -1234,9 +1489,12 @@
   
 
 啟德體育園本周六晚上舉行開幕典禮，城巴表示，當日將開辦5條特別路線，直達港九新界，為市民及旅客提供交通選項。
+  
 
   
 
+
+  
 
 ---
 
@@ -1248,6 +1506,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm)
 
 ---
@@ -1258,9 +1518,12 @@
   
 
 啟德體育園本周六晚上舉行開幕典禮，已購買其中8500張公開發售門票的人士，即日起一連三日，可到啟德體藝館換領實體入場門票，陸續有市民到場排隊換領。
+  
 
   
 
+
+  
 
 ---
 
@@ -1272,6 +1535,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm)
 
 ---
@@ -1282,9 +1547,12 @@
   
 
 英格蘭超級足球聯賽，利物浦主場2:0擊敗紐卡素。11分鐘，蘇保斯拉爾接應路易斯迪亞斯傳送後趁機突圍，近距離射破門領先。63分鐘，阿歷斯麥卡里士打接應沙拿傳送，猛烈射門，為主隊奠定勝局。
+  
 
   
 
+
+  
 
 ---
 
@@ -1296,6 +1564,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm)
 
 ---
@@ -1306,9 +1576,12 @@
   
 
 國際奧委會接納主席巴赫辭任委員，今年6月23日生效，並由新主席接任。新主席會在下個月於希臘選出。
+  
 
   
 
+
+  
 
 ---
 
@@ -1320,6 +1593,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm)
 
 ---
@@ -1330,9 +1605,12 @@
   
 
 海洋公園歡迎政府在《財政預算案》加大力度落實「無處不旅遊」理念以及《香港旅遊業發展藍圖2.0》。園方亦歡迎《財政預算案》支持開拓中東和東盟旅客客源，相信有關推廣將有助擴闊公園的海外市場。
+  
 
   
 
+
+  
 
 ---
 
@@ -1344,6 +1622,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
 
 ---
@@ -1354,9 +1634,12 @@
   
 
 英格蘭超級足球聯賽，車路士主場4:0大勝修咸頓。
+  
 
   
 
+
+  
 
 ---
 
@@ -1368,6 +1651,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm)
 
 ---
@@ -1378,9 +1663,12 @@
   
 
 啟德體育園將於本星期六開幕，當日傍晚6時半將舉行開幕典禮，由行政長官李家超主持開幕儀式，體育園明晚起一連三晚在外牆上演LED燈光展。
+  
 
   
 
+
+  
 
 ---
 
@@ -1392,6 +1680,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793120-20250225.htm)
 
 ---
@@ -1402,9 +1692,12 @@
   
 
 54名世界頂尖高爾夫球手將於下月7日至9日在「LIV Golf 香港站」同場競技。知名韓裔 DJ 兼音樂製作人金敏姬將於下月8日的的第二輪比賽結束後，擔任表演嘉賓。
+  
 
   
 
+
+  
 
 ---
 
@@ -1416,6 +1709,8 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793115-20250225.htm)
 
 ---
@@ -1426,9 +1721,12 @@
   
 
 警方拘捕3人涉嫌在具名登記下，以高於原價出售啟德體育園開幕禮門票，有機會違反法例盜竊罪第16A條的欺詐罪，一經定罪可判處監禁14年。他們獲准保釋候查，3月下旬報到，不排除會更多人被捕。
+  
 
   
 
+
+  
 
 ---
 
@@ -1439,6 +1737,8 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm](https://news.rthk.hk/rthk/ch/component/k2/1793109-20250225.htm)
 

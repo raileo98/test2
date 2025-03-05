@@ -4,9 +4,12 @@
   
 
 Wet weather looked poised to offer relief Wednesday as Japan battled its worst wildfire in half a century in a northern region hit by record-low rainfall.
+  
 
   
 
+
+  
 
 ---
 
@@ -18,6 +21,8 @@ Wet weather looked poised to offer relief Wednesday as Japan battled its worst w
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm)
 
 ---
@@ -28,9 +33,12 @@ Wet weather looked poised to offer relief Wednesday as Japan battled its worst w
   
 
 Democrats protested President Donald Trump's address to Congress on Tuesday with signs reading "No King!" and "Save Medicaid," with some turning their backs on the Republican as he spoke and one lawmaker marched out by security.
+  
 
   
 
+
+  
 
 ---
 
@@ -42,6 +50,8 @@ Democrats protested President Donald Trump's address to Congress on Tuesday with
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm)
 
 ---
@@ -52,9 +62,12 @@ Democrats protested President Donald Trump's address to Congress on Tuesday with
   
 
 US President Donald Trump took a victory lap in a speech to Congress on Tuesday, exulting in a series of dramatic actions that have upended American foreign policy, ignited a trade war with close allies and slashed the federal workforce since he took office six weeks ago.
+  
 
   
 
+
+  
 
 ---
 
@@ -66,6 +79,8 @@ US President Donald Trump took a victory lap in a speech to Congress on Tuesday,
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm)
 
 ---
@@ -76,9 +91,12 @@ US President Donald Trump took a victory lap in a speech to Congress on Tuesday,
   
 
 Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow its roughly two million Palestinians to remain, in a counterproposal to US President Donald Trump’s plan to depopulate the territory and redevelop it as a beach destination.
+  
 
   
 
+
+  
 
 ---
 
@@ -90,6 +108,8 @@ Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm)
 
 ---
@@ -100,9 +120,12 @@ Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow 
   
 
 An economist on Wednesday said that the latest round of US tariffs on Chinese imports could gradually reduce China's gross domestic product by some 0.3 to 0.4 percent over a 12-month period.
+  
 
   
 
+
+  
 
 ---
 
@@ -114,6 +137,8 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
 
 ---
@@ -124,9 +149,12 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
   
 
 President Volodymyr Zelensky on Tuesday said he wanted to "make things right" with Donald Trump and work under the US president's "strong leadership" to secure a lasting peace in Ukraine.
+  
 
   
 
+
+  
 
 ---
 
@@ -138,6 +166,8 @@ President Volodymyr Zelensky on Tuesday said he wanted to "make things right" wi
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
 
 ---
@@ -148,9 +178,12 @@ President Volodymyr Zelensky on Tuesday said he wanted to "make things right" wi
   
 
 Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama Canal port operator to a BlackRock Inc-backed consortium, following intense pressure from US President Donald Trump.
+  
 
   
 
+
+  
 
 ---
 
@@ -162,6 +195,8 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
 
 ---
@@ -172,9 +207,12 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
   
 
 EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise some US$844 billion for Europe's defence, and help provide "immediate" military support for Ukraine after Washington suspended military aid.
+  
 
   
 
+
+  
 
 ---
 
@@ -186,6 +224,8 @@ EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm)
 
 ---
@@ -196,9 +236,12 @@ EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise 
   
 
 China vowed on Tuesday to fight to the "bitter end" if the United States pushes a trade war, after Washington and Beijing exchanged a salvo of tariffs.
+  
 
   
 
+
+  
 
 ---
 
@@ -210,6 +253,8 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
 
 ---
@@ -220,9 +265,12 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
   
 
 Canada will slap tariffs on US imports beginning on Tuesday in response to levies pledged by President Donald Trump, Prime Minister Justin Trudeau said on Monday, adding "there is no justification" for Washington's actions.
+  
 
   
 
+
+  
 
 ---
 
@@ -234,6 +282,8 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
 
 ---
@@ -244,9 +294,12 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
   
 
 US President Donald Trump has paused military aid to Ukraine following his clash with Ukrainian President Volodymyr Zelensky last week, a White House official said, deepening the fissure that has opened between the two one-time allies.
+  
 
   
 
+
+  
 
 ---
 
@@ -258,6 +311,8 @@ US President Donald Trump has paused military aid to Ukraine following his clash
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm)
 
 ---
@@ -268,9 +323,12 @@ US President Donald Trump has paused military aid to Ukraine following his clash
   
 
 Elon Musk's SpaceX called off the latest test flight of its Starship rocket just before its scheduled launch on Monday, citing an unspecified problem with the behemoth spacecraft.
+  
 
   
 
+
+  
 
 ---
 
@@ -282,6 +340,8 @@ Elon Musk's SpaceX called off the latest test flight of its Starship rocket just
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm)
 
 ---
@@ -292,9 +352,12 @@ Elon Musk's SpaceX called off the latest test flight of its Starship rocket just
   
 
 A new round of negotiations for an international treaty on reducing global plastics pollution will be held in Geneva in August, the United Nations Environment Programme (Unep) said on Monday.
+  
 
   
 
+
+  
 
 ---
 
@@ -306,6 +369,8 @@ A new round of negotiations for an international treaty on reducing global plast
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm)
 
 ---
@@ -316,9 +381,12 @@ A new round of negotiations for an international treaty on reducing global plast
   
 
 Nearly 60 percent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
+  
 
   
 
+
+  
 
 ---
 
@@ -330,6 +398,8 @@ Nearly 60 percent of all adults and a third of all children in the world will be
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
 
 ---
@@ -340,9 +410,12 @@ Nearly 60 percent of all adults and a third of all children in the world will be
   
 
 US President Donald Trump said on Monday that 25 percent taxes on imports from Mexico and Canada would start on Tuesday, sparking renewed fears of a North American trade war that already showed signs of pushing up inflation and hindering growth.
+  
 
   
 
+
+  
 
 ---
 
@@ -354,6 +427,8 @@ US President Donald Trump said on Monday that 25 percent taxes on imports from M
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm)
 
 ---
@@ -364,9 +439,12 @@ US President Donald Trump said on Monday that 25 percent taxes on imports from M
   
 
 A car driven into a crowd in the German city of Mannheim on Monday killed one person and injured several, police said, adding that one person had been arrested.
+  
 
   
 
+
+  
 
 ---
 
@@ -378,6 +456,8 @@ A car driven into a crowd in the German city of Mannheim on Monday killed one pe
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794045-20250303.htm)
 
 ---
@@ -388,9 +468,12 @@ A car driven into a crowd in the German city of Mannheim on Monday killed one pe
   
 
 Israel's police said the perpetrator of a stabbing attack in the northern city of Haifa on Monday was a member of Israel's Druze Arab minority who recently returned from abroad.
+  
 
   
 
+
+  
 
 ---
 
@@ -401,6 +484,8 @@ Israel's police said the perpetrator of a stabbing attack in the northern city o
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm)
 
@@ -417,9 +502,12 @@ Israel's police said the perpetrator of a stabbing attack in the northern city o
   
 
 "Anora", the story of a sex worker who gets a chance at a new life when she marries a wealthy client on a whim, won five Academy Awards on Sunday, including the coveted best picture Oscar.
+  
 
   
 
+
+  
 
 ---
 
@@ -431,6 +519,8 @@ Israel's police said the perpetrator of a stabbing attack in the northern city o
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm)
 
 ---
@@ -441,9 +531,12 @@ Israel's police said the perpetrator of a stabbing attack in the northern city o
   
 
 Israel on Sunday blocked aid flowing into Gaza, where a six-week truce enabled the entry of vital food, shelter and medical assistance, prompting the UN to call for an immediate restoration of humanitarian assistance.
+  
 
   
 
+
+  
 
 ---
 
@@ -455,6 +548,8 @@ Israel on Sunday blocked aid flowing into Gaza, where a six-week truce enabled t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm)
 
 ---
@@ -465,9 +560,12 @@ Israel on Sunday blocked aid flowing into Gaza, where a six-week truce enabled t
   
 
 European leaders closed ranks on Sunday in support of Kyiv at a London summit, where they pledged to spend more on security and assemble a coalition to defend any truce in Ukraine.
+  
 
   
 
+
+  
 
 ---
 
@@ -479,6 +577,8 @@ European leaders closed ranks on Sunday in support of Kyiv at a London summit, w
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm)
 
 ---
@@ -489,9 +589,12 @@ European leaders closed ranks on Sunday in support of Kyiv at a London summit, w
   
 
 The ministry of health in Hamas-run Gaza said four people were killed and six others wounded in Israeli attacks on Sunday after the first phase of a fragile truce in the territory drew to a close.
+  
 
   
 
+
+  
 
 ---
 
@@ -503,6 +606,8 @@ The ministry of health in Hamas-run Gaza said four people were killed and six ot
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm)
 
 ---
@@ -513,9 +618,12 @@ The ministry of health in Hamas-run Gaza said four people were killed and six ot
   
 
 Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sunday thanked believers around the world for their "support" and "affection" as he missed delivering a third straight Angelus prayer in person.
+  
 
   
 
+
+  
 
 ---
 
@@ -527,6 +635,8 @@ Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sun
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm)
 
 ---
@@ -537,9 +647,12 @@ Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sun
   
 
 Britain and France will work with Ukraine on a plan to end the fighting with Russia, which will later be presented to the United States, Prime Minister Keir Starmer said on Sunday.
+  
 
   
 
+
+  
 
 ---
 
@@ -551,6 +664,8 @@ Britain and France will work with Ukraine on a plan to end the fighting with Rus
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm)
 
 ---
@@ -561,9 +676,12 @@ Britain and France will work with Ukraine on a plan to end the fighting with Rus
   
 
 Firefly Aerospace became the second US company to land on the moon on Sunday with its debut Blue Ghost lander, kicking off a two-week research mission as one of a handful of private firms to reach the frontlines of a global moon race.
+  
 
   
 
+
+  
 
 ---
 
@@ -575,6 +693,8 @@ Firefly Aerospace became the second US company to land on the moon on Sunday wit
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm)
 
 ---
@@ -585,9 +705,12 @@ Firefly Aerospace became the second US company to land on the moon on Sunday wit
   
 
 Hamas on Sunday slammed Israel's suspension of supplies and aid entering Gaza, describing it as a "war crime" and a violation of the ceasefire agreement.
+  
 
   
 
+
+  
 
 ---
 
@@ -599,6 +722,8 @@ Hamas on Sunday slammed Israel's suspension of supplies and aid entering Gaza, d
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm)
 
 ---
@@ -609,9 +734,12 @@ Hamas on Sunday slammed Israel's suspension of supplies and aid entering Gaza, d
   
 
 American singer Angie Stone, who was nominated for three Grammy Awards, died at 63 early on Saturday, a representative confirmed.
+  
 
   
 
+
+  
 
 ---
 
@@ -623,6 +751,8 @@ American singer Angie Stone, who was nominated for three Grammy Awards, died at 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm)
 
 ---
@@ -633,9 +763,12 @@ American singer Angie Stone, who was nominated for three Grammy Awards, died at 
   
 
 British Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm welcome in London, a day after the Ukrainian leader's clash with US President Donald Trump.
+  
 
   
 
+
+  
 
 ---
 
@@ -647,6 +780,8 @@ British Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm w
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm)
 
 ---
@@ -657,9 +792,12 @@ British Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm w
   
 
 Cars more than 15 years old will soon be barred from refuelling in New Delhi, the city's government said on Saturday, as part of measures to reduce the Indian capital's hazardous pollution levels.
+  
 
   
 
+
+  
 
 ---
 
@@ -671,6 +809,8 @@ Cars more than 15 years old will soon be barred from refuelling in New Delhi, th
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793825-20250301.htm)
 
 ---
@@ -681,9 +821,12 @@ Cars more than 15 years old will soon be barred from refuelling in New Delhi, th
   
 
 The latest round of talks on the second phase of the ceasefire between Israel and Hamas has made no progress so far, and it was unclear whether the talks would resume on Saturday, a senior Hamas official said.
+  
 
   
 
+
+  
 
 ---
 
@@ -695,6 +838,8 @@ The latest round of talks on the second phase of the ceasefire between Israel an
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm)
 
 ---
@@ -705,9 +850,12 @@ The latest round of talks on the second phase of the ceasefire between Israel an
   
 
 Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey following a landmark call by jailed PKK leader Abdullah Ocalan asking the group to disband.
+  
 
   
 
+
+  
 
 ---
 
@@ -719,6 +867,8 @@ Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey followin
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm)
 
 ---
@@ -729,9 +879,12 @@ Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey followin
   
 
 Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a peaceful night after suffering a breathing crisis, the Vatican said on Saturday.
+  
 
   
 
+
+  
 
 ---
 
@@ -743,6 +896,8 @@ Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a p
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm)
 
 ---
@@ -753,9 +908,12 @@ Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a p
   
 
 At least four people died from their injuries in India after an avalanche hit a remote border area, officials said on Saturday, as rescuers deployed helicopters to search for the remaining five missing.
+  
 
   
 
+
+  
 
 ---
 
@@ -767,6 +925,8 @@ At least four people died from their injuries in India after an avalanche hit a 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm)
 
 ---
@@ -777,9 +937,12 @@ At least four people died from their injuries in India after an avalanche hit a 
   
 
 Search teams in northern India on Saturday attempted to rescue 22 workers believed to be trapped after an avalanche hit a remote border area, officials and local media said.
+  
 
   
 
+
+  
 
 ---
 
@@ -791,6 +954,8 @@ Search teams in northern India on Saturday attempted to rescue 22 workers believ
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm)
 
 ---
@@ -801,9 +966,12 @@ Search teams in northern India on Saturday attempted to rescue 22 workers believ
   
 
 Hollywood legend Gene Hackman had likely been dead for over a week when he and his wife were found lifeless in their New Mexico home, the local sheriff said on Friday.
+  
 
   
 
+
+  
 
 ---
 
@@ -815,6 +983,8 @@ Hollywood legend Gene Hackman had likely been dead for over a week when he and h
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm)
 
 ---
@@ -825,9 +995,12 @@ Hollywood legend Gene Hackman had likely been dead for over a week when he and h
   
 
 Japan was battling its largest wildfire in more than three decades on Saturday, one of several blazes that have killed one person and forced the evacuation of more than a thousand.
+  
 
   
 
+
+  
 
 ---
 
@@ -839,6 +1012,8 @@ Japan was battling its largest wildfire in more than three decades on Saturday, 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm)
 
 ---
@@ -849,9 +1024,12 @@ Japan was battling its largest wildfire in more than three decades on Saturday, 
   
 
 Microsoft on Friday announced it was retiring Skype, the online voice and video call pioneer that the tech titan acquired in 2011.
+  
 
   
 
+
+  
 
 ---
 
@@ -863,6 +1041,8 @@ Microsoft on Friday announced it was retiring Skype, the online voice and video 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm)
 
 ---
@@ -873,9 +1053,12 @@ Microsoft on Friday announced it was retiring Skype, the online voice and video 
   
 
 US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday and said the Ukrainian leader is "not ready" for peace with Russia in an extraordinary meltdown in the Oval Office that threw question marks over chances for a truce.
+  
 
   
 
+
+  
 
 ---
 
@@ -887,6 +1070,8 @@ US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm)
 
 ---
@@ -897,9 +1082,12 @@ US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday 
   
 
 Argentina's state disability agency apologised on Thursday following a furore over the use of the terms "idiot", "imbecile" and "mentally retarded" to describe people with disabilities.
+  
 
   
 
+
+  
 
 ---
 
@@ -911,6 +1099,8 @@ Argentina's state disability agency apologised on Thursday following a furore ov
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm)
 
 ---
@@ -921,9 +1111,12 @@ Argentina's state disability agency apologised on Thursday following a furore ov
   
 
 US President Donald Trump and British Prime Minister Keir Starmer met at the White House on Thursday for their first in-person talks since the Republican leader upended US policy on Ukraine, the Middle East, and global trade.
+  
 
   
 
+
+  
 
 ---
 
@@ -935,6 +1128,8 @@ US President Donald Trump and British Prime Minister Keir Starmer met at the Whi
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm)
 
 ---
@@ -945,9 +1140,12 @@ US President Donald Trump and British Prime Minister Keir Starmer met at the Whi
   
 
 US President Donald Trump said on Thursday he would impose an added 10 percent tariff on Chinese imports while moving ahead with levies on Canada and Mexico next week, citing "unacceptable" fentanyl smuggling.
+  
 
   
 
+
+  
 
 ---
 
@@ -959,6 +1157,8 @@ US President Donald Trump said on Thursday he would impose an added 10 percent t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm)
 
 ---
@@ -969,9 +1169,12 @@ US President Donald Trump said on Thursday he would impose an added 10 percent t
   
 
 The United States has slashed its multi-year aid contracts by 92 percent, as it sought around US$60 billion in savings in development and overseas humanitarian programmes, the State Department said on Wednesday.
+  
 
   
 
+
+  
 
 ---
 
@@ -983,6 +1186,8 @@ The United States has slashed its multi-year aid contracts by 92 percent, as it 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm)
 
 ---
@@ -993,9 +1198,12 @@ The United States has slashed its multi-year aid contracts by 92 percent, as it 
   
 
 The European Union on Thursday pushed back against allegations by US President Donald Trump that the 27-nation bloc was out to get the United States, and warned that it would fight any wholesale tariff of 25 percent on all EU products.
+  
 
   
 
+
+  
 
 ---
 
@@ -1007,6 +1215,8 @@ The European Union on Thursday pushed back against allegations by US President D
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm)
 
 ---
@@ -1017,9 +1227,12 @@ The European Union on Thursday pushed back against allegations by US President D
   
 
 Oscar-winning actor Gene Hackman, his wife and their dog were found dead in their New Mexico home on Wednesday, authorities said.
+  
 
   
 
+
+  
 
 ---
 
@@ -1031,6 +1244,8 @@ Oscar-winning actor Gene Hackman, his wife and their dog were found dead in thei
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm)
 
 ---
@@ -1041,9 +1256,12 @@ Oscar-winning actor Gene Hackman, his wife and their dog were found dead in thei
   
 
 Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet the Spy” hit movie and went on to co-star in two buzzy millennial-era TV shows — “Buffy the Vampire Slayer” and “Gossip Girl” — has died. She was 39.
+  
 
   
 
+
+  
 
 ---
 
@@ -1055,6 +1273,8 @@ Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
 
 ---
@@ -1065,9 +1285,12 @@ Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet t
   
 
 US President Donald Trump said on Wednesday that the European Union was born to "screw" the United States, laying bare his hostility to the longtime US partner as he detailed new tariffs.
+  
 
   
 
+
+  
 
 ---
 
@@ -1079,6 +1302,8 @@ US President Donald Trump said on Wednesday that the European Union was born to 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm)
 
 ---
@@ -1089,9 +1314,12 @@ US President Donald Trump said on Wednesday that the European Union was born to 
   
 
 US President Donald Trump's official social media accounts posted an apparently AI-generated video depicting war-ravaged Gaza rebuilt into a seaside resort, replete with a towering golden statue of himself.
+  
 
   
 
+
+  
 
 ---
 
@@ -1103,6 +1331,8 @@ US President Donald Trump's official social media accounts posted an apparently 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm)
 
 ---
@@ -1113,9 +1343,12 @@ US President Donald Trump's official social media accounts posted an apparently 
   
 
 Hamas will hand over the bodies of four Israeli hostages on Thursday in what it said would be an exchange for more than 600 Palestinian prisoners, capping the first phase of a Gaza ceasefire deal.
+  
 
   
 
+
+  
 
 ---
 
@@ -1127,6 +1360,8 @@ Hamas will hand over the bodies of four Israeli hostages on Thursday in what it 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm)
 
 ---
@@ -1137,9 +1372,12 @@ Hamas will hand over the bodies of four Israeli hostages on Thursday in what it 
   
 
 Chilean authorities said they had restored power to most homes on Wednesday, hours after a massive, rare blackout caused transport chaos in the capital and forced the president to declare a state of emergency and curfew across much of the country.
+  
 
   
 
+
+  
 
 ---
 
@@ -1151,6 +1389,8 @@ Chilean authorities said they had restored power to most homes on Wednesday, hou
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm)
 
 ---
@@ -1161,9 +1401,12 @@ Chilean authorities said they had restored power to most homes on Wednesday, hou
   
 
 The number of births in South Korea rose last year for the first time in roughly a decade on the back of a rise in marriages, officials said on Wednesday, bucking a trend for a country battling a demographic crisis.
+  
 
   
 
+
+  
 
 ---
 
@@ -1175,6 +1418,8 @@ The number of births in South Korea rose last year for the first time in roughly
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793287-20250226.htm)
 
 ---
@@ -1185,9 +1430,12 @@ The number of births in South Korea rose last year for the first time in roughly
   
 
 Venezuela will soon have its first saint, after ailing Pope Francis on Tuesday canonised a physician who died more than 100 years ago, revered for his selfless service during a previous pandemic.
+  
 
   
 
+
+  
 
 ---
 
@@ -1199,6 +1447,8 @@ Venezuela will soon have its first saint, after ailing Pope Francis on Tuesday c
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm)
 
 ---
@@ -1209,9 +1459,12 @@ Venezuela will soon have its first saint, after ailing Pope Francis on Tuesday c
   
 
 More than 20 civil service employees resigned on Tuesday from billionaire Trump adviser Elon Musk's Department of Government Efficiency (Doge), saying they were refusing to use their technical expertise to “dismantle critical public services”.
+  
 
   
 
+
+  
 
 ---
 
@@ -1223,6 +1476,8 @@ More than 20 civil service employees resigned on Tuesday from billionaire Trump 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm)
 
 ---
@@ -1233,9 +1488,12 @@ More than 20 civil service employees resigned on Tuesday from billionaire Trump 
   
 
 French President Emmanuel Macron will brief fellow EU leaders on Wednesday on his talks with US President Donald Trump, ahead of an emergency summit on European support for Ukraine.
+  
 
   
 
+
+  
 
 ---
 
@@ -1247,6 +1505,8 @@ French President Emmanuel Macron will brief fellow EU leaders on Wednesday on hi
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm)
 
 ---
@@ -1257,9 +1517,12 @@ French President Emmanuel Macron will brief fellow EU leaders on Wednesday on hi
   
 
 British Prime Minister Keir Starmer on Tuesday pledged to boost defence spending to 2.5 percent of the economy by 2027 with the aim of hiking it to 3 percent in the next parliament.
+  
 
   
 
+
+  
 
 ---
 
@@ -1271,6 +1534,8 @@ British Prime Minister Keir Starmer on Tuesday pledged to boost defence spending
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm)
 
 ---
@@ -1281,9 +1546,12 @@ British Prime Minister Keir Starmer on Tuesday pledged to boost defence spending
   
 
 A fresh search for Malaysia Airlines flight MH370 has been launched more than a decade after the plane went missing in one of aviation's greatest enduring mysteries.
+  
 
   
 
+
+  
 
 ---
 
@@ -1295,6 +1563,8 @@ A fresh search for Malaysia Airlines flight MH370 has been launched more than a 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm)
 
 ---
@@ -1305,9 +1575,12 @@ A fresh search for Malaysia Airlines flight MH370 has been launched more than a 
   
 
 Four people, including two Chinese nationals, were killed and six injured after a bridge collapsed at an expressway construction site in South Korea on Tuesday, authorities said.
+  
 
   
 
+
+  
 
 ---
 
@@ -1319,6 +1592,8 @@ Four people, including two Chinese nationals, were killed and six injured after 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
 
 ---
@@ -1329,9 +1604,12 @@ Four people, including two Chinese nationals, were killed and six injured after 
   
 
 South Korea's ousted President Yoon Suk-yeol faced his final impeachment hearing on Tuesday before judges decide whether to formally remove him from office over his disastrous martial law declaration.
+  
 
   
 
+
+  
 
 ---
 
@@ -1343,6 +1621,8 @@ South Korea's ousted President Yoon Suk-yeol faced his final impeachment hearing
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm)
 
 ---
@@ -1353,9 +1633,12 @@ South Korea's ousted President Yoon Suk-yeol faced his final impeachment hearing
   
 
 Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly With His Song" and one of the most recognisable voices of the 1970s, died on Monday at age 88.
+  
 
   
 
+
+  
 
 ---
 
@@ -1367,6 +1650,8 @@ Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly W
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm)
 
 ---
@@ -1377,9 +1662,12 @@ Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly W
   
 
 Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace" this year as European leaders gathered for a summit in Kyiv on the third anniversary of the war in Ukraine.
+  
 
   
 
+
+  
 
 ---
 
@@ -1391,6 +1679,8 @@ Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm)
 
 ---
@@ -1401,9 +1691,12 @@ Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace
   
 
 US President Donald Trump said on Monday that his tariffs on Canada and Mexico are starting next month, ending a month-long suspension on the planned import taxes that could potentially hurt economic growth and worsen inflation.
+  
 
   
 
+
+  
 
 ---
 
@@ -1415,6 +1708,8 @@ US President Donald Trump said on Monday that his tariffs on Canada and Mexico a
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
+
+
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm)
 
 ---
@@ -1425,9 +1720,12 @@ US President Donald Trump said on Monday that his tariffs on Canada and Mexico a
   
 
 Three improvised explosive devices were thrown at the Russian consulate in the southern French port city of Marseille on Monday but no one was injured, a police source said.
+  
 
   
 
+
+  
 
 ---
 
@@ -1438,6 +1736,8 @@ Three improvised explosive devices were thrown at the Russian consulate in the s
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792988-20250224.htm)
 
