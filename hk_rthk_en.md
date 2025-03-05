@@ -1,3 +1,27 @@
+# Democrat lawmaker ejected during Trump's speech
+
+![Democrat congressman Al Green stood up and yelled at the president: "You don't have a mandate" and was led away by security. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=85)
+  
+
+Democrats protested President Donald Trump's address to Congress on Tuesday with signs reading "No King!" and "Save Medicaid," with some turning their backs on the Republican as he spoke and one lawmaker marched out by security.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm)
+
+---
+
 # 5pc is no easy feat, SAR deputies say on growth target
 
 ![Peter Wong said he's confident of achieving the growth target, judging from the stimulus measures rolled out over the past year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_1_20250305123650.jpg&q=85)
@@ -1415,29 +1439,5 @@ Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm)
-
----
-
-# Hong Kong's new taxi fleets unveiled
-
-![Officials say the fleets will gradually arrive between the end of this month and July. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793993_1_20250303160836.jpg&q=55)
-  
-
-Taxis that offer a variety of ways to pay and come equipped with systems to keep an eye on the driver are about to arrive on the city's streets, with officials saying the only way is up when it comes to service quality.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793993-20250303.htm)
 
 ---

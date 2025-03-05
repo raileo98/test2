@@ -1,3 +1,26 @@
+# 銅鑼灣「醫衞醫療中心」疑不當處理醫療器材被暫時吊銷牌照
+
+  
+
+衞生署即日起暫時吊銷銅鑼灣世貿中心一間名為「醫衞醫療中心」的日間醫療中心牌照，中心不可進行牌照上的專門服務，包括外科程序及麻醉程序。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794355-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794355-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794355-20250305.htm)
+
+---
+
 # 羅淑佩稱主辦方及體育園需要磨合　以後處理相關情況要汲取經驗
 
   
@@ -23,6 +46,7 @@
 
 # 全國兩會｜李強稱堅決反對台獨分裂和外部勢力干涉
 
+![李強說，堅決反對「台獨」分裂和外部勢力干涉，推動兩岸關係和平發展，堅定不移推進祖國統一大業。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794350_1_20250305130653.jpg&q=80)
   
 
 政府工作報告在港澳方面的部份，強調堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」原則。
@@ -1415,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794173-20250304.htm)
-
----
-
-# 新地旗下機場空運中心大樓續租15年　將投入至少4億元升級
-
-![郭炳聯稱要讓本港空運中心運作能與時並進，打造成為世界上最有效率空運中心。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_1_20250304164738.jpg&q=15)
-![林天福表示，現時全球經濟面對很多不明朗因素，香港更要保持競爭力（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794171_2_20250304164738.jpg&q=20)
-  
-
-新地與機管局達成協議，新地旗下機場空運中心大樓將續租15年，直至2043年，新地將投入至少4億元升級優化大樓設施，讓企業客戶可按需要調配倉庫佈局，亦會引入智能數碼化系統等。新地預計，全新空運中心明年初起分階段落成，貨運吞吐量可提升達30%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794171-20250304.htm)
 
 ---
