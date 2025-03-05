@@ -1,3 +1,50 @@
+# 兩國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
+
+  
+
+在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
+
+---
+
+# 內地5家險企獲批開展長期投資改革試點　規模600億元人民幣
+
+![報道稱金管總局近期批覆5家保險公司開展長期投資改革試點，涉及600億元人民幣。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794382_1_20250305151040.jpg&q=55)
+  
+
+國家金融監管總局主管媒體《中國銀行保險報》報道指，當局近期再次批覆5家保險公司開展長期投資改革試點，規模合共600億元人民幣。5家險企包括人保壽險、中國人壽、太平人壽、新華人壽、平安人壽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm)
+
+---
+
 # 全國兩會｜李慧琼對工作報告有信心　相信經整體考慮及中期需要
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794206-20250304.htm)
-
----
-
-# 全國兩會｜人大會議明日召開　七項議程未提民營經濟促進法
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794205_1_20250304184051.jpg&q=80)
-  
-
-第十四屆全國人大三次會議明日上午在北京召開，下星期二閉幕，會期七日。今次大會有七項議程，包括審議政府工作報告、國民經濟與社會發展計劃草案等，但沒有提及備受關注的《民營經濟促進法》草案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794205-20250304.htm)
-
----
-
-# 全國兩會｜婁勤儉：冀平等磋商解決問題　中方絕不接受施壓和威脅
-
-![婁勤儉回應美國加徵對中國產品關稅時表示，希望通過平等磋商找到解決問題的辦法。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794204_1_20250304190248.jpg&q=90)
-  
-
-十四屆全國人大三次會議明日上午開幕，下星期二下午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794204-20250304.htm)
 
 ---

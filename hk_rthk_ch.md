@@ -1,4 +1,51 @@
-# 滬股高收0.53%　創業板近乎持平
+# 兩國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
+
+  
+
+在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
+
+---
+
+# 內地5家險企獲批開展長期投資改革試點　規模600億元人民幣
+
+![報道稱金管總局近期批覆5家保險公司開展長期投資改革試點，涉及600億元人民幣。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794382_1_20250305151040.jpg&q=55)
+  
+
+國家金融監管總局主管媒體《中國銀行保險報》報道指，當局近期再次批覆5家保險公司開展長期投資改革試點，規模合共600億元人民幣。5家險企包括人保壽險、中國人壽、太平人壽、新華人壽、平安人壽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm)
+
+---
+
+# 滬股高收0.53%　創業板指數接近持平
 
 ![上證指數今早窄幅上落，午後轉升，收市報3341點，升17點，升幅0.53%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794379_1_20250305150444.jpg&q=60)
   
@@ -47,6 +94,7 @@
 
 # 公務員事務局澄清沒有宣布整合「文書助理」職系　已就事件報警
 
+![公務員事務局澄清，並沒作出有「文書助理」職系將於2027年前全面整合至「助理文書主任」職系的宣布。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794380_1_20250305152438.jpg&q=80)
   
 
 對於網上流傳假消息指，政府宣布「文書助理」職系將於2027年前，全面整合至「助理文書主任」職系，公務員事務局發言人澄清，並沒作出有關宣布，並已就此報警處理。

@@ -1,4 +1,51 @@
-# 滬股高收0.53%　創業板近乎持平
+# 兩國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
+
+  
+
+在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
+
+---
+
+# 內地5家險企獲批開展長期投資改革試點　規模600億元人民幣
+
+![報道稱金管總局近期批覆5家保險公司開展長期投資改革試點，涉及600億元人民幣。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794382_1_20250305151040.jpg&q=55)
+  
+
+國家金融監管總局主管媒體《中國銀行保險報》報道指，當局近期再次批覆5家保險公司開展長期投資改革試點，規模合共600億元人民幣。5家險企包括人保壽險、中國人壽、太平人壽、新華人壽、平安人壽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm)
+
+---
+
+# 滬股高收0.53%　創業板指數接近持平
 
 ![上證指數今早窄幅上落，午後轉升，收市報3341點，升17點，升幅0.53%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794379_1_20250305150444.jpg&q=60)
   
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794275-20250305.htm)
-
----
-
-# 威廉姆斯：關稅帶來通脹風險　利率政策仍處於良好位置
-
-![紐約聯儲銀行總裁威廉姆斯預計，特朗普政府的關稅政策將在一定程度上推高美國通脹，仍存有很多不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794274_1_20250305073549.jpg&q=75)
-  
-
-紐約聯儲銀行總裁威廉姆斯預計，美國總統特朗普政府的關稅政策，將在一定程度上推高美國通脹，又認為目前聯儲局的利率政策處於良好位置，不需要調整。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794274-20250305.htm)
-
----
-
-# 南韓上季GDP經修訂後按季增長0.1%　與初值相同
-
-![南韓去年第4季國內生產總值(GDP)經修訂後，按季增長0.1%，與初值一致。 （新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794272_1_20250305072444.jpg&q=75)
-  
-
-南韓央行公布，南韓去年第4季國內生產總值(GDP)經修訂後，按季增長0.1%，與初值一致。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794272-20250305.htm)
 
 ---
