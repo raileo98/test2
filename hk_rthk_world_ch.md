@@ -1,5 +1,34 @@
+# 美國中情局局長證實美國暫停對烏克蘭情報支持
+
+  
+
+美國中央情報局局長拉特克利夫證實，美國已切斷對烏克蘭的情報支持。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm)
+
+---
+
 # 美商務部長︰若加拿大能阻止芬太尼　特朗普或對部分行業減免關稅
 
+![盧特尼克說，如果加拿大能阻止芬太尼，特朗普將對其關稅持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794458_1_20250306005441.jpg&q=85)
   
 
 美國商務部長盧特尼克透露，總統特朗普預料將公布調整對加拿大和墨西哥商品加徵的關稅，可能給予汽車等行業部分減免。
@@ -1707,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794086-20250304.htm)
-
----
-
-# 特朗普：澤連斯基應該對美國更加感激
-
-![特朗普暗示若果澤連斯基不想達成協議，不會在位很久。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794078_1_20250304055436.jpg&q=90)
-  
-
-美國總統特朗普表示，俄烏戰事爆發後，美國一直支持烏克蘭，烏克蘭總統澤連斯基應該對美國提供的軍事援助「更加感激」。對於有報道說，美國可能停止對烏克蘭的軍援，特朗普說，現在未有討論，又不認為兩國之間的礦產協議已經告吹。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794078-20250304.htm)
 
 ---
