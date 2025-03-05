@@ -1,5 +1,63 @@
+# 鄧炳強指《明報》有關林卓廷文章誤導讀者　予以譴責
+
+  
+
+保安局局長鄧炳強回應《明報》一篇由港大法律學院客席教授陳文敏撰寫有關林卓廷7.21案裁決的文章，指文章罔顧事實、誤導讀者，令人以為法庭裁決不公，對此予以譴責。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm)
+
+---
+
+# 全國兩會｜滙豐：消費信心或正在好轉　高盛：觀望促消費具體措施
+
+![滙豐認為內地政府工作報告釋出強勁的國內政策支持信號以提振內需，又相信消費信心或正在好轉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794403_1_20250305170242.jpg&q=85)
+  
+
+滙豐報告認為，內地今年財政目標整體符合預期，財政政策起到主導作用，赤字佔國內生產總值（GDP）達到4%創新高，經濟增長目標維持5%左右展現信心，並釋出強勁國內政策支持信號以提振內需，又相信消費信心可能正在好轉。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm)
+
+---
+
 # 海關檢42隻受管制瀕危物種活蜥蝪　藏奶粉罐抽濕機企圖偷運入境
 
+![海關檢獲的懷疑受管制屬瀕危物種的活蜥蝪。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794404_1_20250305171151.jpg&q=80)
   
 
 42隻共約值21萬元的懷疑受管制屬瀕危物種的活蜥蝪，分別被收藏在抽濕機、空氣清新機及奶粉罐內，企圖以空運貨物形式偷運入境，被機場海關發現，案件轉交漁護署跟進。
@@ -56,6 +114,7 @@
 
 # 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
 
+![陳謳明認為，早日讓青少年了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794401_1_20250305171241.jpg&q=85)
   
 
 全國政協香港小組下午舉行分組討論，香港聖公會教省主教長陳謳明表示，青少年是社會明日棟樑，早日讓他們了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。

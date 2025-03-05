@@ -1,3 +1,32 @@
+# 全國兩會｜滙豐：消費信心或正在好轉　高盛：觀望促消費具體措施
+
+![滙豐認為內地政府工作報告釋出強勁的國內政策支持信號以提振內需，又相信消費信心或正在好轉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794403_1_20250305170242.jpg&q=85)
+  
+
+滙豐報告認為，內地今年財政目標整體符合預期，財政政策起到主導作用，赤字佔國內生產總值（GDP）達到4%創新高，經濟增長目標維持5%左右展現信心，並釋出強勁國內政策支持信號以提振內需，又相信消費信心可能正在好轉。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm)
+
+---
+
 # 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
 
   
@@ -1689,30 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794291-20250305.htm)
-
----
-
-# 人民幣兌美元中間價升25點子
-
-![人民幣兌美元中間價報7.1714，較上日中間價上調25點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794290_1_20250305092028.jpg&q=85)
-  
-
-人民幣兌美元中間價報7.1714，較上日中間價上調25點子。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794290-20250305.htm)
 
 ---

@@ -1,3 +1,32 @@
+# 全國兩會｜滙豐：消費信心或正在好轉　高盛：觀望促消費具體措施
+
+![滙豐認為內地政府工作報告釋出強勁的國內政策支持信號以提振內需，又相信消費信心或正在好轉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794403_1_20250305170242.jpg&q=85)
+  
+
+滙豐報告認為，內地今年財政目標整體符合預期，財政政策起到主導作用，赤字佔國內生產總值（GDP）達到4%創新高，經濟增長目標維持5%左右展現信心，並釋出強勁國內政策支持信號以提振內需，又相信消費信心可能正在好轉。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm)
+
+---
+
 # 全國兩會｜市監總局：要加快統一大市場建設　加力擴大市場開放
 
   
@@ -28,6 +57,7 @@
 
 # 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
 
+![陳謳明認為，早日讓青少年了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794401_1_20250305171241.jpg&q=85)
   
 
 全國政協香港小組下午舉行分組討論，香港聖公會教省主教長陳謳明表示，青少年是社會明日棟樑，早日讓他們了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。
@@ -1703,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794230-20250304.htm)
-
----
-
-# 中國暫停進口美國原木及美國3家企業大豆輸華資質
-
-![海關總署暫停進口美國原木及美國3家企業大豆輸華資質。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794225_1_20250304210049.jpg&q=20)
-  
-
-海關總署發布公告說，中國海關近期在進口的美國原木中檢出小蠹、天牛等檢疫性林木害蟲。為防止有害生物傳入，保護國家農林業生產和生態安全，根據《中華人民共和國生物安全法》、《中華人民共和國進出境動植物檢疫法》及其實施條例、國際植物檢疫措施標準等相關規定，海關總署決定即日起暫停美國原木進口。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm)
 
 ---
