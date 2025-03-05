@@ -1,3 +1,26 @@
+# 全國兩會｜李強稱中國願與國際社會共同推動構建人類命運共同體
+
+  
+
+國務院總理李強表示，新的一年要堅持獨立自主的和平外交政策，奉行互利共贏戰略，反對霸權主義、強權政治、單邊主義和保護主義，中國願同國際社會一道，推動構建人類命運共同體。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm)
+
+---
+
 # 特朗普稱從拜登繼承經濟災難　指多國對美國採取不公平貿易政策
 
 ![特朗普形容美墨邊境出現國家緊急狀態，他的政府已經採取很多措施應對。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794346_1_20250305123651.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794066-20250304.htm)
-
----
-
-# 玻利維亞長途巴士車禍後墜山谷至少25人死亡
-
-![波托西省一輛農夫車與巴士相撞，巴士墜入山谷，造成多人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794065_1_20250304015144.jpg&q=90)
-  
-
-玻利維亞一輛長途巴士與一輛農夫車相撞後墜入山谷，至少25人死亡、26人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794065-20250304.htm)
 
 ---

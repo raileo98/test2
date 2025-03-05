@@ -1,3 +1,26 @@
+# 全國兩會｜李強稱中國願與國際社會共同推動構建人類命運共同體
+
+  
+
+國務院總理李強表示，新的一年要堅持獨立自主的和平外交政策，奉行互利共贏戰略，反對霸權主義、強權政治、單邊主義和保護主義，中國願同國際社會一道，推動構建人類命運共同體。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm)
+
+---
+
 # 全國兩會｜李強工作報告定出今年國內生產總值目標增長為5%左右
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794168-20250304.htm)
-
----
-
-# 美國對華商品加徵關稅　中方促美方收起霸凌嘴臉並回到對話合作
-
-![林劍說，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794165_1_20250304155829.jpg&q=90)
-  
-
-在北京，外交部回應美國政府對所有中國輸美商品進一步加徵關稅，發言人林劍表示，中國人民從來不信邪、不怕鬼，從來不吃霸道霸凌那一套，施壓、脅迫和威脅不是同中方打交道的正確方式。對中國搞極限施壓，是找錯了對象，打錯了算盤，奉勸美方收起霸凌的嘴臉，趁早回到對話合作的正確軌道。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm)
 
 ---

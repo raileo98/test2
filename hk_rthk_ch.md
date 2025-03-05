@@ -1,3 +1,49 @@
+# 全國兩會｜李強稱中國願與國際社會共同推動構建人類命運共同體
+
+  
+
+國務院總理李強表示，新的一年要堅持獨立自主的和平外交政策，奉行互利共贏戰略，反對霸權主義、強權政治、單邊主義和保護主義，中國願同國際社會一道，推動構建人類命運共同體。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm)
+
+---
+
+# 全國兩會｜李強工作報告定出今年國內生產總值目標增長為5%左右
+
+  
+
+第十四屆全國人大三次會議早上在北京開幕，國務院總理李強發表任內第二份政府工作報告，當中定出今年國內生產總值目標增長為5%左右。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm)
+
+---
+
 # 特朗普稱從拜登繼承經濟災難　指多國對美國採取不公平貿易政策
 
 ![特朗普形容美墨邊境出現國家緊急狀態，他的政府已經採取很多措施應對。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794346_1_20250305123651.jpg&q=90)
