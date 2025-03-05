@@ -1,3 +1,32 @@
+# 德國股市高收逾3%　改革債務規則並設基礎設施基金
+
+![德國DAX指數收市報23081點，升754點，升幅近3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794468_1_20250306050939.jpg&q=90)
+  
+
+歐洲股市收市個別發展，德國股市升逾3%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm)
+
+---
+
 # 美國2月ISM非製造業指數出乎意料升至53.5
 
 ![美國2月ISM非製造業指數出乎意料升至53.5，反映服務業擴張速度加快。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794455_1_20250305233557.jpg&q=90)
@@ -1692,34 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm)
-
----
-
-# 全國兩會｜辦好全運會和世界運動會　開展全民健身運動
-
-![報告提到要辦好第十五屆全國運動會和第十二屆世界運動會。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794315_1_20250305103449.jpg&q=80)
-  
-
-在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
 
 ---

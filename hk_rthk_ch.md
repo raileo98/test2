@@ -1,3 +1,32 @@
+# 德國股市高收逾3%　改革債務規則並設基礎設施基金
+
+![德國DAX指數收市報23081點，升754點，升幅近3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794468_1_20250306050939.jpg&q=90)
+  
+
+歐洲股市收市個別發展，德國股市升逾3%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm)
+
+---
+
 # 美國證實與哈馬斯就被扣押人員問題進行直接會談
 
   
@@ -58,7 +87,7 @@
 
   
 
-美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予汽車製造商一個月的豁免。
+美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予部分汽車製造商一個月的豁免。
   
 
   
@@ -1699,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm)
-
----
-
-# 港股高收652點　科指升4%　長和系造好
-
-![恒生指數尾市最多升近700點，收市報23594點，升652點，升幅2.8%，主板成交額連續兩日不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794393_1_20250305161352.jpg&q=1)
-  
-
-港股午後升幅持續擴大，恒生指數最多升近700點，曾升穿23600點水平，收市報23594點，升652點，升幅2.8%。主板成交額連續兩日不足3千億元，減至約2587億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm)
 
 ---
