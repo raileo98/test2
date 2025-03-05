@@ -1,3 +1,90 @@
+# 全國兩會｜李強：今年國內生產總值增長目標5%左右
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794411_1_20250305183804.jpg&q=75)
+  
+
+十四屆全國人大三次會上午在北京開幕，國務院總理李強發表政府工作報告。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm)
+
+---
+
+# 全國兩會｜李強：今年將開展「十五五」規劃編制工作
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794412_1_20250305183729.jpg&q=70)
+  
+
+國務院總理李強在政府工作報告提到，今年將開展「十五五」規劃編制工作，要深入分析「十五五」時期新的階段性特徵，科學確定發展目標，謀劃好重大戰略任務、重大政策舉措、重大工程項目，更好發揮規劃對經濟社會發展的引領指導作用。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm)
+
+---
+
+# 全國兩會｜李強：更大力度穩定和擴大就業　發放育兒津貼
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794414_1_20250305183043.jpg&q=85)
+  
+
+國務院總理李強在政府工作報告提出，要加大保障和改善民生力度，提升社會治理效能，更大力度穩定和擴大就業，讓多勞者多得、技高者多得、創新者多得。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm)
+
+---
+
 # 全國兩會｜李強：堅持獨立自主的和平外交政策
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794410_1_20250305181925.jpg&q=85)
@@ -1958,7 +2045,7 @@
 
 # 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
 
-![李家超列席第十四屆全國人民代表大會第三次會議開幕會。（李家超社交專頁圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794336_1_20250305121454.jpg&q=55)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794336_1_20250305121454.jpg&q=55)
   
 
 行政長官李家超列席第十四屆全國人民代表大會第三次會議開幕會。對於總理李強在政府工作報告中，指出要全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」原則；支持香港發展經濟、改善民生，深化國際交往合作，更好融入國家發展大局，保持香港長期繁榮穩定。總理又提到，要提升粵港澳大灣區等經濟發展優勢區域的創新能力和輻射帶動作用。
