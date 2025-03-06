@@ -1,3 +1,32 @@
+# 市建局山東街/地士道街發展項目接獲28份發展意向書
+
+![市建局表示，九龍山東街/地士道街發展項目共接獲28份發展意向書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794568_1_20250306165153.jpg&q=80)
+  
+
+市建局九龍山東街/地士道街發展項目中午截收發展意向書。市建局表示，共接獲28份意向書。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm)
+
+---
+
 # 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
 
   
@@ -56,9 +85,14 @@
 
 # 港鐵去年盈利升一倍　末期息每股0.89元
 
+![港鐵去年盈利157.7億元，按年增長1.02倍，派末期息每股0.89元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794562_1_20250306165914.jpg&q=60)
   
 
-港鐵去年盈利157.72億元，按年增長1倍，末期息每股0.89元。
+港鐵去年盈利157.7億元，按年增長1.02倍。派末期息每股0.89元，全年派息1.31元，與前年相同。
+  
+
+  
+
 
   
 
@@ -1669,34 +1703,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm)
-
----
-
-# 美股初段靠穩　道指升逾百點　美元指數跌穿105關口
-
-![美元指數跌穿105關口，一度跌至104.49附近，創近4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794454_1_20250305224218.jpg&q=70)
-  
-
-美股初段靠穩。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm)
 
 ---

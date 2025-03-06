@@ -1,3 +1,32 @@
+# 市建局山東街/地士道街發展項目接獲28份發展意向書
+
+![市建局表示，九龍山東街/地士道街發展項目共接獲28份發展意向書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794568_1_20250306165153.jpg&q=80)
+  
+
+市建局九龍山東街/地士道街發展項目中午截收發展意向書。市建局表示，共接獲28份意向書。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm)
+
+---
+
 # 電動車暗格藏約520萬元走私燕窩及受管制魚肚　司機被海關拘捕
 
   
@@ -115,9 +144,14 @@
 
 # 港鐵去年盈利升一倍　末期息每股0.89元
 
+![港鐵去年盈利157.7億元，按年增長1.02倍，派末期息每股0.89元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794562_1_20250306165914.jpg&q=60)
   
 
-港鐵去年盈利157.72億元，按年增長1倍，末期息每股0.89元。
+港鐵去年盈利157.7億元，按年增長1.02倍。派末期息每股0.89元，全年派息1.31元，與前年相同。
+  
+
+  
+
 
   
 
@@ -1699,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm)
-
----
-
-# 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=85)
-  
-
-全國政協香港小組下午舉行會議，討論全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm)
 
 ---

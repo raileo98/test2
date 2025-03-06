@@ -1,3 +1,32 @@
+# 日本東北新幹線有列車脫卡無人傷　屬半年內第二宗同類事故
+
+![由綠色「隼」號列車與紅色「小町」號列車連接而成的重聯運行列車脫卡，停在西日暮里站附近。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794571_1_20250306165306.jpg&q=5)
+  
+
+日本東北新幹線一列列車在行駛途中脫卡，無人受傷，是半年內第二宗同類事故。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm)
+
+---
+
 # 外交部：中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實
 
 ![林劍稱，中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794564_1_20250306163756.jpg&q=90)
@@ -1707,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
-
----
-
-# 特區政府對美國向香港產品再加徵關稅強烈不滿　指美方損人不利己
-
-![特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794189_1_20250304180706.jpg&q=85)
-  
-
-特區政府表示，對於美國宣布對香港產品再加徵一成關稅、即累計徵收兩成關稅，表示強烈不滿。發言人表示，美國的做法嚴重違反世貿組織規則，破壞以規則為本的多邊貿易體制，損人不利己，特區政府再次敦促美方立即糾正錯誤行為，撤回單邊關稅措施。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794189-20250304.htm)
 
 ---
