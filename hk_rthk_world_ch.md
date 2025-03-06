@@ -1,4 +1,33 @@
-# 美國獲授權者接觸哈馬斯　白宮稱特朗普努力為美國人民正確事情
+# 特朗普給予三間車企一個月關稅豁免　與杜魯多商關稅和芬太尼問題
+
+![福特（圖）等三大汽車製造商，獲給予為期一個月的關稅豁免。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794504_1_20250306103458.jpg&q=70)
+  
+
+美國總統特朗普決定，給予福特等三大汽車製造商為期一個月的關稅豁免，對三間車廠透過美墨加協議、從墨西哥及加拿大進口的汽車產品，免除25%進口關稅。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794504-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794504-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794504-20250306.htm)
+
+---
+
+# 美國獲授權者接觸哈馬斯　白宮稱特朗普努力為國民做正確事情
 
 ![萊維特（圖）指有關聯繫顯示特朗普真誠努力為美國人民做正確事情。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794492_1_20250306091258.jpg&q=90)
   
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
-
----
-
-# 南韓多處大雪　部分客船和航班停航
-
-![在南韓首爾，有市民在雨雪天氣下撐傘前行。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794146_1_20250304134936.jpg&q=85)
-  
-
-南韓氣象廳持續向慶尚道、忠清道、江原道地區發布大雪預警，全國41艘客船和4個航班停航，部分道路關閉。消防部門表示，已展開超過130次搶險救援行動，今次大雪沒有造成人員傷亡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm)
 
 ---
