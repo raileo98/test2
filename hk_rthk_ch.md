@@ -1,3 +1,119 @@
+# 長江生命科技料去年轉蝕近1.3億元
+
+![長江生命科技預料去年業績由盈轉虧，虧損約1.27億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794629_1_20250306224510.jpg&q=1)
+  
+
+長江生命科技發盈利警告，預料去年業績由盈轉虧，虧損約1.27億元，前年盈利1730萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm)
+
+---
+
+# 全國兩會｜中央軍委委員劉振立稱要深入貫徹習近平強軍思想
+
+![中央軍委委員劉振立稱要深入貫徹習近平強軍思想。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794631_1_20250306225652.jpg&q=85)
+  
+
+出席十四屆全國人大三次會議的解放軍和武警部隊代表團繼續分組審議政府工作報告。中央軍委委員、軍委聯合參謀部參謀長劉振立說，過去一年，面對外部壓力加大、內部困難增多的複雜嚴峻形勢，黨中央、習近平主席統攬全局、沉著應變、綜合施策，團結帶領全黨全軍全國各族人民順利完成經濟社會發展主要目標任務，推動中國式現代化邁出堅實步伐。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm)
+
+---
+
+# 啟德青年運動場跑步徑及乒乓球設施預訂情況順暢
+
+![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=5)
+  
+
+啟德體育園表示，啟德青年運動場跑步徑及乒乓球設施開放預訂首天，截至晚上8時，共有1210人成功預訂跑步徑設施，有90人預約乒乓球設施，訂場情況理想。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm)
+
+---
+
+# 美股初段受壓　3大指數跌逾1%
+
+![美股初段沽壓大，道瓊斯指數較早時報42495點，跌511點，跌幅1.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794628_1_20250306224153.jpg&q=75)
+  
+
+美股初段沽壓大，3大指數跌逾1%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm)
+
+---
+
 # 美國1月貿易赤字按月擴大約34%　超出預期
 
 ![美國1月貿易赤字重上千億美元水平，達到1314億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794624_1_20250306221320.jpg&q=20)
@@ -867,6 +983,7 @@
 
 # 養和醫院稱有書面預算案給予病人　有醫生指醫療物料不一收費有別
 
+![養和醫院副院長陳煥堂說，數年前開始規定醫生接收病人入院時，要有書面預算案給予病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794594_1_20250306224419.jpg&q=45)
   
 
 私營醫療機構條例要求私家醫院提供價目資料、收費預算同過往收費統計數據。消委會研究發現，不少私營醫療機構的價目資料難明同不足，收費統計數據亦沒有即時更新，不同醫院的收費差距大，部分私家醫院或日間醫療中心收費表，一般不會列出醫生費及定價標準。

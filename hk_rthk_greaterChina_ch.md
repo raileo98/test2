@@ -1,3 +1,32 @@
+# 全國兩會｜中央軍委委員劉振立稱要深入貫徹習近平強軍思想
+
+![中央軍委委員劉振立稱要深入貫徹習近平強軍思想。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794631_1_20250306225652.jpg&q=85)
+  
+
+出席十四屆全國人大三次會議的解放軍和武警部隊代表團繼續分組審議政府工作報告。中央軍委委員、軍委聯合參謀部參謀長劉振立說，過去一年，面對外部壓力加大、內部困難增多的複雜嚴峻形勢，黨中央、習近平主席統攬全局、沉著應變、綜合施策，團結帶領全黨全軍全國各族人民順利完成經濟社會發展主要目標任務，推動中國式現代化邁出堅實步伐。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm)
+
+---
+
 # 全國兩會｜李慧琼支持國家積極財政政策　拉動消費刺激內需
 
 ![李慧琼說，政府工作報告中的規劃及財政預算「全面、穩中有進」。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794620_1_20250306220901.jpg&q=50)
@@ -859,35 +888,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
@@ -914,6 +914,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1693,34 +1722,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
-
----
-
-# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
-
-![中方反對在國際經貿關係中濫施脅迫、施壓的手段。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794387_1_20250305161843.jpg&q=15)
-  
-
-對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
 
 ---

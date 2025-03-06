@@ -1,3 +1,32 @@
+# Ireland's Doris fit to face France in Six Nations
+
+![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=75)
+  
+
+Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
+
+---
+
 # "Home demand is keen": govt rejects oversupply claims
 
 ![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=25)
@@ -1709,34 +1738,5 @@ US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correc
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm)
-
----
-
-# 'China GDP could be affected by US tariffs'
-
-![A finance expert says the Chinese response is very firm and shows determination to the US. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794282_1_20250305085101.jpg&q=5)
-  
-
-An economist on Wednesday said that the latest round of US tariffs on Chinese imports could gradually reduce China's gross domestic product by some 0.3 to 0.4 percent over a 12-month period.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
 
 ---

@@ -1,3 +1,32 @@
+# Ireland's Doris fit to face France in Six Nations
+
+![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=75)
+  
+
+Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
+
+---
+
 # Visit GBA for National Games: Guangdong governor
 
 ![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=40)
@@ -1716,35 +1745,5 @@ Brazilian teenager Joao Fonseca became the 10th youngest champion in ATP Tour hi
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791911-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791911-20250217.htm)
-
----
-
-# Liverpool edge past Wolves; Tottenham sink Man Utd
-
-![Liverpool's Luis Díaz, left, opened the scoring to record his first goal in 10 games. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791904_1_20250217053230.jpg&q=75)
-![Tottenham's James Maddison, left, shoots to score the opening goal past Manchester United goalkeeper Andre Onana. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791904_2_20250217053230.jpg&q=20)
-  
-
-Liverpool moved seven points clear at the top of the Premier League as Luis Díaz ended his goal drought to spark a tense 2-1 win against struggling Wolves.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791904-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791904-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791904-20250217.htm)
 
 ---

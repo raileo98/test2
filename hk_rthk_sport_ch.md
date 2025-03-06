@@ -1,3 +1,32 @@
+# 啟德青年運動場跑步徑及乒乓球設施預訂情況順暢
+
+![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=5)
+  
+
+啟德體育園表示，啟德青年運動場跑步徑及乒乓球設施開放預訂首天，截至晚上8時，共有1210人成功預訂跑步徑設施，有90人預約乒乓球設施，訂場情況理想。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm)
+
+---
+
 # LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
 
 ![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
@@ -1712,34 +1741,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793461-20250227.htm)
-
----
-
-# 英超聯賽　利物浦主場2:0擊敗紐卡素　榜首優勢擴大至13分
-
-![利物浦主場2:0擊敗紐卡素，麥卡里士打入球後與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793413_1_20250227071034.jpg&q=50)
-  
-
-英格蘭超級足球聯賽，利物浦主場2:0擊敗紐卡素。11分鐘，蘇保斯拉爾接應路易斯迪亞斯傳送後趁機突圍，近距離射破門領先。63分鐘，阿歷斯麥卡里士打接應沙拿傳送，猛烈射門，為主隊奠定勝局。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm)
 
 ---

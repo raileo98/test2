@@ -1,3 +1,90 @@
+# 長江生命科技料去年轉蝕近1.3億元
+
+![長江生命科技預料去年業績由盈轉虧，虧損約1.27億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794629_1_20250306224510.jpg&q=1)
+  
+
+長江生命科技發盈利警告，預料去年業績由盈轉虧，虧損約1.27億元，前年盈利1730萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm)
+
+---
+
+# 啟德青年運動場跑步徑及乒乓球設施預訂情況順暢
+
+![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=5)
+  
+
+啟德體育園表示，啟德青年運動場跑步徑及乒乓球設施開放預訂首天，截至晚上8時，共有1210人成功預訂跑步徑設施，有90人預約乒乓球設施，訂場情況理想。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm)
+
+---
+
+# 美股初段受壓　3大指數跌逾1%
+
+![美股初段沽壓大，道瓊斯指數較早時報42495點，跌511點，跌幅1.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794628_1_20250306224153.jpg&q=75)
+  
+
+美股初段沽壓大，3大指數跌逾1%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm)
+
+---
+
 # 美國1月貿易赤字按月擴大約34%　超出預期
 
 ![美國1月貿易赤字重上千億美元水平，達到1314億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794624_1_20250306221320.jpg&q=20)
@@ -1634,89 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm)
-
----
-
-# 日股半日升0.8%
-
-![日經平均指數上午收市報37726點，升307點，升幅0.82%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794506_1_20250306104226.jpg&q=15)
-  
-
-日本股市半日上升，日經平均指數上午收市報37726點，升307點，升幅0.82%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm)
-
----
-
-# 孫東在巴塞羅那出席世界移動通信大會並考察當地超算中心
-
-![孫東在全球移動通信系統協會（GSMA）部長級會議「2025+- A Tech Odyssey」環節中發表主旨演講。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_1_20250306105940.jpg&q=50)
-![孫東（右三）和代表團一行考察巴塞羅那超算中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_2_20250306105940.jpg&q=55)
-  
-
-創新科技及工業局局長孫東率領創新科技業界代表團繼續在西班牙巴塞羅那的訪問行程，並出席世界移動通信大會2025。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm)
-
----
-
-# 消委會研究發現私家醫院收費差距甚大　不少價目資料不足及難明
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794501_1_20250306100033.jpg&q=1)
-  
-
-根據私營醫療機構條例，私家醫院須提供價目資料、收費預算、過往收費統計數據。消委會硏究報告發現不少私院價目資料難明、不足；收費統計數據沒有即時更新；病人之間收費差距甚大；部份醫療機構缺乏詳盡書面費用預算。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm)
 
 ---

@@ -1,3 +1,32 @@
+# 啟德青年運動場跑步徑及乒乓球設施預訂情況順暢
+
+![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=5)
+  
+
+啟德體育園表示，啟德青年運動場跑步徑及乒乓球設施開放預訂首天，截至晚上8時，共有1210人成功預訂跑步徑設施，有90人預約乒乓球設施，訂場情況理想。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm)
+
+---
+
 # 政府歡迎終院維持譚得志案裁決　另備悉支聯會案判決將研究判詞
 
 ![政府回應終審法院就「譚得志上訴案」及「支聯會拒交資料案」裁決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794622_2_20250306220034.jpg&q=55)
@@ -345,6 +374,7 @@
 
 # 養和醫院稱有書面預算案給予病人　有醫生指醫療物料不一收費有別
 
+![養和醫院副院長陳煥堂說，數年前開始規定醫生接收病人入院時，要有書面預算案給予病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794594_1_20250306224419.jpg&q=45)
   
 
 私營醫療機構條例要求私家醫院提供價目資料、收費預算同過往收費統計數據。消委會研究發現，不少私營醫療機構的價目資料難明同不足，收費統計數據亦沒有即時更新，不同醫院的收費差距大，部分私家醫院或日間醫療中心收費表，一般不會列出醫生費及定價標準。
@@ -1701,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽　賽會接147名觀眾查詢涉265張門票
-
-![賽事組委會表示，截至晚上10時，接獲147位觀眾查詢，合共涉及265張門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794457_1_20250305235549.jpg&q=75)
-  
-
-世界格蘭披治桌球大獎賽的賽事組委會表示，截至晚上10時，接獲147位觀眾查詢，合共涉及265張門票，當中38位觀眾已於星期三即時換取門票入場觀看賽事，其餘觀眾將獲安排陸續領取星期四賽事的門票。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm)
 
 ---
