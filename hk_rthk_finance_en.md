@@ -1,3 +1,32 @@
+# US stocks tumble again on slowdown worries
+
+![The Dow finished down one percent at 42.579, after spending the entire session in negative territory. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794654_1_20250307064135.jpg&q=85)
+  
+
+Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key US jobs data as markets shrugged off President Trump's latest moves to soften tariff actions.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm)
+
+---
+
 # "Home demand is keen": govt rejects oversupply claims
 
 ![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=25)
@@ -1706,34 +1735,5 @@ Premier Li Qiang has emphasised boosting consumption and improving people's live
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm)
-
----
-
-# US stocks fall on lacklustre Walmart outlook
-
-![The S&P 500, which finished at a record the last two days, dropped 0.4 percent on Thursday to 6,117. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792541_1_20250221053400.jpg&q=85)
-  
-
-Wall Street stocks dropped on Thursday following disappointing results from Walmart as banking shares fell in a move analysts attributed to profit taking.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792541-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792541-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792541-20250221.htm)
 
 ---

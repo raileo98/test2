@@ -1,3 +1,32 @@
+# US stocks tumble again on slowdown worries
+
+![The Dow finished down one percent at 42.579, after spending the entire session in negative territory. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794654_1_20250307064135.jpg&q=85)
+  
+
+Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key US jobs data as markets shrugged off President Trump's latest moves to soften tariff actions.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm)
+
+---
+
 # Man Utd draw in Europa League last 16; Spurs beaten
 
 ![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=30)
@@ -1710,34 +1739,5 @@ Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qi
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm)
-
----
-
-# Arab leaders endorse Egypt's plan to rebuild Gaza
-
-![Egyptian foreign minister Badr Abdelatty (R) meets with Jordanian foreign minister Ayman Safadi (L) to discuss details of the Gaza reconstruction plan, ahead of the emergency Arab summit in Cairo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794298_1_20250305093303.jpg&q=40)
-  
-
-Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow its roughly two million Palestinians to remain, in a counterproposal to US President Donald Trump’s plan to depopulate the territory and redevelop it as a beach destination.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm)
 
 ---
