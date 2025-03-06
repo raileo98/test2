@@ -1,5 +1,171 @@
+# 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
+
+  
+
+行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm)
+
+---
+
+# 百度發行100億元人民幣計價優先無擔保票據
+
+![百度發行本金總額合共100億元以人民幣計價的優先無擔保票據，5年期及10年期票據利率分別為2.7%和3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794483_1_20250306081247.jpg&q=90)
+  
+
+百度集團公布，發行本金總額合共100億元以人民幣計價的優先無擔保票據，所得款項淨額用作一般公司用途，包括償還若干現有債務、支付利息及一般公司用途。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm)
+
+---
+
+# 韓股初段向上
+
+![首爾綜合指數較早時報2577點，升19點，升幅0.74%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794485_1_20250306081712.jpg&q=85)
+  
+
+南韓股市在開市初段上升，首爾綜合指數較早時報2577點，升19點，升幅0.74%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm)
+
+---
+
+# 日股初段上升
+
+![日經平均指數較早時報37727點，升309點，升幅0.83%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794484_1_20250306081458.jpg&q=85)
+  
+
+日本股市在開市初段上升，日經平均指數較早時報37727點，升309點，升幅0.83%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm)
+
+---
+
+# 《環看天下》：歐盟宣布措施挽救汽車業   擴大區內電池生產線
+
+![近年歐洲電動車業務發展被指裹足不前。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794482_1_20250306080246.jpg&q=80)
+  
+
+歐盟星期三公布汽車產業發展行動計劃，加速區內電動車普及，包括支援汽車電池擴大在歐洲本土生產，並提供資金援助，以加強行業競爭力。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm)
+
+---
+
+# 南韓2月通脹率回落至2%　略高過預期
+
+![南韓2月消費物價指數(CPI)按年上升2%，升幅低過1月的2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794481_1_20250306075710.jpg&q=75)
+  
+
+南韓統計廳數據顯示，2月南韓消費物價指數(CPI)按年上升2%，升幅低過1月的2.2%，但仍略高過市場預期中值的1.95%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm)
+
+---
+
 # 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
 
+![應急插頭可應用於電動車火災或交通意外現場，暫時阻止電動車突然移動。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_1_20250306075853.jpg&q=80)
   
 
 消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
@@ -1560,179 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm)
-
----
-
-# 8歲男童感染乙型流感併發心肌炎情況危殆　已接種流感疫苗
-
-![連同這名男童，流感季節自1月初開始以來，中心累計已接獲10宗兒童感染流感病毒的嚴重個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794420_1_20250305180156.jpg&q=80)
-  
-
-一名過往健康良好、已接種本年度的季節性流感疫苗的8歲男童，感染乙型流感併發心肌炎，目前情況危殆，男童潛伏期內沒有外遊，他的兩名家居接觸者近日亦出現上呼吸道病徵。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794420-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794420-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794420-20250305.htm)
-
----
-
-# 財政預算案2025｜機場離境稅修訂條例周五刊憲若通過十月生效
-
-![政府發言人說，飛機乘客離境稅的建議增幅只佔一般市民和訪港旅客的整體出行成本很小部分。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794418_1_20250305175642.jpg&q=80)
-  
-
-《2025年飛機乘客離境稅（修訂）條例草案》將本星期五刊憲，由今年10月1日起，飛機乘客離境稅由每名乘客120元調升至200元。新稅率適用於當日或之後購買的機票，預計政府收入每年可增加約16億元。條例草案將於本月19日提交立法會進行首讀及開始二讀辯論。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm)
-
----
-
-# 全國兩會｜譚炯提出強化投融資機制　支持國家重大項目建設
-
-![譚炯稱要健全政府投資支持基礎性、公益性、長遠性重大項目建設長效機制。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794417_1_20250305175521.jpg&q=80)
-  
-
-全國政協委員、國家開發銀行黨委副書記譚炯提出，強化投融資機制，以支持國家重大項目建設，包括加強頂層設計，完善跨部門跨區域重大項目協調推進機制，以推動政府、企業、金融機構深化合作，協同發力共同參與重大項目謀劃建設和運營。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm)
-
----
-
-# 澳門立法會選舉《提名委員會確認申請表》明起供索取
-
-![澳門第八屆立法會選舉將在今年9月14日進行投票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794413_1_20250305174324.jpg&q=55)
-  
-
-澳門第八屆立法會選舉管理委員會由明天開始，提供《提名委員會確認申請表》，有意組織提名委員會的人士，最遲要將申請表在下月6日前交回。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm)
-
----
-
-# 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=85)
-  
-
-在北京，國務院總理李強發表政府工作報告，提到支持香港澳門深化國際交往合作。警務處前處長、全國政協委員曾偉雄表示，十四五規劃綱要下，國家給予香港的定位非常強調「國際」，要做到國際化八大中心，政府工作報告強調國際化是合時，他認為，這是香港在發展上要更留意的地方，亦為十五五規劃打好基礎，希望大家一起努力加把勁。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
-
----
-
-# 全國兩會｜岑浩輝稱澳門特區持續維護好國家主權安全及發展利益
-
-![岑浩輝列席十四屆全國人大三次會議開幕會議。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794406_1_20250305172503.jpg&q=80)
-  
-
-澳門行政長官岑浩輝說，特區政府將繼續堅定不移，全面準確落實「一國兩制」方針，鞏固和發展好具澳門特色「一國兩制」成功實踐所取得的成就。他又表示，國家安全是「一國兩制」的根本原則，澳門特區要持續維護好國家主權、安全及發展利益。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm)
 
 ---

@@ -1,5 +1,34 @@
+# 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
+
+  
+
+行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm)
+
+---
+
 # 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
 
+![應急插頭可應用於電動車火災或交通意外現場，暫時阻止電動車突然移動。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_1_20250306075853.jpg&q=80)
   
 
 消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
@@ -1713,34 +1742,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm)
-
----
-
-# 財政預算案2025｜孫玉菡：有信心能幫助社福機構面對減幅
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794317_1_20250305102726.jpg&q=85)
-  
-
-財政預算案提出至2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，部分社福開支，例如綜援及長生津等不會削減，而社福機構的撥款就需要削減，但政府會協助中小型社福機構承擔4%開支，削減幅度降至3%，相信在推行鬆綁措施後，有信心能幫助機構面對減幅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794317-20250305.htm)
 
 ---

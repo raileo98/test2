@@ -1,3 +1,111 @@
+# 百度發行100億元人民幣計價優先無擔保票據
+
+![百度發行本金總額合共100億元以人民幣計價的優先無擔保票據，5年期及10年期票據利率分別為2.7%和3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794483_1_20250306081247.jpg&q=90)
+  
+
+百度集團公布，發行本金總額合共100億元以人民幣計價的優先無擔保票據，所得款項淨額用作一般公司用途，包括償還若干現有債務、支付利息及一般公司用途。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm)
+
+---
+
+# 韓股初段向上
+
+![首爾綜合指數較早時報2577點，升19點，升幅0.74%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794485_1_20250306081712.jpg&q=85)
+  
+
+南韓股市在開市初段上升，首爾綜合指數較早時報2577點，升19點，升幅0.74%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm)
+
+---
+
+# 日股初段上升
+
+![日經平均指數較早時報37727點，升309點，升幅0.83%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794484_1_20250306081458.jpg&q=85)
+  
+
+日本股市在開市初段上升，日經平均指數較早時報37727點，升309點，升幅0.83%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm)
+
+---
+
+# 南韓2月通脹率回落至2%　略高過預期
+
+![南韓2月消費物價指數(CPI)按年上升2%，升幅低過1月的2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794481_1_20250306075710.jpg&q=75)
+  
+
+南韓統計廳數據顯示，2月南韓消費物價指數(CPI)按年上升2%，升幅低過1月的2.2%，但仍略高過市場預期中值的1.95%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市上升
 
 ![阿里巴巴ADR較本港收市升逾5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794477_1_20250306065717.jpg&q=35)
@@ -1609,121 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
-
----
-
-# 內地股市半日個別發展
-
-![上證綜合指數上午收市報3334點，升10點，升幅0.32%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794335_1_20250305113512.jpg&q=80)
-  
-
-滬深股市半日個別發展，工程機械、通信服務等板塊上升；房地產、光伏設備等股份下跌。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794335-20250305.htm)
-
----
-
-# 財政預算案2025｜孫玉菡稱調整二元優惠計劃可提高計劃持續性
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794333_1_20250305113037.jpg&q=80)
-  
-
-財政預算案提出，「二元優惠計劃」將新增每月240程限制，10元以上車費則收兩折。勞工及福利局局長孫玉菡表示，計劃推行十多年才作金額上調整，相信安排會令到整個計劃的可持續性大大提高，但將來政府會否因應情況再作調整，他說，局方不可以完全否定此可能性。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794333-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794333-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794333-20250305.htm)
-
----
-
-# 日本央行：若經濟和物價走勢符合預期　將繼續加息
-
-![日本央行副總裁內田真一表示，如果經濟和物價走勢符合央行預期，央行將會繼續加息。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794328_1_20250305104909.jpg&q=30)
-  
-
-日本央行副總裁內田真一表示，如果經濟和物價走勢符合央行預期，央行將會繼續加息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794328-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794328-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794328-20250305.htm)
-
----
-
-# 財政預算案2025｜甯漢豪：改劃住宅地何時推出要看市場反應
-
-![甯漢豪強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794326_1_20250305105547.jpg&q=80)
-  
-
-財政預算案提出，計劃將部分商業用地改劃作住宅地，發展局局長甯漢豪舉例說，未來幾年原本有幾幅在沙田石門的商業地，考慮到今年沙田小瀝源住宅地市場反應幾好，有空間可改劃作住宅用途，但她強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm)
 
 ---

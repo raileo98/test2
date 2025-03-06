@@ -1,3 +1,31 @@
+# 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
+
+  
+
+行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm)
+
+---
+
 # 全國兩會｜鄭雁雄籲港區人大「犯其至難而圖其至遠」意志擔當責任
 
 ![鄭雁雄說，香港實現高品質發展的動能，需用好內聯外通的優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794448_1_20250305221151.jpg&q=80)
@@ -1705,30 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm)
-
----
-
-# 全國兩會｜將開展十五五規劃　謀劃好重大戰略任務
-
-![李強表示，要深入分析「十五五」時期新的階段性特徵。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794309_1_20250305103705.jpg&q=70)
-  
-
-在北京，總理李強在政府工作報告中指出，今年將開展「十五五」規劃編制工作，要深入分析「十五五」時期新的階段性特徵，科學確定發展目標，謀劃好重大戰略任務、重大政策舉措、重大工程項目，更好發揮規劃對經濟社會發展的引領指導作用。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794309-20250305.htm)
 
 ---

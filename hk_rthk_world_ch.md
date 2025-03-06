@@ -1,3 +1,32 @@
+# 《環看天下》：歐盟宣布措施挽救汽車業   擴大區內電池生產線
+
+![近年歐洲電動車業務發展被指裹足不前。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794482_1_20250306080246.jpg&q=80)
+  
+
+歐盟星期三公布汽車產業發展行動計劃，加速區內電動車普及，包括支援汽車電池擴大在歐洲本土生產，並提供資金援助，以加強行業競爭力。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm)
+
+---
+
 # 馬克龍強調拒絕簽訂脆弱俄烏停火協議
 
 ![馬克龍表示，美國減少對烏克蘭支持，為歐洲未來的安全和繁榮增加更多不確定性。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794473_1_20250306062035.jpg&q=90)
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm)
-
----
-
-# 美國對華產品加徵關稅調高至20%　丘應樺料對香港影響不是很大
-
-![丘應樺說不少香港企業已遷移生產線，相信加徵關稅對香港影響不是很大。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794127_1_20250304131139.jpg&q=80)
-  
-
-對於美國對中國產品加徵的關稅調高至20%，商務及經濟發展局局長丘應樺表示，今次再加關稅是否包括香港貨品，仍然很不清晰，但由於不少香港企業已遷移生產線，相信對香港影響不是很大。他又批評美國的做法損人不利己。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794127-20250304.htm)
 
 ---
