@@ -1,3 +1,32 @@
+# 全國兩會｜鄭柵潔︰有信心實現今年經濟增長達5%左右目標
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794590_1_20250306181928.jpg&q=75)
+  
+
+在北京，國家發改委主任鄭柵潔說，政府工作報告提出，今年經濟增長5%左右的目標，是有基礎、有支撐、有保障，對實現目標充滿信心。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm)
+
+---
+
 # 全國兩會｜有政協委員引述丁薛祥鼓勵工商界投資創科企業
 
   
@@ -142,7 +171,7 @@
 ![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
   
 
-港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地跌約38%至3000萬元。
+港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地虧損3000萬元。
   
 
   
@@ -1392,7 +1421,7 @@
 
 # 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
 
-![李家超表示，很榮幸列席昨日的全國人大會議開幕會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=65)
   
 
 行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
@@ -1670,34 +1699,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm)
-
----
-
-# 美元兌歐元曾跌至近4個月低位
-
-![美元指數失守105水平，在紐約尾市報104.29，跌幅1.2%。歐元兌美元在尾市升約1.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794474_1_20250306064822.jpg&q=70)
-  
-
-美元兌多數貨幣下跌，兌歐元一度跌至近4個月低位。美元指數失守105水平，在紐約尾市報104.29，跌幅1.2%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794474-20250306.htm)
 
 ---

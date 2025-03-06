@@ -1,3 +1,60 @@
+# 全國兩會｜丁薛祥：香港有背靠祖國聯通世界的獨特地位
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794591_1_20250306181859.jpg&q=60)
+  
+
+中共中央政治局常委、國務院副總理丁薛祥，列席港澳全國政協委員聯組會議。丁薛祥發言時提及，香港有背靠祖國、聯通世界的獨特地位。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm)
+
+---
+
+# 全國兩會｜黃坤明稱廣東要打頭陣推進科技產業創新融合發展
+
+  
+
+廣東省全國人大代表團下午審議政府工作報告，廣東省委書記黃坤明被問到廣東未來的經濟發展方向，他表示，廣東有使命、有機遇、有基礎，亦有行動，廣東要打頭陣、當先鋒、下苦工，推進科技、產業創新融合發展，更好更長遠擔當起經濟大省責任，必定會緊緊抓住科技浪潮引領產業發展的重大機遇，爭取百尺竿頭再邁大步。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm)
+
+---
+
 # 養和醫院稱有書面預算案給予病人　有醫生指醫療物料不一收費有別
 
   
@@ -174,7 +231,7 @@
 ![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
   
 
-港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地跌約38%至3000萬元。
+港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地虧損3000萬元。
   
 
   
@@ -1299,7 +1356,7 @@
 
 # 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
 
-![李家超表示，很榮幸列席昨日的全國人大會議開幕會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=65)
   
 
 行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
@@ -1673,63 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm)
-
----
-
-# 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794427_2_20250305202656.jpg&q=15)
-  
-
-在北京，港區全國人大代表團團長馬逢國表示，非常印象深刻，今次是多年以來人大會議以來，最精簡的一次總理政府工作報告，用了不足1小時就讀完，
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
-
----
-
-# 口岸爆炸案警長稱雖沒見過真人　但可從閉路電視片段認出被告
-
-![口岸爆炸案高等法院踏入第64天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794426_1_20250305184541.jpg&q=50)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第64天審訊。控方今展示涉案手機通訊群組記錄，懷疑屬於被告楊怡斯的帳戶向群組發送將軍澳尚德停車場的相片，控方開案陳詞指，涉案群組成員計劃在當年3月於將軍澳放置炸彈。辯方盤問調查本案的偵緝警長時，質疑警長無法肯定閉路電視拍攝到的女子是楊怡斯，警長不同意。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm)
 
 ---

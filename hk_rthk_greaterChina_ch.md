@@ -1,3 +1,89 @@
+# 全國兩會｜鄭柵潔︰有信心實現今年經濟增長達5%左右目標
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794590_1_20250306181928.jpg&q=75)
+  
+
+在北京，國家發改委主任鄭柵潔說，政府工作報告提出，今年經濟增長5%左右的目標，是有基礎、有支撐、有保障，對實現目標充滿信心。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥：香港有背靠祖國聯通世界的獨特地位
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794591_1_20250306181859.jpg&q=60)
+  
+
+中共中央政治局常委、國務院副總理丁薛祥，列席港澳全國政協委員聯組會議。丁薛祥發言時提及，香港有背靠祖國、聯通世界的獨特地位。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm)
+
+---
+
+# 全國兩會｜黃坤明稱廣東要打頭陣推進科技產業創新融合發展
+
+  
+
+廣東省全國人大代表團下午審議政府工作報告，廣東省委書記黃坤明被問到廣東未來的經濟發展方向，他表示，廣東有使命、有機遇、有基礎，亦有行動，廣東要打頭陣、當先鋒、下苦工，推進科技、產業創新融合發展，更好更長遠擔當起經濟大省責任，必定會緊緊抓住科技浪潮引領產業發展的重大機遇，爭取百尺竿頭再邁大步。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm)
+
+---
+
 # 全國兩會｜有政協委員引述丁薛祥鼓勵工商界投資創科企業
 
   
@@ -598,7 +684,7 @@
 
 # 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
 
-![李家超表示，很榮幸列席昨日的全國人大會議開幕會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=65)
   
 
 行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
@@ -1639,89 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
-
----
-
-# 全國兩會｜金融監管總局擬擴大對科技企業併購貸款等4項試點工作
-
-![李雲澤表示，今年金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794366_1_20250305140933.jpg&q=70)
-  
-
-國家金融監督管理總局局長李雲澤表示，去年金融監管總局將金融資產投資公司股權投資試點範圍擴大到全國18個城市，取得積極成效，簽約金額已經超過3500億元人民幣。今年，金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm)
-
----
-
-# 全國兩會｜發改委等部委明日下午舉行經濟主題記者會
-
-![發改委等部委明日下午舉行經濟主題記者會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794363_2_20250305140618.jpg&q=70)
-  
-
-十四屆全國人大三次會議明日下午3時舉行經濟主題記者會，國家發改委主席鄭柵潔、財政部部長藍佛安、商務部部長王文濤、人民銀行行長潘功勝、中國證監會主席吳清，將會就發展改革、財政預算、商務、金融證券等相關問題回答中外記者提問。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm)
-
----
-
-# 全國兩會｜霍啟剛稱政府工作報告穩大局　吳秋北指香港有更多發展
-
-![霍啟剛指工作報告有「穩大局」面向世界的角色，同時「穩信心」。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794360_1_20250305134426.jpg&q=60)
-![吳秋北認為，在粵港澳大灣區建設制度機制要有更多連接，令大灣區動能發揮更大作用。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794360_2_20250305134426.jpg&q=60)
-  
-
-國務院總理李強發表內任第二份政府工作報告，在北京，港區人大代表霍啟剛表示，當前確實面臨很多挑戰，世界局面正在變化，工作報告有「穩大局」面向世界的角色，同時「穩信心」，對過往一年的經濟指標給予肯定。他又認為報告為未來的前進步伐提供清晰路徑及藍圖。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
 
 ---
