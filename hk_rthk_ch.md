@@ -1,3 +1,56 @@
+# 全國兩會｜王文濤︰相信「辦法總比困難多」
+
+  
+
+商務部部長王文濤，被問到如何看待今年外貿發展面臨形勢時說，個別國家揮舞「關稅大棒」，國家外貿發展面臨嚴峻形勢，但相信「辦法總比困難多」，完全有信心、有底氣穩住外貿基本盤。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm)
+
+---
+
+# 京東集團上季盈利升1.9倍　全年盈利升71%
+
+![京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794583_1_20250306174948.jpg&q=30)
+  
+
+京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍，總收入升13%至約3470億元。按非美國通用會計準則計，盈利升32%至112.9億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm)
+
+---
+
 # 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
 
   

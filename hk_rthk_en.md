@@ -1,3 +1,32 @@
+# Four charged with fixing HK football matches
+
+![The ICAC said the case centred on 11 league and cup matches between 2021 and 2022. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794578_1_20250306172359.jpg&q=45)
+  
+
+The ICAC on Thursday charged four people on suspicion of fixing matches in the Hong Kong football league.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm)
+
+---
+
 # 'Growth target can be met despite uncertainty'
 
 ![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
@@ -1710,35 +1739,5 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
-
----
-
-# Trump wins opening match at World Snooker Grand Prix
-
-![Trump beat Gary Wilson 4-2 in an all-English affair at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_1_20250304224416.jpg&q=75)
-![The Secretary for Culture, Sports and Tourism, Rosanna Law (middle) officiated at the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_2_20250304224416.jpg&q=60)
-  
-
-World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
 
 ---

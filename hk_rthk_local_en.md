@@ -1,3 +1,32 @@
+# Four charged with fixing HK football matches
+
+![The ICAC said the case centred on 11 league and cup matches between 2021 and 2022. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794578_1_20250306172359.jpg&q=45)
+  
+
+The ICAC on Thursday charged four people on suspicion of fixing matches in the Hong Kong football league.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm)
+
+---
+
 # Top court upholds sedition convictions of Tam Tak-chi
 
 ![Court of Final Appeal judges dismissed arguments from Tam Tak-chi's lawyers and upheld his sedition convictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794531_1_20250306130910.jpg&q=10)
@@ -1709,34 +1738,5 @@ Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm)
-
----
-
-# Spectators urged to get sports park tickets early
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793634_1_20250228123827.jpg&q=40)
-  
-
-The government says people attending the opening ceremony for Kai Tak Sports Park on Saturday evening must get their tickets by 3pm on the day.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm)
 
 ---

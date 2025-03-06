@@ -1,3 +1,56 @@
+# 全國兩會｜王文濤︰相信「辦法總比困難多」
+
+  
+
+商務部部長王文濤，被問到如何看待今年外貿發展面臨形勢時說，個別國家揮舞「關稅大棒」，國家外貿發展面臨嚴峻形勢，但相信「辦法總比困難多」，完全有信心、有底氣穩住外貿基本盤。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm)
+
+---
+
+# 京東集團上季盈利升1.9倍　全年盈利升71%
+
+![京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794583_1_20250306174948.jpg&q=30)
+  
+
+京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍，總收入升13%至約3470億元。按非美國通用會計準則計，盈利升32%至112.9億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm)
+
+---
+
 # 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
 
   
@@ -1645,63 +1698,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794472-20250306.htm)
-
----
-
-# 聯儲局褐皮書：美國經濟活動略有增長　各地憂慮關稅政策不確定性
-
-![聯儲局發布的褐皮書顯示，自1月中旬以來，美國經濟活動略有增長，但各地企業都關注關稅政策帶來不確定性。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794470_1_20250306052428.jpg&q=15)
-  
-
-美國聯儲局發布的褐皮書顯示，自1月中旬以來，經濟活動略有增長，但全國各地的企業都表示，美國總統特朗普政府的新政策，特別是關稅政策帶來不確定性。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794470-20250306.htm)
-
----
-
-# 德國股市高收逾3%　改革債務規則並設基礎設施基金
-
-![德國DAX指數收市報23081點，升754點，升幅近3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794468_1_20250306050939.jpg&q=85)
-  
-
-歐洲股市收市個別發展，德國股市升逾3%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm)
 
 ---
