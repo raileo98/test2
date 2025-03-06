@@ -58,7 +58,7 @@ The head of the National Development and Reform Commission said he's confident t
 
 # Capitalise on your strengths, vice premier tells HK
 
-![Ding Xuexiang meets CPPCC members from Hong Kong and Macau. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=90)
   
 
 Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantages and to continue to safeguard national security, according to SAR delegates of the nation’s top political advisory body.
