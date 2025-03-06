@@ -1,3 +1,61 @@
+# 美元指數失守104　創4個月新低
+
+![美元指數連續4日下挫，較早時失守104水平，低見103.74，創4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794633_1_20250306234219.jpg&q=45)
+  
+
+美元指數連續4日下挫，近日接連失守多個整數關口，較早時失守104水平，低見103.74，創4個月新低，4日累計跌逾3%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm)
+
+---
+
+# 美國1月批發庫存按月升0.8%勝預期
+
+![美國1月批發庫存向上修訂至按月增長0.8%，市場原先預料維持增長0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794632_1_20250306230640.jpg&q=5)
+  
+
+美國1月批發庫存向上修訂至按月增長0.8%，市場原先預料維持增長0.7%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm)
+
+---
+
 # 長江生命科技料去年轉蝕近1.3億元
 
 ![長江生命科技預料去年業績由盈轉虧，虧損約1.27億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794629_1_20250306224510.jpg&q=1)
@@ -1663,63 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm)
-
----
-
-# 全國兩會｜西藏目前經濟文化繁榮　定日縣地震災後已復課
-
-![全國人大西藏自治區代表團早上舉行全體會議。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794510_1_20250306110240.jpg&q=10)
-  
-
-全國人大西藏自治區代表團早上舉行全體會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm)
-
----
-
-# 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
-
-![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=65)
-  
-
-積金易平台昨日展開第二階段上線工作。積金局行政總監及執行董事鄭恩賜表示，第二階段首個計劃上台後，總資產值佔比升至3%，平台僱主帳戶資料經已有1.1萬個，涉及僱員數目40多萬個。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm)
 
 ---
