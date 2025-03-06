@@ -1,3 +1,32 @@
+# Top court upholds sedition convictions of Tam Tak-chi
+
+![Court of Final Appeal judges dismissed arguments from Tam Tak-chi's lawyers and upheld his sedition convictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794531_1_20250306130910.jpg&q=20)
+  
+
+Hong Kong's top court on Thursday upheld the sedition convictions of former activist Tam Tak-chi over a string of incitement incidents in public in 2020.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm)
+
+---
+
 # Capitalise on your strengths, vice premier tells HK
 
 ![Ding Xuexiang meets CPPCC members from Hong Kong and Macau. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=80)
@@ -1709,34 +1738,5 @@ The government says people attending the opening ceremony for Kai Tak Sports Par
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793634-20250228.htm)
-
----
-
-# Home prices drop to almost 8.5-year low
-
-![Home prices retreated for the second month in a row in January. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793618_1_20250228110317.jpg&q=10)
-  
-
-Hong Kong home prices retreated to their lowest level in nearly eight and a half years in January.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
 
 ---

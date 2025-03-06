@@ -1,3 +1,31 @@
+# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與看長線
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm)
+
+---
+
 # 全國兩會｜西藏自治區推動國家公民與法治意識教育獲支持
 
 ![嘎瑪澤登表示，西藏政府持續推進藏傳佛教中國化，開展反分裂鬥爭，深化拓展國家意識、公民意識和法治意識的「三個意識」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794528_1_20250306131132.jpg&q=30)
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm)
-
----
-
-# 全國兩會｜政府工作人員要廉潔奉公　堅定不移推進反腐敗鬥爭
-
-![報告表示，各級政府及工作人員要深刻領悟「兩個確立」的決定性意義，增加「四個意識」、堅定「四個自信」、做到「兩個維護」。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794319_1_20250305103308.jpg&q=85)
-  
-
-在北京，總理李強發表政府工作報告，提到應對新挑戰、完成新任務，對政府工作提出新的更高要求。報告表示，各級政府及工作人員要深刻領悟「兩個確立」的決定性意義，增加「四個意識」、堅定「四個自信」、做到「兩個維護」。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm)
 
 ---

@@ -1,3 +1,31 @@
+# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與看長線
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm)
+
+---
+
 # 證監會上季盈餘按年增逾2倍　首3個財季扭虧
 
 ![證監會上季錄得盈餘7710.9萬元，按年增長2.4倍；首3個財季盈餘3569.8萬元，扭轉前年同期的虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794535_1_20250306134637.jpg&q=90)
