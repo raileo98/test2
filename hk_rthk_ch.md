@@ -1,4 +1,118 @@
-# 衞生署推青少年牙科護理計劃　向牙醫資助200元
+# 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
+
+  
+
+港鐵去年盈利超過157億元，港鐵行政總裁金澤培在業績記者會上表示，港鐵去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平，但過境鐵路及機場快綫的乘客量仍未回復疫情前水平，估計與過境口岸增加，其他公共交通競爭激烈有關，加上旅客的出行模式改變。至於高鐵的載客人數去年就持續上升，全年突破2600萬人次。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm)
+
+---
+
+# 全國兩會｜王文濤：如美方在錯誤道路上愈行愈遠　中方將奉陪到底
+
+  
+
+在北京，商務部部長王文濤表示，美國以芬太尼問題為藉口對華加徵關稅是混淆是非、顛倒黑白，批評美國新政府上台後關稅單子似乎愈來愈長，以關稅威脅、要脅是典型單邊和霸凌主義，嚴重違反世貿組織規則，破壞中美正常經貿關係，擾亂全球產業鏈供應鏈穩定，阻礙世界經濟發展，必將損害美國民眾和美國企業的利益，是典型損人不利己。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
+
+---
+
+# 港鐵未來一年招標東涌東站第二期、屯門第16區站第一期項目
+
+![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
+  
+
+港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地跌約38%至3000萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm)
+
+---
+
+# 韓軍戰機機師錯誤輸入座標致誤炸15傷　軍方暫停實彈演習
+
+![有建築物在誤炸事件中受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794579_1_20250306172428.jpg&q=15)
+  
+
+南韓軍方兩架戰機在演習期間，錯誤向京畿道抱川市的平民區投擲炸彈，造成至少15人受傷，其中兩人傷勢嚴重。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm)
+
+---
+
+# 青少年護齒計劃13至17歲每年檢查　衞生署向牙醫資助200元
 
 ![計劃將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794577_1_20250306172202.jpg&q=25)
   
@@ -29,6 +143,7 @@
 
 # 倫敦市中心發生火警　約40名消防員到場灌救
 
+![倫敦市中心發生火警　約40名消防員到場灌救](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794576_1_20250306172739.jpg&q=85)
   
 
 英國倫敦市中心發生火警，濃煙升上半空，消防員到場灌救，暫時未知起火原因。
@@ -173,6 +288,7 @@
 
 # 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
 
+![潘功勝說，歡迎國際投資者投資中國科技企業，反對將市場化投資行為工具化、政治化。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794572_1_20250306173507.jpg&q=85)
   
 
 人民銀行行長潘功勝表示，人行將進一步優化科技創新和技術改造再貸款政策，進一步擴大再貸款規模，由現時5000億元人民幣，擴大到8000億元至1萬億元，亦會降低再貸款利率；擴大再貸款支持範圍，大幅提高政策覆蓋面；保持財政貼息力度，進一步減低企業融資成本；優化再貸款政策流程。
@@ -201,6 +317,7 @@
 
 # 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
 
+![鄭柵潔表示，新質生產力正全面改造生產方式和改變生活方式，體會到技術突破正在加快。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794570_1_20250306173413.jpg&q=90)
   
 
 在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
@@ -229,7 +346,7 @@
 
 # 電動車暗格藏約520萬元走私燕窩及受管制魚肚　司機被海關拘捕
 
-![海關在車頭行李箱及車身與經改裝電池組之間的暗格內，檢獲約24公斤懷疑走私燕窩及約43公斤懷疑受管制魚肚。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794567_1_20250306170615.jpg&q=55)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794567_1_20250306170615.jpg&q=55)
   
 
 一輛經港珠澳大橋出境的私家車，懷疑企圖走私約值520萬元的燕窩及受管制魚肚，海關拘捕53歲司機，他獲准保釋候查，私家車被海關扣查。
@@ -1394,35 +1511,6 @@
 
 ---
 
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
 # 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
 
 ![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
@@ -1449,6 +1537,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 

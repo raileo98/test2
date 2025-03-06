@@ -1,4 +1,61 @@
-# 衞生署推青少年牙科護理計劃　向牙醫資助200元
+# 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
+
+  
+
+港鐵去年盈利超過157億元，港鐵行政總裁金澤培在業績記者會上表示，港鐵去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平，但過境鐵路及機場快綫的乘客量仍未回復疫情前水平，估計與過境口岸增加，其他公共交通競爭激烈有關，加上旅客的出行模式改變。至於高鐵的載客人數去年就持續上升，全年突破2600萬人次。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm)
+
+---
+
+# 港鐵未來一年招標東涌東站第二期、屯門第16區站第一期項目
+
+![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
+  
+
+港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地跌約38%至3000萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm)
+
+---
+
+# 青少年護齒計劃13至17歲每年檢查　衞生署向牙醫資助200元
 
 ![計劃將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794577_1_20250306172202.jpg&q=25)
   
@@ -87,7 +144,7 @@
 
 # 電動車暗格藏約520萬元走私燕窩及受管制魚肚　司機被海關拘捕
 
-![海關在車頭行李箱及車身與經改裝電池組之間的暗格內，檢獲約24公斤懷疑走私燕窩及約43公斤懷疑受管制魚肚。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794567_1_20250306170615.jpg&q=55)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794567_1_20250306170615.jpg&q=55)
   
 
 一輛經港珠澳大橋出境的私家車，懷疑企圖走私約值520萬元的燕窩及受管制魚肚，海關拘捕53歲司機，他獲准保釋候查，私家車被海關扣查。
@@ -777,35 +834,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
@@ -832,6 +860,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1676,63 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm)
-
----
-
-# 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=75)
-  
-
-在北京，國務院總理李強發表政府工作報告，提到支持香港澳門深化國際交往合作。警務處前處長、全國政協委員曾偉雄表示，十四五規劃綱要下，國家給予香港的定位非常強調「國際」，要做到國際化八大中心，政府工作報告強調國際化是合時，他認為，這是香港在發展上要更留意的地方，亦為十五五規劃打好基礎，希望大家一起努力加把勁。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
-
----
-
-# 鄧炳強指《明報》有關林卓廷文章誤導讀者　予以譴責
-
-![鄧炳強認為，作者身為法律教授卻再次發表偏頗文章，以歪曲的觀點誤導讀者。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794405_1_20250305172531.jpg&q=85)
-  
-
-保安局局長鄧炳強回應《明報》一篇由港大法律學院客席教授陳文敏撰寫有關林卓廷7.21案裁決的文章，指文章罔顧事實、誤導讀者，令人以為法庭裁決不公，對此予以譴責。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm)
 
 ---

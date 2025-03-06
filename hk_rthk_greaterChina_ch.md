@@ -1,5 +1,34 @@
+# 全國兩會｜王文濤：如美方在錯誤道路上愈行愈遠　中方將奉陪到底
+
+  
+
+在北京，商務部部長王文濤表示，美國以芬太尼問題為藉口對華加徵關稅是混淆是非、顛倒黑白，批評美國新政府上台後關稅單子似乎愈來愈長，以關稅威脅、要脅是典型單邊和霸凌主義，嚴重違反世貿組織規則，破壞中美正常經貿關係，擾亂全球產業鏈供應鏈穩定，阻礙世界經濟發展，必將損害美國民眾和美國企業的利益，是典型損人不利己。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
+
+---
+
 # 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
 
+![潘功勝說，歡迎國際投資者投資中國科技企業，反對將市場化投資行為工具化、政治化。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794572_1_20250306173507.jpg&q=85)
   
 
 人民銀行行長潘功勝表示，人行將進一步優化科技創新和技術改造再貸款政策，進一步擴大再貸款規模，由現時5000億元人民幣，擴大到8000億元至1萬億元，亦會降低再貸款利率；擴大再貸款支持範圍，大幅提高政策覆蓋面；保持財政貼息力度，進一步減低企業融資成本；優化再貸款政策流程。
@@ -28,6 +57,7 @@
 
 # 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
 
+![鄭柵潔表示，新質生產力正全面改造生產方式和改變生活方式，體會到技術突破正在加快。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794570_1_20250306173413.jpg&q=90)
   
 
 在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
@@ -397,35 +427,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
@@ -452,6 +453,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1698,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm)
-
----
-
-# 全國兩會｜李雲澤：去年處置不良資產3.8萬億元人民幣歷來最多
-
-![李雲澤表示，去年全年共處置不良資產3.8萬億元人民幣，創歷年最多。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794352_2_20250305134148.jpg&q=90)
-  
-
-國家金融監督管理總局局長李雲澤表示，內地金融風險穩步收斂，存量風險正有序處置，增量風險亦得到明顯遏制，特別是去年加大不良資產處置力度，全年共處置不良資產3.8萬億元人民幣，創歷年最多，守住不發生系統性風險底線。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm)
 
 ---

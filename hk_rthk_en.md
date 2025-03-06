@@ -3,7 +3,7 @@
 ![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
   
 
-The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set out by China for 2025 can be met, despite external headwinds and weak domestic demand.
+The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set by China for 2025 can be met, despite external headwinds and weak domestic demand.
   
 
   
@@ -291,7 +291,7 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
 
 # SKorea military jet misdrops bombs, injuring civilians
 
-![A South Korean soldier gestures near a bomb accident site outside a military live-fire training range in Pocheon. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=15)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=15)
   
 
 South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.

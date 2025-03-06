@@ -1,3 +1,88 @@
+# 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
+
+  
+
+港鐵去年盈利超過157億元，港鐵行政總裁金澤培在業績記者會上表示，港鐵去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平，但過境鐵路及機場快綫的乘客量仍未回復疫情前水平，估計與過境口岸增加，其他公共交通競爭激烈有關，加上旅客的出行模式改變。至於高鐵的載客人數去年就持續上升，全年突破2600萬人次。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm)
+
+---
+
+# 全國兩會｜王文濤：如美方在錯誤道路上愈行愈遠　中方將奉陪到底
+
+  
+
+在北京，商務部部長王文濤表示，美國以芬太尼問題為藉口對華加徵關稅是混淆是非、顛倒黑白，批評美國新政府上台後關稅單子似乎愈來愈長，以關稅威脅、要脅是典型單邊和霸凌主義，嚴重違反世貿組織規則，破壞中美正常經貿關係，擾亂全球產業鏈供應鏈穩定，阻礙世界經濟發展，必將損害美國民眾和美國企業的利益，是典型損人不利己。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
+
+---
+
+# 港鐵未來一年招標東涌東站第二期、屯門第16區站第一期項目
+
+![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
+  
+
+港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地跌約38%至3000萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm)
+
+---
+
 # 港鐵去年香港客運服務盈利升38%　鐵路及巴士乘客量升3%
 
 ![港鐵去年旗下鐵路及巴士總乘客量19.54億人次，按年升3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794575_1_20250306171929.jpg&q=70)
@@ -87,6 +172,7 @@
 
 # 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
 
+![潘功勝說，歡迎國際投資者投資中國科技企業，反對將市場化投資行為工具化、政治化。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794572_1_20250306173507.jpg&q=85)
   
 
 人民銀行行長潘功勝表示，人行將進一步優化科技創新和技術改造再貸款政策，進一步擴大再貸款規模，由現時5000億元人民幣，擴大到8000億元至1萬億元，亦會降低再貸款利率；擴大再貸款支持範圍，大幅提高政策覆蓋面；保持財政貼息力度，進一步減低企業融資成本；優化再貸款政策流程。
@@ -115,6 +201,7 @@
 
 # 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
 
+![鄭柵潔表示，新質生產力正全面改造生產方式和改變生活方式，體會到技術突破正在加快。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794570_1_20250306173413.jpg&q=90)
   
 
 在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
@@ -738,35 +825,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
@@ -793,6 +851,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1616,92 +1703,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm)
-
----
-
-# 美國白宮證實特朗普同意對墨加部分汽車推遲一個月徵收關稅
-
-![萊維特說，對等關稅措施仍將於4月2日生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794465_1_20250306061717.jpg&q=85)
-  
-
-美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予部分汽車製造商一個月的豁免。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm)
-
----
-
-# 美商務部長︰若加拿大能阻止芬太尼　特朗普或對部分行業減免關稅
-
-![盧特尼克說，如果加拿大能阻止芬太尼，特朗普將對其關稅持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794458_1_20250306005441.jpg&q=75)
-  
-
-美國商務部長盧特尼克透露，總統特朗普預料將公布調整對加拿大和墨西哥商品加徵的關稅，可能給予汽車等行業部分減免。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm)
-
----
-
-# 美國2月ISM非製造業指數出乎意料升至53.5
-
-![美國2月ISM非製造業指數出乎意料升至53.5，反映服務業擴張速度加快。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794455_1_20250305233557.jpg&q=80)
-  
-
-美國供應管理協會(ISM)公布，美國2月非製造業指數升至53.5，高於1月的52.8，市場原先估計跌至52.6。數據顯示，服務業擴張速度出乎意料加快。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm)
 
 ---

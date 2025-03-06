@@ -1,5 +1,35 @@
+# 韓軍戰機機師錯誤輸入座標致誤炸15傷　軍方暫停實彈演習
+
+![有建築物在誤炸事件中受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794579_1_20250306172428.jpg&q=15)
+  
+
+南韓軍方兩架戰機在演習期間，錯誤向京畿道抱川市的平民區投擲炸彈，造成至少15人受傷，其中兩人傷勢嚴重。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm)
+
+---
+
 # 倫敦市中心發生火警　約40名消防員到場灌救
 
+![倫敦市中心發生火警　約40名消防員到場灌救](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794576_1_20250306172739.jpg&q=85)
   
 
 英國倫敦市中心發生火警，濃煙升上半空，消防員到場灌救，暫時未知起火原因。
@@ -1705,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm)
-
----
-
-# 國務院新聞辦發布芬太尼管控白皮書　稱與美合作應對取得明顯成效
-
-![白皮書指出，中國對芬太尼類藥品的生產及使用等各環節動態全程監控、閉環管理。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794193_1_20250304174946.jpg&q=90)
-  
-
-國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm)
 
 ---

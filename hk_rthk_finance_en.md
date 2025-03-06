@@ -3,7 +3,7 @@
 ![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
   
 
-The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set out by China for 2025 can be met, despite external headwinds and weak domestic demand.
+The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set by China for 2025 can be met, despite external headwinds and weak domestic demand.
   
 
   

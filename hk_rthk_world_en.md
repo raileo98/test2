@@ -58,7 +58,7 @@ Early wind and rain from a rare tropical cyclone began lashing part of eastern A
 
 # SKorea military jet misdrops bombs, injuring civilians
 
-![A South Korean soldier gestures near a bomb accident site outside a military live-fire training range in Pocheon. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=15)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=15)
   
 
 South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
