@@ -1,4 +1,32 @@
-# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與看長線
+# 彭鴻昌倡病人在私人醫療機構接受醫療程序前要求白紙黑字列明收費
+
+  
+
+消委會硏究發現不少私營醫療機構價目資料難明及不足，收費差距甚大。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm)
+
+---
+
+# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
 
   
 
@@ -1709,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
-
----
-
-# 明愛醫院75歲男病人餵食期間哽到其後離世　院方致歉
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794372_1_20250305151025.jpg&q=85)
-  
-
-明愛醫院一名原本要進食流質或糊狀食物的75歲男病人，留院期間被餵食一般食物，病人哽到，其後死亡，院方將成立委員會分析事故原因。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794372-20250305.htm)
 
 ---

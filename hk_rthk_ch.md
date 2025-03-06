@@ -1,4 +1,32 @@
-# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與看長線
+# 彭鴻昌倡病人在私人醫療機構接受醫療程序前要求白紙黑字列明收費
+
+  
+
+消委會硏究發現不少私營醫療機構價目資料難明及不足，收費差距甚大。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm)
+
+---
+
+# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
 
   
 
