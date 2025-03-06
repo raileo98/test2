@@ -1,3 +1,31 @@
+# 鄒幸彤沒提供資料案上訴得直　譚得志煽動文字案被駁回上訴
+
+  
+
+終審法院就兩宗上訴案件頒下判詞。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm)
+
+---
+
 # 大欖女懲教所25歲還押人士疑體內藏毒　案件交警方跟進
 
   
@@ -1682,34 +1710,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm)
-
----
-
-# 全國兩會｜鄭雁雄籲港區人大「犯其至難而圖其至遠」意志擔當責任
-
-![鄭雁雄說，香港實現高品質發展的動能，需用好內聯外通的優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794448_1_20250305221151.jpg&q=80)
-  
-
-在北京，全國人大香港代表團下午舉行全體會議，審議政府工作報告。中聯辦主任鄭雁雄形容報告求真務實、凝心聚力，分析形勢科學精準，部署工作務實具體，亦回應人民的熱切期盼，對此倍感振奮、備受鼓舞。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm)
 
 ---

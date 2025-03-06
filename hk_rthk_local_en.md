@@ -1,3 +1,32 @@
+# Top court clears ex-Alliance trio over security probe
+
+![Tang Ngok-kwan shares a moment with Chow Hang-tung's mother outside court after the ruling. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794515_1_20250306114719.jpg&q=80)
+  
+
+Hong Kong’s top court on Thursday overturned the convictions of three people for refusing to hand information to the police in a national security investigation.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm)
+
+---
+
 # 'Premier offers guidance on One Country, Two Systems'
 
 ![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=55)
@@ -841,35 +870,6 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
 
 ---
 
-# Govt operating account largely balanced: FS
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
-  
-
-Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
-
----
-
 # ICAC sees three percent rise in graft allegations
 
 ![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
@@ -896,6 +896,35 @@ The ICAC on Monday said it received 2,058 reports of corruption last year, up th
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
+
+---
+
+# Govt operating account largely balanced: FS
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
+  
+
+Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
 
 ---
 
@@ -1709,34 +1738,5 @@ The SAR government has condemned members of the US Senate Committee on Foreign A
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm)
-
----
-
-# 'Private sector growth high on Two Sessions agenda'
-
-!['Private sector growth high on Two Sessions agenda'](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793553_2_20250228075850.jpg&q=80)
-  
-
-Support for private businesses is a very important area that will be addressed during the upcoming "Two Sessions" meetings in Beijing, according to Hong Kong's sole delegate to the country's top legislature.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
 
 ---

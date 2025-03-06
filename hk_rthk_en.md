@@ -1,3 +1,32 @@
+# Top court clears ex-Alliance trio over security probe
+
+![Tang Ngok-kwan shares a moment with Chow Hang-tung's mother outside court after the ruling. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794515_1_20250306114719.jpg&q=80)
+  
+
+Hong Kong’s top court on Thursday overturned the convictions of three people for refusing to hand information to the police in a national security investigation.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm)
+
+---
+
 # Rare cyclone approaches Australian coast
 
 ![Members of the NSW State Emergency Service inspect a satellite image of Tropical Cyclone Alfred. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794517_1_20250306120635.jpg&q=75)
@@ -1711,34 +1740,5 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.3 percent at 22,941. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794182_1_20250304170531.jpg&q=75)
-  
-
-Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down 0.3 percent at 22,941.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm)
 
 ---

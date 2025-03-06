@@ -1,3 +1,31 @@
+# 鄒幸彤沒提供資料案上訴得直　譚得志煽動文字案被駁回上訴
+
+  
+
+終審法院就兩宗上訴案件頒下判詞。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm)
+
+---
+
 # 大欖女懲教所25歲還押人士疑體內藏毒　案件交警方跟進
 
   
@@ -54,34 +82,6 @@
 
 ---
 
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
 # 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
 
   
@@ -107,6 +107,34 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -1711,34 +1739,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm)
-
----
-
-# 有桌球賽觀眾被要求提早離場　羅淑佩指主辦單位安排非常不理想
-
-![在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結就有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794357_1_20250305134541.jpg&q=85)
-  
-
-在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚發生賽事未完結就有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm)
 
 ---
