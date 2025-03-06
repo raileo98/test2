@@ -1,3 +1,78 @@
+# 韓股全日升0.7%
+
+![首爾綜合指數收報2576點，升18點，升幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794541_1_20250306143743.jpg&q=90)
+  
+
+南韓股市造好，首爾綜合指數收報2576點，升18點，升幅0.7%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm)
+
+---
+
+# 日股高收0.77%
+
+![日經指數收報37704點，升286點，升幅0.77%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794540_1_20250306143440.jpg&q=80)
+  
+
+日股延續上日升勢，日經指數收報37704點，升286點，升幅0.77%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm)
+
+---
+
+# 台股低收約0.7%
+
+![加權指數收報22715點，跌156點，跌幅0.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794539_1_20250306143223.jpg&q=90)
+  
+
+台股低收0.68%，加權指數收報22715點，跌156點。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm)
+
+---
+
 # 證監會上季盈餘按年增逾2倍　首3個財季扭虧
 
 ![證監會上季錄得盈餘7710.9萬元，按年增長2.4倍；首3個財季盈餘3569.8萬元，扭轉前年同期的虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794535_1_20250306134637.jpg&q=90)
@@ -1630,92 +1705,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
-
----
-
-# 內地5家險企獲批開展長期投資改革試點　規模600億元人民幣
-
-![報道稱金管總局近期批覆5家保險公司開展長期投資改革試點，涉及600億元人民幣。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794382_1_20250305151040.jpg&q=55)
-  
-
-國家金融監管總局主管媒體《中國銀行保險報》報道指，當局近期再次批覆5家保險公司開展長期投資改革試點，規模合共600億元人民幣。5家險企包括人保壽險、中國人壽、太平人壽、新華人壽、平安人壽。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm)
-
----
-
-# 滬股高收0.53%　創業板指數接近持平
-
-![上證指數今早窄幅上落，午後轉升，收市報3341點，升17點，升幅0.53%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794379_1_20250305150444.jpg&q=60)
-  
-
-內地股市3大指數反覆靠穩，算力租賃、人形機器人股份造好，房地產、太陽能股份下跌。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794379-20250305.htm)
-
----
-
-# 全國兩會｜李慧琼對工作報告有信心　相信經整體考慮及中期需要
-
-![李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新。（李慧琼提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794381_1_20250305152500.jpg&q=85)
-  
-
-國務院總理李強發表政府工作報告，人大常委李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新，她對報告充滿信心。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm)
 
 ---

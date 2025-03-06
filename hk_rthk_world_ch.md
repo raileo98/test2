@@ -1,3 +1,32 @@
+# 韓美軍演誤擲炸彈入社區增至最少15傷　報道指或涉機師犯錯
+
+![炸彈導致房屋受損，當局封鎖現場調查。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794543_1_20250306144148.jpg&q=80)
+  
+
+南韓軍方證實，參與韓美軍事演習的兩部戰機，錯誤將8顆炸彈投擲到訓練場外，落入一個社區。報道指增至最少15人受傷，當中部分人重傷，而事件起因可能是機師犯錯。空軍就事件對平民造成傷害表示歉意，祝願傷者早日康復，將進行調查及採取一切包括賠償的一切必要措施。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm)
+
+---
+
 # 韓美軍演有炮彈落入社區有人受傷　當局正確認具體情況
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794509_1_20250306131038.jpg&q=55)
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794165-20250304.htm)
-
----
-
-# 全國兩會｜公安部稱全方位開展跨境詐騙執法合作
-
-![陳思源表示，正全方位開展跨境詐騙的執法合作。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794161_1_20250304164852.jpg&q=85)
-  
-
-全國政協委員、公安部副部長陳思源接受本台訪問時表示，正全方位開展跨境詐騙的執法合作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm)
 
 ---

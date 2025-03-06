@@ -1,3 +1,31 @@
+# 遙控泊車功能本月起可使用　運輸署提醒須用獲批遙控泊車系統
+
+  
+
+運輸署表示，本月1日起司機可使用遙控泊車功能，但提醒要用署方批准的遙控泊車系統，同時司機必須在車外近距離操作，全程監察車輛情況。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm)
+
+---
+
 # 彭鴻昌倡病人在私人醫療機構接受醫療程序前要求白紙黑字列明收費
 
   
@@ -28,7 +56,7 @@
 
 # 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
 
-![盧永雄（右一）、何超瓊（右二）、高永文（左二）、和管浩鳴（左一）接受視像訪問。（視像訪問截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=90)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
@@ -1707,36 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
-
----
-
-# 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
-
-![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
-![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
-![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=75)
-  
-
-內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
 
 ---

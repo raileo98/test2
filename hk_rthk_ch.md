@@ -1,3 +1,135 @@
+# 韓股全日升0.7%
+
+![首爾綜合指數收報2576點，升18點，升幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794541_1_20250306143743.jpg&q=90)
+  
+
+南韓股市造好，首爾綜合指數收報2576點，升18點，升幅0.7%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm)
+
+---
+
+# 日股高收0.77%
+
+![日經指數收報37704點，升286點，升幅0.77%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794540_1_20250306143440.jpg&q=80)
+  
+
+日股延續上日升勢，日經指數收報37704點，升286點，升幅0.77%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm)
+
+---
+
+# 台股低收約0.7%
+
+![加權指數收報22715點，跌156點，跌幅0.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794539_1_20250306143223.jpg&q=90)
+  
+
+台股低收0.68%，加權指數收報22715點，跌156點。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm)
+
+---
+
+# 韓美軍演誤擲炸彈入社區增至最少15傷　報道指或涉機師犯錯
+
+![炸彈導致房屋受損，當局封鎖現場調查。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794543_1_20250306144148.jpg&q=80)
+  
+
+南韓軍方證實，參與韓美軍事演習的兩部戰機，錯誤將8顆炸彈投擲到訓練場外，落入一個社區。報道指增至最少15人受傷，當中部分人重傷，而事件起因可能是機師犯錯。空軍就事件對平民造成傷害表示歉意，祝願傷者早日康復，將進行調查及採取一切包括賠償的一切必要措施。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm)
+
+---
+
+# 遙控泊車功能本月起可使用　運輸署提醒須用獲批遙控泊車系統
+
+  
+
+運輸署表示，本月1日起司機可使用遙控泊車功能，但提醒要用署方批准的遙控泊車系統，同時司機必須在車外近距離操作，全程監察車輛情況。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm)
+
+---
+
 # 彭鴻昌倡病人在私人醫療機構接受醫療程序前要求白紙黑字列明收費
 
   
@@ -28,7 +160,7 @@
 
 # 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
 
-![盧永雄（右一）、何超瓊（右二）、高永文（左二）、和管浩鳴（左一）接受視像訪問。（視像訪問截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=90)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
