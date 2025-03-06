@@ -1,3 +1,118 @@
+# 倫敦市中心發生火警　約40名消防員到場灌救
+
+  
+
+英國倫敦市中心發生火警，濃煙升上半空，消防員到場灌救，暫時未知起火原因。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm)
+
+---
+
+# 港鐵去年香港客運服務盈利升38%　鐵路及巴士乘客量升3%
+
+![港鐵去年旗下鐵路及巴士總乘客量19.54億人次，按年升3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794575_1_20250306171929.jpg&q=70)
+  
+
+港鐵去年總收入600.11億元，按年升逾5%。當中，香港客運服務收入升12%至283.6億元，盈利貢獻增長38%至37.1億元。其中，車務營運虧損收窄94%至6300萬元，車站商務盈利跌0.5%至37.7億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm)
+
+---
+
+# 在岸人民幣兌美元高收152點子　創近1個半月新高
+
+![在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，創近1個半月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794574_1_20250306170858.jpg&q=20)
+  
+
+在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，升幅0.21%，創近1個半月新高。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm)
+
+---
+
+# 日本東北新幹線有列車脫卡無人傷　屬半年內第二宗同類事故
+
+![由綠色「隼」號列車與紅色「小町」號列車連接而成的重聯運行列車脫卡，停在西日暮里站附近。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794571_1_20250306165306.jpg&q=5)
+  
+
+日本東北新幹線一列列車在行駛途中脫卡，無人受傷，是半年內第二宗同類事故。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm)
+
+---
+
 # 市建局山東街/地士道街發展項目接獲28份發展意向書
 
 ![市建局表示，九龍山東街/地士道街發展項目共接獲28份發展意向書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794568_1_20250306165153.jpg&q=80)
@@ -85,6 +200,7 @@
 
 # 電動車暗格藏約520萬元走私燕窩及受管制魚肚　司機被海關拘捕
 
+![海關在車頭行李箱及車身與經改裝電池組之間的暗格內，檢獲約24公斤懷疑走私燕窩及約43公斤懷疑受管制魚肚。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794567_1_20250306170615.jpg&q=55)
   
 
 一輛經港珠澳大橋出境的私家車，懷疑企圖走私約值520萬元的燕窩及受管制魚肚，海關拘捕53歲司機，他獲准保釋候查，私家車被海關扣查。

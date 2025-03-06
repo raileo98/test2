@@ -1,3 +1,61 @@
+# 港鐵去年香港客運服務盈利升38%　鐵路及巴士乘客量升3%
+
+![港鐵去年旗下鐵路及巴士總乘客量19.54億人次，按年升3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794575_1_20250306171929.jpg&q=70)
+  
+
+港鐵去年總收入600.11億元，按年升逾5%。當中，香港客運服務收入升12%至283.6億元，盈利貢獻增長38%至37.1億元。其中，車務營運虧損收窄94%至6300萬元，車站商務盈利跌0.5%至37.7億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm)
+
+---
+
+# 在岸人民幣兌美元高收152點子　創近1個半月新高
+
+![在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，創近1個半月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794574_1_20250306170858.jpg&q=20)
+  
+
+在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，升幅0.21%，創近1個半月新高。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm)
+
+---
+
 # 市建局山東街/地士道街發展項目接獲28份發展意向書
 
 ![市建局表示，九龍山東街/地士道街發展項目共接獲28份發展意向書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794568_1_20250306165153.jpg&q=80)
@@ -1645,63 +1703,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm)
-
----
-
-# 美國1月工廠訂單按月升1.7%勝預期
-
-![美國1月工廠訂單按月止跌回升1.7%，升幅略高於預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794456_1_20250305234348.jpg&q=5)
-  
-
-美國1月工廠訂單按月止跌回升1.7%，升幅略高於預期；撇除運輸的工廠訂單按月升0.2%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794456-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794456-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794456-20250305.htm)
-
----
-
-# 味千料去年盈轉虧　虧損不多於4000萬元人民幣
-
-![味千中國預料去年虧損不多於4000萬元人民幣，由於錄得投資物業重估虧損、營運成本上升等所致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794445_1_20250305213126.jpg&q=70)
-  
-
-味千中國發盈利警告，預料去年虧損不多於4000萬元人民幣，前年盈利1.81億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm)
 
 ---

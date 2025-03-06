@@ -1,3 +1,31 @@
+# 倫敦市中心發生火警　約40名消防員到場灌救
+
+  
+
+英國倫敦市中心發生火警，濃煙升上半空，消防員到場灌救，暫時未知起火原因。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm)
+
+---
+
 # 日本東北新幹線有列車脫卡無人傷　屬半年內第二宗同類事故
 
 ![由綠色「隼」號列車與紅色「小町」號列車連接而成的重聯運行列車脫卡，停在西日暮里站附近。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794571_1_20250306165306.jpg&q=5)
@@ -1706,35 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794193-20250304.htm)
-
----
-
-# 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
-
-![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=75)
-![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=80)
-  
-
-「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794192-20250304.htm)
 
 ---
