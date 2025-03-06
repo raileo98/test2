@@ -1,3 +1,32 @@
+# 美國證實一架黑鷹直升機在洪都拉斯緊急降落
+
+![美國證實一架黑鷹直升機在洪都拉斯緊急降落](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794584_1_20250306175045.jpg&q=85)
+  
+
+美國駐洪都拉斯大使館表示，一架UH-60「黑鷹」直升機在洪都拉斯索托卡諾空軍基地附近緊急迫降，機上5名聯合特遣部隊機組人員安全。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm)
+
+---
+
 # 歐盟領導人舉行緊急峰會討論烏克蘭危機及歐洲防禦
 
 ![歐盟委員員主席馮德萊恩在會前提出重新武裝歐洲計劃。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794599_1_20250306183832.jpg&q=85)
@@ -1707,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
-
----
-
-# 歐盟宣布實施8000億歐元「重新武裝歐洲」計劃
-
-![馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794211_1_20250304192539.jpg&q=90)
-  
-
-歐盟委員會主席馮德萊恩宣布，歐盟將實施「重新武裝歐洲」計劃，調動近8000億歐元打造一個安全而有韌性的歐洲。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm)
 
 ---

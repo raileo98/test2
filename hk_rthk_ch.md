@@ -1,3 +1,32 @@
+# 美國證實一架黑鷹直升機在洪都拉斯緊急降落
+
+![美國證實一架黑鷹直升機在洪都拉斯緊急降落](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794584_1_20250306175045.jpg&q=85)
+  
+
+美國駐洪都拉斯大使館表示，一架UH-60「黑鷹」直升機在洪都拉斯索托卡諾空軍基地附近緊急迫降，機上5名聯合特遣部隊機組人員安全。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm)
+
+---
+
 # 全國兩會｜吳清：加快健全科技企業支持機制　培育長期和耐心資本
 
   
