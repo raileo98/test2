@@ -1,3 +1,61 @@
+# 全國兩會｜習近平向全國各族各界婦女致以節日祝福
+
+![習近平強調，強化教育對科技和人才支撐作用。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306202104.jpg&q=90)
+  
+
+中共總書記、國家主席、中央軍委主席習近平下午看望參加全國政協十四屆三次會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm)
+
+---
+
+# 全國兩會｜浙江省創新環境吸引青年　民企稱省內條件有利發展
+
+![全國人大浙江代表團舉行全體會議，開放予傳媒採訪。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794614_1_20250306202320.jpg&q=55)
+  
+
+全國人大浙江代表團下午舉行全體會議，開放予傳媒採訪。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
+
+---
+
 # 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
 
   
@@ -1661,65 +1719,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm)
-
----
-
-# 全國兩會｜以打擊毒品不力對華加關稅　曾偉雄批美國毫無根據
-
-![曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794384_1_20250305155507.jpg&q=80)
-![譚允芝說，會不斷優化防詐騙措施，並與不同平台更緊密合作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794384_2_20250305155507.jpg&q=80)
-  
-
-在北京，全國政協委員、警務處前處長曾偉雄表示，美國以中國打擊芬太尼不力為由對華加徵進口商品關稅，是毫無理據，中方會研究反制措施，認為政治不應影響禁毒合作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794384-20250305.htm)
-
----
-
-# 全國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
-
-![何小鵬相信，國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_1_20250305154643.jpg&q=50)
-![柯瑞文表示，中國數字經濟的發展潛力很大，要做好全社會的相關基礎設施。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_2_20250305160924.jpg&q=80)
-  
-
-在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
 
 ---

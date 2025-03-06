@@ -1,3 +1,32 @@
+# 全國兩會｜浙江省創新環境吸引青年　民企稱省內條件有利發展
+
+![全國人大浙江代表團舉行全體會議，開放予傳媒採訪。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794614_1_20250306202320.jpg&q=55)
+  
+
+全國人大浙江代表團下午舉行全體會議，開放予傳媒採訪。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
+
+---
+
 # 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
 
   
@@ -1676,34 +1705,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm)
-
----
-
-# 百度發行100億元人民幣計價優先無擔保票據
-
-![百度發行本金總額合共100億元以人民幣計價的優先無擔保票據，5年期及10年期票據利率分別為2.7%和3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794483_1_20250306081247.jpg&q=85)
-  
-
-百度集團公布，發行本金總額合共100億元以人民幣計價的優先無擔保票據，所得款項淨額用作一般公司用途，包括償還若干現有債務、支付利息及一般公司用途。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm)
 
 ---

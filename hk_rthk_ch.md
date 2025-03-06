@@ -1,3 +1,90 @@
+# 全國兩會｜習近平向全國各族各界婦女致以節日祝福
+
+![習近平強調，強化教育對科技和人才支撐作用。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306202104.jpg&q=90)
+  
+
+中共總書記、國家主席、中央軍委主席習近平下午看望參加全國政協十四屆三次會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm)
+
+---
+
+# 全國兩會｜浙江省創新環境吸引青年　民企稱省內條件有利發展
+
+![全國人大浙江代表團舉行全體會議，開放予傳媒採訪。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794614_1_20250306202320.jpg&q=55)
+  
+
+全國人大浙江代表團下午舉行全體會議，開放予傳媒採訪。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
+
+---
+
+# 歐委會主席稱歐洲須有能力保衛自己　澤連斯基指烏克蘭並不孤單
+
+![馮德萊恩（右）與科斯塔（左）在會前陪同澤連斯基見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794611_1_20250306201203.jpg&q=80)
+  
+
+歐盟領導人在布魯塞爾召開緊急峰會，商討烏克蘭危機和加強歐洲自主防衛，烏克蘭總統澤連斯基應邀出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm)
+
+---
+
 # 澤連斯基：和平不能意味烏克蘭投降或崩潰
 
 ![澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794610_1_20250306195842.jpg&q=85)

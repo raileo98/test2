@@ -1,3 +1,32 @@
+# 歐委會主席稱歐洲須有能力保衛自己　澤連斯基指烏克蘭並不孤單
+
+![馮德萊恩（右）與科斯塔（左）在會前陪同澤連斯基見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794611_1_20250306201203.jpg&q=80)
+  
+
+歐盟領導人在布魯塞爾召開緊急峰會，商討烏克蘭危機和加強歐洲自主防衛，烏克蘭總統澤連斯基應邀出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm)
+
+---
+
 # 澤連斯基：和平不能意味烏克蘭投降或崩潰
 
 ![澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794610_1_20250306195842.jpg&q=85)
@@ -1707,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm)
-
----
-
-# 克宮：倘美國停止軍援烏克蘭　將是對和平的最大貢獻
-
-![佩斯科夫表示，如果美國停止向基輔提供軍事援助，將是對和平的最大貢獻。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794216_1_20250304202341.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，如果美國停止向基輔提供軍事援助，將是對和平的最大貢獻。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm)
 
 ---
