@@ -1,5 +1,6 @@
 # 全國兩會｜西藏目前經濟文化繁榮　定日縣地震災後已復課
 
+![全國人大西藏自治區代表團早上舉行全體會議。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794510_1_20250306110240.jpg&q=30)
   
 
 全國人大西藏自治區代表團早上舉行全體會議。

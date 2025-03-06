@@ -88,10 +88,10 @@ A vibrant festival celebrating Indian culture through dance, music and cuisine, 
 
 # Air passenger departure tax to go up from Oct 1
 
-![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250305180720.jpg&q=65)
+![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250306110817.jpg&q=65)
   
 
-Travelers purchasing a plane ticket to fly out of Hong Kong from October 1 will have to pay HK$200 in air passenger departure tax (APDT) instead of the current HK$120, the government announced on Wednesday.
+Travellers purchasing a plane ticket to fly out of Hong Kong from October 1 will have to pay HK$200 in air passenger departure tax (APDT) instead of the current HK$120, the government announced on Wednesday.
   
 
   
