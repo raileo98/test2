@@ -1,3 +1,32 @@
+# 現貨金回軟　因美債息上升
+
+![現貨金較早時報每盎司2912.2美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794647_1_20250307052551.jpg&q=25)
+  
+
+現貨金結束連續3日升勢，受美債息上升拖累。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm)
+
+---
+
 # 國際油價收市靠穩
 
 ![國際油價反覆靠穩，英美期油收市升近0.1%至0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794646_1_20250307051909.jpg&q=85)
@@ -1699,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm)
-
----
-
-# 倫敦市中心發生火警　約40名消防員到場灌救
-
-![倫敦市中心發生火警　約40名消防員到場灌救](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794576_1_20250306172739.jpg&q=85)
-  
-
-英國倫敦市中心發生火警，濃煙升上半空，消防員到場灌救，暫時未知起火原因。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm)
 
 ---
