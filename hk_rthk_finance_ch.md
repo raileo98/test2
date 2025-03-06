@@ -1,3 +1,32 @@
+# 元朗兩部貨車疑作流動倉庫及分銷私煙　涉案男子保釋候查
+
+![海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=50)
+  
+
+兩部貨車懷疑被用作私煙的流動倉庫及分銷私煙，海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」，即非主流牌子，品質較差的香煙。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm)
+
+---
+
 # LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
 
 ![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
@@ -1259,35 +1288,6 @@
 
 ---
 
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
 # 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
 
 ![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
@@ -1314,6 +1314,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -1684,30 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm)
-
----
-
-# 台股初段靠穩
-
-![台灣加權指數較早時報22913點，升41點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794491_1_20250306090710.jpg&q=80)
-  
-
-台灣股市在開市初段靠穩，加權指數較早時報22913點，升41點，升幅0.18%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm)
 
 ---

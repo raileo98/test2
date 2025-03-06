@@ -1,3 +1,32 @@
+# 元朗兩部貨車疑作流動倉庫及分銷私煙　涉案男子保釋候查
+
+![海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=50)
+  
+
+兩部貨車懷疑被用作私煙的流動倉庫及分銷私煙，海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」，即非主流牌子，品質較差的香煙。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm)
+
+---
+
 # LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
 
 ![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
@@ -1237,35 +1266,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
@@ -1292,6 +1292,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1700,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm)
-
----
-
-# 全國兩會｜鄭雁雄籲港區人大「犯其至難而圖其至遠」意志擔當責任
-
-![鄭雁雄說，香港實現高品質發展的動能，需用好內聯外通的優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794448_1_20250305221151.jpg&q=90)
-  
-
-在北京，全國人大香港代表團下午舉行全體會議，審議政府工作報告。中聯辦主任鄭雁雄形容報告求真務實、凝心聚力，分析形勢科學精準，部署工作務實具體，亦回應人民的熱切期盼，對此倍感振奮、備受鼓舞。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm)
 
 ---

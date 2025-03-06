@@ -1,3 +1,61 @@
+# 元朗兩部貨車疑作流動倉庫及分銷私煙　涉案男子保釋候查
+
+![海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=50)
+  
+
+兩部貨車懷疑被用作私煙的流動倉庫及分銷私煙，海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」，即非主流牌子，品質較差的香煙。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm)
+
+---
+
+# 全國兩會｜習近平強調須強化教育對科技和人才支撐作用
+
+![習近平強調，必須強化教育對科技和人才的支撐作用。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794617_1_20250306211708.jpg&q=90)
+  
+
+中共總書記、國家主席、中央軍委主席習近平強調，必須深刻把握中國式現代化對教育、科技、人才的需求，強化教育對科技和人才的支撐作用，進一步形成人才輩出、人盡其才、才盡其用的生動局面。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm)
+
+---
+
 # LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
 
 ![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
