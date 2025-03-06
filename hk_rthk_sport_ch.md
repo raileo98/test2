@@ -1,3 +1,32 @@
+# LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
+
+![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
+  
+
+大型體育活動事務委員會已向「LIV Golf 2025香港站」及「2025年國泰／滙豐香港國際七人欖球賽」頒授「M」品牌認可。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
+
+---
+
 # 全國兩會｜廣東省生產總值連續36年全國首位　聯港澳辦好全運會
 
 ![張虎（中）提出，會積極推動廣東經濟高質量發展，從多方面落實工作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794551_1_20250306162126.jpg&q=55)
@@ -1712,34 +1741,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793413-20250227.htm)
-
----
-
-# 國際奧委會主席巴赫辭任　下月選出新主席
-
-![國際奧委會主席巴赫辭任，新主席將於下月在希臘選出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793392_1_20250227022532.jpg&q=75)
-  
-
-國際奧委會接納主席巴赫辭任委員，今年6月23日生效，並由新主席接任。新主席會在下個月於希臘選出。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793392-20250227.htm)
 
 ---

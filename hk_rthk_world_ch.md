@@ -1,3 +1,61 @@
+# LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
+
+![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
+  
+
+大型體育活動事務委員會已向「LIV Golf 2025香港站」及「2025年國泰／滙豐香港國際七人欖球賽」頒授「M」品牌認可。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
+
+---
+
+# 美國起訴12名中國公民涉發動網攻　中方反對美方無理指責中國
+
+![林劍表示，中方堅決反對美方無理指責中國，要求美方立即停止濫施制裁的錯誤做法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794553_1_20250306161426.jpg&q=90)
+  
+
+美國司法部起訴12名中國公民，指他們涉嫌向美國政府等機構發動網絡攻擊。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm)
+
+---
+
 # 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
 
   
@@ -1676,63 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm)
-
----
-
-# 中國暫停進口美國原木及美國3家企業大豆輸華資質
-
-![海關總署暫停進口美國原木及美國3家企業大豆輸華資質。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794225_1_20250304210049.jpg&q=5)
-  
-
-海關總署發布公告說，中國海關近期在進口的美國原木中檢出小蠹、天牛等檢疫性林木害蟲。為防止有害生物傳入，保護國家農林業生產和生態安全，根據《中華人民共和國生物安全法》、《中華人民共和國進出境動植物檢疫法》及其實施條例、國際植物檢疫措施標準等相關規定，海關總署決定即日起暫停美國原木進口。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794225-20250304.htm)
-
----
-
-# 商務部對原產美國進口相關光纖產品發起反規避調查
-
-![商務部對原產於美國的進口相關光纖產品發起反規避調查。（商務部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794220_1_20250304203849.jpg&q=55)
-  
-
-在北京，商務部發布公告，對原產於美國的進口相關光纖產品發起反規避調查。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
 
 ---

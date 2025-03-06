@@ -1,3 +1,32 @@
+# LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
+
+![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
+  
+
+大型體育活動事務委員會已向「LIV Golf 2025香港站」及「2025年國泰／滙豐香港國際七人欖球賽」頒授「M」品牌認可。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
+
+---
+
 # 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
 
   
@@ -57,6 +86,7 @@
 
 # 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
 
+![財政部部長藍佛安表示，將加快落實落細債務置換政策，指導地方盡早發行使用今年2萬億元人民幣置換債券額度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794609_1_20250306204715.jpg&q=90)
   
 
 人大常委會去年第4季批准增加6萬億元人民幣地方政府債務限額置換存量隱性債務。
@@ -112,7 +142,7 @@
 
 ---
 
-# 全國兩會｜吳清：加快健全科技企業支持機制　培育長期和耐心資本
+# 全國兩會｜吳清：加快健全科企支持機制　加力培育長期和耐心資本
 
 ![中證監主席吳清（左）表示，很多引領性科技企業的崛起，離不開長期耐心資本投入，形容是「十年磨一劍」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794607_1_20250306204406.jpg&q=75)
   
@@ -143,6 +173,7 @@
 
 # 全國兩會｜王文濤：經濟全球化歷史潮流不可逆轉　有信心穩住外貿
 
+![商務部部長王文濤表示，經濟全球化歷史潮流不可逆轉，全球貿易合作不可阻擋，完全有信心、有底氣穩住外貿基本盤。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794606_1_20250306204806.jpg&q=85)
   
 
 商務部部長王文濤表示，外部環境帶來的不利影響加深，單邊主義和保護主義加劇，個別國家揮舞「關稅大棒」，擾亂國際貿易秩序，衝擊全球產業鏈供應鏈穩定，中國外貿發展面臨嚴峻形勢。
@@ -171,6 +202,7 @@
 
 # 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
 
+![國家發改委主任鄭柵潔預計，「十四五」經濟增量逾30萬億元人民幣，相當於一個發達經濟體全年經濟總量。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794605_1_20250306204857.jpg&q=90)
   
 
 國家發改委主任鄭柵潔表示，經過「十四五」這幾年發展，對高質量發展的信心和底氣進一步增強。今年將認真做好「十五五」規劃編制相關工作，會作充分調查，通過多種方式聽取各方意見建議，與各方共同編制規劃《綱要草案》，提出一批重大戰略任務、政策舉措和工程項目，並在明年提交全國兩會。
@@ -197,7 +229,7 @@
 
 ---
 
-# 港鐵料未來12個月多個項目有條件推出市場
+# 港鐵：未來12個月多個項目有條件推出市場
 
 ![港鐵計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794603_1_20250306193654.jpg&q=65)
   
@@ -1226,35 +1258,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
@@ -1281,6 +1284,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1676,34 +1708,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm)
-
----
-
-# 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794489_1_20250306093915.jpg&q=90)
-  
-
-在北京，國務院副總理丁薛祥上午出席港澳地區全國政協委員聯組會議，聽取委員發言。全國政協副主席何厚鏵、梁振英、中央港澳辦、國務院港澳辦主任夏寶龍亦有列席會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm)
 
 ---

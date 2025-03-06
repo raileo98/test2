@@ -1,3 +1,32 @@
+# LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
+
+![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
+  
+
+大型體育活動事務委員會已向「LIV Golf 2025香港站」及「2025年國泰／滙豐香港國際七人欖球賽」頒授「M」品牌認可。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
+
+---
+
 # 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
 
   
@@ -55,7 +84,7 @@
 
 ---
 
-# 港鐵料未來12個月多個項目有條件推出市場
+# 港鐵：未來12個月多個項目有條件推出市場
 
 ![港鐵計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794603_1_20250306193654.jpg&q=65)
   
@@ -1699,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm)
-
----
-
-# 清遠佛山旅行團四人感染退伍軍人病　衞生防護中心列為輸入個案
-
-![衞生防護中心呼籲曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794447_1_20250305220536.jpg&q=85)
-  
-
-一個清遠佛山旅行團出現退伍軍人病群組，涉及四名團友，衞生防護中心呼籲，曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心，以便接受健康評估和醫學監察。中心亦已知會旅遊業監管局，並將個案通報廣東省衞生當局，流行病學調查仍在進行中。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm)
 
 ---
