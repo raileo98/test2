@@ -1,3 +1,31 @@
+# 大欖女懲教所25歲還押人士疑體內藏毒　案件交警方跟進
+
+  
+
+大欖女懲教所職員成功堵截一名女性還押在囚人士，利用體內藏毒，將懷疑毒品偷運進入懲教院所。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm)
+
+---
+
 # 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
 
   
@@ -26,34 +54,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
   
@@ -79,6 +79,34 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1712,34 +1740,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794357-20250305.htm)
-
----
-
-# 銅鑼灣「醫衞醫療中心」疑不當處理醫療器材被暫時吊銷牌照
-
-![衞生署即日起暫時吊銷銅鑼灣世貿中心一間名為「醫衞醫療中心」的日間醫療中心牌照。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794355_1_20250305134606.jpg&q=80)
-  
-
-衞生署即日起暫時吊銷銅鑼灣世貿中心一間名為「醫衞醫療中心」的日間醫療中心牌照，中心不可進行牌照上的專門服務，包括外科程序及麻醉程序。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794355-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794355-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794355-20250305.htm)
 
 ---

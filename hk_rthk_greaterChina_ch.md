@@ -1,3 +1,31 @@
+# 全國兩會｜西藏自治政府主席稱深化三個意識　不受反華勢力干擾
+
+  
+
+在北京，西藏自治區政府主席嘎瑪澤登表示，當局過去的思想教育每次被抹黑，近年持續深化拓展國家、公民和法治「三個意識」教育，即使面對西方反華勢力干擾，也不會受影響。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm)
+
+---
+
 # 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
 
   
@@ -26,34 +54,6 @@
 
 ---
 
-# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
-
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
   
@@ -79,6 +79,34 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -1703,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm)
-
----
-
-# 全國兩會｜辦好全運會和世界運動會　開展全民健身運動
-
-![報告提到要辦好第十五屆全國運動會和第十二屆世界運動會。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794315_1_20250305103449.jpg&q=80)
-  
-
-在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
 
 ---

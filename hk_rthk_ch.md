@@ -1,3 +1,59 @@
+# 大欖女懲教所25歲還押人士疑體內藏毒　案件交警方跟進
+
+  
+
+大欖女懲教所職員成功堵截一名女性還押在囚人士，利用體內藏毒，將懷疑毒品偷運進入懲教院所。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm)
+
+---
+
+# 全國兩會｜西藏自治政府主席稱深化三個意識　不受反華勢力干擾
+
+  
+
+在北京，西藏自治區政府主席嘎瑪澤登表示，當局過去的思想教育每次被抹黑，近年持續深化拓展國家、公民和法治「三個意識」教育，即使面對西方反華勢力干擾，也不會受影響。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm)
+
+---
+
 # 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
 
   
@@ -1655,63 +1711,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm)
-
----
-
-# 清遠佛山旅行團四人感染退伍軍人病　衞生防護中心列為輸入個案
-
-![衞生防護中心呼籲曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794447_1_20250305220536.jpg&q=90)
-  
-
-一個清遠佛山旅行團出現退伍軍人病群組，涉及四名團友，衞生防護中心呼籲，曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心，以便接受健康評估和醫學監察。中心亦已知會旅遊業監管局，並將個案通報廣東省衞生當局，流行病學調查仍在進行中。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm)
-
----
-
-# 全國兩會｜張又俠何衛東參加解放軍和武警代表團審議政府工作報告
-
-![張又俠及何衛東分別參加解放軍和武警部隊代表團分組審議政府工作報告。（網絡截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794446_1_20250305215018.jpg&q=85)
-  
-
-在北京，解放軍和武警部隊代表團分組審議政府工作報告，中央政治局委員、中央軍委副主席張又俠及何衛東分別參加小組審議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm)
 
 ---
