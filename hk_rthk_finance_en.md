@@ -1,6 +1,6 @@
 # Tech stocks push HSI over 24,000 points
 
-![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose over two percent. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=85)
+![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=85)
   
 
 Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Trump administration delayed auto tariffs on Canada and Mexico.

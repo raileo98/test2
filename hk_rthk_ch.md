@@ -1,3 +1,79 @@
+# 譚得志煽動案上訴被終審法院駁回
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm)
+
+---
+
+# 日股半日升0.8%
+
+![日經平均指數上午收市報37726點，升307點，升幅0.82%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794506_1_20250306104226.jpg&q=35)
+  
+
+日本股市半日上升，日經平均指數上午收市報37726點，升307點，升幅0.82%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm)
+
+---
+
+# 孫東在巴塞羅那出席世界移動通信大會並考察當地超算中心
+
+  
+
+創新科技及工業局局長孫東率領創新科技業界代表團繼續在西班牙巴塞羅那的訪問行程，並出席世界移動通信大會2025。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm)
+
+---
+
 # 特朗普給予三間車企一個月關稅豁免　與杜魯多商關稅和芬太尼問題
 
 ![福特（圖）等三大汽車製造商，獲給予為期一個月的關稅豁免。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794504_1_20250306103458.jpg&q=70)
@@ -29,6 +105,7 @@
 
 # 支聯會拒交資料案終極上訴得直　鄒幸彤等3人獲撤銷定罪
 
+![支聯會拒交資料案，鄒幸彤等3人獲撤銷定罪。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794503_1_20250306104047.jpg&q=75)
   
 
 
@@ -1628,92 +1705,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm)
-
----
-
-# 全國兩會｜夏寶龍晤李家超稱中央全力支援港澳融入國家發展大局
-
-![夏寶龍（右）會見李家超（左），夏寶龍相信香港特區政府和社會各界一定會把握機遇。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794432_1_20250305214643.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm)
-
----
-
-# 內地適度放寬科企併購貸款政策
-
-![國家金融監管總局表示，近期開展適度放寬科技企業併購貸款政策試點，支持科企發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794430_1_20250305190506.jpg&q=55)
-  
-
-國家金融監管總局表示，近期開展適度放寬科技企業併購貸款政策試點，適度放寬商業銀行併購貸款風險管理指引部分條款，支持科企發展。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm)
-
----
-
-# 國務院發文要求做好科技金融及綠色金融等範疇
-
-![國務院發文指，要做好科技金融、綠色金融、普惠金融、養老金融、數字金融，這五篇大文章。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794428_1_20250305185612.jpg&q=90)
-  
-
-國務院發文要求做好金融「五篇大文章」，做好科技金融、綠色金融、普惠金融、養老金融、數字金融。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm)
 
 ---

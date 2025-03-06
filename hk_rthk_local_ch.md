@@ -1,5 +1,57 @@
+# 譚得志煽動案上訴被終審法院駁回
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm)
+
+---
+
+# 孫東在巴塞羅那出席世界移動通信大會並考察當地超算中心
+
+  
+
+創新科技及工業局局長孫東率領創新科技業界代表團繼續在西班牙巴塞羅那的訪問行程，並出席世界移動通信大會2025。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm)
+
+---
+
 # 支聯會拒交資料案終極上訴得直　鄒幸彤等3人獲撤銷定罪
 
+![支聯會拒交資料案，鄒幸彤等3人獲撤銷定罪。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794503_1_20250306104047.jpg&q=75)
   
 
 
@@ -1679,63 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm)
-
----
-
-# 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794336_1_20250305121454.jpg&q=55)
-  
-
-行政長官李家超列席第十四屆全國人民代表大會第三次會議開幕會。對於總理李強在政府工作報告中，指出要全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」原則；支持香港發展經濟、改善民生，深化國際交往合作，更好融入國家發展大局，保持香港長期繁榮穩定。總理又提到，要提升粵港澳大灣區等經濟發展優勢區域的創新能力和輻射帶動作用。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm)
-
----
-
-# 海關檢獲約680公斤懷疑冰毒市值3億6千萬元　拘捕3人
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794334_1_20250305121417.jpg&q=75)
-  
-
-海關在葵涌偵破一宗販運毒品案件，檢獲約680公斤懷疑冰毒，估計市值約3億6千萬元，拘捕3名懷疑涉案男子。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794334-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794334-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794334-20250305.htm)
 
 ---

@@ -1,3 +1,28 @@
+# 日股半日升0.8%
+
+![日經平均指數上午收市報37726點，升307點，升幅0.82%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794506_1_20250306104226.jpg&q=35)
+  
+
+日本股市半日上升，日經平均指數上午收市報37726點，升307點，升幅0.82%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm)
+
+---
+
 # 港股重上24000點　科技股上升　長和再升逾4%
 
 ![恒生指數初段高見24116點，較早時報24089點，升495點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794499_1_20250306094212.jpg&q=20)
@@ -1682,30 +1707,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm)
-
----
-
-# 全國兩會｜發改委等部委明日下午舉行經濟主題記者會
-
-![發改委等部委明日下午舉行經濟主題記者會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794363_2_20250305140618.jpg&q=80)
-  
-
-十四屆全國人大三次會議明日下午3時舉行經濟主題記者會，國家發改委主席鄭柵潔、財政部部長藍佛安、商務部部長王文濤、人民銀行行長潘功勝、中國證監會主席吳清，將會就發展改革、財政預算、商務、金融證券等相關問題回答中外記者提問。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm)
 
 ---
