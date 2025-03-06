@@ -1,3 +1,55 @@
+# 天文台稱正午市區氣溫約13度　料今晚及明早氣溫進一步下降
+
+  
+
+天文台表示，一股東北季候風正影響華南沿岸，一道廣闊雲帶亦為該區帶來幾陣雨。正午時分，本港市區氣溫在13度左右，新界再低一兩度。預料今晚及明早氣溫會進一步下降，呼籲市民留意天氣變化，注意保暖，並關顧長者及慢性病患者。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm)
+
+---
+
+# 消委會發現不少私營醫療機構價目資料難明　建議網上公布價目表
+
+  
+
+消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm)
+
+---
+
 # 鄒幸彤沒提供資料案上訴得直　譚得志煽動文字案被駁回上訴
 
   
@@ -56,6 +108,7 @@
 
 # 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
 
+![李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794521_1_20250306124830.jpg&q=80)
   
 
 行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
@@ -112,6 +165,7 @@
 
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_1_20250306124856.jpg&q=80)
   
 
 主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
@@ -1680,64 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm)
-
----
-
-# 全國兩會｜霍啟剛稱政府工作報告穩大局　吳秋北指香港有更多發展
-
-![霍啟剛指工作報告有「穩大局」面向世界的角色，同時「穩信心」。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794360_1_20250305134426.jpg&q=85)
-![吳秋北認為，在粵港澳大灣區建設制度機制要有更多連接，令大灣區動能發揮更大作用。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794360_2_20250305134426.jpg&q=80)
-  
-
-國務院總理李強發表內任第二份政府工作報告，在北京，港區人大代表霍啟剛表示，當前確實面臨很多挑戰，世界局面正在變化，工作報告有「穩大局」面向世界的角色，同時「穩信心」，對過往一年的經濟指標給予肯定。他又認為報告為未來的前進步伐提供清晰路徑及藍圖。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
-
----
-
-# 恒指下午初段升逾400點
-
-![恒生指數較早時報23361點，升419點，升幅1.83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794358_1_20250305131459.jpg&q=75)
-  
-
-港股下午開市初段升逾400點，恒生指數較早時報23361點，升419點，升幅1.83%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm)
 
 ---

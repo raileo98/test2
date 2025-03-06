@@ -1,3 +1,31 @@
+# 全國兩會｜西藏自治區推動國家公民與法治意識教育獲支持
+
+  
+
+在北京，全國人大代表、西藏自治區政府主席嘎瑪澤登表示，西藏政府持續推進藏傳佛教中國化，開展反分裂鬥爭，深化拓展國家意識、公民意識和法治意識的「三個意識」，社會穩定態勢持續向好。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm)
+
+---
+
 # 全國兩會｜西藏自治政府主席稱深化三個意識　不受反華勢力干擾
 
   
@@ -28,6 +56,7 @@
 
 # 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
 
+![李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794521_1_20250306124830.jpg&q=80)
   
 
 行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
@@ -51,34 +80,6 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm)
-
----
-
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -107,6 +108,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_1_20250306124856.jpg&q=80)
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -1702,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794319-20250305.htm)
-
----
-
-# 全國兩會｜提升粵港澳大灣區等經濟發展優勢區城創新能力
-
-![報告指出，提升京津冀、長三角、粵港澳大灣區等經濟發展優勢區城的創新能力和幅射帶動作用。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794318_1_20250305103426.jpg&q=1)
-  
-
-國務院總理李強在政府工作報告指出，要加大區域戰略實施力度，發揮區域協調發展戰略、區域重大戰略、主體功能區戰略的疊加效應，積極培育新的增長極。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794318-20250305.htm)
 
 ---

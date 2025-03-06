@@ -1,5 +1,35 @@
+# 市建局旺角項目截收意向　分析料項目發展促進服務或降低流標風險
+
+![萊坊估計，市建局山東街/地士道街發展項目估值介乎6.5億至8億元，相信「項目發展促進服務」有助降低流標風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794526_1_20250306124632.jpg&q=80)
+  
+
+市建局九龍山東街/地士道街發展項目中午截收合作發展意向書。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm)
+
+---
+
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_1_20250306124856.jpg&q=80)
   
 
 主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
@@ -1688,34 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm)
-
----
-
-# 全國兩會｜西安納入港澳「個人遊」　陝西省副省長稱成效理想
-
-![徐明非指兩地來往越來越多，未來也會有全方位計劃，包括在文物、展覽和文化旅遊等方面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794376_1_20250305150231.jpg&q=80)
-  
-
-陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
 
 ---

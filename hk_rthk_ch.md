@@ -1,3 +1,112 @@
+# 全國兩會｜西藏自治區推動國家公民與法治意識教育獲支持
+
+  
+
+在北京，全國人大代表、西藏自治區政府主席嘎瑪澤登表示，西藏政府持續推進藏傳佛教中國化，開展反分裂鬥爭，深化拓展國家意識、公民意識和法治意識的「三個意識」，社會穩定態勢持續向好。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm)
+
+---
+
+# 天文台稱正午市區氣溫約13度　料今晚及明早氣溫進一步下降
+
+  
+
+天文台表示，一股東北季候風正影響華南沿岸，一道廣闊雲帶亦為該區帶來幾陣雨。正午時分，本港市區氣溫在13度左右，新界再低一兩度。預料今晚及明早氣溫會進一步下降，呼籲市民留意天氣變化，注意保暖，並關顧長者及慢性病患者。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm)
+
+---
+
+# 市建局旺角項目截收意向　分析料項目發展促進服務或降低流標風險
+
+![萊坊估計，市建局山東街/地士道街發展項目估值介乎6.5億至8億元，相信「項目發展促進服務」有助降低流標風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794526_1_20250306124632.jpg&q=80)
+  
+
+市建局九龍山東街/地士道街發展項目中午截收合作發展意向書。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm)
+
+---
+
+# 消委會發現不少私營醫療機構價目資料難明　建議網上公布價目表
+
+  
+
+消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm)
+
+---
+
 # 鄒幸彤沒提供資料案上訴得直　譚得志煽動文字案被駁回上訴
 
   
@@ -84,6 +193,7 @@
 
 # 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
 
+![李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794521_1_20250306124830.jpg&q=80)
   
 
 行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
@@ -140,6 +250,7 @@
 
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_1_20250306124856.jpg&q=80)
   
 
 主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
@@ -1594,121 +1705,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm)
-
----
-
-# 美股初段靠穩　道指升逾百點　美元指數跌穿105關口
-
-![美元指數跌穿105關口，一度跌至104.49附近，創近4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794454_1_20250305224218.jpg&q=90)
-  
-
-美股初段靠穩。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794454-20250305.htm)
-
----
-
-# 美國停向烏方分享情報　若安排好和談並建立信任特朗普或恢復軍援
-
-![沃爾茲說，如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794453_1_20250305223835.jpg&q=90)
-  
-
-白宮國家安全顧問沃爾茲確認，美國已暫停向烏克蘭分享情報，又說如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm)
-
----
-
-# 前小學校長被控挪用校董會一千多萬元　因被告身亡控方撤回控罪
-
-![控方透露已取被告死亡證，申請撤回控罪，獲法庭批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794452_1_20250305223247.jpg&q=80)
-  
-
-前小學校長涉挪用優才（楊殷有娣）學校校董會1000多萬元，被控盜竊罪。案件早前首次提堂當日早上，被告墮樓搶救後證實不治身亡。案件今早於觀塘裁判法院再訊，控方透露已取被告死亡證，申請撤回控罪，獲署理主任裁判官梁嘉琪批准。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm)
-
----
-
-# 醫管局高層莊慧敏與丈夫盜竊罪成　申請終院上訴許可被駁回
-
-![法官指，上訴時已處理相關事項，上訴方如今只是包裝成不同辭據，因此駁回申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794450_1_20250305222639.jpg&q=80)
-  
-
-醫管局總行政經理莊慧敏與丈夫骨科醫生趙名宇，前年涉在黃埔花園一間超市偷取刺身、水果等共值逾1600元的食物，審訊後兩人被裁定盜竊罪成，各被判罰款5000元。兩夫婦上訴指，受警員誤導又威逼利誘才不自願地招認，遭暫委法官姚勳智駁回上訴。兩夫婦今日在高等法院再申請終審法院上訴許可證明書，法官指上訴時已處理上述事項，上訴方如今僅將之包裝成不同辭據，駁回申請。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm)
 
 ---
