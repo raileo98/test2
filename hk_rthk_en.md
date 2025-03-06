@@ -1,3 +1,32 @@
+# EU leaders, Zelensky, gather for crisis Ukraine talks
+
+![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=55)
+  
+
+EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in Brussels in search of unity on bolstering Ukraine and Europe's defences, after US President Donald Trump upended traditional US alliances and retracted wartime backing for Kyiv.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm)
+
+---
+
 # Trump sends new warning to Hamas over Gaza hostages
 
 ![The US President's warning came hours after his administration revealed it held unprecedented direct talks with Hamas, focused on American hostages. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794601_1_20250306185235.jpg&q=75)
@@ -1710,34 +1739,5 @@ President Volodymyr Zelensky on Tuesday said he wanted to "make things right" wi
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
-
----
-
-# Mavs' Irving ruled out for NBA season with ACL injury
-
-![Irving was helped off the court in the Mavericks' game against the Sacramento Kings. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794261_1_20250305054216.jpg&q=35)
-  
-
-Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA season after suffering a torn anterior cruciate ligament (ACL) in his left knee, according to media reports.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm)
 
 ---
