@@ -1,3 +1,32 @@
+# 新世界發展：專注地產本業　多個住宅項目今年內動工
+
+![新世界發展行政總裁黃少媚（右四）等管理層主持九龍塘玫瑰街低密度豪宅項目動工儀式。（公司提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794512_1_20250306113650.jpg&q=85)
+  
+
+新世界發展位於九龍塘玫瑰街低密度豪宅項目近日舉行動工儀式。集團執行董事兼行政總裁黃少媚、執行董事兼物業發展主管薛南海等一眾管理層主持儀式。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm)
+
+---
+
 # 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
 
 ![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=75)
@@ -1683,30 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
-
----
-
-# 台股回升1.2%收市
-
-![台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794369_1_20250305142804.jpg&q=85)
-  
-
-台股自逾3個月低位回升，加權指數收市報22871點，升275點，升幅1.22%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm)
 
 ---
