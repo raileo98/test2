@@ -1,3 +1,31 @@
+# 美商務部長︰一個月關稅豁免或至所符合《美墨加協定》產品
+
+  
+
+美國商務部長盧特尼克說，給予墨西哥和加拿大汽車產品為期一個月的關稅豁免，很可能會擴大至所有符合《美墨加協定》的產品。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm)
+
+---
+
 # 杜魯多稱與美國貿易戰在可預見未來將繼續
 
   
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm)
-
----
-
-# 烏國總理：仍有能力向前線部隊補給　會竭盡全力維持與美國關係
-
-![什梅加爾表示，基輔將竭盡全力維持與華盛頓的關係。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794231_1_20250304214849.jpg&q=90)
-  
-
-美國總統特朗普據報決定暫停美國對烏克蘭的軍事援助，直到他確定烏克蘭領導人表現出對達成俄烏和平協議的誠意。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm)
 
 ---
