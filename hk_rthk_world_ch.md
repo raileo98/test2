@@ -1,3 +1,32 @@
+# 《環看天下》：特朗普向加墨實施關稅　分析指衝擊貿易一體化
+
+![福特是其中一間獲一個月關稅豁免汽車製造商。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794657_1_20250307073641.jpg&q=80)
+  
+
+美國總統特朗普簽署行政令，調整對加拿大和墨西哥加徵關稅措施，對符合《美墨加協定》優惠條件的進口商品豁免徵收關稅。豁免政策將持續至4月2日。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm)
+
+---
+
 # 美私人企業月球登陸器降落月球　公司稱未能直立或影響任務完成
 
 ![「雅典娜」月球登陸器上月底發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794651_1_20250307063009.jpg&q=85)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm)
-
----
-
-# 克宮：普京未提及與美國聯合開採稀土
-
-![佩斯科夫表示，俄美關係正常化應該包括美國解除對俄制裁。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794249_1_20250305032959.jpg&q=85)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京只是表達俄羅斯有意與美國在稀土金屬領域開展合作，並探討相關潛在機遇，並未提及聯合開採。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm)
 
 ---

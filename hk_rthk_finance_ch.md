@@ -1,3 +1,32 @@
+# 金沙中國：戈德斯坦將於明年3月辭任主席等職務
+
+![金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席等職務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794656_1_20250307071626.jpg&q=90)
+  
+
+金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席兼非執行董事等職務。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![ATMXJ的ADR較本港收市跌逾1%至近5%，以京東跌幅較大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794652_1_20250307062201.jpg&q=35)
@@ -1691,35 +1720,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm)
-
----
-
-# 消委會發現不少私營醫療機構價目資料難明　建議網上公布價目表
-
-![消委會硏究發現，不少私營醫療機構價目資料難明及不足；病人之間收費差距甚大。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_1_20250306125218.jpg&q=1)
-![消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_2_20250306181706.jpg&q=75)
-  
-
-消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm)
 
 ---

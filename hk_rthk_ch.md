@@ -1,3 +1,61 @@
+# 《環看天下》：特朗普向加墨實施關稅　分析指衝擊貿易一體化
+
+![福特是其中一間獲一個月關稅豁免汽車製造商。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794657_1_20250307073641.jpg&q=80)
+  
+
+美國總統特朗普簽署行政令，調整對加拿大和墨西哥加徵關稅措施，對符合《美墨加協定》優惠條件的進口商品豁免徵收關稅。豁免政策將持續至4月2日。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm)
+
+---
+
+# 金沙中國：戈德斯坦將於明年3月辭任主席等職務
+
+![金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席等職務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794656_1_20250307071626.jpg&q=90)
+  
+
+金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席兼非執行董事等職務。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm)
+
+---
+
 # 歐霸盃16強首回合熱刺不敵阿爾克馬爾　曼聯被皇蘇逼和
 
 ![熱刺首回合輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_1_20250307070916.jpg&q=80)
@@ -1676,59 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm)
-
----
-
-# 勞聯調查指逾三成受訪婦女一星期內間中或常常面對抑鬱及壓力問題
-
-![勞聯建議推動全港婦女健康檢查運動，設立「婦女身體檢查津貼」，資助合資格基層婦女進行身體檢查。（勞聯提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794587_1_20250306180634.jpg&q=65)
-  
-
-勞聯一項調查發現，超過三成受訪婦女在受訪前的過去一星期內，間中或常常面對抑鬱及壓力問題，但只有9.7%的受訪婦女在面對情緒問題時會尋求專業幫助，勞聯認為結果反映本港婦女心理健康支援服務的宣傳與接收度不足。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm)
-
----
-
-# 全國兩會｜王文濤︰相信「辦法總比困難多」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794586_1_20250306181504.jpg&q=20)
-  
-
-商務部部長王文濤，被問到如何看待今年外貿發展面臨形勢時說，個別國家揮舞「關稅大棒」，國家外貿發展面臨嚴峻形勢，但相信「辦法總比困難多」，完全有信心、有底氣穩住外貿基本盤。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm)
 
 ---
