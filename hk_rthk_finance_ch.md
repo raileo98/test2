@@ -1,3 +1,32 @@
+# 現貨金回軟　因美債息上升
+
+![現貨金較早時報每盎司2912.2美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794647_1_20250307052551.jpg&q=25)
+  
+
+現貨金結束連續3日升勢，受美債息上升拖累。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm)
+
+---
+
 # 國際油價收市靠穩
 
 ![國際油價反覆靠穩，英美期油收市升近0.1%至0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794646_1_20250307051909.jpg&q=85)
@@ -1692,34 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
-# 恒指半日升622點　科指升近半成　主板半日成交逾2000億元
-
-![恒指中午收市報24216點，升622點，升幅2.6%，半日主板成交額近2168億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794518_1_20250306121205.jpg&q=40)
-  
-
-港股連升兩日，恒生指數升穿24000點關口，高見24262點，創逾3年新高，中午收市報24216點，升622點，升幅2.6%，半日主板成交額突破2000億元，有近2168億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm)
 
 ---
