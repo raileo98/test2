@@ -1,5 +1,34 @@
+# 電動車暗格藏約520萬元走私燕窩及受管制魚肚　司機被海關拘捕
+
+  
+
+一輛經港珠澳大橋出境的私家車，懷疑企圖走私約值520萬元的燕窩及受管制魚肚，海關拘捕53歲司機，他獲准保釋候查，私家車被海關扣查。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm)
+
+---
+
 # 勞工處籲僱主及僱員在寒冷天氣下採取預防措施
 
+![勞工處提醒僱主，由於寒冷天氣警告生效，僱主應採取適當的預防措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794566_1_20250306164936.jpg&q=80)
   
 
 天文台在下午4時20分發出寒冷天氣警告。
@@ -28,6 +57,7 @@
 
 # 社署提醒長者注意天氣寒冷保重身體
 
+![社署提醒長者注意保重身體，並呼籲其親友和鄰居多關心及慰問體弱長者的身體狀況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794565_1_20250306165005.jpg&q=45)
   
 
 天文台在下午4時20分發出寒冷天氣警告。
@@ -85,6 +115,7 @@
 
 # 天氣寒冷　衞生防護中心籲市民採取適當措施保障健康
 
+![衞生防護中心表示，由於天氣寒冷，市民特別是長者和長期病患者應採取適當措施，保障健康。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794563_1_20250306165027.jpg&q=75)
   
 
 天文台在下午4時20分發出寒冷天氣警告。
@@ -166,6 +197,7 @@
 
 # 天文台發出寒冷天氣警告　今晚及明早寒冷市區最低氣溫約12度
 
+![天文台預測，本港今晚及明早天氣寒冷，市區最低氣溫約12度左右，新界再低一兩度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794560_1_20250306165057.jpg&q=80)
   
 
 天文台在下午4時20分發出寒冷天氣警告。
