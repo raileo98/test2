@@ -1,3 +1,61 @@
+# 國際油價收市靠穩
+
+![國際油價反覆靠穩，英美期油收市升近0.1%至0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794646_1_20250307051909.jpg&q=85)
+  
+
+國際油價反覆靠穩，受關稅不確定性，以及石油輸出國組織及其盟友(OPEC+)增產計劃影響。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm)
+
+---
+
+# 歐股收市個別發展
+
+![歐洲主要股市收市個別發展，德國DAX指數升幅近1.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794645_1_20250307051136.jpg&q=85)
+  
+
+歐洲主要股市收市個別發展。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm)
+
+---
+
 # 美元指數失守104　創4個月新低
 
 ![美元指數連續4日下挫，較早時失守104水平，低見103.74，創4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794633_1_20250306234219.jpg&q=45)
@@ -1663,63 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm)
-
----
-
-# 內地股市半日升逾1%至逾2%
-
-![內地股市半日升逾1%至逾2%，上證綜合指數上午收市報3377點，升35點，升幅1.05%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794513_1_20250306113938.jpg&q=75)
-  
-
-滬深股市半日升逾1%至逾2%，人工智能相關股份上升，銀行和鋼鐵等股份下跌。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm)
-
----
-
-# 新世界發展：專注地產本業　多個住宅項目今年內動工
-
-![新世界發展行政總裁黃少媚（右四）等管理層主持九龍塘玫瑰街低密度豪宅項目動工儀式。（公司提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794512_1_20250306113650.jpg&q=65)
-  
-
-新世界發展位於九龍塘玫瑰街低密度豪宅項目近日舉行動工儀式。集團執行董事兼行政總裁黃少媚、執行董事兼物業發展主管薛南海等一眾管理層主持儀式。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm)
 
 ---

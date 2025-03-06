@@ -1,5 +1,64 @@
+# 國際油價收市靠穩
+
+![國際油價反覆靠穩，英美期油收市升近0.1%至0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794646_1_20250307051909.jpg&q=85)
+  
+
+國際油價反覆靠穩，受關稅不確定性，以及石油輸出國組織及其盟友(OPEC+)增產計劃影響。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm)
+
+---
+
+# 歐股收市個別發展
+
+![歐洲主要股市收市個別發展，德國DAX指數升幅近1.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794645_1_20250307051136.jpg&q=85)
+  
+
+歐洲主要股市收市個別發展。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm)
+
+---
+
 # 美烏官員擬下周於沙特會談　澤連斯基︰烏方將與特朗普合作
 
+![威特科夫表示，美方正在協調在沙特阿拉伯同烏克蘭代表團會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794644_1_20250307052422.jpg&q=80)
   
 
 美國和烏克蘭官員計劃下星期在沙特阿拉伯舉行會議，討論結束俄烏戰爭。
@@ -1669,63 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm)
-
----
-
-# 港鐵去年香港客運服務盈利升38%　鐵路及巴士乘客量升3%
-
-![港鐵去年旗下鐵路及巴士總乘客量19.54億人次，按年升3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794575_1_20250306171929.jpg&q=70)
-  
-
-港鐵去年總收入600.11億元，按年升逾5%。當中，香港客運服務收入升12%至283.6億元，盈利貢獻增長38%至37.1億元。其中，車務營運虧損收窄94%至6300萬元，車站商務盈利跌0.5%至37.7億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm)
-
----
-
-# 在岸人民幣兌美元高收152點子　創近1個半月新高
-
-![在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，創近1個半月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794574_1_20250306170858.jpg&q=20)
-  
-
-在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，升幅0.21%，創近1個半月新高。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm)
 
 ---
