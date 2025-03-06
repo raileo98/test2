@@ -1,3 +1,31 @@
+# 全國兩會｜西藏目前經濟文化繁榮　定日縣地震災後已復課
+
+  
+
+全國人大西藏自治區代表團早上舉行全體會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm)
+
+---
+
 # 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794489_1_20250306093915.jpg&q=80)
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
-
----
-
-# 全國兩會｜李強：穩定擴大就業　讓多勞者、技高者及創新者多得
-
-![李強在政府工作報告指出，提高技能人才待遇水準，讓多勞者多得、技高者多得、創新者多得。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794311_1_20250305103932.jpg&q=85)
-  
-
-國務院總理李強在政府工作報告指出，要更大力度穩定和擴大就業，完善就業優先政策，加大各類資金資源統籌支持力度，促進充分就業、提高就業質量，實施重點領域、重點行業、城鄉基層和中小微企業就業支持計劃，用足用好穩崗返還、稅費減兔、就業補貼等政策。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm)
 
 ---

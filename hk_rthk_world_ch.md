@@ -1,3 +1,31 @@
+# 韓美軍演有炮彈落入社區有人受傷　當局正確認具體情況
+
+  
+
+韓美軍事演習懷疑有炮彈落入社區，最少7人受傷。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm)
+
+---
+
 # 特朗普給予三間車企一個月關稅豁免　與杜魯多商關稅和芬太尼問題
 
 ![福特（圖）等三大汽車製造商，獲給予為期一個月的關稅豁免。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794504_1_20250306103458.jpg&q=70)
@@ -1708,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794161-20250304.htm)
-
----
-
-# 中方發布多項對美反制措施　下周一起對美國部分商品加徵關稅
-
-![商務部、國務院關稅稅則委員會接連發布多項對美反制措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794150_1_20250304142600.jpg&q=30)
-  
-
-美國將對中國產品加徵的關稅，由之前的10%提高到20%。在北京，商務部、國務院關稅稅則委員會接連發布多項對美反制措施。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794150-20250304.htm)
 
 ---

@@ -1,3 +1,88 @@
+# 全國兩會｜西藏目前經濟文化繁榮　定日縣地震災後已復課
+
+  
+
+全國人大西藏自治區代表團早上舉行全體會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm)
+
+---
+
+# 韓美軍演有炮彈落入社區有人受傷　當局正確認具體情況
+
+  
+
+韓美軍事演習懷疑有炮彈落入社區，最少7人受傷。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm)
+
+---
+
+# 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
+
+![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=75)
+  
+
+積金易平台昨日展開第二階段上線工作。積金局行政總監及執行董事鄭恩賜表示，第二階段首個計劃上台後，總資產值佔比升至3%，平台僱主帳戶資料經已有1.1萬個，涉及僱員數目40多萬個。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm)
+
+---
+
 # 譚得志煽動案上訴被終審法院駁回
 
   
@@ -48,6 +133,8 @@
 
 # 孫東在巴塞羅那出席世界移動通信大會並考察當地超算中心
 
+![孫東在全球移動通信系統協會（GSMA）部長級會議「2025+- A Tech Odyssey」環節中發表主旨演講。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_1_20250306105940.jpg&q=80)
+![孫東（右三）和代表團一行考察巴塞羅那超算中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_2_20250306105940.jpg&q=75)
   
 
 創新科技及工業局局長孫東率領創新科技業界代表團繼續在西班牙巴塞羅那的訪問行程，並出席世界移動通信大會2025。
@@ -106,6 +193,11 @@
 # 支聯會拒交資料案終極上訴得直　鄒幸彤等3人獲撤銷定罪
 
 ![支聯會拒交資料案，鄒幸彤等3人獲撤銷定罪。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794503_1_20250306104047.jpg&q=75)
+  
+
+已解散的支聯會前副主席鄒幸彤與兩名前常委鄧岳君和徐漢光，2021年沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成，判囚4個半月。3人向終審法院提出終極上訴，終院今日頒下判詞，5名終院法官一致裁定3人上訴得直，撤銷各人的定罪及刑罰。
+  
+
   
 
 
@@ -1618,92 +1710,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm)
-
----
-
-# 格陵蘭自治政府總理：既不想成為丹麥人亦不想成為美國人
-
-![格陵蘭將舉行自治政府議會選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794433_1_20250305201506.jpg&q=90)
-  
-
-美國總統特朗普在國會聯席會議發言時表示，美國支持格陵蘭的未來選擇，並歡迎格陵蘭加入美國，認為美國最終會得到格陵蘭。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm)
-
----
-
-# 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
-
-![習近平（左）表示，經濟大省要挑大樑，為全國發展大局做貢獻。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=90)
-  
-
-國家主席習近平表示，要全面落實民營企業座談會精神，一視同仁對待各種所有制企業，持續優化營商環境，要深化要素市場化配置改革，主動破除地方保護、市場分割及內卷式競爭。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm)
-
----
-
-# 全國兩會｜李書福：吉利不打價格戰　新能源汽車發展有點急功近利
-
-![李書福表示，吉利堅決不打價格戰，又指新能源汽車發展確實有點急功近利，因為行業競爭太激烈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794434_1_20250305201908.jpg&q=90)
-  
-
-全國政協委員、吉利控股集團董事長李書福表示，集團堅決不打價格戰，而是打技術戰、品質戰、服務戰、品牌戰等。他說，任何產業的可持續發展要有效率，亦要有創新能力，不能走上內卷式惡性競爭道路。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794434-20250305.htm)
 
 ---

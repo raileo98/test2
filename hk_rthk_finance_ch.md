@@ -1,3 +1,32 @@
+# 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
+
+![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=75)
+  
+
+積金易平台昨日展開第二階段上線工作。積金局行政總監及執行董事鄭恩賜表示，第二階段首個計劃上台後，總資產值佔比升至3%，平台僱主帳戶資料經已有1.1萬個，涉及僱員數目40多萬個。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm)
+
+---
+
 # 日股半日升0.8%
 
 ![日經平均指數上午收市報37726點，升307點，升幅0.82%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794506_1_20250306104226.jpg&q=35)
@@ -1678,34 +1707,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794369-20250305.htm)
-
----
-
-# 全國兩會｜金融監管總局擬擴大對科技企業併購貸款等4項試點工作
-
-![李雲澤表示，今年金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794366_1_20250305140933.jpg&q=80)
-  
-
-國家金融監督管理總局局長李雲澤表示，去年金融監管總局將金融資產投資公司股權投資試點範圍擴大到全國18個城市，取得積極成效，簽約金額已經超過3500億元人民幣。今年，金融監管總局計劃進一步擴大試點區域，並允許更多金融機構參與。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794366-20250305.htm)
 
 ---

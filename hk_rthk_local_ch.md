@@ -1,3 +1,32 @@
+# 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
+
+![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=75)
+  
+
+積金易平台昨日展開第二階段上線工作。積金局行政總監及執行董事鄭恩賜表示，第二階段首個計劃上台後，總資產值佔比升至3%，平台僱主帳戶資料經已有1.1萬個，涉及僱員數目40多萬個。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm)
+
+---
+
 # 譚得志煽動案上訴被終審法院駁回
 
   
@@ -23,6 +52,8 @@
 
 # 孫東在巴塞羅那出席世界移動通信大會並考察當地超算中心
 
+![孫東在全球移動通信系統協會（GSMA）部長級會議「2025+- A Tech Odyssey」環節中發表主旨演講。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_1_20250306105940.jpg&q=80)
+![孫東（右三）和代表團一行考察巴塞羅那超算中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_2_20250306105940.jpg&q=75)
   
 
 創新科技及工業局局長孫東率領創新科技業界代表團繼續在西班牙巴塞羅那的訪問行程，並出席世界移動通信大會2025。
@@ -52,6 +83,11 @@
 # 支聯會拒交資料案終極上訴得直　鄒幸彤等3人獲撤銷定罪
 
 ![支聯會拒交資料案，鄒幸彤等3人獲撤銷定罪。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794503_1_20250306104047.jpg&q=75)
+  
+
+已解散的支聯會前副主席鄒幸彤與兩名前常委鄧岳君和徐漢光，2021年沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成，判囚4個半月。3人向終審法院提出終極上訴，終院今日頒下判詞，5名終院法官一致裁定3人上訴得直，撤銷各人的定罪及刑罰。
+  
+
   
 
 
@@ -1702,34 +1738,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
-
----
-
-# 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=80)
-  
-
-在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚賽事未完結，有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。文化體育及旅遊局局長羅淑佩表示，昨晚主辦單位的安排非常不理想，她亦向受影響球迷表達關心和致歉。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794338-20250305.htm)
 
 ---
