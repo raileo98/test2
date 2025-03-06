@@ -1,3 +1,59 @@
+# 20歲男子攜太空油毒品電子煙由深圳抵港被捕
+
+  
+
+一名從羅湖入境的男子懷疑藏有太空油毒品的電子煙，被海關拘捕，男子獲准保釋候查。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm)
+
+---
+
+# 白表居屋第二市場計劃接受申請　有符合青年計劃市民稱中籤機會增
+
+  
+
+「白表居屋第二市場計劃2024」今日開始接受申請，為期3星期，今次配額大幅增加1500個至6000個，新增的1500個為「青年計劃白居二」配額，全數撥予40歲以下的青年申請者，其餘4500個屬一般配額。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm)
+
+---
+
 # 全國兩會｜藍佛安：實施更積極財政政策　持續用力　更加給力
 
   

@@ -1,3 +1,59 @@
+# 20歲男子攜太空油毒品電子煙由深圳抵港被捕
+
+  
+
+一名從羅湖入境的男子懷疑藏有太空油毒品的電子煙，被海關拘捕，男子獲准保釋候查。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm)
+
+---
+
+# 白表居屋第二市場計劃接受申請　有符合青年計劃市民稱中籤機會增
+
+  
+
+「白表居屋第二市場計劃2024」今日開始接受申請，為期3星期，今次配額大幅增加1500個至6000個，新增的1500個為「青年計劃白居二」配額，全數撥予40歲以下的青年申請者，其餘4500個屬一般配額。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm)
+
+---
+
 # 食環署防範私人泳池聘不合資格救生員　持牌人須核對救生員資格
 
 ![食環署計劃今年泳季起採取措施，加強防範和打擊私人泳池懷疑聘用不合資格救生員當值的違規情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794545_1_20250306150102.jpg&q=70)
@@ -1678,64 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794380-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794380-20250305.htm)
-
----
-
-# 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
-
-![譚鐵牛表示，大家應該愛惜香港這個地方，努力把香港建設得更好。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_2_20250305161050.jpg&q=75)
-![呂成蹊說，粵港澳三地合辦全運會體現大灣區合作精神，有助推動體育經濟發展，亦有利大灣區融合。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_3_20250305161201.jpg&q=80)
-  
-
-在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm)
-
----
-
-# 港股升幅擴大至逾600點　科指升逾3%
-
-![恒生指數較早時報23547點，升605點，升幅2.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794377_1_20250305145753.jpg&q=20)
-  
-
-港股升幅擴大至逾600點，恒生指數較早時報23547點，升605點，升幅2.64%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm)
 
 ---
