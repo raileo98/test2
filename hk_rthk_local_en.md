@@ -1,3 +1,32 @@
+# "Home demand is keen": govt rejects oversupply claims
+
+![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=25)
+  
+
+Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
+
+---
+
 # Thanks to property gains, MTR profit more than doubles
 
 ![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=35)
@@ -1709,34 +1738,5 @@ Secretary for Commerce and Economic Development Algernon Yau on Friday said auth
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm)
-
----
-
-# Ethnic minority advocacy group Unison to wind up
-
-![The executive committee chair of Hong Kong Unison, Alice Chong, middle, says its “historical mission has been successfully accomplished”. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793653_2_20250228164445.jpg&q=75)
-  
-
-Hong Kong Unison, a group advocating the rights of the city's ethnic minorities, on Friday announced it was starting its dissolution process, saying its “historical mission has been successfully accomplished.”
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm)
 
 ---

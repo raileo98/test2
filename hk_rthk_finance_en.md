@@ -1,3 +1,32 @@
+# "Home demand is keen": govt rejects oversupply claims
+
+![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=25)
+  
+
+Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
+
+---
+
 # Thanks to property gains, MTR profit more than doubles
 
 ![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=35)
@@ -1706,34 +1735,5 @@ Wall Street stocks dropped on Thursday following disappointing results from Walm
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792541-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792541-20250221.htm)
-
----
-
-# Slight uptick in HK bad loans seen in 2024: BEA
-
-![The Bank of East Asia delivered a 12 percent increase in its net profits in 2024, to HK$4.6 billion. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792489_1_20250220180623.jpg&q=45)
-  
-
-The Bank of East Asia (BEA) on Thursday said it has been closely monitoring risks related to its exposure to the Hong Kong property sector as there was a slight uptick in so-called "bad loans" last year.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792489-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792489-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792489-20250220.htm)
 
 ---

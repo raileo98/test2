@@ -1,3 +1,61 @@
+# 美國1月貿易赤字按月擴大約34%　超出預期
+
+![美國1月貿易赤字重上千億美元水平，達到1314億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794624_1_20250306221320.jpg&q=20)
+  
+
+美國1月貿易赤字重上千億美元水平，達到1314億美元，超出預期，按月擴大約34%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm)
+
+---
+
+# 美國上星期新申領失業救濟人數22.1萬人　減幅超出預期
+
+![美國上星期新申領失業救濟人數減少至22.1萬人，按星期減少2.1萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794623_1_20250306220734.jpg&q=80)
+  
+
+美國上星期新申領失業救濟人數減少至22.1萬人，按星期減少2.1萬人，減幅超出市場預期。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm)
+
+---
+
 # 政府歡迎終院維持譚得志案裁決　另備悉支聯會案判決將研究判詞
 
 ![政府回應終審法院就「譚得志上訴案」及「支聯會拒交資料案」裁決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794622_2_20250306220034.jpg&q=55)
@@ -58,6 +116,7 @@
 
 # 全國兩會｜李慧琼支持國家積極財政政策　拉動消費刺激內需
 
+![李慧琼說，政府工作報告中的規劃及財政預算「全面、穩中有進」。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794620_1_20250306220901.jpg&q=50)
   
 
 港區全國人大代表團繼續審議政府工作報告及相關報告。副團長陳勇說，各代表在會上積極建言獻策，提供過去一年累積整理的真知灼見。
@@ -115,7 +174,8 @@
 
 # 元朗兩部貨車疑作流動倉庫及分銷私煙　涉案男子保釋候查
 
-![海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=50)
+![海關在輕型貨車檢獲約18萬支懷疑私煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=50)
+![關員之後在另一部貨車內檢獲約85萬支懷疑私煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_2_20250306220332.jpg&q=75)
   
 
 兩部貨車懷疑被用作私煙的流動倉庫及分銷私煙，海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」，即非主流牌子，品質較差的香煙。

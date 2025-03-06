@@ -1,3 +1,32 @@
+# World's sea ice cover hits record low in February
+
+![In the Antarctic the frozen cover was 26 percent below average across February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794625_1_20250306221837.jpg&q=40)
+  
+
+Global sea ice cover fell to a historic low in February when the world continued to experience exceptional heat, and temperatures reached 11 degrees Celsius above average near the North Pole, Europe's climate monitor said on Thursday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm)
+
+---
+
 # EU leaders, Zelensky, gather for crisis Ukraine talks
 
 ![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=55)
@@ -1711,34 +1740,5 @@ Hamas will hand over the bodies of four Israeli hostages on Thursday in what it 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm)
-
----
-
-# Power mostly restored after blackout hits Chile
-
-![A drone shot shows a general view of Concepcion, during a major power outage that affected vast swathes of Chile. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793291_1_20250226151351.jpg&q=90)
-  
-
-Chilean authorities said they had restored power to most homes on Wednesday, hours after a massive, rare blackout caused transport chaos in the capital and forced the president to declare a state of emergency and curfew across much of the country.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793291-20250226.htm)
 
 ---

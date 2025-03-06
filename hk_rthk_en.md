@@ -1,3 +1,61 @@
+# "Home demand is keen": govt rejects oversupply claims
+
+![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=25)
+  
+
+Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
+
+---
+
+# World's sea ice cover hits record low in February
+
+![In the Antarctic the frozen cover was 26 percent below average across February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794625_1_20250306221837.jpg&q=40)
+  
+
+Global sea ice cover fell to a historic low in February when the world continued to experience exceptional heat, and temperatures reached 11 degrees Celsius above average near the North Pole, Europe's climate monitor said on Thursday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm)
+
+---
+
 # EU leaders, Zelensky, gather for crisis Ukraine talks
 
 ![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=55)
@@ -1680,64 +1738,5 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
-
----
-
-# Real Madrid, Arsenal post big Champions League wins
-
-![Real Madrid's Rodrygo celebrates scoring the opening goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_1_20250305071751.jpg&q=85)
-![Arsena's 7-1 win over PSV was their biggest victory away from home in any Champions League match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_2_20250305071751.jpg&q=60)
-  
-
-Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-1 Champions League last 16 first-leg win.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm)
-
----
-
-# Zelensky says he will work with Trump
-
-![In his first public comments since Trump halted US military aid to Ukraine, Zelensky said his public bust-up with Trump last week was "regrettable". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794263_1_20250305061826.jpg&q=90)
-  
-
-President Volodymyr Zelensky on Tuesday said he wanted to "make things right" with Donald Trump and work under the US president's "strong leadership" to secure a lasting peace in Ukraine.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
 
 ---
