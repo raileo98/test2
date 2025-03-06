@@ -1,3 +1,31 @@
+# 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
+
+  
+
+人民銀行行長潘功勝表示，人行將進一步優化科技創新和技術改造再貸款政策，進一步擴大再貸款規模，由現時5000億元人民幣，擴大到8000億元至1萬億元，亦會降低再貸款利率；擴大再貸款支持範圍，大幅提高政策覆蓋面；保持財政貼息力度，進一步減低企業融資成本；優化再貸款政策流程。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm)
+
+---
+
 # 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
 
   
@@ -1699,35 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm)
-
----
-
-# 全國兩會｜田軒稱增長目標助就業民生　蔡冠深對達標感樂觀
-
-![田軒認為，將今年國內生產總值增長目標訂於5%左右，是保持政策延續性，有助穩就業惠民生。（容上智攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794351_1_20250305130741.jpg&q=85)
-![蔡冠深說，對政府能達標感到樂觀，認為人工智能在內地帶來翻天覆地變化，有助帶動產業發展。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794351_2_20250305130741.jpg&q=65)
-  
-
-全國人大代表、經濟學者田軒認為，將今年國內生產總值增長目標訂於5%左右，是保持政策延續性，有助穩就業惠民生。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm)
 
 ---
