@@ -1,3 +1,119 @@
+# Wall Street rebounds after Trump pauses auto tariffs
+
+![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
+  
+
+US stocks climbed on Wednesday after US President Donald Trump pulled back on some of his tariffs temporarily.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
+
+---
+
+# Israel appoints new military chief, says war not over
+
+![Eyal Zamir is replacing Herzi Halevi, who announced his resignation as armed forces chief in January over the military's shortcomings on October 7, 2023. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794466_1_20250306033340.jpg&q=80)
+  
+
+Israel's new military chief Eyal Zamir said his country's mission to defeat Hamas remained unfinished as he took office on Wednesday, with uncertainty hanging over the fragile Gaza ceasefire.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm)
+
+---
+
+# 'AI startups boosting nation's development'
+
+![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=80)
+  
+
+An analyst on Thursday said the advent of artificial intelligence startups such as DeepSeek has been a boon to the nation’s technological development.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm)
+
+---
+
+# Greenlanders shrug off Trump's takeover bid
+
+![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=90)
+  
+
+Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take over the Arctic island, seeing it merely as an opportunity to advance their own independence bid.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm)
+
+---
+
 # Liverpool stun PSG in Champions League; Barca cruise
 
 ![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=90)
@@ -1623,121 +1739,5 @@ The secretary of the Qingdao Municipal Party Committee, and also a delegate to t
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm)
-
----
-
-# China to impose new tariffs on US agricultural goods
-
-![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=80)
-  
-
-China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range of between 10 and 15 percent hikes to import levies covering a basket of American agricultural and food products, while placing 25 US firms under export and investment restrictions.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
-
----
-
-# HK govt still in the dark over new US tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794132_1_20250304123411.jpg&q=80)
-  
-
-Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't know whether new US tariffs on Chinese goods will also cover Hong Kong products, but in any case transit trade could be hit in the short term.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm)
-
----
-
-# US 'pauses' military aid to Ukraine
-
-![US President Donald Trump suspended military aid to Ukraine, a White House official said, sharply escalating pressure on Kyiv to agree to peace talks with Russia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794138_1_20250304131236.jpg&q=90)
-  
-
-US President Donald Trump has paused military aid to Ukraine following his clash with Ukrainian President Volodymyr Zelensky last week, a White House official said, deepening the fissure that has opened between the two one-time allies.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm)
-
----
-
-# Facial recognition mulled after alleged Kai Tak breach
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794130_1_20250304121509.jpg&q=75)
-  
-
-Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without permission, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
 
 ---

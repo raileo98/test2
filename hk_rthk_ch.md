@@ -1,5 +1,54 @@
+# 台股初段靠穩
+
+![台灣加權指數較早時報22913點，升41點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794491_1_20250306090710.jpg&q=85)
+  
+
+台灣股市在開市初段靠穩，加權指數較早時報22913點，升41點，升幅0.18%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm)
+
+---
+
 # 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
 
+![李家超表示，很榮幸列席昨日的全國人大會議開幕會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=85)
   
 
 行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
@@ -1668,63 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm)
-
----
-
-# 桌球賽有賽事未完結就要求觀眾離場　羅淑佩：非常不理想
-
-![羅淑佩表示，昨晚主辦單位的安排非常不理想，有關方面已經致歉並提出補償方案。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794424_1_20250305221305.jpg&q=80)
-  
-
-在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，昨晚有賽事未完結就要求觀眾提早離場，賽事組委會發聲明致歉及提出補償方案。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794424-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794424-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794424-20250305.htm)
-
----
-
-# 桌球大獎賽截至下午4時組委會接獲30名觀眾查詢涉51張門票
-
-![賽事組委會表示，其餘觀眾將獲安排陸續領取今日或明日賽事的門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794421_1_20250305180501.jpg&q=85)
-  
-
-世界格蘭披治桌球大獎賽昨晚其中一場賽事，有觀眾在賽事未完結前，被要求提早離場，賽事組委會提出補償方案，持有昨晚7時半的1號枱門票的觀眾，可於今明兩日憑票尾兌換今明兩日任何場次同等票價的可售門票。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794421-20250305.htm)
 
 ---

@@ -1,3 +1,32 @@
+# Wall Street rebounds after Trump pauses auto tariffs
+
+![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
+  
+
+US stocks climbed on Wednesday after US President Donald Trump pulled back on some of his tariffs temporarily.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
+
+---
+
 # Hong Kong stocks finish higher
 
 ![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=60)
@@ -1706,34 +1735,5 @@ The S&P 500 added to its record as US stock indexes drifted through a quiet Wedn
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792388-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792388-20250220.htm)
-
----
-
-# HSBC to shed more jobs to cut costs
-
-![HSBC said it's laying off more people as it pushes ahead with corporate restructuring and cost-saving plans. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792325_1_20250219183622.jpg&q=80)
-  
-
-Banking giant HSBC on Wednesday revealed that Hong Kong employees whose roles are related to its mergers and acquisitions (M&A) as well as equity capital market (ECM) businesses could be affected, as it kicks off a fresh round of job cuts worldwide as part of measures to slash costs by US$1.5 billion by the end of 2026.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792325-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792325-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792325-20250219.htm)
 
 ---

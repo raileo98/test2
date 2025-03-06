@@ -1,3 +1,28 @@
+# 台股初段靠穩
+
+![台灣加權指數較早時報22913點，升41點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794491_1_20250306090710.jpg&q=85)
+  
+
+台灣股市在開市初段靠穩，加權指數較早時報22913點，升41點，升幅0.18%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794491-20250306.htm)
+
+---
+
 # 百度發行100億元人民幣計價優先無擔保票據
 
 ![百度發行本金總額合共100億元以人民幣計價的優先無擔保票據，5年期及10年期票據利率分別為2.7%和3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794483_1_20250306081247.jpg&q=90)
@@ -1688,34 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm)
-
----
-
-# 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
-
-![劉慶峰表示，現時開始關注本地產業落地和全球人才招引，有很多機會跟內地合作，集團未來亦會以香港為基地。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794341_1_20250305145125.jpg&q=75)
-  
-
-全國人大會議今早在北京人民大會堂開幕。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
 
 ---

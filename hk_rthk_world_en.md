@@ -1,3 +1,90 @@
+# Wall Street rebounds after Trump pauses auto tariffs
+
+![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
+  
+
+US stocks climbed on Wednesday after US President Donald Trump pulled back on some of his tariffs temporarily.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
+
+---
+
+# Israel appoints new military chief, says war not over
+
+![Eyal Zamir is replacing Herzi Halevi, who announced his resignation as armed forces chief in January over the military's shortcomings on October 7, 2023. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794466_1_20250306033340.jpg&q=80)
+  
+
+Israel's new military chief Eyal Zamir said his country's mission to defeat Hamas remained unfinished as he took office on Wednesday, with uncertainty hanging over the fragile Gaza ceasefire.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm)
+
+---
+
+# Greenlanders shrug off Trump's takeover bid
+
+![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=90)
+  
+
+Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take over the Arctic island, seeing it merely as an opportunity to advance their own independence bid.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm)
+
+---
+
 # US pauses intelligence sharing with Ukraine
 
 ![The Central Intelligence Agency director John Ratcliffe describes the pause as temporary. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794449_1_20250305221949.jpg&q=90)
@@ -1653,92 +1740,5 @@ Four people, including two Chinese nationals, were killed and six injured after 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
-
----
-
-# S Korea's Yoon faces final impeachment hearing
-
-![Acting head of the Constitutional Court Moon Hyung-bae and other justices arrive at court for the final hearing over South Korea's impeached President Yoon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793089_1_20250225150908.jpg&q=85)
-  
-
-South Korea's ousted President Yoon Suk-yeol faced his final impeachment hearing on Tuesday before judges decide whether to formally remove him from office over his disastrous martial law declaration.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793089-20250225.htm)
-
----
-
-# Roberta Flack of 'Killing Me Softly' fame dies aged 88
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793054_1_20250225104809.jpg&q=90)
-  
-
-Roberta Flack, the Grammy-winning singer behind the classic "Killing Me Softly With His Song" and one of the most recognisable voices of the 1970s, died on Monday at age 88.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793054-20250225.htm)
-
----
-
-# Zelensky calls for lasting peace 'this year'
-
-![Ukrainian President Volodymyr Zelensky speaks at a press conference after the 'Support Ukraine' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793025_1_20250225082846.jpg&q=85)
-  
-
-Ukrainian President Volodymyr Zelensky on Monday called for "real, lasting peace" this year as European leaders gathered for a summit in Kyiv on the third anniversary of the war in Ukraine.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793025-20250225.htm)
 
 ---

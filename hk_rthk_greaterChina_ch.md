@@ -1,5 +1,29 @@
+# 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm)
+
+---
+
 # 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
 
+![李家超表示，很榮幸列席昨日的全國人大會議開幕會。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=85)
   
 
 行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
@@ -1704,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794311-20250305.htm)
-
----
-
-# 李家超：將團結各界更好發揮「一國兩制」制度優勢和香港獨特優勢
-
-![李家超說，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794310_1_20250305100656.jpg&q=80)
-  
-
-十四屆全國人大三次會議在北京開幕，總理李強發表政府工作報告，正在北京的行政長官李家超列席。李家超在本地報章撰文表示，很榮幸以香港特區行政長官的身份列席開幕會，在中央的指導和支持下，會繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治方針。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794310-20250305.htm)
 
 ---

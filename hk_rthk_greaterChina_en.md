@@ -1,3 +1,32 @@
+# 'AI startups boosting nation's development'
+
+![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=80)
+  
+
+An analyst on Thursday said the advent of artificial intelligence startups such as DeepSeek has been a boon to the nation’s technological development.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm)
+
+---
+
 # Beijing backs SARs in national integration: Xia
 
 ![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
@@ -1709,34 +1738,5 @@ Chinese Foreign Minister Wang Yi met with his Russian counterpart Sergei Lavrov 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm)
-
----
-
-# Trump says he expects Xi to visit US
-
-![Presidents Xi Jinping and Donald Trump meet on the sidelines of the G20 leaders summit in Osaka in 2019. Trump says he expects President Xi and other world leaders to visit his country. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792437_2_20250220131602.jpg&q=85)
-  
-
-US President Donald Trump said on Wednesday he expects President Xi Jinping to visit the United States, without giving a timeline for his trip.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792437-20250220.htm)
 
 ---
