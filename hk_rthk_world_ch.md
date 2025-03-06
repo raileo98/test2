@@ -1,3 +1,31 @@
+# 特朗普簽署修正案　暫緩對符合《美墨加協定》商品徵收關稅
+
+  
+
+美國總統特朗普簽署對墨西哥和加拿大關稅的修正案，推遲對符合《美墨加協定》的產品徵收關稅，直至下月2日。另外，特朗普說，不會改變對鋼鐵和鋁的關稅措施。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm)
+
+---
+
 # 伊朗首都一個軍事設施發生火警　1死10傷
 
   
@@ -1703,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm)
-
----
-
-# 特朗普威脅將進一步提高針對加拿大商品關稅
-
-![特朗普說，當杜魯多對美國徵收報復性關稅時，美國的對等關稅將以相同幅度上調。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794246_1_20250305024041.jpg&q=90)
-  
-
-美國對加拿大及墨西哥進口產品徵收25%關稅的措施周二起生效，加拿大宣布對美國商品徵收25%報復性關稅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm)
 
 ---

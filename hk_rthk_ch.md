@@ -1,3 +1,31 @@
+# 特朗普簽署修正案　暫緩對符合《美墨加協定》商品徵收關稅
+
+  
+
+美國總統特朗普簽署對墨西哥和加拿大關稅的修正案，推遲對符合《美墨加協定》的產品徵收關稅，直至下月2日。另外，特朗普說，不會改變對鋼鐵和鋁的關稅措施。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm)
+
+---
+
 # 伊朗首都一個軍事設施發生火警　1死10傷
 
   
@@ -1696,34 +1724,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm)
-
----
-
-# 市建局山東街/地士道街發展項目接獲28份發展意向書
-
-![市建局表示，九龍山東街/地士道街發展項目共接獲28份發展意向書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794568_1_20250306165153.jpg&q=80)
-  
-
-市建局九龍山東街/地士道街發展項目中午截收發展意向書。市建局表示，共接獲28份意向書。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm)
 
 ---
