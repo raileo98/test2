@@ -1,3 +1,87 @@
+# 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
+
+  
+
+行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
 # 恒指半日升622點　科指升近半成　主板半日成交逾2000億元
 
 ![恒指中午收市報24216點，升622點，升幅2.6%，半日主板成交額近2168億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794518_1_20250306121205.jpg&q=75)
@@ -1629,92 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm)
-
----
-
-# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
-
-![夏寶龍（右）會見李家超（左），李家超說，會加快發展國際創新科技中心建設。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794444_1_20250305214532.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
-
----
-
-# 美國2月ADP私人市場新增職位7.7萬個　遠遜預期
-
-![美國2月ADP私人市場新增職位7.7萬個，遠低於市場預期的14萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794443_1_20250305212722.jpg&q=85)
-  
-
-人力資源服務公司ADP報告指，美國2月私人市場新增職位7.7萬個，遠低於市場預期的14萬個，亦遠低於1月向上修訂後的18.6萬個。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm)
-
----
-
-# 林志釉促醫管局審視餵食病人程序　林哲玄籲區分食物軟硬程度等級
-
-![林志釉與林哲玄都形容事件屬罕見，希望醫管局檢討相關程序及食品軟硬等級。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794442_1_20250305210253.jpg&q=40)
-  
-
-明愛醫院一名75歲男病人，懷疑被錯誤餵食固體食物導致「哽喉」，搶救無效死亡，醫管局初步認為，可能是護士與醫生溝通上出現問題。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm)
 
 ---

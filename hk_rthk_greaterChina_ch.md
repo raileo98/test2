@@ -1,8 +1,8 @@
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+# 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
 
   
 
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
   
 
   
@@ -13,7 +13,7 @@
 ---
 
 原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm>
 
 © rthk.hk
 
@@ -22,7 +22,7 @@
 
 
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm)
 
 ---
 
@@ -51,6 +51,34 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -1704,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
-
----
-
-# 全國兩會｜李強：堅定不移貫徹落實「一國兩制」「港人治港」方針
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794314_1_20250305103514.jpg&q=80)
-  
-
-在北京，國務院總理李強發表政府工作報告，指出要全面準確、堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」、高度自治方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」、「愛國者治澳」原則。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
 
 ---
