@@ -365,7 +365,7 @@
 
 # 全國兩會｜潘功勝：今年有減息降準空間
 
-![潘功勝表示，目前存款準備金率仍有下行空間。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794550_1_20250306164144.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794550_1_20250306182503.jpg&q=85)
   
 
 人民銀行行長潘功勝表示，去年以來貨幣政策逆周期調節效果比較明顯，今年將根據國內外經濟金融形勢和金融市場情況，擇機降準減息，又指目前存款準備金率仍有下行空間。
