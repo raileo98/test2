@@ -1,3 +1,32 @@
+# US breaks with policy to negotiate with Hamas
+
+![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=80)
+  
+
+US President Donald Trump on Wednesday issued what he called a “last warning” to Hamas to release all remaining hostages held in Gaza, directing a sharply-worded message after the White House confirmed he had recently dispatched an envoy for unprecedented direct talks with the militant group.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm)
+
+---
+
 # Wall Street rebounds after Trump pauses auto tariffs
 
 ![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
@@ -1711,34 +1740,5 @@ A fresh search for Malaysia Airlines flight MH370 has been launched more than a 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm)
-
----
-
-# 4 dead, including 2 Chinese, in SKorea bridge collapse
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793100_1_20250225161221.jpg&q=65)
-  
-
-Four people, including two Chinese nationals, were killed and six injured after a bridge collapsed at an expressway construction site in South Korea on Tuesday, authorities said.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
 
 ---

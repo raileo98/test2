@@ -1,3 +1,32 @@
+# 'Premier offers guidance on One Country, Two Systems'
+
+![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=55)
+  
+
+Premier Li Qiang’s work report has offered “great guidance” on implementing the One Country, Two Systems policy, Chief Executive John Lee said on Thursday, as he pledged to further align with national development strategies and deepen international cooperation.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm)
+
+---
+
 # Beijing backs SARs in national integration: Xia
 
 ![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
@@ -812,35 +841,6 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
 
 ---
 
-# ICAC sees three percent rise in graft allegations
-
-![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
-  
-
-The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
-
----
-
 # Govt operating account largely balanced: FS
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
@@ -867,6 +867,35 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+
+---
+
+# ICAC sees three percent rise in graft allegations
+
+![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
+  
+
+The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
 
 ---
 
@@ -1709,34 +1738,5 @@ Support for private businesses is a very important area that will be addressed d
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
-
----
-
-# 'SAR debt still at very manageable level'
-
-![Christopher Hui says the ratio of government debt to GDP is less than 17 percent. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
-  
-
-The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt is still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
 
 ---

@@ -1,3 +1,32 @@
+# 美國獲授權者接觸哈馬斯　白宮稱特朗普努力為美國人民正確事情
+
+![萊維特（圖）指有關聯繫顯示特朗普真誠努力為美國人民做正確事情。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794492_1_20250306091258.jpg&q=90)
+  
+
+美國證實獲授權人士，接觸巴勒斯坦武裝組織哈馬斯。路透社引述消息人士報道，雙方就釋放被扣押在加沙地帶的美國人，進行秘密談判。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm)
+
+---
+
 # 《環看天下》：歐盟宣布措施挽救汽車業   擴大區內電池生產線
 
 ![近年歐洲電動車業務發展被指裹足不前。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794482_1_20250306080246.jpg&q=80)
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794146-20250304.htm)
-
----
-
-# 一間中資企業與科威特簽總值逾5億美元基建項目合同
-
-![科威特官員曾到新城項目現場視察。（能建葛洲壩集團網頁截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794124_1_20250304120056.jpg&q=85)
-  
-
-一間中資企業與科威特簽署總值超過5億美元基建項目合同。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794124-20250304.htm)
 
 ---

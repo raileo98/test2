@@ -1,3 +1,115 @@
+# 內地股市初段上升
+
+![上證綜合指數較早時報3351點，升9點，升幅0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794498_1_20250306093736.jpg&q=85)
+  
+
+滬深股市在開市初段上升。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794498-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794498-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794498-20250306.htm)
+
+---
+
+# 人民幣中間價創1個月新高
+
+![人民幣中間價報7.1692兌1美元，較上日中間價升22點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794495_1_20250306091952.jpg&q=45)
+  
+
+人民幣中間價報7.1692兌1美元，較上日中間價升22點子，創1個月新高，與市場預測偏離近700點子。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794495-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794495-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794495-20250306.htm)
+
+---
+
+# 恒指競價時段升392點
+
+![恒生指數競價時段報23987點，升392點，升幅1.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794496_1_20250306092823.jpg&q=20)
+  
+
+港股競價時段上升，恒生指數報23987點，升392點，升幅1.67%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm)
+
+---
+
+# 美國獲授權者接觸哈馬斯　白宮稱特朗普努力為美國人民正確事情
+
+![萊維特（圖）指有關聯繫顯示特朗普真誠努力為美國人民做正確事情。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794492_1_20250306091258.jpg&q=90)
+  
+
+美國證實獲授權人士，接觸巴勒斯坦武裝組織哈馬斯。路透社引述消息人士報道，雙方就釋放被扣押在加沙地帶的美國人，進行秘密談判。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm)
+
+---
+
 # 台股初段靠穩
 
 ![台灣加權指數較早時報22913點，升41點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794491_1_20250306090710.jpg&q=85)
@@ -214,7 +326,7 @@
 
 # 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
 
-![應急插頭可應用於電動車火災或交通意外現場，暫時阻止電動車突然移動。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_1_20250306075853.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_1_20250306075853.jpg&q=80)
   
 
 消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
@@ -1602,120 +1714,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm)
-
----
-
-# 全國兩會｜李強：今年將開展「十五五」規劃編制工作
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794412_1_20250305183729.jpg&q=70)
-  
-
-國務院總理李強在政府工作報告提到，今年將開展「十五五」規劃編制工作，要深入分析「十五五」時期新的階段性特徵，科學確定發展目標，謀劃好重大戰略任務、重大政策舉措、重大工程項目，更好發揮規劃對經濟社會發展的引領指導作用。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm)
-
----
-
-# 全國兩會｜李強：更大力度穩定和擴大就業　發放育兒津貼
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794414_1_20250305183043.jpg&q=85)
-  
-
-國務院總理李強在政府工作報告提出，要加大保障和改善民生力度，提升社會治理效能，更大力度穩定和擴大就業，讓多勞者多得、技高者多得、創新者多得。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm)
-
----
-
-# 全國兩會｜李強：堅持獨立自主的和平外交政策
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794410_1_20250305181925.jpg&q=85)
-  
-
-國務院總理李強回顧去年工作時提到，國家主席習近平等黨和國家領導人出訪多國，推動構建人類命運共同體，為促進世界和平與發展作出了重要貢獻。李強說中國反對霸權主義和強權政治，要堅持獨立自主的和平外交政策，堅持走和平發展道路，堅定奉行互利共贏的開放戰略。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794410-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794410-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794410-20250305.htm)
-
----
-
-# 全國兩會｜馬建堂：國家就美國關稅措施一定會認真準備應對預案
-
-  
-
-全國政協經濟委員會副主任馬建堂相信，國家有關部門就美國對中國的關稅措施一定會認真準備應對預案，按國家利益，準確精準反制。他指出，中國是經濟大國，以內需為主，有超大規模市場及非常健全產業體系，雖然不願見到衝擊，但一定可以度過難關。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm)
 
 ---

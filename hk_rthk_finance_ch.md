@@ -1,3 +1,115 @@
+# 人行開展1045億元人民幣逆回購操作
+
+![人民銀行公開市場進行1045億元人民幣7日期逆回購操作，單日淨回籠1105億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794497_1_20250306093415.jpg&q=55)
+  
+
+人民銀行公開市場進行1045億元人民幣7日期逆回購操作，利率維持於1.5厘。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794497-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794497-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794497-20250306.htm)
+
+---
+
+# 內地股市初段上升
+
+![上證綜合指數較早時報3351點，升9點，升幅0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794498_1_20250306093736.jpg&q=85)
+  
+
+滬深股市在開市初段上升。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794498-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794498-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794498-20250306.htm)
+
+---
+
+# 人民幣中間價創1個月新高
+
+![人民幣中間價報7.1692兌1美元，較上日中間價升22點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794495_1_20250306091952.jpg&q=45)
+  
+
+人民幣中間價報7.1692兌1美元，較上日中間價升22點子，創1個月新高，與市場預測偏離近700點子。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794495-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794495-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794495-20250306.htm)
+
+---
+
+# 恒指競價時段升392點
+
+![恒生指數競價時段報23987點，升392點，升幅1.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794496_1_20250306092823.jpg&q=20)
+  
+
+港股競價時段上升，恒生指數報23987點，升392點，升幅1.67%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794496-20250306.htm)
+
+---
+
 # 台股初段靠穩
 
 ![台灣加權指數較早時報22913點，升41點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794491_1_20250306090710.jpg&q=85)
@@ -99,6 +211,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm)
+
+---
+
+# 《環看天下》：歐盟宣布措施挽救汽車業   擴大區內電池生產線
+
+![近年歐洲電動車業務發展被指裹足不前。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794482_1_20250306080246.jpg&q=80)
+  
+
+歐盟星期三公布汽車產業發展行動計劃，加速區內電動車普及，包括支援汽車電池擴大在歐洲本土生產，並提供資金援助，以加強行業競爭力。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm)
 
 ---
 
@@ -331,6 +472,64 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794468-20250306.htm)
+
+---
+
+# 美國白宮證實特朗普同意對墨加部分汽車推遲一個月徵收關稅
+
+![萊維特說，對等關稅措施仍將於4月2日生效。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794465_1_20250306061717.jpg&q=90)
+  
+
+美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予部分汽車製造商一個月的豁免。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm)
+
+---
+
+# 美商務部長︰若加拿大能阻止芬太尼　特朗普或對部分行業減免關稅
+
+![盧特尼克說，如果加拿大能阻止芬太尼，特朗普將對其關稅持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794458_1_20250306005441.jpg&q=85)
+  
+
+美國商務部長盧特尼克透露，總統特朗普預料將公布調整對加拿大和墨西哥商品加徵的關稅，可能給予汽車等行業部分減免。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm)
 
 ---
 
@@ -1509,209 +1708,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
-
----
-
-# 恒指下午初段升逾400點
-
-![恒生指數較早時報23361點，升419點，升幅1.83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794358_1_20250305131459.jpg&q=75)
-  
-
-港股下午開市初段升逾400點，恒生指數較早時報23361點，升419點，升幅1.83%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794358-20250305.htm)
-
----
-
-# 全國兩會｜市監總局將制定出台直播電商監管辦法　規範直播交易
-
-![羅文指市監總局將壓實平台審核責任，加強產品質量專項抽檢，加大監管執法力度。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794359_1_20250305134514.jpg&q=90)
-  
-
-國家市場監管總局局長羅文表示，部分主播惡意炒作，虛假行銷，帶來假冒偽劣產品現象比較突出，消費者反映強烈亦十分突出。市監總局將壓實平台審核責任，加強產品質量專項抽檢，加大監管執法力度，嚴厲打擊虛假廣告、虛假宣傳等行為，維護公平競爭秩序，不斷提升網售產品質量。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm)
-
----
-
-# 全國兩會｜恒生：內地今年經濟增長5%左右目標符合預期
-
-![恒生銀行首席經濟師薛俊昇表示，政府工作報告提出今年內地經濟增長目標5%左右，符合預期，預測今年內地經濟將增長4.9%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794356_2_20250305134758.jpg&q=45)
-  
-
-國務院總理李強在政府工作報告表示，今年經濟增長目標5%左右，赤字率計劃按4%左右安排，比上年提高1個百分點。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794356-20250305.htm)
-
----
-
-# 全國兩會｜李雲澤：去年處置不良資產3.8萬億元人民幣歷來最多
-
-![李雲澤表示，去年全年共處置不良資產3.8萬億元人民幣，創歷年最多。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794352_2_20250305134148.jpg&q=90)
-  
-
-國家金融監督管理總局局長李雲澤表示，內地金融風險穩步收斂，存量風險正有序處置，增量風險亦得到明顯遏制，特別是去年加大不良資產處置力度，全年共處置不良資產3.8萬億元人民幣，創歷年最多，守住不發生系統性風險底線。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794352-20250305.htm)
-
----
-
-# 全國兩會｜田軒稱增長目標助就業民生　蔡冠深對達標感樂觀
-
-![田軒認為，將今年國內生產總值增長目標訂於5%左右，是保持政策延續性，有助穩就業惠民生。（容上智攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794351_1_20250305130741.jpg&q=75)
-![蔡冠深說，對政府能達標感到樂觀，認為人工智能在內地帶來翻天覆地變化，有助帶動產業發展。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794351_2_20250305130741.jpg&q=85)
-  
-
-全國人大代表、經濟學者田軒認為，將今年國內生產總值增長目標訂於5%左右，是保持政策延續性，有助穩就業惠民生。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm)
-
----
-
-# 全國兩會｜李強工作報告定出今年國內生產總值目標增長為5%左右
-
-![李強發表任內第二份政府工作報告。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794348_1_20250305130602.jpg&q=75)
-  
-
-第十四屆全國人大三次會議早上在北京開幕，國務院總理李強發表任內第二份政府工作報告，當中定出今年國內生產總值目標增長為5%左右。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794348-20250305.htm)
-
----
-
-# 恒指半日升378點　長和升逾21%
-
-![恒指早段曾升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升幅1.65%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794339_1_20250305121134.jpg&q=1)
-  
-
-港股重上23000點，恒生指數早段高見23513點，升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升378點，升幅1.65%，半日主板成交額近1352億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm)
 
 ---

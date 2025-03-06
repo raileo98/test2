@@ -1,3 +1,32 @@
+# 'Premier offers guidance on One Country, Two Systems'
+
+![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=55)
+  
+
+Premier Li Qiang’s work report has offered “great guidance” on implementing the One Country, Two Systems policy, Chief Executive John Lee said on Thursday, as he pledged to further align with national development strategies and deepen international cooperation.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm)
+
+---
+
 # 'AI startups boosting nation's development'
 
 ![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=80)
@@ -1709,34 +1738,5 @@ Premier Li Qiang has emphasised boosting consumption and improving people's live
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm)
-
----
-
-# Wang meets Lavrov to strengthen bilateral ties
-
-![Foreign Minister Wang Yi (Right) says Beijing is willing to work with Russia to implement the consensus reached by the two heads of state and to further advance China-Russia relations. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792537_1_20250221034153.jpg&q=90)
-  
-
-Chinese Foreign Minister Wang Yi met with his Russian counterpart Sergei Lavrov on the sidelines of the Group of 20 (G20) Foreign Ministers' Meeting in Johannesburg, South Africa, to discuss China-Russia relations.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792537-20250221.htm)
 
 ---

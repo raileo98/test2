@@ -1,3 +1,61 @@
+# 'Premier offers guidance on One Country, Two Systems'
+
+![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=55)
+  
+
+Premier Li Qiang’s work report has offered “great guidance” on implementing the One Country, Two Systems policy, Chief Executive John Lee said on Thursday, as he pledged to further align with national development strategies and deepen international cooperation.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm)
+
+---
+
+# US breaks with policy to negotiate with Hamas
+
+![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=80)
+  
+
+US President Donald Trump on Wednesday issued what he called a “last warning” to Hamas to release all remaining hostages held in Gaza, directing a sharply-worded message after the White House confirmed he had recently dispatched an envoy for unprecedented direct talks with the militant group.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm)
+
+---
+
 # Wall Street rebounds after Trump pauses auto tariffs
 
 ![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
@@ -1681,63 +1739,5 @@ China’s economy has a solid foundation with new growth drivers despite facing 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
-
----
-
-# HKUST urged to fully consider medical school plan
-
-![Zhang Shuyang said she was unaware of HKUST's plan to start a medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794137_1_20250304140631.jpg&q=80)
-  
-
-The president of the Peking Union Medical College Hospital on Tuesday said she hopes the Hong Kong University of Science and Technology (HKUST) will fully consider its plan to set up the SAR's third medical school.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm)
-
----
-
-# 'Individual Visit Scheme going well in Qingdao'
-
-![Officials in Qingdao say the scheme for individual travellers was proceeding well. File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794143_1_20250304140512.jpg&q=55)
-  
-
-The secretary of the Qingdao Municipal Party Committee, and also a delegate to the National People's Congress, on Tuesday said the expansion of the Individual Visit Scheme to Qingdao provided great convenience for exchanges between Qingdao and the two SARs.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm)
 
 ---
