@@ -1,3 +1,32 @@
+# 外交部：中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實
+
+![林劍稱，中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794564_1_20250306163756.jpg&q=90)
+  
+
+在北京，外交部回應美國國防部長的涉華言論，發言人林劍說，中方奉勸美方不要用自身的霸權邏輯鏡像中國，不要用過時的冷戰思維看待中美關係，不要以戰略競爭為名，行對華遏制、打壓之實。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm)
+
+---
+
 # 全國兩會｜發改委：快將公布提振消費專項行動方案
 
   
@@ -108,6 +137,11 @@
 ---
 
 # 全國兩會｜潘功勝：今年有減息降準空間
+
+  
+
+人民銀行行長潘功勝表示，去年以來貨幣政策逆周期調節效果比較明顯，今年將根據國內外經濟金融形勢和金融市場情況，擇機降準減息，又指目前存款準備金率仍有下行空間。
+  
 
   
 
@@ -1693,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm)
-
----
-
-# 全國兩會｜李強稱中國願與國際社會共同推動構建人類命運共同體
-
-![李強表示，中國願同國際社會一道，推動構建人類命運共同體。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794349_1_20250305130626.jpg&q=20)
-  
-
-國務院總理李強表示，新的一年要堅持獨立自主的和平外交政策，奉行互利共贏戰略，反對霸權主義、強權政治、單邊主義和保護主義，中國願同國際社會一道，推動構建人類命運共同體。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794349-20250305.htm)
 
 ---

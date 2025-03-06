@@ -1,4 +1,118 @@
-# 天文台發出寒冷天氣警告
+# 社署提醒長者注意天氣寒冷保重身體
+
+  
+
+天文台在下午4時20分發出寒冷天氣警告。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm)
+
+---
+
+# 天氣寒冷　衞生防護中心籲市民採取適當措施保障健康
+
+  
+
+天文台在下午4時20分發出寒冷天氣警告。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794563-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794563-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794563-20250306.htm)
+
+---
+
+# 港鐵去年盈利升一倍　末期息每股0.89元
+
+  
+
+港鐵去年盈利157.72億元，按年增長1倍，末期息每股0.89元。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm)
+
+---
+
+# 港股高收775點　科技指數升逾半成
+
+![港股連續兩日顯著上升，恒指高見24410點，創逾3年新高，收市報24369點，升775點；科指高收5.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794561_1_20250306162957.jpg&q=15)
+  
+
+港股連續兩日顯著上升，重上24000點以上。恒生指數尾市升近820點，高見24410點，創逾3年新高，收市報24369點，升775點，升幅3.3%。主板成交增至逾3771億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm)
+
+---
+
+# 天文台發出寒冷天氣警告　今晚及明早寒冷市區最低氣溫約12度
+
+  
+
+天文台在下午4時20分發出寒冷天氣警告。
+  
 
   
 
@@ -23,6 +137,7 @@
 
 # 支聯會拒交資料案終極上訴得直　卓孝業：研究判詞再決定如何處理
 
+![卓孝業表示，終審庭再次作出清晰的判決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794559_1_20250306163404.jpg&q=20)
   
 
 終審法院今日就兩宗上訴案件頒下判詞。其中人民力量前副主席譚得志發表煽動文字的案件，被終院駁回上訴。保安局副局長卓孝業表示，終審庭再次作出清晰的判決，指出在煽動罪行中，控方不必是否有煽動使用暴力或者是否有煽動危害公眾秩序作出證明，當局非常歡迎法庭的判決。
@@ -51,6 +166,7 @@
 
 # 「虎門」隊班主及「打假波」集團主腦等4人涉收買球員被廉署起訴
 
+![4人涉嫌以逾24萬元行賄多名足球員，藉此操縱球隊在多場賽事的結果，以便集團經營外圍賭博。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794554_1_20250306163329.jpg&q=45)
   
 
 廉署搗破一個貪污「打假波」外圍賭博集團，落案起訴4人，包括集團主腦及1名香港乙組足球聯賽球隊的班主，涉嫌以逾24萬元行賄多名足球員，藉此操縱球隊在2021/22年球季多場賽事的結果，以便集團經營外圍賭博，案件明日在東區裁判法院提訊，廉署不排除會有更多人士被檢控。
@@ -1610,121 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
-
----
-
-# 桌球大獎賽消委會接7宗投訴　其中一宗與被要求離開有關
-
-![消委會表示，截至今早，共接獲7宗投訴，其中1宗與賽事進行至接近午夜時，被要求離開有關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794390_1_20250305160004.jpg&q=70)
-  
-
-啟德體育園昨晚舉行世界格蘭披治桌球大獎賽，消委會表示，截至今早，共接獲7宗投訴，其中1宗與賽事進行至接近午夜時，被要求離開有關。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm)
-
----
-
-# 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=75)
-  
-
-高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
-
----
-
-# 男病人哽喉後不治　明愛醫院稱涉事護士學生有根據指引餵食
-
-![關慧敏指，涉事護士學生當時根據指示餵食病人，期間有檢視病人有無吞嚥及咀嚼，亦「細啖細啖」地餵食。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794388_1_20250305160048.jpg&q=80)
-  
-
-明愛醫院一名75歲男病人，懷疑被餵錯正常餐而「哽喉」，搶救無效後死亡。醫管局成立根源分析委員會調查事件，8星期內完成調查，醫管局及院方向公眾及家屬致歉。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794388-20250305.htm)
-
----
-
-# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
-
-![中方反對在國際經貿關係中濫施脅迫、施壓的手段。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794387_1_20250305161843.jpg&q=15)
-  
-
-對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
 
 ---

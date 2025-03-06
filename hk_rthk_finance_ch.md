@@ -1,3 +1,56 @@
+# 港鐵去年盈利升一倍　末期息每股0.89元
+
+  
+
+港鐵去年盈利157.72億元，按年增長1倍，末期息每股0.89元。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm)
+
+---
+
+# 港股高收775點　科技指數升逾半成
+
+![港股連續兩日顯著上升，恒指高見24410點，創逾3年新高，收市報24369點，升775點；科指高收5.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794561_1_20250306162957.jpg&q=15)
+  
+
+港股連續兩日顯著上升，重上24000點以上。恒生指數尾市升近820點，高見24410點，創逾3年新高，收市報24369點，升775點，升幅3.3%。主板成交增至逾3771億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm)
+
+---
+
 # 全國兩會｜發改委：快將公布提振消費專項行動方案
 
   
@@ -84,6 +137,11 @@
 ---
 
 # 全國兩會｜潘功勝：今年有減息降準空間
+
+  
+
+人民銀行行長潘功勝表示，去年以來貨幣政策逆周期調節效果比較明顯，今年將根據國內外經濟金融形勢和金融市場情況，擇機降準減息，又指目前存款準備金率仍有下行空間。
+  
 
   
 
@@ -1639,63 +1697,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm)
-
----
-
-# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
-
-![夏寶龍（右）會見李家超（左），李家超說，會加快發展國際創新科技中心建設。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794444_1_20250305214532.jpg&q=80)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
-
----
-
-# 美國2月ADP私人市場新增職位7.7萬個　遠遜預期
-
-![美國2月ADP私人市場新增職位7.7萬個，遠低於市場預期的14萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794443_1_20250305212722.jpg&q=40)
-  
-
-人力資源服務公司ADP報告指，美國2月私人市場新增職位7.7萬個，遠低於市場預期的14萬個，亦遠低於1月向上修訂後的18.6萬個。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794443-20250305.htm)
 
 ---
