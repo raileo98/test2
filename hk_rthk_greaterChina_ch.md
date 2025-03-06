@@ -1,3 +1,32 @@
+# 全國兩會｜財政部：中央財政已預留空間　人行：今年擇機降準減息
+
+![中證監主席吳清（左二）表示，將加快健全針對科技企業資本市場機制，加大力度培育長期和耐心資本。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794608_1_20250306194446.jpg&q=80)
+  
+
+全國人大會議正在北京召開，多個部委官員出席經濟主題記者會。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm)
+
+---
+
 # 全國兩會｜吳清：加快健全科技企業支持機制　培育長期和耐心資本
 
   
@@ -1692,34 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm)
-
----
-
-# 全國兩會｜李慧琼對工作報告有信心　相信經整體考慮及中期需要
-
-![李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新。（李慧琼提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794381_1_20250305152500.jpg&q=50)
-  
-
-國務院總理李強發表政府工作報告，人大常委李慧琼表示，報告承載了「承先啟後、繼往開來」的歷史重任，不忘初心、守正創新，她對報告充滿信心。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm)
 
 ---

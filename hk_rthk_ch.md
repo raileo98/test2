@@ -1,3 +1,32 @@
+# 全國兩會｜財政部：中央財政已預留空間　人行：今年擇機降準減息
+
+![中證監主席吳清（左二）表示，將加快健全針對科技企業資本市場機制，加大力度培育長期和耐心資本。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794608_1_20250306194446.jpg&q=80)
+  
+
+全國人大會議正在北京召開，多個部委官員出席經濟主題記者會。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm)
+
+---
+
 # 美國證實一架黑鷹直升機在洪都拉斯緊急降落
 
 ![美國證實一架黑鷹直升機在洪都拉斯緊急降落](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794584_1_20250306175045.jpg&q=85)

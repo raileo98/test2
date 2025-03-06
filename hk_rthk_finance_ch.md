@@ -1,3 +1,32 @@
+# 全國兩會｜財政部：中央財政已預留空間　人行：今年擇機降準減息
+
+![中證監主席吳清（左二）表示，將加快健全針對科技企業資本市場機制，加大力度培育長期和耐心資本。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794608_1_20250306194446.jpg&q=80)
+  
+
+全國人大會議正在北京召開，多個部委官員出席經濟主題記者會。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm)
+
+---
+
 # 全國兩會｜吳清：加快健全科技企業支持機制　培育長期和耐心資本
 
   
@@ -1673,30 +1702,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm)
-
----
-
-# 日股初段上升
-
-![日經平均指數較早時報37727點，升309點，升幅0.83%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794484_1_20250306081458.jpg&q=80)
-  
-
-日本股市在開市初段上升，日經平均指數較早時報37727點，升309點，升幅0.83%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794484-20250306.htm)
 
 ---
