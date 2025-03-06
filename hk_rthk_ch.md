@@ -1,3 +1,89 @@
+# 美私人企業月球登陸器降落月球　公司稱未能直立或影響任務完成
+
+  
+
+美國私人公司直覺機器的月球登陸器「雅典娜」登陸月球，公司認為，「雅典娜」未能處於直立狀態，可能會限制任務的完成。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm)
+
+---
+
+# 美元連跌4日　資金流入日圓及瑞郎避險
+
+![美元指數一度失守104水平，低見103.75，在紐約尾市報104.2，跌幅近0.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794650_1_20250307061651.jpg&q=40)
+  
+
+美元連跌4日，一度觸及4個月以來最低，貿易戰的不確定性，令避險資金流入日圓及瑞士法郎。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794650-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794650-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794650-20250307.htm)
+
+---
+
+# 道指低收427點　納指跌2.6%
+
+![道瓊斯指數最多曾跌逾620點，收市報42579點，跌427點，跌幅約1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794648_1_20250307055456.jpg&q=80)
+  
+
+美股3大指數收市跌約1%至近3%，美國總統特朗普暫緩對加拿大和墨西哥部分商品加徵關稅，貿易戰的不確定性拖累市場氣氛。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794648-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794648-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794648-20250307.htm)
+
+---
+
 # 現貨金回軟　因美債息上升
 
 ![現貨金較早時報每盎司2912.2美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794647_1_20250307052551.jpg&q=25)
@@ -1641,92 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
-
----
-
-# 港鐵未來一年招標東涌東站第二期、屯門第16區站第一期項目
-
-![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
-  
-
-港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至121.85億元，內地虧損300萬元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm)
-
----
-
-# 韓軍戰機機師錯誤輸入座標致誤炸15傷　軍方暫停實彈演習
-
-![有建築物在誤炸事件中受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794579_1_20250306172428.jpg&q=15)
-  
-
-南韓軍方兩架戰機在演習期間，錯誤向京畿道抱川市的平民區投擲炸彈，造成至少15人受傷，其中兩人傷勢嚴重。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm)
-
----
-
-# 青少年護齒計劃13至17歲每年檢查　衞生署向牙醫資助200元
-
-![計劃將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794577_1_20250306172202.jpg&q=25)
-  
-
-衞生署「青少年護齒共同治理先導計劃」將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm)
 
 ---

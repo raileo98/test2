@@ -1,3 +1,31 @@
+# 美私人企業月球登陸器降落月球　公司稱未能直立或影響任務完成
+
+  
+
+美國私人公司直覺機器的月球登陸器「雅典娜」登陸月球，公司認為，「雅典娜」未能處於直立狀態，可能會限制任務的完成。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm)
+
+---
+
 # 美烏官員擬下周於沙特會談　澤連斯基︰烏方將與特朗普合作
 
 ![威特科夫表示，美方正在協調在沙特阿拉伯同烏克蘭代表團會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794644_1_20250307052422.jpg&q=80)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794249-20250305.htm)
-
----
-
-# 澤連斯基：已指示官員聯繫美方獲取凍結援助信息
-
-![澤連斯基發表視像講話透露，與歐洲多國領導人交談，他們都表示繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794248_1_20250305032750.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基發表視像講話表示，他已指示國防和情報部門負責人聯繫美方官員，以「獲取有關凍結援助的官方信息」。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm)
 
 ---
