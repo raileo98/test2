@@ -1,3 +1,31 @@
+# 全國兩會｜李慧琼支持國家積極財政政策　拉動消費刺激內需
+
+  
+
+港區全國人大代表團繼續審議政府工作報告及相關報告。副團長陳勇說，各代表在會上積極建言獻策，提供過去一年累積整理的真知灼見。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm)
+
+---
+
 # 元朗兩部貨車疑作流動倉庫及分銷私煙　涉案男子保釋候查
 
 ![海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=50)
@@ -1266,35 +1294,6 @@
 
 ---
 
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
 # 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
 
 ![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
@@ -1321,6 +1320,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -1700,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794452-20250305.htm)
-
----
-
-# 醫管局高層莊慧敏與丈夫盜竊罪成　申請終院上訴許可被駁回
-
-![法官指，上訴時已處理相關事項，上訴方如今只是包裝成不同辭據，因此駁回申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794450_1_20250305222639.jpg&q=85)
-  
-
-醫管局總行政經理莊慧敏與丈夫骨科醫生趙名宇，前年涉在黃埔花園一間超市偷取刺身、水果等共值逾1600元的食物，審訊後兩人被裁定盜竊罪成，各被判罰款5000元。兩夫婦上訴指，受警員誤導又威逼利誘才不自願地招認，遭暫委法官姚勳智駁回上訴。兩夫婦今日在高等法院再申請終審法院上訴許可證明書，法官指上訴時已處理上述事項，上訴方如今僅將之包裝成不同辭據，駁回申請。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794450-20250305.htm)
 
 ---

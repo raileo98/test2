@@ -1,3 +1,89 @@
+# 歐洲央行減息0.25厘符合預期　下調今明兩年經濟增長預測
+
+![歐洲央行一如預期減息0.25厘，是今個減息周期第6次減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794621_1_20250306213845.jpg&q=35)
+  
+
+歐洲央行一如預期減息0.25厘，存款工具利率減至2.5厘，主要再融資利率減至2.65厘。央行連續5次會議減息，亦是今個減息周期第6次減息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm)
+
+---
+
+# 全國兩會｜李慧琼支持國家積極財政政策　拉動消費刺激內需
+
+  
+
+港區全國人大代表團繼續審議政府工作報告及相關報告。副團長陳勇說，各代表在會上積極建言獻策，提供過去一年累積整理的真知灼見。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm)
+
+---
+
+# 美國2月宣布裁員人數逾17萬人　政府部門減逾6萬人
+
+![美國2月宣布裁員人數17.2萬人，政府部門減逾6萬人。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794619_1_20250306212926.jpg&q=15)
+  
+
+人力資源服務公司Challenger, Gray and Christmas發表報告指，美國2月宣布裁員人數急增至17.2萬人，創2020年7月以來新高，按月大幅增加2.45倍，按年亦升1.03倍。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794619-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794619-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794619-20250306.htm)
+
+---
+
 # 元朗兩部貨車疑作流動倉庫及分銷私煙　涉案男子保釋候查
 
 ![海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=50)
