@@ -1,3 +1,32 @@
+# Tech gains see HK stocks close higher
+
+![Shares in tech firms helped the Hang Seng Index close higher. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794569_1_20250306165157.jpg&q=20)
+  
+
+Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soaring over three percent, as tech shares led the gains.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm)
+
+---
+
 # Tech stocks push HSI over 24,000 points
 
 ![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=75)
@@ -1706,34 +1735,5 @@ Hong Kong shares opened lower on Thursday.
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792404-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792404-20250220.htm)
-
----
-
-# 'Constructive' talks after China blasts tariffs at WTO
-
-![The US, Nicaragua, Namibia, Malaysia, Trinidad and Tobago and Russia took part in the WTO discussions. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792389_2_20250220104914.jpg&q=90)
-  
-
-The World Trade Organization (WTO) said on Wednesday that discussions on trade tensions were "constructive", after China accused the US of imposing "tariff shocks" that could upend the global trading system.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
 
 ---

@@ -1,3 +1,31 @@
+# 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
+
+  
+
+在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
+
+---
+
 # 電動車暗格藏約520萬元走私燕窩及受管制魚肚　司機被海關拘捕
 
   

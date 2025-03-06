@@ -1,3 +1,31 @@
+# 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
+
+  
+
+在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
+
+---
+
 # 港鐵去年盈利升一倍　末期息每股0.89元
 
   
@@ -1671,34 +1699,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm)
-
----
-
-# 清遠佛山旅行團四人感染退伍軍人病　衞生防護中心列為輸入個案
-
-![衞生防護中心呼籲曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794447_1_20250305220536.jpg&q=85)
-  
-
-一個清遠佛山旅行團出現退伍軍人病群組，涉及四名團友，衞生防護中心呼籲，曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心，以便接受健康評估和醫學監察。中心亦已知會旅遊業監管局，並將個案通報廣東省衞生當局，流行病學調查仍在進行中。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm)
 
 ---

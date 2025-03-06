@@ -1,3 +1,31 @@
+# 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
+
+  
+
+在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
+
+---
+
 # 外交部：中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實
 
 ![林劍稱，中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794564_1_20250306163756.jpg&q=90)
@@ -1701,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794351-20250305.htm)
-
----
-
-# 全國兩會｜李強稱堅決反對台獨分裂和外部勢力干涉
-
-![李強說，堅決反對「台獨」分裂和外部勢力干涉，推動兩岸關係和平發展，堅定不移推進祖國統一大業。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794350_1_20250305130653.jpg&q=60)
-  
-
-政府工作報告在港澳方面的部份，強調堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」原則。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm)
 
 ---
