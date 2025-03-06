@@ -1,3 +1,31 @@
+# 杜魯多稱與美國貿易戰在可預見未來將繼續
+
+  
+
+加拿大總理杜魯多表示，在可預見的未來，加拿大與美國的貿易戰將繼續。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm)
+
+---
+
 # LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
 
 ![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794231-20250304.htm)
-
----
-
-# 東電已拆除福島核電站污水排海後空出的一個儲罐
-
-![東電已拆除福島核電站污水排海後空出的一個儲罐。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794228_1_20250304213006.jpg&q=90)
-  
-
-日本東京電力公司宣布，已完成福島第一核電站污水排海後空出來的一個儲罐的拆除工作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794228-20250304.htm)
 
 ---
