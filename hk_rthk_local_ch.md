@@ -1,3 +1,32 @@
+# 衞生署推青少年牙科護理計劃　向牙醫資助200元
+
+![計劃將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794577_1_20250306172202.jpg&q=25)
+  
+
+衞生署「青少年護齒共同治理先導計劃」將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm)
+
+---
+
 # 港鐵去年香港客運服務盈利升38%　鐵路及巴士乘客量升3%
 
 ![港鐵去年旗下鐵路及巴士總乘客量19.54億人次，按年升3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794575_1_20250306171929.jpg&q=70)
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794405-20250305.htm)
-
----
-
-# 海關檢42隻受管制瀕危物種活蜥蝪　藏奶粉罐抽濕機企圖偷運入境
-
-![海關檢獲的懷疑受管制屬瀕危物種的活蜥蝪。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794404_1_20250305171151.jpg&q=65)
-  
-
-42隻共約值21萬元的懷疑受管制屬瀕危物種的活蜥蝪，分別被收藏在抽濕機、空氣清新機及奶粉罐內，企圖以空運貨物形式偷運入境，被機場海關發現，案件轉交漁護署跟進。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794404-20250305.htm)
 
 ---

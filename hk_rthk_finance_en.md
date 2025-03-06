@@ -1,3 +1,32 @@
+# 'Growth target can be met despite uncertainty'
+
+![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
+  
+
+The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set out by China for 2025 can be met, despite external headwinds and weak domestic demand.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
+
+---
+
 # Tech gains see HK stocks close higher
 
 ![Shares in tech firms helped the Hang Seng Index close higher. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794569_1_20250306165157.jpg&q=20)
@@ -1706,34 +1735,5 @@ Hong Kong stocks ended lower on Thursday, with the benchmark Hang Seng Index dow
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792477-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792477-20250220.htm)
-
----
-
-# Hang Seng Index opens lower
-
-![The Hang Seng Index was down 0.99 percent at the open. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792404_1_20250220095603.jpg&q=10)
-  
-
-Hong Kong shares opened lower on Thursday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792404-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792404-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792404-20250220.htm)
 
 ---

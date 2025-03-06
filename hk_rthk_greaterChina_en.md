@@ -1,3 +1,32 @@
+# 'Growth target can be met despite uncertainty'
+
+![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
+  
+
+The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set out by China for 2025 can be met, despite external headwinds and weak domestic demand.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
+
+---
+
 # Capitalise on your strengths, vice premier tells HK
 
 ![Ding Xuexiang meets CPPCC members from Hong Kong and Macau. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=90)
@@ -1709,34 +1738,5 @@ The sensation caused by the mainland blockbuster Ne Zha 2 is very much a "lightn
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm)
-
----
-
-# 'Historic' G20 foreign ministers meeting concludes
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792700_1_20250222031652.jpg&q=75)
-  
-
-South Africa on Friday concluded the G20 Foreign Ministers' Meeting, after a range of global issues having been discussed.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792700-20250222.htm)
 
 ---
