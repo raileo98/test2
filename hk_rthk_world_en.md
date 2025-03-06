@@ -1,3 +1,32 @@
+# Trump delays tariffs on Mexico
+
+![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=75)
+  
+
+US President Donald Trump said on Thursday he was pausing some of the sweeping new tariffs on Mexican imports, amid continued trade tensions with Canada and sustained blowback from global markets on the US president's policies.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm)
+
+---
+
 # World's sea ice cover hits record low in February
 
 ![In the Antarctic the frozen cover was 26 percent below average across February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794625_1_20250306221837.jpg&q=40)
@@ -1711,34 +1740,5 @@ US President Donald Trump's official social media accounts posted an apparently 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm)
-
----
-
-# Hamas to hand over four Israeli hostages' bodies
-
-![In Israel on Wednesday, thousands of mourners gathered for the funeral of Shiri Bibas and her sons, who died in captivity in Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793374_1_20250226212829.jpg&q=10)
-  
-
-Hamas will hand over the bodies of four Israeli hostages on Thursday in what it said would be an exchange for more than 600 Palestinian prisoners, capping the first phase of a Gaza ceasefire deal.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793374-20250226.htm)
 
 ---

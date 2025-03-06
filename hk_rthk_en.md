@@ -1,3 +1,61 @@
+# Xi calls for stronger education role in sci-tech
+
+![President X Jinping calls for for comprehensive education reforms, including granting schools greater autonomy and improving governance. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794640_1_20250307023617.jpg&q=90)
+  
+
+President Xi Jinping on Thursday underscored the role of education in advancing science, technology, and talent development, calling for deeper alignment with the country's modernisation needs.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm)
+
+---
+
+# Trump delays tariffs on Mexico
+
+![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=75)
+  
+
+US President Donald Trump said on Thursday he was pausing some of the sweeping new tariffs on Mexican imports, amid continued trade tensions with Canada and sustained blowback from global markets on the US president's policies.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm)
+
+---
+
 # Ireland's Doris fit to face France in Six Nations
 
 ![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=75)
@@ -1680,63 +1738,5 @@ China on Wednesday said it will aim for economic growth of around 5 percent in 2
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm)
-
----
-
-# China's Liu Jiakun wins Pritzker Prize
-
-![Liu lives and works in his birth city of Chengdu, where he prioritises the use of local materials and traditional building techniques. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794280_1_20250305083557.jpg&q=80)
-  
-
-The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday to China's Liu Jiakun, for designs that celebrate "everyday lives".
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm)
-
----
-
-# Stocks rack up more losses on Wall Street
-
-![US stocks decline as a trade war between the US and its key trading partners escalates. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794279_1_20250305083014.jpg&q=5)
-  
-
-US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correction territory, as trade tensions escalated following US President Donald Trump's new tariffs on Canada, Mexico and China.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm)
 
 ---

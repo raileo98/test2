@@ -1,3 +1,32 @@
+# Xi calls for stronger education role in sci-tech
+
+![President X Jinping calls for for comprehensive education reforms, including granting schools greater autonomy and improving governance. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794640_1_20250307023617.jpg&q=90)
+  
+
+President Xi Jinping on Thursday underscored the role of education in advancing science, technology, and talent development, calling for deeper alignment with the country's modernisation needs.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm)
+
+---
+
 # Visit GBA for National Games: Guangdong governor
 
 ![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=40)
@@ -1707,34 +1736,5 @@ A lasting peace in the Israeli-Palestinian conflict can only be achieved through
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm)
-
----
-
-# Myanmar returns 111 Chinese scam centre workers
-
-![Thailand's Deputy Prime Minister Phumtham Wechayachai says the scam centre problem is a "complex transnational crime." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792763_2_20250222205222.jpg&q=75)
-  
-
-Myanmar handed over more than 100 Chinese scam centre workers to be repatriated through Thailand on Saturday, the third batch in a major crackdown on the illegal operations.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm)
 
 ---
