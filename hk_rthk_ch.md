@@ -1,3 +1,32 @@
+# 政府歡迎終院維持譚得志案裁決　另備悉支聯會案判決將研究判詞
+
+![政府回應終審法院就「譚得志上訴案」及「支聯會拒交資料案」裁決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794622_2_20250306220034.jpg&q=55)
+  
+
+終審法院就「譚得志上訴案」及「支聯會拒交資料案」作出裁決，特區政府表示，歡迎終審法院就「譚得志發表煽動文字案」的判決，就原《刑事罪行條例》中的「煽動罪」，裁定控罪元素並不包括意圖煽惑暴力或擾亂公共秩序，控方毋須證明煽惑擾亂公共秩序或煽惑暴力的意圖，《維護國家安全條例》生效後發生的煽動行為，須按該條例規定處理。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm)
+
+---
+
 # 歐洲央行減息0.25厘符合預期　下調今明兩年經濟增長預測
 
 ![歐洲央行一如預期減息0.25厘，是今個減息周期第6次減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794621_1_20250306213845.jpg&q=35)
@@ -231,7 +260,7 @@
 
 # 全國兩會｜習近平向全國各族各界婦女致以節日祝福
 
-![習近平強調，強化教育對科技和人才支撐作用。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306202104.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306215244.jpg&q=90)
   
 
 中共總書記、國家主席、中央軍委主席習近平下午看望參加全國政協十四屆三次會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。

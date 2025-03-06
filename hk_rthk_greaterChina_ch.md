@@ -57,7 +57,7 @@
 
 # 全國兩會｜習近平向全國各族各界婦女致以節日祝福
 
-![習近平強調，強化教育對科技和人才支撐作用。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306202104.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306215244.jpg&q=90)
   
 
 中共總書記、國家主席、中央軍委主席習近平下午看望參加全國政協十四屆三次會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。
