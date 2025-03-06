@@ -1,3 +1,31 @@
+# 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
+
+  
+
+就標準普爾對於香港銀行及物業市場發表的報告，特區政府發言人說，不同意住宅物業供應過剩的觀點，去年底私人住宅單位的空置率為4.5%，與過去20年的長期平均數相同，租金亦持續穩健上升，數據反映目前住屋需求殷切。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
+
+---
+
 # 歐委會主席稱歐洲須有能力保衛自己　澤連斯基指烏克蘭並不孤單
 
 ![馮德萊恩（右）與科斯塔（左）在會前陪同澤連斯基見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794611_1_20250306201203.jpg&q=80)
@@ -1706,35 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794220-20250304.htm)
-
----
-
-# 胡英明與新加坡貪污調查局局長就加強合作交流意見
-
-![胡英明（右）與新加坡貪污調查局長鄭忠輝（左）會面。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_1_20250304203608.jpg&q=80)
-![丘樹春（左一）向新加坡貪污調查局局長鄭忠輝（左二）介紹廉署法證會計組工作。（廉署網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794218_2_20250304203608.jpg&q=35)
-  
-
-廉政專員胡英明接待新加坡貪污調查局新任局長鄭忠輝到訪廉政公署，雙方交流執法經驗，亦就加強合作交換意見。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794218-20250304.htm)
 
 ---

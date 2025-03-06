@@ -1,3 +1,31 @@
+# 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
+
+  
+
+就標準普爾對於香港銀行及物業市場發表的報告，特區政府發言人說，不同意住宅物業供應過剩的觀點，去年底私人住宅單位的空置率為4.5%，與過去20年的長期平均數相同，租金亦持續穩健上升，數據反映目前住屋需求殷切。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
+
+---
+
 # 全國兩會｜習近平向全國各族各界婦女致以節日祝福
 
 ![習近平強調，強化教育對科技和人才支撐作用。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306202104.jpg&q=90)
@@ -202,6 +230,7 @@
 
 # 全國兩會｜吳清：加快健全科技企業支持機制　培育長期和耐心資本
 
+![中證監主席吳清（左）表示，很多引領性科技企業的崛起，離不開長期耐心資本投入，形容是「十年磨一劍」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794607_1_20250306204406.jpg&q=75)
   
 
 中證監主席吳清表示，中國新質生產力發揮越來越大作用，人工智能大模型DeepSeek，讓世界對中國科技創新能力有新認識，帶動中國資產價值重估，亦帶動春節後A股、港股及其他市場的中國資產，特別是科技股。

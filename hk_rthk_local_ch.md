@@ -1,3 +1,31 @@
+# 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
+
+  
+
+就標準普爾對於香港銀行及物業市場發表的報告，特區政府發言人說，不同意住宅物業供應過剩的觀點，去年底私人住宅單位的空置率為4.5%，與過去20年的長期平均數相同，租金亦持續穩健上升，數據反映目前住屋需求殷切。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
+
+---
+
 # 全國兩會｜習近平向全國各族各界婦女致以節日祝福
 
 ![習近平強調，強化教育對科技和人才支撐作用。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306202104.jpg&q=90)
@@ -1700,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm)
-
----
-
-# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
-
-![夏寶龍（右）會見李家超（左），李家超說，會加快發展國際創新科技中心建設。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794444_1_20250305214532.jpg&q=80)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
 
 ---
