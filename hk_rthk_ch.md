@@ -1,3 +1,31 @@
+# 美烏官員據報下周舉行會談
+
+  
+
+美國傳媒報道，美國政府高級官員將於下星期前往沙特阿拉伯會見烏克蘭官員。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm)
+
+---
+
 # 特朗普：對符合美墨加協定的墨西哥商品豁免徵收關稅至4月2日
 
 ![特朗普表示，所有符合《美墨加協定》的墨西哥商品獲豁免徵收關稅一個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794637_1_20250307012746.jpg&q=60)
@@ -1699,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
-
----
-
-# 電動車暗格藏約520萬元走私燕窩及受管制魚肚　司機被海關拘捕
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794567_1_20250306170615.jpg&q=55)
-  
-
-一輛經港珠澳大橋出境的私家車，懷疑企圖走私約值520萬元的燕窩及受管制魚肚，海關拘捕53歲司機，他獲准保釋候查，私家車被海關扣查。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm)
 
 ---

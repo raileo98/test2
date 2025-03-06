@@ -1,3 +1,31 @@
+# 美烏官員據報下周舉行會談
+
+  
+
+美國傳媒報道，美國政府高級官員將於下星期前往沙特阿拉伯會見烏克蘭官員。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm)
+
+---
+
 # 特朗普：對符合美墨加協定的墨西哥商品豁免徵收關稅至4月2日
 
 ![特朗普表示，所有符合《美墨加協定》的墨西哥商品獲豁免徵收關稅一個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794637_1_20250307012746.jpg&q=60)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm)
-
----
-
-# 澤連斯基：上周在白宮發生一切令人遺憾
-
-![澤連斯基說，事情發展成這樣令人遺憾，現在是糾正事情的時候。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794242_1_20250305005153.jpg&q=75)
-  
-
-烏克蘭總統澤連斯基表示，他上周與美國總統特朗普的爭吵「令人遺憾」，他已準備好在美國總統領導下展開工作，以實現持久和平。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm)
 
 ---
