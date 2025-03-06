@@ -110,6 +110,7 @@
 
 # 鄒幸彤沒提供資料案上訴得直　譚得志煽動文字案被駁回上訴
 
+![鄒幸彤及兩名前常委上訴得直，撤銷定罪及刑罰。譚得志發表煽動文字的案件，被終院駁回上訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794524_1_20250306125822.jpg&q=40)
   
 
 終審法院就兩宗上訴案件頒下判詞。
@@ -224,6 +225,7 @@
 
 # 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
 
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=80)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
@@ -252,7 +254,7 @@
 
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
-![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_1_20250306124856.jpg&q=80)
+![何潤生引述丁薛祥指希望委員多建言獻策，在新時代下為強國建設、民族復興發揮力量。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=75)
   
 
 主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
