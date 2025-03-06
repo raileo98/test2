@@ -1,3 +1,55 @@
+# 全國兩會｜藍佛安：實施更積極財政政策　持續用力　更加給力
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm)
+
+---
+
+# 滬深股市高收逾1%至2%　創1星期新高
+
+![內地股市3大指數升逾1%至2%，創1星期新高。上證指數收報3381點，升幅約1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794546_1_20250306151037.jpg&q=85)
+  
+
+內地股市延續上日升勢，3大指數升逾1%至2%，創1星期新高。人工智能相關股份、算力租賃股造好，鋼鐵及銀行股下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm)
+
+---
+
 # 台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全
 
 ![台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794544_1_20250306145051.jpg&q=90)

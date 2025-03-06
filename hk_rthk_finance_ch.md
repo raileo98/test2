@@ -1,3 +1,55 @@
+# 全國兩會｜藍佛安：實施更積極財政政策　持續用力　更加給力
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm)
+
+---
+
+# 滬深股市高收逾1%至2%　創1星期新高
+
+![內地股市3大指數升逾1%至2%，創1星期新高。上證指數收報3381點，升幅約1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794546_1_20250306151037.jpg&q=85)
+  
+
+內地股市延續上日升勢，3大指數升逾1%至2%，創1星期新高。人工智能相關股份、算力租賃股造好，鋼鐵及銀行股下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm)
+
+---
+
 # 韓股全日升0.7%
 
 ![首爾綜合指數收報2576點，升18點，升幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794541_1_20250306143743.jpg&q=90)
@@ -70,6 +122,93 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm)
+
+---
+
+# 遙控泊車功能本月起可使用　運輸署提醒須用獲批遙控泊車系統
+
+![運輸署表示，本月1日起司機可使用遙控泊車功能。（運輸署）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794542_1_20250306145551.jpg&q=85)
+  
+
+運輸署表示，本月1日起司機可使用遙控泊車功能，但提醒要用署方批准的遙控泊車系統，同時司機必須在車外近距離操作，全程監察車輛情況。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm)
+
+---
+
+# 彭鴻昌倡病人在私人醫療機構接受醫療程序前要求白紙黑字列明收費
+
+![彭鴻昌表示，為減少爭議，建議病人接受醫療程序前，問清楚預算收費，並要求以白紙黑字列明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794538_1_20250306145529.jpg&q=80)
+  
+
+消委會硏究發現不少私營醫療機構價目資料難明及不足，收費差距甚大。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm)
+
+---
+
+# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=90)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm)
 
 ---
 
@@ -218,6 +357,64 @@
 
 ---
 
+# 消委會發現不少私營醫療機構價目資料難明　建議網上公布價目表
+
+![消委會硏究發現，不少私營醫療機構價目資料難明及不足；病人之間收費差距甚大。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_1_20250306125218.jpg&q=5)
+  
+
+消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm)
+
+---
+
+# 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
+
+![李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794521_1_20250306124830.jpg&q=80)
+  
+
+行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm)
+
+---
+
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=75)
@@ -244,6 +441,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=80)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
 
 ---
 
@@ -334,6 +560,35 @@
 
 ---
 
+# 全國兩會｜西藏目前經濟文化繁榮　定日縣地震災後已復課
+
+![全國人大西藏自治區代表團早上舉行全體會議。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794510_1_20250306110240.jpg&q=30)
+  
+
+全國人大西藏自治區代表團早上舉行全體會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm)
+
+---
+
 # 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
 
 ![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=75)
@@ -385,6 +640,65 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794506-20250306.htm)
+
+---
+
+# 孫東在巴塞羅那出席世界移動通信大會並考察當地超算中心
+
+![孫東在全球移動通信系統協會（GSMA）部長級會議「2025+- A Tech Odyssey」環節中發表主旨演講。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_1_20250306105940.jpg&q=80)
+![孫東（右三）和代表團一行考察巴塞羅那超算中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_2_20250306105940.jpg&q=75)
+  
+
+創新科技及工業局局長孫東率領創新科技業界代表團繼續在西班牙巴塞羅那的訪問行程，並出席世界移動通信大會2025。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm)
+
+---
+
+# 消委會研究發現私家醫院收費差距甚大　不少價目資料不足及難明
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794501_1_20250306100033.jpg&q=10)
+  
+
+根據私營醫療機構條例，私家醫院須提供價目資料、收費預算、過往收費統計數據。消委會硏究報告發現不少私院價目資料難明、不足；收費統計數據沒有即時更新；病人之間收費差距甚大；部份醫療機構缺乏詳盡書面費用預算。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm)
 
 ---
 
@@ -1384,326 +1698,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm)
-
----
-
-# 財政預算案2025｜機場離境稅修訂條例周五刊憲若通過十月生效
-
-![政府發言人說，飛機乘客離境稅的建議增幅只佔一般市民和訪港旅客的整體出行成本很小部分。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794418_1_20250305175642.jpg&q=80)
-  
-
-《2025年飛機乘客離境稅（修訂）條例草案》將本星期五刊憲，由今年10月1日起，飛機乘客離境稅由每名乘客120元調升至200元。新稅率適用於當日或之後購買的機票，預計政府收入每年可增加約16億元。條例草案將於本月19日提交立法會進行首讀及開始二讀辯論。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794418-20250305.htm)
-
----
-
-# 全國兩會｜譚炯提出強化投融資機制　支持國家重大項目建設
-
-![譚炯稱要健全政府投資支持基礎性、公益性、長遠性重大項目建設長效機制。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794417_1_20250305175521.jpg&q=80)
-  
-
-全國政協委員、國家開發銀行黨委副書記譚炯提出，強化投融資機制，以支持國家重大項目建設，包括加強頂層設計，完善跨部門跨區域重大項目協調推進機制，以推動政府、企業、金融機構深化合作，協同發力共同參與重大項目謀劃建設和運營。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm)
-
----
-
-# 全國兩會｜滙豐：消費信心或正在好轉　高盛：觀望促消費具體措施
-
-![滙豐認為內地政府工作報告釋出強勁的國內政策支持信號以提振內需，又相信消費信心或正在好轉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794403_1_20250305170242.jpg&q=85)
-  
-
-滙豐報告認為，內地今年財政目標整體符合預期，財政政策起到主導作用，赤字佔國內生產總值（GDP）達到4%創新高，經濟增長目標維持5%左右展現信心，並釋出強勁國內政策支持信號以提振內需，又相信消費信心可能正在好轉。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm)
-
----
-
-# 全國兩會｜蒲淳：要加快統一大市場建設　加力擴大市場開放
-
-![蒲淳認為，未能建成統一大市場，就不能發揮社會主義制度優勢。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794402_1_20250305172607.jpg&q=90)
-  
-
-全國政協委員、國家市場監督管理總局原副局長蒲淳表示，要加快統一大市場建設，他指出最大障礙在於地方保護主義，認為未能建成統一大市場，就不能發揮社會主義制度優勢。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm)
-
----
-
-# 在岸人民幣兌美元高收逾200點子　創1星期新高
-
-![在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794399_1_20250305165035.jpg&q=30)
-  
-
-在岸人民幣收報7.258兌1美元，較昨日收市價升208點子，升幅0.29%，創1星期新高。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794399-20250305.htm)
-
----
-
-# 港股高收652點　科指升4%　長和系造好
-
-![恒生指數尾市最多升近700點，收市報23594點，升652點，升幅2.8%，主板成交額連續兩日不足3千億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794393_1_20250305161352.jpg&q=1)
-  
-
-港股午後升幅持續擴大，恒生指數最多升近700點，曾升穿23600點水平，收市報23594點，升652點，升幅2.8%。主板成交額連續兩日不足3千億元，減至約2587億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794393-20250305.htm)
-
----
-
-# 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
-
-![何猶龍認為，澳門開放多年後，已經不只是一個「賭城」，還有演唱會、表演和會展。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794391_1_20250305161534.jpg&q=85)
-  
-
-全國政協委員、新濠博亞娛樂主席兼行政總裁何猷龍接受本台訪問表示，目前澳門經濟按照特區政府「1+4」經濟適度多元發展策略推進，「1」仍然是旅遊博彩業，其實博彩公司都希望在非博彩多元化方面努力。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
-
----
-
-# 北京：中方反對在國際經貿關係中濫施脅迫、施壓手段
-
-![中方反對在國際經貿關係中濫施脅迫、施壓的手段。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794387_1_20250305161843.jpg&q=25)
-  
-
-對於長和向一個美國財團出售中國以外港口資產，包括巴拿馬港口權益，在北京，外交部發言人林劍不評論有關商業交易。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794387-20250305.htm)
-
----
-
-# 全國兩會｜奇瑞汽車尹同躍稱靠實力說話　已習慣美方加關稅
-
-![尹同躍強調要自身強大、科技創新和拼搏，形容還是靠實力說話。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794386_1_20250305155528.jpg&q=85)
-  
-
-全國人大代表、奇瑞汽車董事長尹同躍表示，要全面擁抱新能源汽車，加速發展會帶來一系列變化。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794386-20250305.htm)
-
----
-
-# 全國兩會｜有人大及政協均認為國家重視民企　定有政策支持
-
-![郭蘭峰表示，民企是中國式現代化建設的重要力量，當局一定會有相關支持的政策措施。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794385_1_20250305163043.jpg&q=75)
-![陳天石說，現時國家推出很多政策，對民企是很好的消息，是一支強心針。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794385_2_20250305163043.jpg&q=80)
-  
-
-全國人大代表、國家發改委黨組成員郭蘭峰表示，國家重視民營企業，民企是中國式現代化建設的重要力量，當局一定會有相關支持的政策措施，但未有透露推出的時間表。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794385-20250305.htm)
-
----
-
-# 全國兩會｜何小鵬稱科技產業資本強　柯瑞文料數字經濟發展潛力大
-
-![何小鵬相信，國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_1_20250305154643.jpg&q=85)
-![柯瑞文表示，中國數字經濟的發展潛力很大，要做好全社會的相關基礎設施。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794383_2_20250305160924.jpg&q=80)
-  
-
-在北京，全國人大代表、小鵬汽車董事長何小鵬表示，整個科技產業、資本產業在過去半年有明顯增強，相信國家人工智能產業未來5至15年，亦會出現巨大發展，並成為全球領先產業。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
 
 ---

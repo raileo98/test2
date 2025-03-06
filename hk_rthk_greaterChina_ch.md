@@ -1,3 +1,26 @@
+# 全國兩會｜藍佛安：實施更積極財政政策　持續用力　更加給力
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm)
+
+---
+
 # 台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全
 
 ![台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794544_1_20250306145051.jpg&q=90)
@@ -1706,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm)
-
----
-
-# 全國兩會｜李家超列席人大開幕會　對政府工作報告感到很鼓舞
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794336_1_20250305121454.jpg&q=55)
-  
-
-行政長官李家超列席第十四屆全國人民代表大會第三次會議開幕會。對於總理李強在政府工作報告中，指出要全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，維護憲法和基本法確定的特別行政區憲制秩序，落實「愛國者治港」原則；支持香港發展經濟、改善民生，深化國際交往合作，更好融入國家發展大局，保持香港長期繁榮穩定。總理又提到，要提升粵港澳大灣區等經濟發展優勢區域的創新能力和輻射帶動作用。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm)
 
 ---
