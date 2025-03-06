@@ -1,5 +1,35 @@
+# 美商務部長︰一個月關稅豁免或至所符合《美墨加協定》產品
+
+![盧特尼克預計，特朗普將宣布推遲關稅範圍的決定。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794635_1_20250307003531.jpg&q=80)
+  
+
+美國商務部長盧特尼克說，給予墨西哥和加拿大汽車產品為期一個月的關稅豁免，很可能會擴大至所有符合《美墨加協定》的產品。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm)
+
+---
+
 # 杜魯多稱與美國貿易戰在可預見未來將繼續
 
+![杜魯多表示，在可預見的未來，加拿大與美國的貿易戰將繼續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794634_1_20250307003606.jpg&q=85)
   
 
 加拿大總理杜魯多表示，在可預見的未來，加拿大與美國的貿易戰將繼續。
@@ -1698,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm)
-
----
-
-# 外交部：中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實
-
-![林劍稱，中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794564_1_20250306163756.jpg&q=90)
-  
-
-在北京，外交部回應美國國防部長的涉華言論，發言人林劍說，中方奉勸美方不要用自身的霸權邏輯鏡像中國，不要用過時的冷戰思維看待中美關係，不要以戰略競爭為名，行對華遏制、打壓之實。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm)
 
 ---
