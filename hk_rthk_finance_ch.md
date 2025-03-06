@@ -1,3 +1,32 @@
+# 證監會上季盈餘按年增逾2倍　首3個財季扭虧
+
+![證監會上季錄得盈餘7710.9萬元，按年增長2.4倍；首3個財季盈餘3569.8萬元，扭轉前年同期的虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794535_1_20250306134637.jpg&q=90)
+  
+
+證監會季度報告顯示，截至去年底，上季錄得盈餘7710.9萬元，較去年同期增長2.4倍；收入按年增17.4%至6.51億元，開支增8%至5.74億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm)
+
+---
+
 # 政府提醒市民勿誤信聲稱行政長官公布發行香港代幣的假信息
 
   
@@ -1687,35 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794381-20250305.htm)
-
----
-
-# 全國兩會｜譚鐵牛稱港對國家發展大局重要冀一國兩制行穩致遠
-
-![譚鐵牛表示，大家應該愛惜香港這個地方，努力把香港建設得更好。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_2_20250305161050.jpg&q=75)
-![呂成蹊說，粵港澳三地合辦全運會體現大灣區合作精神，有助推動體育經濟發展，亦有利大灣區融合。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794378_3_20250305161201.jpg&q=80)
-  
-
-在北京，全國政協常委、中聯辦前副主任譚鐵牛表示，1月份曾到過香港，對香港有感情，香港是一個很好的地方，在國家發展大局中非常重要，所以大家應該愛惜這個地方，努力把香港建設得更好，希望把香港「一國兩制」行穩致遠。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm)
 
 ---

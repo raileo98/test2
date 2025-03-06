@@ -1,3 +1,32 @@
+# 證監會上季盈餘按年增逾2倍　首3個財季扭虧
+
+![證監會上季錄得盈餘7710.9萬元，按年增長2.4倍；首3個財季盈餘3569.8萬元，扭轉前年同期的虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794535_1_20250306134637.jpg&q=90)
+  
+
+證監會季度報告顯示，截至去年底，上季錄得盈餘7710.9萬元，較去年同期增長2.4倍；收入按年增17.4%至6.51億元，開支增8%至5.74億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm)
+
+---
+
 # 政府提醒市民勿誤信聲稱行政長官公布發行香港代幣的假信息
 
   
@@ -1682,34 +1711,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm)
-
----
-
-# 美國2月ISM非製造業指數出乎意料升至53.5
-
-![美國2月ISM非製造業指數出乎意料升至53.5，反映服務業擴張速度加快。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794455_1_20250305233557.jpg&q=90)
-  
-
-美國供應管理協會(ISM)公布，美國2月非製造業指數升至53.5，高於1月的52.8，市場原先估計跌至52.6。數據顯示，服務業擴張速度出乎意料加快。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794455-20250305.htm)
 
 ---
