@@ -1,3 +1,34 @@
+# 歐霸盃16強首回合熱刺不敵阿爾克馬爾　曼聯被皇蘇逼和
+
+![熱刺首回合輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_1_20250307070916.jpg&q=80)
+![曼聯在領先下被皇蘇逼和。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_2_20250307070916.jpg&q=60)
+![車路士的安素費南迪斯今仗攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_3_20250307070916.jpg&q=85)
+  
+
+歐霸盃16強首回合，熱刺因為一個烏龍球，作客0:1不敵阿爾克馬爾。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794655-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794655-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794655-20250307.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![ATMXJ的ADR較本港收市跌逾1%至近5%，以京東跌幅較大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794652_1_20250307062201.jpg&q=35)
@@ -1699,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm)
-
----
-
-# 京東集團上季盈利升1.9倍　全年盈利升71%
-
-![京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794583_1_20250306174948.jpg&q=30)
-  
-
-京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍，總收入升13%至約3470億元。按非美國通用會計準則計，盈利升32%至112.9億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm)
 
 ---
