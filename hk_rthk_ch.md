@@ -1,3 +1,32 @@
+# 內地股市半日升逾1%至逾2%
+
+![內地股市半日升逾1%至逾2%，上證綜合指數上午收市報3377點，升35點，升幅1.05%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794513_1_20250306113938.jpg&q=85)
+  
+
+滬深股市半日升逾1%至逾2%，人工智能相關股份上升，銀行和鋼鐵等股份下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm)
+
+---
+
 # 新世界發展：專注地產本業　多個住宅項目今年內動工
 
 ![新世界發展行政總裁黃少媚（右四）等管理層主持九龍塘玫瑰街低密度豪宅項目動工儀式。（公司提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794512_1_20250306113650.jpg&q=85)
@@ -1687,34 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm)
-
----
-
-# 南韓指援俄北韓軍人接受俄方無人機操作培訓
-
-![金正恩去年曾視察無人機測試。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794439_1_20250305205300.jpg&q=90)
-  
-
-南韓國家情報院表示，有跡象表明支援俄羅斯的北韓軍人，接受俄羅斯方面有關無人機的操作和戰術運用培訓，正密切關注兩軍展開無人機合作的可能性。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm)
 
 ---

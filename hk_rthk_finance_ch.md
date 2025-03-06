@@ -1,3 +1,32 @@
+# 內地股市半日升逾1%至逾2%
+
+![內地股市半日升逾1%至逾2%，上證綜合指數上午收市報3377點，升35點，升幅1.05%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794513_1_20250306113938.jpg&q=85)
+  
+
+滬深股市半日升逾1%至逾2%，人工智能相關股份上升，銀行和鋼鐵等股份下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794513-20250306.htm)
+
+---
+
 # 新世界發展：專注地產本業　多個住宅項目今年內動工
 
 ![新世界發展行政總裁黃少媚（右四）等管理層主持九龍塘玫瑰街低密度豪宅項目動工儀式。（公司提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794512_1_20250306113650.jpg&q=85)
@@ -1681,36 +1710,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm)
-
----
-
-# 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
-
-![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
-![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
-![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=75)
-  
-
-內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
 
 ---
