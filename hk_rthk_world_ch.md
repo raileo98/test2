@@ -1,6 +1,6 @@
 # 韓美軍演有炮彈落入社區有人受傷　當局正確認具體情況
 
-![社區內有幾間房屋受損，當局仍在確認具體情況。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794509_1_20250306131038.jpg&q=55)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794509_1_20250306131038.jpg&q=55)
   
 
 韓美軍事演習懷疑有炮彈落入社區，最少7人受傷。

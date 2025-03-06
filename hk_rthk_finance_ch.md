@@ -1,3 +1,31 @@
+# 政府提醒市民勿誤信聲稱行政長官公布發行香港代幣的假信息
+
+  
+
+政府發言人提醒市民，切勿誤信網上假冒行政長官公布在區塊鏈上發行香港代幣（launch of the National Hong Kong Coin）的信息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm)
+
+---
+
 # 海港企業去年度虧損收窄　基礎盈利8300萬元扭虧
 
 ![海港企業去年度虧損收窄至7000萬元，基礎淨盈利8300萬元。圖為旗下美利酒店。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794532_1_20250306131020.jpg&q=65)
@@ -1689,34 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm)
-
----
-
-# 港股升幅擴大至逾600點　科指升逾3%
-
-![恒生指數較早時報23547點，升605點，升幅2.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794377_1_20250305145753.jpg&q=20)
-  
-
-港股升幅擴大至逾600點，恒生指數較早時報23547點，升605點，升幅2.64%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm)
 
 ---
