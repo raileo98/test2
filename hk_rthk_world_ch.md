@@ -1,3 +1,31 @@
+# 澤連斯基與馬克龍會晤　就下周各國軍事代表會議協調立場
+
+  
+
+烏克蘭總統澤連斯基出席在比利時布魯塞爾舉行的歐洲理事會會議期間，與法國總統馬克龍會晤。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm)
+
+---
+
 # 美烏官員據報下周舉行會談
 
   
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm)
-
----
-
-# 美國暫停軍事援助　烏總理：絕對冷靜地與美方合作
-
-![什梅加爾強調，沒有烏方參與，就不可能在烏克蘭實現和平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794244_1_20250305013625.jpg&q=90)
-  
-
-針對美國暫停對烏克蘭軍事援助，烏克蘭總理什梅加爾說，烏方將「絕對冷靜地」繼續通過一切可用的外交渠道與美方開展合作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794244-20250305.htm)
 
 ---

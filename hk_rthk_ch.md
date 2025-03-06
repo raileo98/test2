@@ -1,3 +1,31 @@
+# 澤連斯基與馬克龍會晤　就下周各國軍事代表會議協調立場
+
+  
+
+烏克蘭總統澤連斯基出席在比利時布魯塞爾舉行的歐洲理事會會議期間，與法國總統馬克龍會晤。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm)
+
+---
+
 # 美烏官員據報下周舉行會談
 
   
@@ -1698,34 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm)
-
----
-
-# 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
-
-![鄭柵潔表示，新質生產力正全面改造生產方式和改變生活方式，體會到技術突破正在加快。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794570_1_20250306173413.jpg&q=90)
-  
-
-在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
 
 ---
