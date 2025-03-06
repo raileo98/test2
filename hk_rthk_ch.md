@@ -1,3 +1,31 @@
+# 食環署防範私人泳池聘不合資格救生員　持牌人須核對救生員資格
+
+  
+
+食環署計劃於今年泳季起採取措施，加強防範和打擊私人泳池懷疑聘用不合資格救生員當值的違規情況。署方將明確要求持牌人在聘用救生員前，須核對身份證明文件、救生章和救生手冊，以及妥善保存文件副本。署方亦會制定標準格式，供持牌人記錄相關資料。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm)
+
+---
+
 # 韓股全日升0.7%
 
 ![首爾綜合指數收報2576點，升18點，升幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794541_1_20250306143743.jpg&q=90)

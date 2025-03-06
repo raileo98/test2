@@ -1,3 +1,31 @@
+# 食環署防範私人泳池聘不合資格救生員　持牌人須核對救生員資格
+
+  
+
+食環署計劃於今年泳季起採取措施，加強防範和打擊私人泳池懷疑聘用不合資格救生員當值的違規情況。署方將明確要求持牌人在聘用救生員前，須核對身份證明文件、救生章和救生手冊，以及妥善保存文件副本。署方亦會制定標準格式，供持牌人記錄相關資料。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm)
+
+---
+
 # 遙控泊車功能本月起可使用　運輸署提醒須用獲批遙控泊車系統
 
   
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm)
-
----
-
-# 全國兩會｜西安納入港澳「個人遊」　陝西省副省長稱成效理想
-
-![徐明非指兩地來往越來越多，未來也會有全方位計劃，包括在文物、展覽和文化旅遊等方面。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794376_1_20250305150231.jpg&q=80)
-  
-
-陝西省西安市去年3月獲納入內地赴港澳「個人遊」城市之一，全國人大代表、負責文化旅遊工作的陝西省副省長徐明非接受本台訪問時說，指過去一年成效理想，香港是當地居民喜歡到訪的地方，居民反應非常好。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
 
 ---

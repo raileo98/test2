@@ -1,3 +1,32 @@
+# 台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全
+
+![台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794544_1_20250306145051.jpg&q=90)
+  
+
+台灣屏東縣恆春鎮的第三核能發電廠有冷卻水塔發生火警，無人受傷，對發電與核能安全亦無影響。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794544-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794544-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794544-20250306.htm)
+
+---
+
 # 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=90)
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794336-20250305.htm)
-
----
-
-# 全國兩會｜著力抓好「三農」工作　千方百計推動農業增效益
-
-![報告指出，今年要著力抓好「三農」工作，深入推進鄉村全面振興，堅持農業農村優先發展。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794322_1_20250305103818.jpg&q=1)
-  
-
-國務院總理李強在政府工作報告中表示，今年要著力抓好「三農」工作，深入推進鄉村全面振興，堅持農業農村優先發展，學習運用「千萬工程」經驗，完善強農惠農富農支持制度，千方百計推動農業增效益、農村增活力、農民增收入。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794322-20250305.htm)
 
 ---
