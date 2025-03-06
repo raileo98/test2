@@ -1,3 +1,59 @@
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
 # 恒指半日升622點　科指升近半成　主板半日成交逾2000億元
 
 ![恒指中午收市報24216點，升622點，升幅2.6%，半日主板成交額近2168億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794518_1_20250306121205.jpg&q=75)
@@ -175,7 +231,7 @@
 
 # 消委會研究發現私家醫院收費差距甚大　不少價目資料不足及難明
 
-![消委會由2021至2024年，共接獲191宗有關私家醫院及日間醫療中心的投訴。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794501_1_20250306100033.jpg&q=10)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794501_1_20250306100033.jpg&q=10)
   
 
 根據私營醫療機構條例，私家醫院須提供價目資料、收費預算、過往收費統計數據。消委會硏究報告發現不少私院價目資料難明、不足；收費統計數據沒有即時更新；病人之間收費差距甚大；部份醫療機構缺乏詳盡書面費用預算。
@@ -1686,63 +1742,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794353-20250305.htm)
-
----
-
-# 全國兩會｜李強稱堅決反對台獨分裂和外部勢力干涉
-
-![李強說，堅決反對「台獨」分裂和外部勢力干涉，推動兩岸關係和平發展，堅定不移推進祖國統一大業。（央視截圖）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794350_1_20250305130653.jpg&q=80)
-  
-
-政府工作報告在港澳方面的部份，強調堅定不移貫徹落實「一國兩制」、「港人治港」、「澳人治澳」原則。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794350-20250305.htm)
-
----
-
-# 恒指半日升378點　長和升逾21%
-
-![恒指早段曾升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升幅1.65%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794339_1_20250305121134.jpg&q=1)
-  
-
-港股重上23000點，恒生指數早段高見23513點，升逾570點，其後升幅一度收窄至約150點，中午收市報23320點，升378點，升幅1.65%，半日主板成交額近1352億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm)
 
 ---

@@ -1,3 +1,59 @@
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
+
+---
+
+# 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
 # 全國兩會｜西藏目前經濟文化繁榮　定日縣地震災後已復課
 
 ![全國人大西藏自治區代表團早上舉行全體會議。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794510_1_20250306110240.jpg&q=30)
@@ -1677,63 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794314-20250305.htm)
-
----
-
-# 全國兩會｜持續用力推動房地產市場止跌回穩
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794313_1_20250305103718.jpg&q=90)
-  
-
-國務院總理李強發表政府工作報告，表示要持續用力推動房地產市場止跌回穩，因城施策調減限制性措施，合理控制新增房地產用地供應，盤活存量用地和商辦用房，推進收購存量商品房。拓寬保障性住房再貸款使用範圍，繼續做好保交房工作，有效防範房企債務違約風險，並穩妥化解地方政府債務風險。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794313-20250305.htm)
-
----
-
-# 全國兩會｜李強稱深入推進練兵備戰　堅定捍衛國家主權
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794312_1_20250305103610.jpg&q=90)
-  
-
-國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
 
 ---
