@@ -87,7 +87,7 @@
 
 # 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
 
-![何潤生引述丁薛祥指希望委員多建言獻策，在新時代下為強國建設、民族復興發揮力量。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=75)
   
 
 主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
