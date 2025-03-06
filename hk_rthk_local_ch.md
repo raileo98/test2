@@ -1,3 +1,32 @@
+# 恒指半日升622點　科指升近半成　主板半日成交逾2000億元
+
+![恒指中午收市報24216點，升622點，升幅2.6%，半日主板成交額近2168億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794518_1_20250306121205.jpg&q=75)
+  
+
+港股連升兩日，恒生指數升穿24000點關口，高見24262點，創逾3年新高，中午收市報24216點，升622點，升幅2.6%，半日主板成交額突破2000億元，有近2168億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm)
+
+---
+
 # 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
 
 ![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=75)
@@ -1715,34 +1744,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794339-20250305.htm)
-
----
-
-# 全國兩會｜科大訊飛劉慶峰稱集團未來以港為基地
-
-![劉慶峰表示，現時開始關注本地產業落地和全球人才招引，有很多機會跟內地合作，集團未來亦會以香港為基地。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794341_1_20250305145125.jpg&q=75)
-  
-
-全國人大會議今早在北京人民大會堂開幕。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
 
 ---

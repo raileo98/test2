@@ -1,3 +1,32 @@
+# 恒指半日升622點　科指升近半成　主板半日成交逾2000億元
+
+![恒指中午收市報24216點，升622點，升幅2.6%，半日主板成交額近2168億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794518_1_20250306121205.jpg&q=75)
+  
+
+港股連升兩日，恒生指數升穿24000點關口，高見24262點，創逾3年新高，中午收市報24216點，升622點，升幅2.6%，半日主板成交額突破2000億元，有近2168億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm)
+
+---
+
 # 內地股市半日升逾1%至逾2%
 
 ![內地股市半日升逾1%至逾2%，上證綜合指數上午收市報3377點，升35點，升幅1.05%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794513_1_20250306113938.jpg&q=85)
@@ -1685,30 +1714,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794371-20250305.htm)
-
----
-
-# 日股高收0.23%
-
-![日經指數收報37418點，升87點，升幅0.23%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794370_1_20250305143449.jpg&q=75)
-  
-
-日股反覆靠穩，日經指數收報37418點，升87點，升幅0.23%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794370-20250305.htm)
 
 ---

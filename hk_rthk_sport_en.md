@@ -1,3 +1,33 @@
+# Cavs hold off Heat to clinch NBA playoff berth
+
+![Donovan Mitchell poured in 26 points to lead the Cavs to their 12th straight victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_1_20250306120255.jpg&q=90)
+![Payton Pritchard knocked down 10 three-pointers in the Celtics' win over the Blazers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_2_20250306120515.jpg&q=75)
+  
+
+Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticket to the NBA playoffs with a hard-fought 112-107 victory over the Miami Heat.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm)
+
+---
+
 # Liverpool stun PSG in Champions League; Barca cruise
 
 ![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=90)
@@ -1716,34 +1746,5 @@ Three fights in the first nine seconds and a chorus of deafening boos for the US
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791853-20250216.htm](https://news.rthk.hk/rthk/en/component/k2/1791853-20250216.htm)
-
----
-
-# Arsenal beat Leicester; Bournemouth jump to fourth
-
-![A textbook header from Mikel Merino set the Gunners on their way. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791802_1_20250215223425.jpg&q=85)
-  
-
-Arsenal brushed off their shortage of specialist strikers on Saturday as midfielder Mikel Merino scored both goals in a 2-0 win at Leicester City that kept the north London club's Premier League title challenge on track.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791802-20250215.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791802-20250215.htm](https://news.rthk.hk/rthk/en/component/k2/1791802-20250215.htm)
 
 ---
