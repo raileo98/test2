@@ -1,3 +1,26 @@
+# 全國兩會｜潘功勝：今年有減息降準空間
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm)
+
+---
+
 # 20歲男子攜太空油毒品電子煙由深圳抵港被捕
 
   

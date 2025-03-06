@@ -1,3 +1,26 @@
+# 全國兩會｜潘功勝：今年有減息降準空間
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm)
+
+---
+
 # 全國兩會｜藍佛安：實施更積極財政政策　持續用力　更加給力
 
   
@@ -1700,34 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794341-20250305.htm)
-
----
-
-# 全國兩會｜教育部懷進鵬稱今年將發布人工智能教育白皮書
-
-![懷進鵬說，中國今年將發布人工智能教育白皮書，為學生提供更好的數字化、智能化時代素養和能力。 （新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794340_1_20250305122427.jpg&q=90)
-  
-
-在北京，十四屆全國人大三次會議今日開幕，國家教育部部長懷進鵬表示，Deep Seek和機器人在最近一段時間引起國內外廣泛關注，一方面說明中國科技創新和人才培養的效果，同時亦提出面對重大科技變化和產業變革，教育要如何應對。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794340-20250305.htm)
 
 ---

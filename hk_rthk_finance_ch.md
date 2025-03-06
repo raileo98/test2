@@ -1,3 +1,26 @@
+# 全國兩會｜潘功勝：今年有減息降準空間
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm)
+
+---
+
 # 全國兩會｜藍佛安：實施更積極財政政策　持續用力　更加給力
 
   
@@ -415,35 +438,6 @@
 
 ---
 
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=75)
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
 # 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
 
 ![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=80)
@@ -470,6 +464,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=75)
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -1670,34 +1693,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794430-20250305.htm)
-
----
-
-# 國務院發文要求做好科技金融及綠色金融等範疇
-
-![國務院發文指，要做好科技金融、綠色金融、普惠金融、養老金融、數字金融，這五篇大文章。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794428_1_20250305185612.jpg&q=90)
-  
-
-國務院發文要求做好金融「五篇大文章」，做好科技金融、綠色金融、普惠金融、養老金融、數字金融。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm)
 
 ---
