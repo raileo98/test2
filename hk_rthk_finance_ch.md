@@ -1,3 +1,31 @@
+# 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
+
+  
+
+人大常委會去年第4季批准增加6萬億元人民幣地方政府債務限額置換存量隱性債務。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm)
+
+---
+
 # 全國兩會｜財政部：中央財政已預留空間　人行：今年擇機降準減息
 
 ![中證監主席吳清（左二）表示，將加快健全針對科技企業資本市場機制，加大力度培育長期和耐心資本。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794608_1_20250306194446.jpg&q=80)
@@ -1677,30 +1705,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794483-20250306.htm)
-
----
-
-# 韓股初段向上
-
-![首爾綜合指數較早時報2577點，升19點，升幅0.74%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794485_1_20250306081712.jpg&q=40)
-  
-
-南韓股市在開市初段上升，首爾綜合指數較早時報2577點，升19點，升幅0.74%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794485-20250306.htm)
 
 ---

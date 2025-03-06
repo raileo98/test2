@@ -1,3 +1,60 @@
+# 澤連斯基：和平不能意味烏克蘭投降或崩潰
+
+![澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794610_1_20250306195842.jpg&q=85)
+  
+
+烏克蘭總統澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會，議題包括烏克蘭危機及加強歐洲防禦。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm)
+
+---
+
+# 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
+
+  
+
+人大常委會去年第4季批准增加6萬億元人民幣地方政府債務限額置換存量隱性債務。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm)
+
+---
+
 # 全國兩會｜財政部：中央財政已預留空間　人行：今年擇機降準減息
 
 ![中證監主席吳清（左二）表示，將加快健全針對科技企業資本市場機制，加大力度培育長期和耐心資本。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794608_1_20250306194446.jpg&q=80)
@@ -370,6 +427,7 @@
 
 # 全國兩會｜黃坤明稱廣東要打頭陣推進科技產業創新融合發展
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794595_1_20250306195450.jpg&q=85)
   
 
 廣東省全國人大代表團下午審議政府工作報告，廣東省委書記黃坤明被問到廣東未來的經濟發展方向，他表示，廣東有使命、有機遇、有基礎，亦有行動，廣東要打頭陣、當先鋒、下苦工，推進科技、產業創新融合發展，更好更長遠擔當起經濟大省責任，必定會緊緊抓住科技浪潮引領產業發展的重大機遇，爭取百尺竿頭再邁大步。

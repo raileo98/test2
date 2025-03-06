@@ -1,3 +1,31 @@
+# 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
+
+  
+
+人大常委會去年第4季批准增加6萬億元人民幣地方政府債務限額置換存量隱性債務。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm)
+
+---
+
 # 全國兩會｜財政部：中央財政已預留空間　人行：今年擇機降準減息
 
 ![中證監主席吳清（左二）表示，將加快健全針對科技企業資本市場機制，加大力度培育長期和耐心資本。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794608_1_20250306194446.jpg&q=80)
@@ -200,6 +228,7 @@
 
 # 全國兩會｜黃坤明稱廣東要打頭陣推進科技產業創新融合發展
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794595_1_20250306195450.jpg&q=85)
   
 
 廣東省全國人大代表團下午審議政府工作報告，廣東省委書記黃坤明被問到廣東未來的經濟發展方向，他表示，廣東有使命、有機遇、有基礎，亦有行動，廣東要打頭陣、當先鋒、下苦工，推進科技、產業創新融合發展，更好更長遠擔當起經濟大省責任，必定會緊緊抓住科技浪潮引領產業發展的重大機遇，爭取百尺竿頭再邁大步。
@@ -1692,34 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794383-20250305.htm)
-
----
-
-# 內地5家險企獲批開展長期投資改革試點　規模600億元人民幣
-
-![報道稱金管總局近期批覆5家保險公司開展長期投資改革試點，涉及600億元人民幣。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794382_1_20250305151040.jpg&q=30)
-  
-
-國家金融監管總局主管媒體《中國銀行保險報》報道指，當局近期再次批覆5家保險公司開展長期投資改革試點，規模合共600億元人民幣。5家險企包括人保壽險、中國人壽、太平人壽、新華人壽、平安人壽。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794382-20250305.htm)
 
 ---

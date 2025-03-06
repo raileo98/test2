@@ -1,3 +1,32 @@
+# 澤連斯基：和平不能意味烏克蘭投降或崩潰
+
+![澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794610_1_20250306195842.jpg&q=85)
+  
+
+烏克蘭總統澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會，議題包括烏克蘭危機及加強歐洲防禦。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm)
+
+---
+
 # 美國證實一架黑鷹直升機在洪都拉斯緊急降落
 
 ![美國證實一架黑鷹直升機在洪都拉斯緊急降落](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794584_1_20250306175045.jpg&q=85)
@@ -1707,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794216-20250304.htm)
-
----
-
-# 外交部：中方堅決反對美方以芬太尼問題為藉口對華施壓
-
-![外交部稱，中方堅決反對美方以芬太尼問題為藉口對華施壓。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794215_1_20250304201520.jpg&q=90)
-  
-
-國務院新聞辦公室發布《中國的芬太尼類物質管控》白皮書，表示中國加強國際禁毒合作，與包括美國在內的相關國家在應對芬太尼類物質問題方面，深入開展合作並取得明顯成效。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794215-20250304.htm)
 
 ---
