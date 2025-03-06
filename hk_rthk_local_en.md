@@ -1,3 +1,32 @@
+# 'More transparent private healthcare charges needed'
+
+![The Consumer Council says many private hospitals and clinics did not provide sufficient price information, resulting in a flood of complaints. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794529_1_20250306130052.jpg&q=80)
+  
+
+The city's consumer watchdog on Thursday called on various private healthcare service providers, including hospitals and clinics, to be more transparent when they disclose their fees, given complaints over unexpectedly higher medical costs.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm)
+
+---
+
 # Top court clears ex-Alliance trio over security probe
 
 ![Tang Ngok-kwan shares a moment with Chow Hang-tung's mother outside court after the ruling. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794515_1_20250306114719.jpg&q=80)
@@ -870,35 +899,6 @@ Taxis that offer a variety of ways to pay and come equipped with systems to keep
 
 ---
 
-# ICAC sees three percent rise in graft allegations
-
-![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
-  
-
-The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
-
----
-
 # Govt operating account largely balanced: FS
 
 ![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=30)
@@ -925,6 +925,35 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
+
+---
+
+# ICAC sees three percent rise in graft allegations
+
+![Bernard Chan, second left, says there are no signs that corruption is on the rise in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793990_1_20250303163028.jpg&q=85)
+  
+
+The ICAC on Monday said it received 2,058 reports of corruption last year, up three percent from 2023.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793990-20250303.htm)
 
 ---
 
@@ -1709,34 +1738,5 @@ Financial Secretary Paul Chan on Friday said overseas firms were still keen on t
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793606-20250228.htm)
-
----
-
-# HK condemns US politicians' slander of NSL
-
-![The government says it remains committed to enforcing national security laws while safeguarding the rights of residents under One Country, Two Systems. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793567_1_20250228014146.jpg&q=90)
-  
-
-The SAR government has condemned members of the US Senate Committee on Foreign Affairs, accusing them of making baseless allegations against Hong Kong's national security law.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793567-20250228.htm)
 
 ---

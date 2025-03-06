@@ -1,3 +1,32 @@
+# 港股下午初段升逾600點
+
+![恒生指數較早時報24274點，升679點，升幅2.88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794533_1_20250306131322.jpg&q=15)
+  
+
+港股下午開市初段延續升勢，恒生指數較早時報24274點，升679點，升幅2.88%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm)
+
+---
+
 # 天文台稱正午市區氣溫約13度　料今晚及明早氣溫進一步下降
 
 ![天文台預料今晚及明早氣溫會進一步下降，呼籲市民留意天氣變化，注意保暖。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794527_1_20250306125844.jpg&q=65)
@@ -20,6 +49,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm)
+
+---
+
+# 市建局旺角項目截收意向書　分析料項目發展促進服務或降流標風險
+
+![萊坊估計，市建局山東街/地士道街發展項目估值介乎6.5億至8億元，相信「項目發展促進服務」有助降低流標風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794526_1_20250306124632.jpg&q=80)
+  
+
+市建局九龍山東街/地士道街發展項目中午截收合作發展意向書。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm)
 
 ---
 
@@ -1681,63 +1739,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794365-20250305.htm)
-
----
-
-# 財政預算案2025｜孫玉菡稱有信心助社福機構面對撥款減幅
-
-![孫玉菡表示，社福機構撥款需要削減，當局將推行鬆綁措施，有信心能幫助機構面對減幅。](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794362_1_20250305134235.jpg&q=85)
-  
-
-財政預算案提出至2027/28年度，累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，社福機構撥款需要削減，當局將推行鬆綁措施，有信心能幫助機構面對減幅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794362-20250305.htm)
-
----
-
-# 甯漢豪稱勿忘過去多年承受土地不足痛苦　指規劃及造地要持續進行
-
-![甯漢豪認為，規劃及造地要持續進行，強調正進行的研究不會浪費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794361_1_20250305134337.jpg&q=60)
-  
-
-發展局局長甯漢豪表示，未來幾年原本有幾幅沙田石門的商業地，考慮到今年度推售沙田小瀝源住宅地市場反應幾好，有空間可改劃住宅用途，但何時推出，會動態看市場反應。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794361-20250305.htm)
 
 ---

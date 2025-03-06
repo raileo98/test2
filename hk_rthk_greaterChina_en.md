@@ -1,3 +1,32 @@
+# Chinese PhD student convicted of raping 10 women
+
+![UK police say Zou Zhenhao used online platforms and dating apps to meet women who he invited to his home under the pretext of having drinks or studying before he drugged them. Photo: Metropolitan Police via Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794530_1_20250306130805.jpg&q=90)
+  
+
+A PhD student from China was found guilty on Wednesday in a London court of drugging and raping 10 women in China and the UK, as British police warned there could be more than 50 other victims.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
+
+---
+
 # Tibet official says classes resume after deadly quake
 
 ![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=30)
@@ -1709,34 +1738,5 @@ Vice Premier He Lifeng expressed concerns over US tariffs and trade restrictions
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792684-20250221.htm)
-
----
-
-# Window for peace opening for Ukraine war: Wang Yi
-
-![Wang Yi says China supports all efforts to achieve peace in Ukraine conflict. File photo: XInhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792581_1_20250221104147.jpg&q=85)
-  
-
-Foreign Minister Wang Yi told his G20 counterparts on Thursday that a "window for peace" is opening for the Ukraine crisis, days after top US and Russian diplomats met in Saudi Arabia.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm)
 
 ---

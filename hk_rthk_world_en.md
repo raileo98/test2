@@ -1,3 +1,32 @@
+# Chinese PhD student convicted of raping 10 women
+
+![UK police say Zou Zhenhao used online platforms and dating apps to meet women who he invited to his home under the pretext of having drinks or studying before he drugged them. Photo: Metropolitan Police via Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794530_1_20250306130805.jpg&q=90)
+  
+
+A PhD student from China was found guilty on Wednesday in a London court of drugging and raping 10 women in China and the UK, as British police warned there could be more than 50 other victims.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
+
+---
+
 # Rare cyclone approaches Australian coast
 
 ![Members of the NSW State Emergency Service inspect a satellite image of Tropical Cyclone Alfred. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794517_1_20250306120635.jpg&q=75)
@@ -1711,34 +1740,5 @@ Venezuela will soon have its first saint, after ailing Pope Francis on Tuesday c
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793161-20250226.htm)
-
----
-
-# A third of Musk's Doge staff resign in protest
-
-![Elon Musk's downsizing has led to the layoff of more than 20,000 workers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793173_1_20250226062227.jpg&q=85)
-  
-
-More than 20 civil service employees resigned on Tuesday from billionaire Trump adviser Elon Musk's Department of Government Efficiency (Doge), saying they were refusing to use their technical expertise to “dismantle critical public services”.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793173-20250226.htm)
 
 ---

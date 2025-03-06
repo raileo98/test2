@@ -1,5 +1,64 @@
+# 海港企業去年度虧損收窄　基礎盈利8300萬元扭虧
+
+![海港企業去年度虧損收窄至7000萬元，基礎淨盈利8300萬元。圖為旗下美利酒店。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794532_1_20250306131020.jpg&q=65)
+  
+
+海港企業去年度虧損收窄至7000萬元，前年度則錄得近1.1億元虧損。派發中期息每股5仙，以代替派發末期息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm)
+
+---
+
+# 港股下午初段升逾600點
+
+![恒生指數較早時報24274點，升679點，升幅2.88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794533_1_20250306131322.jpg&q=15)
+  
+
+港股下午開市初段延續升勢，恒生指數較早時報24274點，升679點，升幅2.88%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm)
+
+---
+
 # 全國兩會｜西藏自治區推動國家公民與法治意識教育獲支持
 
+![嘎瑪澤登表示，西藏政府持續推進藏傳佛教中國化，開展反分裂鬥爭，深化拓展國家意識、公民意識和法治意識的「三個意識」。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794528_1_20250306131132.jpg&q=30)
   
 
 在北京，全國人大代表、西藏自治區政府主席嘎瑪澤登表示，西藏政府持續推進藏傳佛教中國化，開展反分裂鬥爭，深化拓展國家意識、公民意識和法治意識的「三個意識」，社會穩定態勢持續向好。
@@ -51,7 +110,7 @@
 
 ---
 
-# 市建局旺角項目截收意向　分析料項目發展促進服務或降低流標風險
+# 市建局旺角項目截收意向書　分析料項目發展促進服務或降流標風險
 
 ![萊坊估計，市建局山東街/地士道街發展項目估值介乎6.5億至8億元，相信「項目發展促進服務」有助降低流標風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794526_1_20250306124632.jpg&q=80)
   
@@ -400,6 +459,7 @@
 
 # 韓美軍演有炮彈落入社區有人受傷　當局正確認具體情況
 
+![社區內有幾間房屋受損，當局仍在確認具體情況。（法新社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794509_1_20250306131038.jpg&q=55)
   
 
 韓美軍事演習懷疑有炮彈落入社區，最少7人受傷。
@@ -1652,63 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794456-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794456-20250305.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽　賽會接147名觀眾查詢涉265張門票
-
-![賽事組委會表示，截至晚上10時，接獲147位觀眾查詢，合共涉及265張門票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794457_1_20250305235549.jpg&q=85)
-  
-
-世界格蘭披治桌球大獎賽的賽事組委會表示，截至晚上10時，接獲147位觀眾查詢，合共涉及265張門票，當中38位觀眾已於星期三即時換取門票入場觀看賽事，其餘觀眾將獲安排陸續領取星期四賽事的門票。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794457-20250305.htm)
-
----
-
-# 味千料去年盈轉虧　虧損不多於4000萬元人民幣
-
-![味千中國預料去年虧損不多於4000萬元人民幣，由於錄得投資物業重估虧損、營運成本上升等所致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794445_1_20250305213126.jpg&q=85)
-  
-
-味千中國發盈利警告，預料去年虧損不多於4000萬元人民幣，前年盈利1.81億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794445-20250305.htm)
 
 ---

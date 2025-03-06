@@ -1,4 +1,62 @@
-# 市建局旺角項目截收意向　分析料項目發展促進服務或降低流標風險
+# 海港企業去年度虧損收窄　基礎盈利8300萬元扭虧
+
+![海港企業去年度虧損收窄至7000萬元，基礎淨盈利8300萬元。圖為旗下美利酒店。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794532_1_20250306131020.jpg&q=65)
+  
+
+海港企業去年度虧損收窄至7000萬元，前年度則錄得近1.1億元虧損。派發中期息每股5仙，以代替派發末期息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm)
+
+---
+
+# 港股下午初段升逾600點
+
+![恒生指數較早時報24274點，升679點，升幅2.88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794533_1_20250306131322.jpg&q=15)
+  
+
+港股下午開市初段延續升勢，恒生指數較早時報24274點，升679點，升幅2.88%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm)
+
+---
+
+# 市建局旺角項目截收意向書　分析料項目發展促進服務或降流標風險
 
 ![萊坊估計，市建局山東街/地士道街發展項目估值介乎6.5億至8億元，相信「項目發展促進服務」有助降低流標風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794526_1_20250306124632.jpg&q=80)
   
@@ -1660,63 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794377-20250305.htm)
-
----
-
-# 全國兩會｜金融監管總局研究提高消費貸款額度　延長消費貸款期限
-
-![李雲澤說，針對長期大額消費需求，將研究提高消費貸款額度，延長消費貸款期限。（新華社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794367_1_20250305152642.jpg&q=90)
-  
-
-國家金融監督管理總局局長李雲澤表示，隨著中國經濟步入新發展階段，提振消費日益成為經濟增長主引擎，科技創新更是高質量發展動力源，金融監管總局將著力推動金融資源優化配置，全方位擴大國內需求，切實增強人民群眾的獲得感和滿意度。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm)
-
----
-
-# 新西蘭央行總裁奧爾辭職　提早3年卸任
-
-![新西蘭央行總裁奧爾辭職，副總裁霍克斯比將擔任代理總裁直至本月底。（新西蘭央行圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794374_1_20250305144427.jpg&q=90)
-  
-
-新西蘭央行總裁奧爾辭職，結束7年任期，將休假至本月底離任，他原定2028年3月底卸任。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794374-20250305.htm)
 
 ---

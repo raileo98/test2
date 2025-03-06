@@ -1,3 +1,61 @@
+# 'More transparent private healthcare charges needed'
+
+![The Consumer Council says many private hospitals and clinics did not provide sufficient price information, resulting in a flood of complaints. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794529_1_20250306130052.jpg&q=80)
+  
+
+The city's consumer watchdog on Thursday called on various private healthcare service providers, including hospitals and clinics, to be more transparent when they disclose their fees, given complaints over unexpectedly higher medical costs.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm)
+
+---
+
+# Chinese PhD student convicted of raping 10 women
+
+![UK police say Zou Zhenhao used online platforms and dating apps to meet women who he invited to his home under the pretext of having drinks or studying before he drugged them. Photo: Metropolitan Police via Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794530_1_20250306130805.jpg&q=90)
+  
+
+A PhD student from China was found guilty on Wednesday in a London court of drugging and raping 10 women in China and the UK, as British police warned there could be more than 50 other victims.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
+
+---
+
 # Top court clears ex-Alliance trio over security probe
 
 ![Tang Ngok-kwan shares a moment with Chow Hang-tung's mother outside court after the ruling. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794515_1_20250306114719.jpg&q=80)
@@ -1682,63 +1740,5 @@ The chairman of a leading casino and hospitality group in Macau said on Tuesday 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm)
-
----
-
-# China to firmly defend its interests: ambassador
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794184_1_20250304171254.jpg&q=85)
-  
-
-China's ambassador to the United States says while China needs to firmly defend its interests, it will continue to handle Sino-US relations based on mutual respect, peaceful coexistence, and win-win cooperation.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm)
-
----
-
-# China to 'fight to the end' against US tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794183_1_20250304171121.jpg&q=90)
-  
-
-China vowed on Tuesday to fight to the "bitter end" if the United States pushes a trade war, after Washington and Beijing exchanged a salvo of tariffs.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
 
 ---
