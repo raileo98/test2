@@ -1,3 +1,32 @@
+# SKorea military jet misdrops bombs, injuring civilians
+
+![A South Korean soldier gestures near a bomb accident site outside a military live-fire training range in Pocheon. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=75)
+  
+
+South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm)
+
+---
+
 # Briton jailed for 19 years for fighting for Ukraine
 
 ![Investigators accused Anderson of illegally crossing into Kursk in November as part of an armed group that committed unspecified "criminal acts against civilians." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794494_1_20250306091939.jpg&q=90)
@@ -1711,34 +1740,5 @@ French President Emmanuel Macron will brief fellow EU leaders on Wednesday on hi
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793141-20250225.htm)
-
----
-
-# UK PM pledges to spend 2.5% of GDP on defence by 2027
-
-![Keir Starmer tells MPs the increase will be funded by cutting overseas development aid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793142_1_20250225221040.jpg&q=90)
-  
-
-British Prime Minister Keir Starmer on Tuesday pledged to boost defence spending to 2.5 percent of the economy by 2027 with the aim of hiking it to 3 percent in the next parliament.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm)
 
 ---

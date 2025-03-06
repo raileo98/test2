@@ -1,3 +1,32 @@
+# SKorea military jet misdrops bombs, injuring civilians
+
+![A South Korean soldier gestures near a bomb accident site outside a military live-fire training range in Pocheon. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=75)
+  
+
+South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm)
+
+---
+
 # Tech stocks push HSI over 24,000 points
 
 ![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=85)
@@ -1710,34 +1739,5 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
-
----
-
-# Canada to retaliate against US tariffs: Trudeau
-
-![Canada says it will retaliate over US President Donald Trump's tariffs, raising concerns over job losses, economic instability, and heightened trade tensions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794162_2_20250305082147.jpg&q=90)
-  
-
-Canada will slap tariffs on US imports beginning on Tuesday in response to levies pledged by President Donald Trump, Prime Minister Justin Trudeau said on Monday, adding "there is no justification" for Washington's actions.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
 
 ---
