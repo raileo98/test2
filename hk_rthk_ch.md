@@ -1,3 +1,31 @@
+# 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
+
+  
+
+國家發改委主任鄭柵潔表示，經過「十四五」這幾年發展，對高質量發展的信心和底氣進一步增強。今年將認真做好「十五五」規劃編制相關工作，會作充分調查，通過多種方式聽取各方意見建議，與各方共同編制規劃《綱要草案》，提出一批重大戰略任務、政策舉措和工程項目，並在明年提交全國兩會。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm)
+
+---
+
 # 港鐵料未來12個月多個項目有條件推出市場
 
   

@@ -1,3 +1,31 @@
+# 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
+
+  
+
+國家發改委主任鄭柵潔表示，經過「十四五」這幾年發展，對高質量發展的信心和底氣進一步增強。今年將認真做好「十五五」規劃編制相關工作，會作充分調查，通過多種方式聽取各方意見建議，與各方共同編制規劃《綱要草案》，提出一批重大戰略任務、政策舉措和工程項目，並在明年提交全國兩會。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm)
+
+---
+
 # 港鐵料未來12個月多個項目有條件推出市場
 
   
@@ -1668,35 +1696,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm)
-
----
-
-# 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
-
-![電池滅火系統能深入車底電池位置，透過高壓氣動針刺針刺穿車輛底部的電池外殼，直接注水，迅速為電池降溫。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_3_20250306103321.jpg&q=45)
-![應急插頭可應用於電動車火災或交通意外現場，暫時阻止電動車突然移動。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_4_20250306103321.jpg&q=85)
-  
-
-消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm)
 
 ---
