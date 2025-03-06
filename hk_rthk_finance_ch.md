@@ -1,3 +1,32 @@
+# 港股重上24000點　科技股上升　長和再升逾4%
+
+![恒生指數初段高見24116點，較早時報24089點，升495點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794499_1_20250306094212.jpg&q=20)
+  
+
+港股開市初段升穿24000點，恒生指數高見24116點，創逾3年高位，較早時報24089點，升495點，升幅2.1%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm)
+
+---
+
 # 人行開展1045億元人民幣逆回購操作
 
 ![人民銀行公開市場進行1045億元人民幣7日期逆回購操作，單日淨回籠1105億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794497_1_20250306093415.jpg&q=55)
@@ -1678,35 +1707,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794363-20250305.htm)
-
----
-
-# 全國兩會｜霍啟剛稱政府工作報告穩大局　吳秋北指香港有更多發展
-
-![霍啟剛指工作報告有「穩大局」面向世界的角色，同時「穩信心」。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794360_1_20250305134426.jpg&q=85)
-![吳秋北認為，在粵港澳大灣區建設制度機制要有更多連接，令大灣區動能發揮更大作用。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794360_2_20250305134426.jpg&q=80)
-  
-
-國務院總理李強發表內任第二份政府工作報告，在北京，港區人大代表霍啟剛表示，當前確實面臨很多挑戰，世界局面正在變化，工作報告有「穩大局」面向世界的角色，同時「穩信心」，對過往一年的經濟指標給予肯定。他又認為報告為未來的前進步伐提供清晰路徑及藍圖。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
 
 ---

@@ -1,3 +1,118 @@
+# 鄭泳舜指桌球賽觀眾被要求離場事件影響形象　學者稱外行領導內行
+
+  
+
+在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。浸會大學體育、運動及健康學系教授劉永松認為事件明顯是「外行領導內行」，有關方面對賽事本質不了解。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm)
+
+---
+
+# 消委會研究發現私家醫院收費差距甚大　不少價目資料不足及難明
+
+![消委會由2021至2024年，共接獲191宗有關私家醫院及日間醫療中心的投訴。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794501_1_20250306100033.jpg&q=10)
+  
+
+根據私營醫療機構條例，私家醫院須提供價目資料、收費預算、過往收費統計數據。消委會硏究報告發現不少私院價目資料難明、不足；收費統計數據沒有即時更新；病人之間收費差距甚大；部份醫療機構缺乏詳盡書面費用預算。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm)
+
+---
+
+# 港股重上24000點　科技股上升　長和再升逾4%
+
+![恒生指數初段高見24116點，較早時報24089點，升495點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794499_1_20250306094212.jpg&q=20)
+  
+
+港股開市初段升穿24000點，恒生指數高見24116點，創逾3年高位，較早時報24089點，升495點，升幅2.1%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm)
+
+---
+
+# 人行開展1045億元人民幣逆回購操作
+
+![人民銀行公開市場進行1045億元人民幣7日期逆回購操作，單日淨回籠1105億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794497_1_20250306093415.jpg&q=55)
+  
+
+人民銀行公開市場進行1045億元人民幣7日期逆回購操作，利率維持於1.5厘。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794497-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794497-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794497-20250306.htm)
+
+---
+
 # 內地股市初段上升
 
 ![上證綜合指數較早時報3351點，升9點，升幅0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794498_1_20250306093736.jpg&q=85)
@@ -136,6 +251,12 @@
 ---
 
 # 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794489_1_20250306093915.jpg&q=80)
+  
+
+在北京，國務院副總理丁薛祥上午出席港澳地區全國政協委員聯組會議，聽取委員發言。全國政協副主席何厚鏵、梁振英、中央港澳辦、國務院港澳辦主任夏寶龍亦有列席會議。
+  
 
   
 
@@ -326,7 +447,7 @@
 
 # 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
 
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_1_20250306075853.jpg&q=80)
+![消防處表示，灌救電動車火警較傳統汽油車複雜。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_2_20250306095302.jpg&q=75)
   
 
 消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
@@ -1598,121 +1719,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
-
----
-
-# 全國兩會｜李強︰持續用力推動房地產市場止跌回穩
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794409_1_20250305184936.jpg&q=20)
-  
-
-國務院總理李強說，要有效防範化解重點領域風險，牢牢守住不發生系統性風險底線，包括持續用力推動房地產市場止跌回穩，合理控制新增房地產用地供應。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm)
-
----
-
-# 口岸爆炸案警長稱雖沒見過真人　但可從閉路電視片段認出被告
-
-![口岸爆炸案高等法院踏入第64天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794426_1_20250305184541.jpg&q=80)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第64天審訊。控方今展示涉案手機通訊群組記錄，懷疑屬於被告楊怡斯的帳戶向群組發送將軍澳尚德停車場的相片，控方開案陳詞指，涉案群組成員計劃在當年3月於將軍澳放置炸彈。辯方盤問調查本案的偵緝警長時，質疑警長無法肯定閉路電視拍攝到的女子是楊怡斯，警長不同意。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794426-20250305.htm)
-
----
-
-# 桌球大獎賽未完先要求觀眾離場　羅淑佩：主辦方與體育園需磨合
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794423_1_20250305184339.jpg&q=85)
-  
-
-世界格蘭披治桌球大獎賽一連六天於啟德體藝館上演，昨天首天賽事到晚上11時許尾場仍未結束，主辦方在現場發放訊息，要求觀眾離場，當時場內仍有約數十名觀眾。主辦方就事件致歉，安排受影響觀眾可以兌換今明兩天同等票價門票。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794423-20250305.htm)
-
----
-
-# 全國兩會｜李強：今年國內生產總值增長目標5%左右
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794411_1_20250305183804.jpg&q=75)
-  
-
-十四屆全國人大三次會上午在北京開幕，國務院總理李強發表政府工作報告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm)
 
 ---

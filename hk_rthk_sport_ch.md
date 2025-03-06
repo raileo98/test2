@@ -1,3 +1,31 @@
+# 鄭泳舜指桌球賽觀眾被要求離場事件影響形象　學者稱外行領導內行
+
+  
+
+在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。浸會大學體育、運動及健康學系教授劉永松認為事件明顯是「外行領導內行」，有關方面對賽事本質不了解。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm)
+
+---
+
 # 歐聯16強首回合國米挫飛燕諾　利物浦勝聖日耳門　拜仁巴塞報捷
 
 ![利物浦作客一球小勝對手。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794479_1_20250306072423.jpg&q=80)
@@ -1712,34 +1740,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793386-20250226.htm)
-
----
-
-# 英超聯賽　車路士4:0修咸頓　水晶宮4:1阿士東維拉
-
-![車路士主場4:0大勝修咸頓。（路透社）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793178_1_20250226071547.jpg&q=75)
-  
-
-英格蘭超級足球聯賽，車路士主場4:0大勝修咸頓。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm](https://news.rthk.hk/rthk/ch/component/k2/1793178-20250226.htm)
 
 ---

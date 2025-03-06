@@ -1,3 +1,32 @@
+# Tech stocks push HSI over 24,000 points
+
+![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose over two percent. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=85)
+  
+
+Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Trump administration delayed auto tariffs on Canada and Mexico.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
+
+---
+
 # Wall Street rebounds after Trump pauses auto tariffs
 
 ![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
@@ -1706,34 +1735,5 @@ The World Trade Organization (WTO) said on Wednesday that discussions on trade t
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792389-20250220.htm)
-
----
-
-# S&P 500 adds to its record as US stocks drift higher
-
-![The S&P 500 posts a second straight record following a choppy session amid lingering worries about US tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792388_1_20250220073209.jpg&q=85)
-  
-
-The S&P 500 added to its record as US stock indexes drifted through a quiet Wednesday on Wall Street.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792388-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792388-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792388-20250220.htm)
 
 ---

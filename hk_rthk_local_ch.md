@@ -1,4 +1,96 @@
+# 鄭泳舜指桌球賽觀眾被要求離場事件影響形象　學者稱外行領導內行
+
+  
+
+在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。浸會大學體育、運動及健康學系教授劉永松認為事件明顯是「外行領導內行」，有關方面對賽事本質不了解。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm)
+
+---
+
+# 消委會研究發現私家醫院收費差距甚大　不少價目資料不足及難明
+
+![消委會由2021至2024年，共接獲191宗有關私家醫院及日間醫療中心的投訴。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794501_1_20250306100033.jpg&q=10)
+  
+
+根據私營醫療機構條例，私家醫院須提供價目資料、收費預算、過往收費統計數據。消委會硏究報告發現不少私院價目資料難明、不足；收費統計數據沒有即時更新；病人之間收費差距甚大；部份醫療機構缺乏詳盡書面費用預算。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794501-20250306.htm)
+
+---
+
+# 港股重上24000點　科技股上升　長和再升逾4%
+
+![恒生指數初段高見24116點，較早時報24089點，升495點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794499_1_20250306094212.jpg&q=20)
+  
+
+港股開市初段升穿24000點，恒生指數高見24116點，創逾3年高位，較早時報24089點，升495點，升幅2.1%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm)
+
+---
+
 # 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
+
+![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794489_1_20250306093915.jpg&q=80)
+  
+
+在北京，國務院副總理丁薛祥上午出席港澳地區全國政協委員聯組會議，聽取委員發言。全國政協副主席何厚鏵、梁振英、中央港澳辦、國務院港澳辦主任夏寶龍亦有列席會議。
+  
 
   
 
@@ -52,7 +144,7 @@
 
 # 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
 
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_1_20250306075853.jpg&q=80)
+![消防處表示，灌救電動車火警較傳統汽油車複雜。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_2_20250306095302.jpg&q=75)
   
 
 消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
@@ -1649,93 +1741,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794333-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794333-20250305.htm)
-
----
-
-# 孫東率團訪西班牙出席世界移動通信大會　到訪生物醫學研究園
-
-![孫東在西班牙巴塞羅那出席香港科技館酒會，並見證了香港貿易發展局與巴塞羅那市議會就促進兩地企業間的商貿關係簽署諒解備忘錄。 （政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794330_1_20250305111510.jpg&q=50)
-![孫東訪問西班牙巴塞羅那生物醫學研究園。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794330_2_20250305111510.jpg&q=35)
-  
-
-創新科技及工業局局長孫東率領業界代表團訪問西班牙巴塞羅那，並出席世界移動通信大會2025。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794330-20250305.htm)
-
----
-
-# 財政預算案2025｜甯漢豪：改劃住宅地何時推出要看市場反應
-
-![甯漢豪強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794326_1_20250305105547.jpg&q=80)
-  
-
-財政預算案提出，計劃將部分商業用地改劃作住宅地，發展局局長甯漢豪舉例說，未來幾年原本有幾幅在沙田石門的商業地，考慮到今年沙田小瀝源住宅地市場反應幾好，有空間可改劃作住宅用途，但她強調即使改劃作住宅地，地皮何時推出、是否放入賣地表、某一季是否推出，會動態看市場反應。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794326-20250305.htm)
-
----
-
-# 桌球賽觀眾被要求提早離場　主辦單位致歉並提出補償方案
-
-![組委會對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794320_1_20250305103841.jpg&q=85)
-  
-
-世界格蘭披治桌球大獎賽賽事組委會發聲明，對於昨晚其中一場尾場賽事，有觀眾在賽事未完結前，被要求提早離場致歉。組委會又提出補償方案，持有昨晚7時半的1號枱門票的觀眾，可於今明兩日上午10時半至晚上8時，憑票尾到G門對面的賽事紀念品售賣點，兌換今明兩日任何場次同等票價的可售門票。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm)
 
 ---

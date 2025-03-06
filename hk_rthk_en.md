@@ -1,3 +1,61 @@
+# Tech stocks push HSI over 24,000 points
+
+![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose over two percent. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=85)
+  
+
+Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Trump administration delayed auto tariffs on Canada and Mexico.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
+
+---
+
+# Briton jailed for 19 years for fighting for Ukraine
+
+![Investigators accused Anderson of illegally crossing into Kursk in November as part of an armed group that committed unspecified "criminal acts against civilians." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794494_1_20250306091939.jpg&q=90)
+  
+
+Britain strongly condemned on Wednesday the sentencing of UK national James Anderson to 19 years in prison by a Russian court, which accused him of having fought for the Ukrainian army.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm)
+
+---
+
 # 'Premier offers guidance on One Country, Two Systems'
 
 ![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=55)
@@ -1681,63 +1739,5 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
-
----
-
-# Chinese private firms eye support from Two Sessions
-
-![He Xiaopeng wants his firm to take advantage of Hong Kong developing its "low altitude economy". File photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794147_1_20250304150835.jpg&q=90)
-  
-
-Entrepreneurs and leaders of mainland private enterprises have expressed hope that Beijing will roll out more supportive measures to assist with the nation's industrial upgrade, while balancing the development of various industries.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm)
-
----
-
-# China's economy solid amid challenges: NPC spokesman
-
-![](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
-  
-
-China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
 
 ---

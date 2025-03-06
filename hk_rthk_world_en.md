@@ -1,3 +1,32 @@
+# Briton jailed for 19 years for fighting for Ukraine
+
+![Investigators accused Anderson of illegally crossing into Kursk in November as part of an armed group that committed unspecified "criminal acts against civilians." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794494_1_20250306091939.jpg&q=90)
+  
+
+Britain strongly condemned on Wednesday the sentencing of UK national James Anderson to 19 years in prison by a Russian court, which accused him of having fought for the Ukrainian army.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm)
+
+---
+
 # US breaks with policy to negotiate with Hamas
 
 ![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=80)
@@ -1711,34 +1740,5 @@ British Prime Minister Keir Starmer on Tuesday pledged to boost defence spending
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793142-20250225.htm)
-
----
-
-# Search for MH370 resumes 11 years after disappearance
-
-![Pieces of wreckage thought to be from MH370 on display in Subang Jaya. Photo: AFP](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793140_1_20250225214812.jpg&q=60)
-  
-
-A fresh search for Malaysia Airlines flight MH370 has been launched more than a decade after the plane went missing in one of aviation's greatest enduring mysteries.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793140-20250225.htm)
 
 ---
