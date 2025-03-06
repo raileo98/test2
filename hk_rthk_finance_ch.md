@@ -1,3 +1,31 @@
+# 全國兩會｜王文濤：經濟全球化歷史潮流不可逆轉　有信心穩住外貿
+
+  
+
+商務部部長王文濤表示，外部環境帶來的不利影響加深，單邊主義和保護主義加劇，個別國家揮舞「關稅大棒」，擾亂國際貿易秩序，衝擊全球產業鏈供應鏈穩定，中國外貿發展面臨嚴峻形勢。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm)
+
+---
+
 # 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
 
   
@@ -1667,34 +1695,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm)
-
----
-
-# 南韓2月通脹率回落至2%　略高過預期
-
-![南韓2月消費物價指數(CPI)按年上升2%，升幅低過1月的2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794481_1_20250306075710.jpg&q=10)
-  
-
-南韓統計廳數據顯示，2月南韓消費物價指數(CPI)按年上升2%，升幅低過1月的2.2%，但仍略高過市場預期中值的1.95%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794481-20250306.htm)
 
 ---

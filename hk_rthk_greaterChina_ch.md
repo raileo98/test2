@@ -1,3 +1,31 @@
+# 全國兩會｜王文濤：經濟全球化歷史潮流不可逆轉　有信心穩住外貿
+
+  
+
+商務部部長王文濤表示，外部環境帶來的不利影響加深，單邊主義和保護主義加劇，個別國家揮舞「關稅大棒」，擾亂國際貿易秩序，衝擊全球產業鏈供應鏈穩定，中國外貿發展面臨嚴峻形勢。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm)
+
+---
+
 # 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
 
   
@@ -1692,34 +1720,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794378-20250305.htm)
-
----
-
-# 全國兩會｜金融監管總局研究提高消費貸款額度　延長消費貸款期限
-
-![李雲澤說，針對長期大額消費需求，將研究提高消費貸款額度，延長消費貸款期限。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794367_1_20250305152642.jpg&q=80)
-  
-
-國家金融監督管理總局局長李雲澤表示，隨著中國經濟步入新發展階段，提振消費日益成為經濟增長主引擎，科技創新更是高質量發展動力源，金融監管總局將著力推動金融資源優化配置，全方位擴大國內需求，切實增強人民群眾的獲得感和滿意度。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794367-20250305.htm)
 
 ---
