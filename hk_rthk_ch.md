@@ -1,5 +1,148 @@
+# 養和醫院稱有書面預算案給予病人　有醫生指醫療物料不一收費有別
+
+  
+
+私營醫療機構條例要求私家醫院提供價目資料、收費預算同過往收費統計數據。消委會研究發現，不少私營醫療機構的價目資料難明同不足，收費統計數據亦沒有即時更新，不同醫院的收費差距大，部分私家醫院或日間醫療中心收費表，一般不會列出醫生費及定價標準。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm)
+
+---
+
+# 全國兩會｜有政協委員引述丁薛祥鼓勵工商界投資創科企業
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
+
+---
+
+# 消委會：近半涉私院及醫療中心投訴與收費有關　建議網上公布價目
+
+  
+
+消委會過去4年接獲近200宗涉及私家醫院及日間醫療中心的投訴，其中有近半數與收費爭議有關。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm)
+
+---
+
+# 民政事務總署已在各區開放共十八間臨時避寒中心
+
+![臨時避寒中心將於寒冷天氣警告持續生效期間繼續開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794589_1_20250306180303.jpg&q=85)
+  
+
+民政事務總署已在各區開放共十八間臨時避寒中心，供有需要的市民避寒，中心會於寒冷天氣警告持續生效期間繼續開放。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm)
+
+---
+
+# 勞聯調查指逾三成受訪婦女一星期內間中或常常面對抑鬱及壓力問題
+
+![勞聯建議推動全港婦女健康檢查運動，設立「婦女身體檢查津貼」，資助合資格基層婦女進行身體檢查。（勞聯提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794587_1_20250306180634.jpg&q=65)
+  
+
+勞聯一項調查發現，超過三成受訪婦女在受訪前的過去一星期內，間中或常常面對抑鬱及壓力問題，但只有9.7%的受訪婦女在面對情緒問題時會尋求專業幫助，勞聯認為結果反映本港婦女心理健康支援服務的宣傳與接收度不足。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm)
+
+---
+
 # 全國兩會｜王文濤︰相信「辦法總比困難多」
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794586_1_20250306181504.jpg&q=20)
   
 
 商務部部長王文濤，被問到如何看待今年外貿發展面臨形勢時說，個別國家揮舞「關稅大棒」，國家外貿發展面臨嚴峻形勢，但相信「辦法總比困難多」，完全有信心、有底氣穩住外貿基本盤。
@@ -53,6 +196,7 @@
 
 # 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
 
+![港鐵表示，去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794585_1_20250306181006.jpg&q=70)
   
 
 港鐵去年盈利超過157億元，港鐵行政總裁金澤培在業績記者會上表示，港鐵去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平，但過境鐵路及機場快綫的乘客量仍未回復疫情前水平，估計與過境口岸增加，其他公共交通競爭激烈有關，加上旅客的出行模式改變。至於高鐵的載客人數去年就持續上升，全年突破2600萬人次。

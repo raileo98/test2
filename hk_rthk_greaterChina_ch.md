@@ -1,5 +1,34 @@
+# 全國兩會｜有政協委員引述丁薛祥鼓勵工商界投資創科企業
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
+
+---
+
 # 全國兩會｜王文濤︰相信「辦法總比困難多」
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794586_1_20250306181504.jpg&q=20)
   
 
 商務部部長王文濤，被問到如何看待今年外貿發展面臨形勢時說，個別國家揮舞「關稅大棒」，國家外貿發展面臨嚴峻形勢，但相信「辦法總比困難多」，完全有信心、有底氣穩住外貿基本盤。
@@ -714,7 +743,7 @@
 
 # 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
 
-![習近平（左）表示，經濟大省要挑大樑，為全國發展大局做貢獻。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=80)
   
 
 國家主席習近平表示，要全面落實民營企業座談會精神，一視同仁對待各種所有制企業，持續優化營商環境，要深化要素市場化配置改革，主動破除地方保護、市場分割及內卷式競爭。
@@ -1694,34 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794360-20250305.htm)
-
----
-
-# 全國兩會｜市監總局將制定出台直播電商監管辦法　規範直播交易
-
-![羅文指市監總局將壓實平台審核責任，加強產品質量專項抽檢，加大監管執法力度。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794359_1_20250305134514.jpg&q=90)
-  
-
-國家市場監管總局局長羅文表示，部分主播惡意炒作，虛假行銷，帶來假冒偽劣產品現象比較突出，消費者反映強烈亦十分突出。市監總局將壓實平台審核責任，加強產品質量專項抽檢，加大監管執法力度，嚴厲打擊虛假廣告、虛假宣傳等行為，維護公平競爭秩序，不斷提升網售產品質量。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794359-20250305.htm)
 
 ---
