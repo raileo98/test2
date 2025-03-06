@@ -1,3 +1,31 @@
+# 美烏官員擬下周於沙特會談　澤連斯基︰烏方將與特朗普合作
+
+  
+
+美國和烏克蘭官員計劃下星期在沙特阿拉伯舉行會議，討論結束俄烏戰爭。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm)
+
+---
+
 # 特朗普簽署修正案　暫緩對符合《美墨加協定》商品徵收關稅
 
   
@@ -1695,34 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm)
-
----
-
-# 日本東北新幹線有列車脫卡無人傷　屬半年內第二宗同類事故
-
-![由綠色「隼」號列車與紅色「小町」號列車連接而成的重聯運行列車脫卡，停在西日暮里站附近。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794571_1_20250306165306.jpg&q=5)
-  
-
-日本東北新幹線一列列車在行駛途中脫卡，無人受傷，是半年內第二宗同類事故。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm)
 
 ---

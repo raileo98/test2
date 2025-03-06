@@ -1,3 +1,31 @@
+# 美烏官員擬下周於沙特會談　澤連斯基︰烏方將與特朗普合作
+
+  
+
+美國和烏克蘭官員計劃下星期在沙特阿拉伯舉行會議，討論結束俄烏戰爭。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm)
+
+---
+
 # 特朗普簽署修正案　暫緩對符合《美墨加協定》商品徵收關稅
 
   
@@ -1702,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794248-20250305.htm)
-
----
-
-# 墨西哥總統：將採取措施應對美國加徵關稅
-
-![辛鮑姆強調，美方指責墨西哥打擊販毒不力的言論「非常無理、純屬誹謗、毫無依據」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794247_1_20250305024652.jpg&q=85)
-  
-
-墨西哥總統辛鮑姆表示，墨西哥將採取措施應對美國加徵關稅，措施將於周日宣佈。她強調，美方指責墨西哥打擊販毒不力的言論「非常無理、純屬誹謗、毫無依據」。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794247-20250305.htm)
 
 ---
