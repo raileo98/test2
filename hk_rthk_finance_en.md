@@ -1,3 +1,32 @@
+# Thanks to property gains, MTR profit more than doubles
+
+![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=35)
+  
+
+Net profit at the MTR Corporation more than doubled last year, thanks largely to strong gains in local property development.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
+
+---
+
 # 'Growth target can be met despite uncertainty'
 
 ![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
@@ -1706,34 +1735,5 @@ The Bank of East Asia (BEA) on Thursday said it has been closely monitoring risk
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792489-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792489-20250220.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 1.6 percent at 22,576. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792477_1_20250220170151.jpg&q=10)
-  
-
-Hong Kong stocks ended lower on Thursday, with the benchmark Hang Seng Index down 1.6 percent at 22,576.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792477-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792477-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792477-20250220.htm)
 
 ---

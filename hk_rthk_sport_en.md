@@ -1,3 +1,32 @@
+# Visit GBA for National Games: Guangdong governor
+
+![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=40)
+  
+
+A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
+
+---
+
 # Cavs hold off Heat to clinch NBA playoff berth
 
 ![Donovan Mitchell poured in 26 points to lead the Cavs to their 12th straight victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_1_20250306120255.jpg&q=80)
@@ -1717,34 +1746,5 @@ Liverpool moved seven points clear at the top of the Premier League as Luis Día
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791904-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791904-20250217.htm)
-
----
-
-# Americans and Canadians in ice hockey punch fest
-
-![The Tkachuk brothers, Matthew (left) and Brady, were both involved in the fighting. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791853_1_20250216154730.jpg&q=50)
-  
-
-Three fights in the first nine seconds and a chorus of deafening boos for the US national anthem marked a stormy ice hockey clash between the United States and Canada in Montreal on Saturday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791853-20250216.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791853-20250216.htm](https://news.rthk.hk/rthk/en/component/k2/1791853-20250216.htm)
 
 ---

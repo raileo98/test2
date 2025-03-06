@@ -1,3 +1,88 @@
+# 港鐵料未來12個月多個項目有條件推出市場
+
+  
+
+港鐵物業及國際業務總監鄧智輝表示，計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2200個單位。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm)
+
+---
+
+# 全國兩會｜商務部：將推出更多舉措釋放消費增長潛能
+
+  
+
+商務部部長王文濤表示，消費仍是經濟增長第一拉動力，但國內需求不足，消費潛力釋放不充分的問題仍較突出，消費意願偏弱，有效需求受制約。政府工作報告對提振消費作出部署，強調以消費提振暢通經濟循環，以消費升級引領產業升級。商務部將會同有關部門結合促消費及惠民生，統籌商品消費及服務消費，推出更多舉措，釋放消費增長潛能。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm)
+
+---
+
+# 醫衞局探討立法提升私營醫療收費透明度將參考消委會報告
+
+![醫衞局正積極籌備就私營醫療收費透明度立法進行諮詢的工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794600_1_20250306183723.jpg&q=85)
+  
+
+醫務衞生局回應消委會就醫療價格透明度提出的建議時表示，歡迎消委會報告，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界，制訂相關諮詢建議時，亦會參考消委會報告。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm)
+
+---
+
 # 全國兩會｜鄭柵潔︰有信心實現今年經濟增長達5%左右目標
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794590_1_20250306181928.jpg&q=75)
@@ -27,7 +112,7 @@
 
 ---
 
-# 全國兩會｜有政協委員引述丁薛祥鼓勵工商界投資創科企業
+# 全國兩會｜有政協委員引述丁薛祥以「鑽石」形容香港
 
   
 
@@ -171,7 +256,7 @@
 ![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
   
 
-港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地虧損3000萬元。
+港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至121.85億元，內地虧損300萬元。
   
 
   
@@ -882,6 +967,7 @@
 # 消委會發現不少私營醫療機構價目資料難明　建議網上公布價目表
 
 ![消委會硏究發現，不少私營醫療機構價目資料難明及不足；病人之間收費差距甚大。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_1_20250306125218.jpg&q=1)
+![消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_2_20250306181706.jpg&q=75)
   
 
 消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。
@@ -1612,92 +1698,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm)
-
----
-
-# 港股美國預託證券普遍較本港收市上升
-
-![阿里巴巴ADR較本港收市升逾5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794477_1_20250306065717.jpg&q=20)
-  
-
-港股美國預託證券(ADR)與本港收市比較普遍上升。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794477-20250306.htm)
-
----
-
-# 紐約期金高收近0.2%
-
-![紐約期金收市報每盎司2926美元，升幅近0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794476_1_20250306065442.jpg&q=70)
-  
-
-金價微升，因美元持續疲弱。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794476-20250306.htm)
-
----
-
-# 國際油價下跌　美國原油庫存增幅大過預期
-
-![倫敦布蘭特期油和紐約期油收市跌逾2%至近3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794475_1_20250306065313.jpg&q=80)
-  
-
-國際油價下跌，美國上周原油庫存增幅大過市場預期。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794475-20250306.htm)
 
 ---

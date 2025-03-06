@@ -1,3 +1,32 @@
+# Thanks to property gains, MTR profit more than doubles
+
+![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=35)
+  
+
+Net profit at the MTR Corporation more than doubled last year, thanks largely to strong gains in local property development.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
+
+---
+
 # Four charged with fixing HK football matches
 
 ![The ICAC said the case centred on 11 league and cup matches between 2021 and 2022. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794578_1_20250306172359.jpg&q=45)
@@ -1709,34 +1738,5 @@ Hong Kong Unison, a group advocating the rights of the city's ethnic minorities,
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793653-20250228.htm)
-
----
-
-# 'Preparations for sports park opening in final stage'
-
-![Rosanna Law says preparations for the opening of Kai Tak Sports Park are in the final stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793663_1_20250228160057.jpg&q=75)
-  
-
-Cultural, Sports and Tourism Secretary Rosanna Law on Friday said the opening of the Kai Tak Sports Park is only the beginning of many mega events in March, adding that preparations are in the final stage.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793663-20250228.htm)
 
 ---

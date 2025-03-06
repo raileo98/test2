@@ -1,3 +1,32 @@
+# 歐盟領導人舉行緊急峰會討論烏克蘭危機及歐洲防禦
+
+![歐盟委員員主席馮德萊恩在會前提出重新武裝歐洲計劃。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794599_1_20250306183832.jpg&q=85)
+  
+
+歐盟領導人在布魯塞爾舉行緊急峰會，討論烏克蘭危機及加強歐洲防禦，烏克蘭總統澤連斯基亦會出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm)
+
+---
+
 # 韓軍戰機機師錯誤輸入座標致誤炸15傷　軍方暫停實彈演習
 
 ![有建築物在誤炸事件中受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794579_1_20250306172428.jpg&q=15)
@@ -116,6 +145,7 @@
 
 # 歐盟召開特別峰會討論援烏及歐洲防衛問題
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794552_1_20250306184300.jpg&q=20)
   
 
 歐盟多國領袖召開特別峰會，討論如何支援烏克蘭及歐洲防衛問題。歐盟內唯一擁有核武的國家法國，總統馬克龍在峰會前夕就說，會就法國向歐洲盟國提供「核保護傘」的問題展開戰略討論。
@@ -202,7 +232,7 @@
 
 # 特朗普給予三間車企一個月關稅豁免　與杜魯多商關稅和芬太尼問題
 
-![福特（圖）等三大汽車製造商，獲給予為期一個月的關稅豁免。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794504_1_20250306103458.jpg&q=30)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794504_1_20250306103458.jpg&q=30)
   
 
 美國總統特朗普決定，給予福特等三大汽車製造商為期一個月的關稅豁免，對三間車廠透過美墨加協議、從墨西哥及加拿大進口的汽車產品，免除25%進口關稅。
@@ -1706,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794211-20250304.htm)
-
----
-
-# 全國兩會｜中國常駐聯合國前代表張軍稱要對保護主義說不
-
-![張軍認為，中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794195_1_20250304180139.jpg&q=70)
-  
-
-在北京，全國政協委員、中國常駐聯合國前代表張軍說，當前世界大局正發生深刻變化，單邊主義、保護主義都有新的發展，認為中國擴大高水平對外開放，有助應對單邊主義和保護主義的挑戰。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794195-20250304.htm)
 
 ---

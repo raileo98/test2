@@ -1,3 +1,31 @@
+# 全國兩會｜商務部：將推出更多舉措釋放消費增長潛能
+
+  
+
+商務部部長王文濤表示，消費仍是經濟增長第一拉動力，但國內需求不足，消費潛力釋放不充分的問題仍較突出，消費意願偏弱，有效需求受制約。政府工作報告對提振消費作出部署，強調以消費提振暢通經濟循環，以消費升級引領產業升級。商務部將會同有關部門結合促消費及惠民生，統籌商品消費及服務消費，推出更多舉措，釋放消費增長潛能。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm)
+
+---
+
 # 全國兩會｜鄭柵潔︰有信心實現今年經濟增長達5%左右目標
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794590_1_20250306181928.jpg&q=75)
@@ -84,7 +112,7 @@
 
 ---
 
-# 全國兩會｜有政協委員引述丁薛祥鼓勵工商界投資創科企業
+# 全國兩會｜有政協委員引述丁薛祥以「鑽石」形容香港
 
   
 
@@ -1694,36 +1722,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794376-20250305.htm)
-
----
-
-# 全國兩會｜王冬勝稱有信心國內生產總值增長5%能達標
-
-![林毅夫認為經濟增長速度快，通貨膨脹速度在合理範圍內，有利擴大經濟發展空間。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_2_20250305160135.jpg&q=75)
-![黃敏利表示，政府工作報告提出發債、保民生、促進房地產和就業等舉措，相信能幫助內需。（港台記者攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_3_20250305160510.jpg&q=75)
-![蔡冠深說，香港國際化程度高，相信具有一定優勢，同時可以與內地企業「共同出海」，為本港帶來商機。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794375_4_20250305170703.jpg&q=65)
-  
-
-內地去年國內生產總值達到134.9萬億元，增長5%，今年國內生產總值目標增長為5%左右。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794375-20250305.htm)
 
 ---

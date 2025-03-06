@@ -1,3 +1,114 @@
+# 港鐵料未來12個月多個項目有條件推出市場
+
+  
+
+港鐵物業及國際業務總監鄧智輝表示，計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2200個單位。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm)
+
+---
+
+# 支聯會拒交資料案終極上訴得直　卓孝業稱將研究判詞
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794588_1_20250306184102.jpg&q=50)
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成的案件，獲終審法院裁定三人上訴得直，撤銷定罪及刑罰。保安局副局長卓孝業表示，已經備悉判決，會研究判詞再決定如何處理。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm)
+
+---
+
+# 醫衞局探討立法提升私營醫療收費透明度將參考消委會報告
+
+![醫衞局正積極籌備就私營醫療收費透明度立法進行諮詢的工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794600_1_20250306183723.jpg&q=85)
+  
+
+醫務衞生局回應消委會就醫療價格透明度提出的建議時表示，歡迎消委會報告，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界，制訂相關諮詢建議時，亦會參考消委會報告。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm)
+
+---
+
+# 口岸爆炸案專家證人估計爆炸裝置放不同位置目的為「精密襲擊」
+
+![口岸爆炸案高等法院踏入第65天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794597_1_20250306183254.jpg&q=80)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第65天審訊。控方繼續傳召爆炸品專家證人、警司盧秉善作供，他表示，2020年2月在羅湖站處理兩個設計相同的簡易爆炸裝置，估計兩個裝置原本是要放置不同地點，用作造成多人傷亡或重大物質損害的「精密襲擊」。專家證人提到，雖然其中一個裝置運作時有機會破壞另一個裝置，但如果兩個裝置放在一起可以提高造成破壞或傷亡的成功率。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm)
+
+---
+
 # 全國兩會｜丁薛祥：香港有背靠祖國聯通世界的獨特地位
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794591_1_20250306181859.jpg&q=60)
@@ -83,7 +194,7 @@
 
 ---
 
-# 全國兩會｜有政協委員引述丁薛祥鼓勵工商界投資創科企業
+# 全國兩會｜有政協委員引述丁薛祥以「鑽石」形容香港
 
   
 
@@ -231,7 +342,7 @@
 ![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=80)
   
 
-港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至102.4億元，內地虧損3000萬元。
+港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至121.85億元，內地虧損300萬元。
   
 
   
@@ -921,6 +1032,7 @@
 # 消委會發現不少私營醫療機構價目資料難明　建議網上公布價目表
 
 ![消委會硏究發現，不少私營醫療機構價目資料難明及不足；病人之間收費差距甚大。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_1_20250306125218.jpg&q=1)
+![消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_2_20250306181706.jpg&q=75)
   
 
 消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。
@@ -1613,122 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794442-20250305.htm)
-
----
-
-# 根源分析委員會調查明愛醫院病人進食哽喉後死亡事件
-
-![根源分析委員會由港島東醫院聯網臨床服務統籌劉家獻擔任主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794441_1_20250305205658.jpg&q=80)
-  
-
-明愛醫院一名原本要進食流質或糊狀食物的75歲男病人，被餵食一般食物，病人哽到，其後死亡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794441-20250305.htm)
-
----
-
-# 90歲男子馮景棠離開塘尾道住所後失蹤　警方呼籲提供消息
-
-![失蹤男子身高約1.55米，體重約45公斤，瘦身材，長面型。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_1_20250305204045.jpg&q=90)
-![失蹤男子最後露面時身穿藍色外套、黑色長褲、黑色鞋。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_2_20250305204045.jpg&q=80)
-  
-
-一名90歲男子馮景棠昨日下午離開塘尾道的住所後失蹤，家人報案，警方呼籲市民提供消息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm)
-
----
-
-# 全國兩會｜夏寶龍晤李家超稱中央全力支援港澳融入國家發展大局
-
-![夏寶龍（右）會見李家超（左），夏寶龍相信香港特區政府和社會各界一定會把握機遇。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794432_1_20250305214643.jpg&q=80)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
-
-![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=50)
-  
-
-截至2025年3月5日下午5時，消費者委員會共接獲10宗與「世界格蘭披治桌球大獎賽」相關的投訴，其中7宗涉及消費者對心儀球員退賽的不滿，認為未能觀賞該球員參與的賽事是貨不對辦；另有3宗則涉及3月4日晚部分觀眾不滿在比賽結束前被要求提早離場，10宗個案涉及金額共16885元。消委會正積極與主辦單位聯絡處理個案。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm)
 
 ---

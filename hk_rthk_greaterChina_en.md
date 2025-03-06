@@ -1,3 +1,32 @@
+# Visit GBA for National Games: Guangdong governor
+
+![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=40)
+  
+
+A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
+
+---
+
 # 'Growth target can be met despite uncertainty'
 
 ![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
@@ -1707,36 +1736,5 @@ Myanmar handed over more than 100 Chinese scam centre workers to be repatriated 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792763-20250222.htm)
-
----
-
-# Ne Zha 2 success 'lightning in a bottle': critic
-
-![Box office success Ne Zha 2 could inspire more filmmakers to experiment with new ideas, says a film critic. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792724_1_20250222092007.jpg&q=35)
-![Ne Zha 2 success 'lightning in a bottle': critic](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792724_2_20250222092007.jpg&q=25)
-![Ne Zha 2 success 'lightning in a bottle': critic](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792724_3_20250222092007.jpg&q=15)
-  
-
-The sensation caused by the mainland blockbuster Ne Zha 2 is very much a "lightning in a bottle-style success" which may not be easy to replicate, according to a local film critic.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792724-20250222.htm)
 
 ---
