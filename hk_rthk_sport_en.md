@@ -1,3 +1,33 @@
+# Man Utd draw in Europa League last 16; Spurs beaten
+
+![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=30)
+![Lucas Bergvall's own goal condemned Spurs to defeat by Dutch side AZ Alkmaar.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_2_20250307055618.jpg&q=50)
+  
+
+Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europa League last-16 tie, while Tottenham suffered a 1-0 loss away to Dutch side AZ Alkmaar.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm)
+
+---
+
 # Ireland's Doris fit to face France in Six Nations
 
 ![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=75)
@@ -1716,34 +1746,5 @@ Shaq's OGs won the first All-Star mini-tournament in NBA history, getting 15 poi
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791953-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791953-20250217.htm)
-
----
-
-# 18-year-old Fonseca captures Argentina Open crown
-
-![Brazil's Joao Fonseca celebrates with the trophy after winning the ATP 250 Argentina Open. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791911_1_20250217070810.jpg&q=85)
-  
-
-Brazilian teenager Joao Fonseca became the 10th youngest champion in ATP Tour history when he swept past home hope Francisco Cerundolo in the final of the Argentina Open.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791911-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791911-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791911-20250217.htm)
 
 ---

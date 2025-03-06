@@ -1,3 +1,33 @@
+# Man Utd draw in Europa League last 16; Spurs beaten
+
+![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=30)
+![Lucas Bergvall's own goal condemned Spurs to defeat by Dutch side AZ Alkmaar.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_2_20250307055618.jpg&q=50)
+  
+
+Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europa League last-16 tie, while Tottenham suffered a 1-0 loss away to Dutch side AZ Alkmaar.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm)
+
+---
+
 # Xi calls for stronger education role in sci-tech
 
 ![President X Jinping calls for for comprehensive education reforms, including granting schools greater autonomy and improving governance. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794640_1_20250307023617.jpg&q=90)
@@ -1709,34 +1739,5 @@ Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm)
-
----
-
-# China GDP growth tipped to reach 5pc in 2025
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794288_2_20250305093057.jpg&q=85)
-  
-
-China on Wednesday said it will aim for economic growth of around 5 percent in 2025.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm)
 
 ---
