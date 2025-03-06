@@ -1,3 +1,31 @@
+# 伊朗首都一個軍事設施發生火警　1死10傷
+
+  
+
+伊朗傳媒報道，伊朗首都德黑蘭東北部一個軍事設施發生火警，造成1人死亡、10人受傷。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm)
+
+---
+
 # 澤連斯基與馬克龍會晤　就下周各國軍事代表會議協調立場
 
   
@@ -88,7 +116,7 @@
 ![普京說俄羅斯無意撤軍。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794636_1_20250307012830.jpg&q=80)
   
 
-俄羅斯總統普京表示，俄羅斯需要的是一種能夠確保俄羅斯長期安全及可持續發展的烏克蘭和平方案。
+俄羅斯總統普京表示，俄羅斯需要的是一種能夠確保俄羅斯長期安全及可持續發展的烏克蘭和平方案，並強調在烏克蘭問題上，俄羅斯不會向任何人屈服。
   
 
   
@@ -1697,34 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm)
-
----
-
-# 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
-
-![潘功勝說，歡迎國際投資者投資中國科技企業，反對將市場化投資行為工具化、政治化。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794572_1_20250306173507.jpg&q=85)
-  
-
-人民銀行行長潘功勝表示，人行將進一步優化科技創新和技術改造再貸款政策，進一步擴大再貸款規模，由現時5000億元人民幣，擴大到8000億元至1萬億元，亦會降低再貸款利率；擴大再貸款支持範圍，大幅提高政策覆蓋面；保持財政貼息力度，進一步減低企業融資成本；優化再貸款政策流程。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm)
 
 ---

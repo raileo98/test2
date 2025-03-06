@@ -1,3 +1,31 @@
+# 伊朗首都一個軍事設施發生火警　1死10傷
+
+  
+
+伊朗傳媒報道，伊朗首都德黑蘭東北部一個軍事設施發生火警，造成1人死亡、10人受傷。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm)
+
+---
+
 # 澤連斯基與馬克龍會晤　就下周各國軍事代表會議協調立場
 
   
@@ -88,7 +116,7 @@
 ![普京說俄羅斯無意撤軍。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794636_1_20250307012830.jpg&q=80)
   
 
-俄羅斯總統普京表示，俄羅斯需要的是一種能夠確保俄羅斯長期安全及可持續發展的烏克蘭和平方案。
+俄羅斯總統普京表示，俄羅斯需要的是一種能夠確保俄羅斯長期安全及可持續發展的烏克蘭和平方案，並強調在烏克蘭問題上，俄羅斯不會向任何人屈服。
   
 
   
@@ -1704,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794246-20250305.htm)
-
----
-
-# 宣布對美徵收報復性關稅　杜魯多指特朗普目的是吞併加拿大
-
-![杜魯多形容，特朗普的關稅措施是非常愚蠢的做法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794245_1_20250305015455.jpg&q=85)
-  
-
-加拿大總理杜魯多宣布，對從美國進口的產品徵收25%的報復性關稅。他認為，美國總統特朗普徵收關稅的目的是令加拿大經濟 「崩潰」，從而使美國 「更容易 」吞併加拿大。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794245-20250305.htm)
 
 ---
