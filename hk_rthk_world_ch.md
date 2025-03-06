@@ -1,3 +1,59 @@
+# 特朗普：對符合美墨加協定的墨西哥商品豁免徵收關稅至4月2日
+
+  
+
+美國總統特朗普表示，對墨西哥所有符合《美墨加協定》的商品豁免徵收關稅，直至下月2日。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm)
+
+---
+
+# 普京稱俄羅斯需要能確保國家長期和平的烏克蘭方案
+
+  
+
+俄羅斯總統普京表示，俄羅斯需要的是一種能夠確保俄羅斯長期安全及可持續發展的烏克蘭和平方案。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm)
+
+---
+
 # 美商務部長︰一個月關稅豁免或至所符合《美墨加協定》產品
 
 ![盧特尼克預計，特朗普將宣布推遲關稅範圍的決定。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794635_1_20250307003531.jpg&q=80)
@@ -1677,63 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794242-20250305.htm)
-
----
-
-# 美國國務院把也門胡塞武裝列為「外國恐怖組織」
-
-![美方指胡塞武裝的活動威脅中東地區美國平民和人員的安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794241_1_20250305002935.jpg&q=50)
-  
-
-美國國務院發表聲明，宣布將也門胡塞武裝列為「外國恐怖組織」。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794241-20250305.htm)
-
----
-
-# 日本稱無採取引導日圓貶值政策　將與美方繼續密切協商
-
-![林芳正說，日本並無採取所謂的引導日圓貶值政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794237_1_20250304223736.jpg&q=90)
-  
-
-日本政府否認美國總統特朗普有關引導日圓貶值的指控，內閣官房長官林芳正說，日本並無採取所謂的引導日圓貶值政策，將與美國財政部長貝森特繼續保持密切協商。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794237-20250304.htm)
 
 ---

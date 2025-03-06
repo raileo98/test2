@@ -1,3 +1,59 @@
+# 特朗普：對符合美墨加協定的墨西哥商品豁免徵收關稅至4月2日
+
+  
+
+美國總統特朗普表示，對墨西哥所有符合《美墨加協定》的商品豁免徵收關稅，直至下月2日。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm)
+
+---
+
+# 普京稱俄羅斯需要能確保國家長期和平的烏克蘭方案
+
+  
+
+俄羅斯總統普京表示，俄羅斯需要的是一種能夠確保俄羅斯長期安全及可持續發展的烏克蘭和平方案。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm)
+
+---
+
 # 美商務部長︰一個月關稅豁免或至所符合《美墨加協定》產品
 
 ![盧特尼克預計，特朗普將宣布推遲關稅範圍的決定。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794635_1_20250307003531.jpg&q=80)
@@ -1670,63 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm)
-
----
-
-# 勞工處籲僱主及僱員在寒冷天氣下採取預防措施
-
-![勞工處提醒僱主，由於寒冷天氣警告生效，僱主應採取適當的預防措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794566_1_20250306164936.jpg&q=80)
-  
-
-天文台在下午4時20分發出寒冷天氣警告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm)
-
----
-
-# 社署提醒長者注意天氣寒冷保重身體
-
-![社署提醒長者注意保重身體，並呼籲其親友和鄰居多關心及慰問體弱長者的身體狀況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794565_1_20250306165005.jpg&q=45)
-  
-
-天文台在下午4時20分發出寒冷天氣警告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm)
 
 ---
