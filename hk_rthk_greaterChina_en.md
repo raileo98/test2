@@ -1,3 +1,32 @@
+# Tibet official says classes resume after deadly quake
+
+![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=30)
+  
+
+The chairman of the people's government of the Tibet Autonomous Region on Thursday said classes have resumed in Dingri County following the massive earthquake earlier this year.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm)
+
+---
+
 # 'Premier offers guidance on One Country, Two Systems'
 
 ![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=55)
@@ -1709,34 +1738,5 @@ Foreign Minister Wang Yi told his G20 counterparts on Thursday that a "window fo
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792581-20250221.htm)
-
----
-
-# Premier Li stresses measures to boost consumption
-
-![Premier Li Qiang presides over a study session held by the State Council. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792561_1_20250221082101.jpg&q=90)
-  
-
-Premier Li Qiang has emphasised boosting consumption and improving people's livelihoods through stronger and more targeted measures, in a bid to strengthen the fundamental role of consumption in driving economic development.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792561-20250221.htm)
 
 ---

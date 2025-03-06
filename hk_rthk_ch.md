@@ -1,3 +1,32 @@
+# 新世界發展：專注地產本業　多個住宅項目今年內動工
+
+![新世界發展行政總裁黃少媚（右四）等管理層主持九龍塘玫瑰街低密度豪宅項目動工儀式。（公司提供）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794512_1_20250306113650.jpg&q=85)
+  
+
+新世界發展位於九龍塘玫瑰街低密度豪宅項目近日舉行動工儀式。集團執行董事兼行政總裁黃少媚、執行董事兼物業發展主管薛南海等一眾管理層主持儀式。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794512-20250306.htm)
+
+---
+
 # 全國兩會｜西藏目前經濟文化繁榮　定日縣地震災後已復課
 
 ![全國人大西藏自治區代表團早上舉行全體會議。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794510_1_20250306110240.jpg&q=30)
@@ -1687,35 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm)
-
----
-
-# 90歲男子馮景棠離開塘尾道住所後失蹤　警方呼籲提供消息
-
-![失蹤男子身高約1.55米，體重約45公斤，瘦身材，長面型。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_1_20250305204045.jpg&q=90)
-![失蹤男子最後露面時身穿藍色外套、黑色長褲、黑色鞋。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=1080&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794438_2_20250305204045.jpg&q=85)
-  
-
-一名90歲男子馮景棠昨日下午離開塘尾道的住所後失蹤，家人報案，警方呼籲市民提供消息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794438-20250305.htm)
 
 ---
