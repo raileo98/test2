@@ -57,12 +57,12 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
 
 ---
 
-# Trump delays tariffs on Mexico
+# Trump backs off Mexico, Canada tariffs
 
 ![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=75)
   
 
-US President Donald Trump said on Thursday he was pausing some of the sweeping new tariffs on Mexican imports, amid continued trade tensions with Canada and sustained blowback from global markets on the US president's policies.
+US President Donald Trump on Thursday unveiled a temporary rollback to steep tariffs targeting Canada and Mexico, providing some reprieve to companies and consumers after blowback on financial markets.
   
 
   

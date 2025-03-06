@@ -1,5 +1,64 @@
+# 港股美國預託證券普遍較本港收市下跌
+
+![ATMXJ的ADR較本港收市跌逾1%至近5%，以京東跌幅較大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794652_1_20250307062201.jpg&q=35)
+  
+
+港股美國預託證券(ADR)普遍較本港收市下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm)
+
+---
+
+# 寒冷天氣警告生效　本港今早氣溫普遍降至12度左右
+
+![寒冷天氣警告生效　本港今早氣溫普遍降至12度左右](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794653_1_20250307062801.jpg&q=55)
+  
+
+寒冷天氣警告現正生效。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm)
+
+---
+
 # 美私人企業月球登陸器降落月球　公司稱未能直立或影響任務完成
 
+![「雅典娜」月球登陸器上月底發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794651_1_20250307063009.jpg&q=85)
   
 
 美國私人公司直覺機器的月球登陸器「雅典娜」登陸月球，公司認為，「雅典娜」未能處於直立狀態，可能會限制任務的完成。
@@ -1669,63 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm)
-
----
-
-# 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
-
-![港鐵表示，去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794585_1_20250306181006.jpg&q=70)
-  
-
-港鐵去年盈利超過157億元，港鐵行政總裁金澤培在業績記者會上表示，港鐵去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平，但過境鐵路及機場快綫的乘客量仍未回復疫情前水平，估計與過境口岸增加，其他公共交通競爭激烈有關，加上旅客的出行模式改變。至於高鐵的載客人數去年就持續上升，全年突破2600萬人次。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm)
-
----
-
-# 全國兩會｜王文濤：如美方在錯誤道路上愈行愈遠　中方將奉陪到底
-
-![商務部部長王文濤（左二）表示，中方捍衛自身利益的決心是堅定不移，如美方在錯誤道路上愈行愈遠，中方將奉陪到底。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794582_1_20250306193058.jpg&q=70)
-  
-
-在北京，商務部部長王文濤表示，美國以芬太尼問題為藉口對華加徵關稅是混淆是非、顛倒黑白，批評美國新政府上台後關稅單子似乎愈來愈長，以關稅威脅、要脅是典型單邊和霸凌主義，嚴重違反世貿組織規則，破壞中美正常經貿關係，擾亂全球產業鏈供應鏈穩定，阻礙世界經濟發展，必將損害美國民眾和美國企業的利益，是典型損人不利己。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
 
 ---

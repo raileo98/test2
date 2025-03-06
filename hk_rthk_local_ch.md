@@ -1,3 +1,32 @@
+# 寒冷天氣警告生效　本港今早氣溫普遍降至12度左右
+
+![寒冷天氣警告生效　本港今早氣溫普遍降至12度左右](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794653_1_20250307062801.jpg&q=55)
+  
+
+寒冷天氣警告現正生效。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm)
+
+---
+
 # 啟德青年運動場跑步徑及乒乓球設施預訂情況順暢
 
 ![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=5)
@@ -1701,35 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm)
-
----
-
-# 消防引入電動車滅火救援工具　籲切勿嘗試自行撲滅電動車火警
-
-![電池滅火系統能深入車底電池位置，透過高壓氣動針刺針刺穿車輛底部的電池外殼，直接注水，迅速為電池降溫。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_3_20250306103321.jpg&q=45)
-![應急插頭可應用於電動車火災或交通意外現場，暫時阻止電動車突然移動。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794480_4_20250306103321.jpg&q=85)
-  
-
-消防處表示，去年發生48宗涉及電動車的交通意外及火警，較前年增加92%。處方指出，電動車一旦起火，鋰電池在高溫下可能會導致「熱失控」，火勢急速蔓延，甚至有爆炸風險，消防處各分區已引入電動車滅火救援工具，呼籲駕駛者切勿嘗試自行撲滅電動車火警。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794480-20250306.htm)
 
 ---

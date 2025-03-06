@@ -1,3 +1,32 @@
+# 港股美國預託證券普遍較本港收市下跌
+
+![ATMXJ的ADR較本港收市跌逾1%至近5%，以京東跌幅較大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794652_1_20250307062201.jpg&q=35)
+  
+
+港股美國預託證券(ADR)普遍較本港收市下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm)
+
+---
+
 # 美元連跌4日　資金流入日圓及瑞郎避險
 
 ![美元指數一度失守104水平，低見103.75，在紐約尾市報104.2，跌幅近0.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794650_1_20250307061651.jpg&q=40)
@@ -1692,34 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm)
-
----
-
-# 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
-
-![李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794521_1_20250306124830.jpg&q=50)
-  
-
-行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm)
 
 ---
