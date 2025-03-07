@@ -1,3 +1,32 @@
+# Trump threatens new Russia sanctions over Ukraine
+
+![Last month, Trump spoke by telephone with Russian President Vladimir Putin about undoing sweeping sanctions imposed under former president Joe Biden. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794817_1_20250307225043.jpg&q=90)
+  
+
+President Donald Trump on Friday threatened new sanctions and tariffs on Russia over its bombardments of Ukraine, after previously suspending US aid to Kyiv in a stated bid to encourage diplomacy.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm)
+
+---
+
 # Hamas delegation in Cairo for more Gaza truce talks
 
 ![Palestinian children eat the evening Iftar meal with which Muslims end their daily fast at sunset during Ramadan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794803_1_20250307211901.jpg&q=85)
@@ -1710,34 +1739,5 @@ Hong Kong and Macau have the full backing of the central government in integrati
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
-
----
-
-# World's most accurate clock goes on sale for US$3.3mn
-
-![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=75)
-  
-
-Resembling a squat, wide fridge, the world's most accurate clock went on sale for US$3.3 million in Japan on Wednesday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm)
 
 ---
