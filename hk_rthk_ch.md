@@ -1,3 +1,31 @@
+# 特朗普稱致信哈梅內伊促談判放棄開發核武　強調不想傷害伊朗
+
+  
+
+美國總統特朗普在當地星期五播出的訪談節目節錄中表示，他已經向伊朗最高領袖哈梅內伊致送信件，敦促伊方就放棄開發核武器計劃，與美國談判。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm)
+
+---
+
 # 巴赫稱正研究革新奧運贊助商權益　堅守賽場純潔同時創造展示機會
 
 ![巴赫表示正考慮放寬有關商業展示限制，調整為更靈活的「清潔賽場政策」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794828_1_20250308022818.jpg&q=90)
@@ -148,7 +176,7 @@
 ![微軟承諾在未來12個月內，為5萬名南非年輕人支付參加數碼技能認證考試的費用。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794822_1_20250308011921.jpg&q=90)
   
 
-美國微軟公司總裁史密斯表示，計劃到2027年年底前，向南非追加約合2億9千8百萬美元投資，推動當地人工智能發展和應用。
+美國微軟公司總裁史密斯表示，計劃到2027年年底前，向南非追加約2億9千8百萬美元投資，推動當地人工智能發展和應用。
   
 
   
@@ -1698,34 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm)
-
----
-
-# 本港二手樓價按星期升0.32%　結束兩周跌勢
-
-![中原城市領先指數最新報137.46，按星期升0.32%，結束兩星期跌勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794752_1_20250307163426.jpg&q=80)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報137.46，按星期升0.32%，結束兩星期跌勢，但仍處於近8年半低位，今年累計跌0.13%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
 
 ---
