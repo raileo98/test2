@@ -1,3 +1,32 @@
+# Hong Kong stocks finish week in the red
+
+![The Hang Seng Index closes 0.57 percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794768_1_20250307172828.jpg&q=90)
+  
+
+Hong Kong's stock market ended lower on Friday with the benchmark Hang Seng Index down 0.57 percent to close at 24,231.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm)
+
+---
+
 # China export growth slows, imports fall
 
 ![Chinese exports climb 2.3 percent in the first two months of the year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794761_1_20250307171431.jpg&q=90)
@@ -1706,34 +1735,5 @@ Financial Secretary Paul Chan has said Wednesday's budget will detail the govern
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm)
-
----
-
-# US stocks tumble on fears of slowdown
-
-![The Dow Jones Industrial Average finished at 43,428, down 1.7 percent to around 750 points. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792715_1_20250222065103.jpg&q=90)
-  
-
-Wall Street stocks tumbled on Friday, concluding the week on a sour note as a big drop in Treasury yields underscored worries about an economic slowdown.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792715-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792715-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792715-20250222.htm)
 
 ---

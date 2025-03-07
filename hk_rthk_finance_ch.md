@@ -1,3 +1,61 @@
+# 呷哺呷哺料去年淨虧損擴大逾1倍
+
+![呷哺呷哺發盈警，預期去年淨虧損按年擴大約1.1倍至約1.2倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794770_1_20250307173327.jpg&q=75)
+  
+
+呷哺呷哺發盈警，預期去年淨虧損有所擴大，介乎3.9億至4.1億元人民幣，按年擴大約1.1倍至約1.2倍。期內，收入約48億元，按年減少約20%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm)
+
+---
+
+# 在岸人民幣兌美元高收46點子　創逾3個月新高
+
+![在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794767_1_20250307172752.jpg&q=75)
+  
+
+在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，升幅0.06%，創逾3個月新高。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm)
+
+---
+
 # 奈雪的茶料去年業績轉虧　料持續關閉或改造經營不善門店
 
 ![奈雪的茶預計，將繼續關閉或改造經營不善的門店，因而計提資產減值準備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794766_1_20250307172217.jpg&q=80)
@@ -1658,63 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm)
-
----
-
-# 美國1月貿易赤字按月擴大約34%　超出預期
-
-![美國1月貿易赤字重上千億美元水平，達到1314億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794624_1_20250306221320.jpg&q=65)
-  
-
-美國1月貿易赤字重上千億美元水平，達到1314億美元，超出預期，按月擴大約34%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm)
-
----
-
-# 美國上星期新申領失業救濟人數22.1萬人　減幅超出預期
-
-![美國上星期新申領失業救濟人數減少至22.1萬人，按星期減少2.1萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794623_1_20250306220734.jpg&q=90)
-  
-
-美國上星期新申領失業救濟人數減少至22.1萬人，按星期減少2.1萬人，減幅超出市場預期。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm)
 
 ---

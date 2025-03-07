@@ -1,3 +1,60 @@
+# 警方擬觀塘引入智慧交通管理系統　即時分辨塞車、違泊
+
+  
+
+警方推出智慧交通管理系統，在觀塘安裝11組閉路電視，涵蓋9條主要街道，實時監測車流狀況，透過人工智能，即時分辨塞車與違泊等情況，預計系統下半年投入服務，若成效良好考慮推展至全港其他地區。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm)
+
+---
+
+# 在岸人民幣兌美元高收46點子　創逾3個月新高
+
+![在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794767_1_20250307172752.jpg&q=75)
+  
+
+在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，升幅0.06%，創逾3個月新高。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm)
+
+---
+
 # 奈雪的茶料去年業績轉虧　料持續關閉或改造經營不善門店
 
 ![奈雪的茶預計，將繼續關閉或改造經營不善的門店，因而計提資產減值準備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794766_1_20250307172217.jpg&q=80)
@@ -29,6 +86,7 @@
 
 # 食安中心倡市民膳食中加入碘含量豐富食物包括藻類及海鮮等
 
+![中心共收集296個預先包裝和非預先包裝食物樣本。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794765_1_20250307173041.jpg&q=85)
   
 
 食物安全中心就食物碘含量展開風險評估研究，發現碘含量最高食品是乾海帶，每100克達18萬微克，其次是乾紫菜、蟹乾小食及海苔小食。
@@ -86,6 +144,7 @@
 
 # 新增一宗外地傳入登革熱感染　病人潛伏期內曾到印尼
 
+![衞生防護中心說，病人於潛伏期內曾到印尼。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794763_1_20250307173010.jpg&q=90)
   
 
 衞生防護中心過去一星期錄得1宗外地傳入的登革熱感染個案。病人於潛伏期內曾到印尼。
@@ -114,6 +173,7 @@
 
 # 公立醫院前年10月至去年9月通報109宗風險警示事件
 
+![公立醫院通報29宗醫療風險警示事件，以及呈報的80宗重要風險事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794762_1_20250307172916.jpg&q=80)
   
 
 醫管局發布醫療風險警示事件及重要風險事件周年報告，涵蓋2023年10月1日至去年9月30日期間公立醫院通報的29宗醫療風險警示事件，以及呈報的80宗重要風險事件。在重要風險事件中，有74宗涉及藥物錯誤及6宗錯誤識別病人身分或資料。有關報告已獲醫管局大會通過。
