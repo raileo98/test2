@@ -1,3 +1,31 @@
+# 全國兩會｜王毅：中東不靜世界難安　應推動加沙全面持久停火
+
+  
+
+美國總統特朗普較早時宣稱將「接管」和「擁有」加沙地帶。在北京，外交部部長王毅表示，若大國真正關心加沙人民，應推動加沙全面、持久停火，加大人道主義援助，保持「巴人治巴」原則，為加沙重建做出貢獻。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm)
+
+---
+
 # 法院批准取消拘留申請　尹錫悅獲釋
 
   
@@ -1701,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
-
----
-
-# 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=90)
-  
-
-在北京，國務院總理李強發表政府工作報告，提到支持香港澳門深化國際交往合作。警務處前處長、全國政協委員曾偉雄表示，十四五規劃綱要下，國家給予香港的定位非常強調「國際」，要做到國際化八大中心，政府工作報告強調國際化是合時，他認為，這是香港在發展上要更留意的地方，亦為十五五規劃打好基礎，希望大家一起努力加把勁。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
 
 ---
