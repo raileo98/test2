@@ -1,3 +1,32 @@
+# 商務部：中方促美方理性處理芬太尼問題　不要一味甩鍋推責
+
+![商務部稱，中方敦促美方客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794804_1_20250307212107.jpg&q=45)
+  
+
+在北京，商務部發言人說，國務院新聞辦公室近日發布《中國的芬太尼類物質管控》白皮書，充分說明美方以芬太尼為由對中國產品加徵20%關稅是毫無根據，是典型的保護主義、單邊主義和霸凌主義行徑。中方敦促美方糾正錯誤做法，客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm)
+
+---
+
 # 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
 
 ![丁薛祥上午分別參加香港代表團、澳門代表團審議。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794797_1_20250307210355.jpg&q=80)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm)
-
----
-
-# 全國兩會｜王文濤：如美方在錯誤道路上愈行愈遠　中方將奉陪到底
-
-![商務部部長王文濤（左二）表示，中方捍衛自身利益的決心是堅定不移，如美方在錯誤道路上愈行愈遠，中方將奉陪到底。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794582_1_20250306193058.jpg&q=90)
-  
-
-在北京，商務部部長王文濤表示，美國以芬太尼問題為藉口對華加徵關稅是混淆是非、顛倒黑白，批評美國新政府上台後關稅單子似乎愈來愈長，以關稅威脅、要脅是典型單邊和霸凌主義，嚴重違反世貿組織規則，破壞中美正常經貿關係，擾亂全球產業鏈供應鏈穩定，阻礙世界經濟發展，必將損害美國民眾和美國企業的利益，是典型損人不利己。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
 
 ---

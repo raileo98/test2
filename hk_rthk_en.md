@@ -1,3 +1,32 @@
+# Hamas delegation in Cairo for more Gaza truce talks
+
+![Palestinian children eat the evening Iftar meal with which Muslims end their daily fast at sunset during Ramadan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794803_1_20250307211901.jpg&q=85)
+  
+
+A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolong a fragile ceasefire in Gaza, which has largely paused hostilities with Israel, two senior Hamas officials said.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm)
+
+---
+
 # Eurostar passengers stranded by WWII bomb in Paris
 
 ![The Gare du Nord station lies in northern Paris and is the country's busiest train hub. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794795_1_20250307191100.jpg&q=75)
@@ -1710,34 +1739,5 @@ Resembling a squat, wide fridge, the world's most accurate clock went on sale fo
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm)
-
----
-
-# Indian festival to hit streets of Lan Kwai Fong
-
-![The "Incredible India Festival" will be held on March 15 and 16 at Lan Kwai Fong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794437_1_20250305203811.jpg&q=75)
-  
-
-A vibrant festival celebrating Indian culture through dance, music and cuisine, is set to brighten up the streets of Lan Kwai Fong later this month.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm)
 
 ---

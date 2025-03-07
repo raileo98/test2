@@ -1,3 +1,32 @@
+# Hamas delegation in Cairo for more Gaza truce talks
+
+![Palestinian children eat the evening Iftar meal with which Muslims end their daily fast at sunset during Ramadan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794803_1_20250307211901.jpg&q=85)
+  
+
+A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolong a fragile ceasefire in Gaza, which has largely paused hostilities with Israel, two senior Hamas officials said.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm)
+
+---
+
 # Eurostar passengers stranded by WWII bomb in Paris
 
 ![The Gare du Nord station lies in northern Paris and is the country's busiest train hub. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794795_1_20250307191100.jpg&q=75)
@@ -1711,34 +1740,5 @@ Japan was battling its largest wildfire in more than three decades on Saturday, 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm)
-
----
-
-# Microsoft to shut Skype in favour of Teams
-
-![The president of Microsoft 365 collaborative apps and platforms says the company "can deliver more innovation faster just by being focused on Teams." File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793738_1_20250301070354.jpg&q=90)
-  
-
-Microsoft on Friday announced it was retiring Skype, the online voice and video call pioneer that the tech titan acquired in 2011.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm)
 
 ---
