@@ -1,3 +1,32 @@
+# 入境處拘捕16名懷疑黑工及4名僱主
+
+![入境處一連四日在全港多區進行反非法勞工行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794790_1_20250307184018.jpg&q=70)
+  
+
+入境處由本周一至昨日，一連四日在全港多區進行反非法勞工行動，又聯同警務處展開行動，拘捕16名懷疑非法勞工及4名涉嫌聘用非法勞工的僱主。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm)
+
+---
+
 # 金管局：2月外匯儲備資產減少51億美元
 
 ![金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794772_1_20250307173630.jpg&q=90)
@@ -1683,34 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm)
-
----
-
-# 美元指數失守104　創4個月新低
-
-![美元指數連續4日下挫，較早時失守104水平，低見103.74，創4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794633_1_20250306234219.jpg&q=80)
-  
-
-美元指數連續4日下挫，近日接連失守多個整數關口，較早時失守104水平，低見103.74，創4個月新低，4日累計跌逾3%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm)
 
 ---

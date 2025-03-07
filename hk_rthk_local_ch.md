@@ -1,4 +1,33 @@
-# 全國兩會｜丁薛祥稱香港在由治及興路上越走越穩
+# 入境處拘捕16名懷疑黑工及4名僱主
+
+![入境處一連四日在全港多區進行反非法勞工行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794790_1_20250307184018.jpg&q=70)
+  
+
+入境處由本周一至昨日，一連四日在全港多區進行反非法勞工行動，又聯同警務處展開行動，拘捕16名懷疑非法勞工及4名涉嫌聘用非法勞工的僱主。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm)
+
+---
+
+# 全國兩會｜有人大引述丁薛祥稱香港在由治及興路上越走越穩
 
   
 
@@ -57,6 +86,7 @@
 
 # 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
 
+![鄧炳強歡迎終審法院駁回譚得志發表煽動文字案件的上訴裁決。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794782_1_20250307184122.jpg&q=90)
   
 
 保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。
@@ -85,6 +115,7 @@
 
 # 全國兩會｜胡曉明倡完善保障勞動者權益　葉玉如指港有國際化優勢
 
+![朱葉玉如在會後表示，本月17日將向當局提交籌辦本港第三間醫學院的建議書。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794781_1_20250307184049.jpg&q=80)
   
 
 在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
@@ -283,6 +314,7 @@
 
 # 警方擬觀塘引入智慧交通管理系統　即時分辨塞車、違泊
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794769_1_20250307184113.jpg&q=65)
   
 
 警方推出智慧交通管理系統，在觀塘安裝11組閉路電視，涵蓋9條主要街道，實時監測車流狀況，透過人工智能，即時分辨塞車與違泊等情況，預計系統下半年投入服務，若成效良好考慮推展至全港其他地區。
@@ -1697,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm)
-
----
-
-# 港鐵：未來12個月多個項目有條件推出市場
-
-![港鐵計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794603_1_20250306193654.jpg&q=85)
-  
-
-港鐵物業及國際業務總監鄧智輝，計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm)
 
 ---
