@@ -1,5 +1,35 @@
+# 特朗普稱須知道烏克蘭冀解決問題　與烏交涉難於與俄交涉
+
+![特朗普說如果烏方不想和解，美方就會退出。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794831_1_20250308035652.jpg&q=90)
+  
+
+美國總統特朗普在白宮橢圓形辦公室表示，俄羅斯正猛烈轟炸烏克蘭，形容烏克蘭遭受重大懲罰，但他認為在達成和平協議方面，與烏克蘭交涉比與俄羅斯交涉更加困難。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794831-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794831-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794831-20250308.htm)
+
+---
+
 # 伊媒報道特朗普致信消息　安全機關新聞機構形容華盛頓重複表演
 
+![特朗普稱已向伊朗最高領袖哈梅內伊（圖）致送信件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794830_1_20250308035403.jpg&q=90)
   
 
 伊朗傳媒已報道美國總統特朗普宣稱已向伊朗最高領袖哈梅內伊致送信件，敦促伊方放棄開發核武的消息。
@@ -28,6 +58,7 @@
 
 # 特朗普稱致信哈梅內伊促談判放棄開發核武　強調不想傷害伊朗
 
+![特朗普說他希望與伊朗談判，這樣對伊朗來說亦是更好的事。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794829_1_20250308035517.jpg&q=85)
   
 
 美國總統特朗普在當地星期五播出的訪談節目節錄中表示，他已經向伊朗最高領袖哈梅內伊致送信件，敦促伊方就放棄開發核武器計劃，與美國談判。
@@ -1704,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm)
-
----
-
-# 歐盟領導人舉行緊急峰會討論烏克蘭危機及歐洲防禦
-
-![歐盟委員員主席馮德萊恩在會前提出重新武裝歐洲計劃。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794599_1_20250306183832.jpg&q=90)
-  
-
-歐盟領導人在布魯塞爾舉行緊急峰會，討論烏克蘭危機及加強歐洲防禦，烏克蘭總統澤連斯基亦會出席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm)
 
 ---
