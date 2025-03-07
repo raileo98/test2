@@ -1,5 +1,87 @@
+# 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
+
+  
+
+中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
+
+---
+
+# 全國兩會｜馬逢國：丁薛祥特別強調二十三條立法圓滿完成
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
+
+---
+
+# 金管局：2月外匯儲備資產減少51億美元
+
+![金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794772_1_20250307173630.jpg&q=90)
+  
+
+金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。外匯儲備資產總額相當於香港流通貨幣5倍多，或港元貨幣供應M3約38%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm)
+
+---
+
 # 再多兩名上月參與「清遠佛山旅行團」的人士感染退伍軍人病
 
+![中心已知會旅遊業監管局，並知會通報廣東省衞生當局，以作相關環境調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794776_1_20250307174744.jpg&q=80)
   
 
 領華旅遊社「清遠佛山旅行團」再多兩名分別71歲男子和69歲女子感染退伍軍人病，兩人分別參加上月20至22日和21至23日的旅行團，他們與日前公布一個涉及4人的群組個案有流行病學關連。
@@ -1636,92 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm)
-
----
-
-# 全國兩會｜黃坤明稱廣東要打頭陣推進科技產業創新融合發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794595_1_20250306195450.jpg&q=90)
-  
-
-廣東省全國人大代表團下午審議政府工作報告，廣東省委書記黃坤明被問到廣東未來的經濟發展方向，他表示，廣東有使命、有機遇、有基礎，亦有行動，廣東要打頭陣、當先鋒、下苦工，推進科技、產業創新融合發展，更好更長遠擔當起經濟大省責任，必定會緊緊抓住科技浪潮引領產業發展的重大機遇，爭取百尺竿頭再邁大步。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm)
-
----
-
-# 養和醫院稱有書面預算案給予病人　有醫生指醫療物料不一收費有別
-
-![養和醫院副院長陳煥堂說，數年前開始規定醫生接收病人入院時，要有書面預算案給予病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794594_1_20250306224419.jpg&q=85)
-  
-
-私營醫療機構條例要求私家醫院提供價目資料、收費預算同過往收費統計數據。消委會研究發現，不少私營醫療機構的價目資料難明同不足，收費統計數據亦沒有即時更新，不同醫院的收費差距大，部分私家醫院或日間醫療中心收費表，一般不會列出醫生費及定價標準。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm)
-
----
-
-# 全國兩會｜有政協委員引述丁薛祥以「鑽石」形容香港
-
-![丁薛祥參加港澳地區全國政協委員聯組會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794593_1_20250306193855.jpg&q=80)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
 
 ---

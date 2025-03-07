@@ -1,3 +1,28 @@
+# 金管局：2月外匯儲備資產減少51億美元
+
+![金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794772_1_20250307173630.jpg&q=90)
+  
+
+金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。外匯儲備資產總額相當於香港流通貨幣5倍多，或港元貨幣供應M3約38%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm)
+
+---
+
 # 百度擬發行不超過20億美元可交換債券　或以攜程股份交付
 
 ![百度計劃以離岸方式發行可交換債券，當滿足若干條件，百度可選擇以持有的攜程股份交付。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794774_1_20250307173835.jpg&q=90)
@@ -1687,34 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm)
-
----
-
-# 美國1月批發庫存按月升0.8%勝預期
-
-![美國1月批發庫存向上修訂至按月增長0.8%，市場原先預料維持增長0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794632_1_20250306230640.jpg&q=45)
-  
-
-美國1月批發庫存向上修訂至按月增長0.8%，市場原先預料維持增長0.7%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm)
 
 ---

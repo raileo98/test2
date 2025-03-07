@@ -1,5 +1,87 @@
+# 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
+
+  
+
+中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
+
+---
+
+# 全國兩會｜馬逢國：丁薛祥特別強調二十三條立法圓滿完成
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
+
+---
+
+# 金管局：2月外匯儲備資產減少51億美元
+
+![金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794772_1_20250307173630.jpg&q=90)
+  
+
+金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。外匯儲備資產總額相當於香港流通貨幣5倍多，或港元貨幣供應M3約38%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm)
+
+---
+
 # 再多兩名上月參與「清遠佛山旅行團」的人士感染退伍軍人病
 
+![中心已知會旅遊業監管局，並知會通報廣東省衞生當局，以作相關環境調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794776_1_20250307174744.jpg&q=80)
   
 
 領華旅遊社「清遠佛山旅行團」再多兩名分別71歲男子和69歲女子感染退伍軍人病，兩人分別參加上月20至22日和21至23日的旅行團，他們與日前公布一個涉及4人的群組個案有流行病學關連。

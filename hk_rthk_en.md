@@ -145,7 +145,6 @@ Chinese People's Political Consultative Conference (CPPCC) Standing Committee me
 
 # 'Act more firmly to safeguard national security'
 
-![Vice Premier Ding Xuexiang meets local NPC delegates in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_1_20250307153730.jpg&q=85)
 ![Local NPC delegates say safeguarding national security is one of the issues they discuss with Vice Premier Ding Xuexiang. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_2_20250307153730.jpg&q=35)
   
 
