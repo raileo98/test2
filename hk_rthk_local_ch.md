@@ -1,3 +1,60 @@
+# 全國兩會｜丁薛祥稱香港在由治及興路上越走越穩
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港區全國人大代表團審議，並聽取代表的意見。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
+
+---
+
+# 民政事務總署於各區開放十八間臨時避寒中心
+
+![臨時避寒中心於寒冷天氣警告持續生效期間繼續開放，期間免費提供潔淨的墊褥及毛氈或棉被、熱食及熱水予入住人士使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794787_1_20250307183527.jpg&q=90)
+  
+
+民政事務總署在各區開放共十八間臨時避寒中心，供有需要的市民避寒，中心會於寒冷天氣警告持續生效期間繼續開放，期間會免費提供潔淨的墊褥及毛氈或棉被、熱食及熱水予入住人士使用。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm)
+
+---
+
 # 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
 
   
@@ -56,6 +113,7 @@
 
 # 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794778_1_20250307183034.jpg&q=80)
   
 
 中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
@@ -84,6 +142,7 @@
 
 # 全國兩會｜馬逢國：丁薛祥特別強調二十三條立法圓滿完成
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794777_2_20250307183326.jpg&q=85)
   
 
 中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
@@ -166,7 +225,7 @@
 
 # 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
 
-![鄧炳強表示，獲救的6名男女，預料將於晚上返港。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
   
 
 再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
@@ -252,7 +311,7 @@
 
 # 食安中心倡市民膳食中加入碘含量豐富食物包括藻類及海鮮等
 
-![中心共收集296個預先包裝和非預先包裝食物樣本。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794765_1_20250307173041.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794765_1_20250307173041.jpg&q=85)
   
 
 食物安全中心就食物碘含量展開風險評估研究，發現碘含量最高食品是乾海帶，每100克達18萬微克，其次是乾紫菜、蟹乾小食及海苔小食。
@@ -1667,59 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm)
-
----
-
-# 支聯會拒交資料案終極上訴得直　卓孝業稱將研究判詞
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794588_1_20250306184102.jpg&q=80)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成的案件，獲終審法院裁定三人上訴得直，撤銷定罪及刑罰。保安局副局長卓孝業表示，已經備悉判決，會研究判詞再決定如何處理。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm)
-
----
-
-# 醫衞局探討立法提升私營醫療收費透明度將參考消委會報告
-
-![醫衞局正積極籌備就私營醫療收費透明度立法進行諮詢的工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794600_1_20250306183723.jpg&q=90)
-  
-
-醫務衞生局回應消委會就醫療價格透明度提出的建議時表示，歡迎消委會報告，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界，制訂相關諮詢建議時，亦會參考消委會報告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm)
 
 ---

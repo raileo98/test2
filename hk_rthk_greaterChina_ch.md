@@ -1,3 +1,87 @@
+# 全國兩會｜丁薛祥稱香港在由治及興路上越走越穩
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港區全國人大代表團審議，並聽取代表的意見。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
+
+---
+
+# 全國兩會｜王毅：「以台制華」無異於螳臂擋車　中國最終必將統一
+
+  
+
+外長王毅在記者會回應烏克蘭危機時強調，談判桌是衝突的終點，也是和平的起點，中方歡迎並支持一切致力於和平的努力。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm)
+
+---
+
+# 全國兩會｜王毅：在芬太尼問題上美國不能以怨報德，無端加稅
+
+  
+
+中共中央政治局委員、外長王毅，在全國人大會議期間舉行中外記者會。他說，相互尊重是中美關係的重要前提，任何一個國家都不能幻想一邊打壓中國，一邊又與中國發展良好關係，這種「兩面人」的做法，不利雙邊關係穩定，亦無法建立彼此互信。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm)
+
+---
+
 # 全國兩會｜澳門立法會主席稱會依法選出合居民期望議員
 
   
@@ -56,6 +140,7 @@
 
 # 全國兩會｜王毅︰談判桌是烏克蘭危機終點　和平不會有輸家
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794780_1_20250307183452.jpg&q=90)
   
 
 中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
@@ -84,6 +169,7 @@
 
 # 全國兩會｜王毅︰不能幻想一邊打壓一邊與中國發展良好關係
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794779_1_20250307183402.jpg&q=90)
   
 
 十四屆全國人大三次會議，舉行關於「中國外交政策和對外關係」的記者會，中共中央政治局委員、外長王毅說，相互尊重是國與國交往的基本準則，也是中美關係的重要前提。任何一個國家都不能幻想一邊對華打壓遏制，一邊與中國發展良好關係。他又反問美國，從關稅戰、貿易戰中得到甚麼，強調中美經貿關係是相互的、對等的。如果選擇合作，將實現互利共贏，如果一味施壓，中國必將堅決反制。
@@ -112,6 +198,7 @@
 
 # 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794778_1_20250307183034.jpg&q=80)
   
 
 中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
@@ -140,6 +227,7 @@
 
 # 全國兩會｜馬逢國：丁薛祥特別強調二十三條立法圓滿完成
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794777_2_20250307183326.jpg&q=85)
   
 
 中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
@@ -1641,88 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm)
-
----
-
-# 全國兩會｜發改委：快將公布提振消費專項行動方案
-
-![鄭柵潔表示，要在四方面加力，包括把促消費和惠民生更好結合，加力提振居民消費。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794558_1_20250306164054.jpg&q=90)
-  
-
-國家發改委主任鄭柵潔表示，要在四方面加力，包括把促消費和惠民生更好結合，加力提振居民消費，近期將很快公布實施提振消費專項行動方案。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794558-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794558-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794558-20250306.htm)
-
----
-
-# 全國兩會｜習近平看望民盟、民進、教育界委員並參加聯組會
-
-![習近平下午看望參加全國政協會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794557_1_20250307141301.jpg&q=90)
-  
-
-央視報道，中共中央總書記、國家主席、中央軍委主席習近平，下午看望參加全國政協會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794557-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794557-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794557-20250306.htm)
-
----
-
-# 全國兩會｜鄭柵潔：對實現5%左右經濟增長目標充滿信心
-
-![鄭柵潔表示，今年5%左右的經濟增長目標，是經過綜合研判和科學論證而穩慎提出。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794555_1_20250306164024.jpg&q=90)
-  
-
-國家發改委主任鄭柵潔表示，去年交出一份難能可貴、令人滿意的成績單，實施一攬子增量政策，對順利完成全年經濟社會發展主要目標發揮了決定性作用。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794555-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794555-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794555-20250306.htm)
 
 ---
