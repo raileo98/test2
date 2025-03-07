@@ -1,3 +1,59 @@
+# 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
+
+  
+
+一批建築工人懷疑因勞資糾紛早上在機場南交匯處附近聚集，現場交通一度受阻，機管局表示，十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜，確保相關工人獲應得報酬，機管局會繼續密切監察承建商的跟進工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm)
+
+---
+
+# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
+
+---
+
 # 歐元區上季經濟按季增長減慢至0.2%　但高過初值
 
 ![歐元區去年第4季經濟按季增長減慢至0.2%，但好過初值的0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794794_1_20250307190232.jpg&q=75)
@@ -345,6 +401,7 @@
 # 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
 
 ![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
+![楊華勇認為，浙江民營經濟發達，杭州有政府支持，亦有民間資本，均有利發展。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_2_20250307202819.jpg&q=85)
   
 
 杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
@@ -1654,63 +1711,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm)
-
----
-
-# 特朗普簽署修正案　暫緩對符合《美墨加協定》商品徵收關稅
-
-![特朗普簽署關稅修正案，推遲對符合《美墨加協定》的產品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794643_1_20250307052117.jpg&q=90)
-  
-
-美國總統特朗普簽署對墨西哥和加拿大關稅的修正案，推遲對符合《美墨加協定》的產品徵收關稅，直至下月2日。另外，特朗普說，不會改變對鋼鐵和鋁的關稅措施。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm)
-
----
-
-# 美商務部長︰一個月關稅豁免或至所符合《美墨加協定》產品
-
-![盧特尼克預計，特朗普將宣布推遲關稅範圍的決定。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794635_1_20250307003531.jpg&q=90)
-  
-
-美國商務部長盧特尼克說，給予墨西哥和加拿大汽車產品為期一個月的關稅豁免，很可能會擴大至所有符合《美墨加協定》的產品。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm)
 
 ---

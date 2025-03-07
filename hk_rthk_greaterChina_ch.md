@@ -1,3 +1,31 @@
+# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
+
+---
+
 # 全國兩會｜習近平：要實現軍隊建設「十四五」規劃圓滿收官
 
 ![習近平出席十四屆全國人大三次會議解放軍和武警部隊代表團全體會議並發表重要講話。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794796_1_20250307195511.jpg&q=90)
@@ -378,6 +406,7 @@
 # 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
 
 ![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
+![楊華勇認為，浙江民營經濟發達，杭州有政府支持，亦有民間資本，均有利發展。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_2_20250307202819.jpg&q=85)
   
 
 杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
-
----
-
-# 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
-
-![潘功勝說，歡迎國際投資者投資中國科技企業，反對將市場化投資行為工具化、政治化。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794572_1_20250306173507.jpg&q=90)
-  
-
-人民銀行行長潘功勝表示，人行將進一步優化科技創新和技術改造再貸款政策，進一步擴大再貸款規模，由現時5000億元人民幣，擴大到8000億元至1萬億元，亦會降低再貸款利率；擴大再貸款支持範圍，大幅提高政策覆蓋面；保持財政貼息力度，進一步減低企業融資成本；優化再貸款政策流程。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm)
 
 ---

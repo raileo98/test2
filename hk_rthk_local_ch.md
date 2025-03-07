@@ -1,3 +1,59 @@
+# 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
+
+  
+
+一批建築工人懷疑因勞資糾紛早上在機場南交匯處附近聚集，現場交通一度受阻，機管局表示，十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜，確保相關工人獲應得報酬，機管局會繼續密切監察承建商的跟進工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm)
+
+---
+
+# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
+
+---
+
 # 陳克勤料本港與泰國建立機制　致參與營救行動更實質及具體
 
 ![陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794793_1_20250307191947.jpg&q=90)
@@ -1671,64 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm)
-
----
-
-# 元朗兩部貨車疑作流動倉庫及分銷私煙　涉案男子保釋候查
-
-![海關在輕型貨車檢獲約18萬支懷疑私煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_1_20250306212222.jpg&q=85)
-![關員之後在另一部貨車內檢獲約85萬支懷疑私煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794618_2_20250306220332.jpg&q=90)
-  
-
-兩部貨車懷疑被用作私煙的流動倉庫及分銷私煙，海關檢獲103萬支懷疑私煙，當中約102萬支檢獲的私煙為「白牌煙」，即非主流牌子，品質較差的香煙。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm)
-
----
-
-# LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
-
-![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
-  
-
-大型體育活動事務委員會已向「LIV Golf 2025香港站」及「2025年國泰／滙豐香港國際七人欖球賽」頒授「M」品牌認可。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
 
 ---

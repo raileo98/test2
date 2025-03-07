@@ -1,3 +1,31 @@
+# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
+
+---
+
 # 陳克勤料本港與泰國建立機制　致參與營救行動更實質及具體
 
 ![陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794793_1_20250307191947.jpg&q=90)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm)
-
----
-
-# 澤連斯基稱與美國合作取得積極進展　冀下周有初步成果
-
-![澤連斯基表示，與美國的合作已經取得積極進展，雙方可能很快再次舉行會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794463_1_20250306030953.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，與美國的合作已經取得積極進展，雙方可能很快再次舉行會談。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm)
 
 ---

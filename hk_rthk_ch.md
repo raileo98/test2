@@ -1,3 +1,59 @@
+# 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
+
+  
+
+一批建築工人懷疑因勞資糾紛早上在機場南交匯處附近聚集，現場交通一度受阻，機管局表示，十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜，確保相關工人獲應得報酬，機管局會繼續密切監察承建商的跟進工作。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm)
+
+---
+
+# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
+
+---
+
 # 全國兩會｜習近平：要實現軍隊建設「十四五」規劃圓滿收官
 
 ![習近平出席十四屆全國人大三次會議解放軍和武警部隊代表團全體會議並發表重要講話。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794796_1_20250307195511.jpg&q=90)
@@ -1068,6 +1124,7 @@
 # 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
 
 ![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
+![楊華勇認為，浙江民營經濟發達，杭州有政府支持，亦有民間資本，均有利發展。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_2_20250307202819.jpg&q=85)
   
 
 杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
