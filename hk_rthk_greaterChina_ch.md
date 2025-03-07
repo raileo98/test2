@@ -143,7 +143,7 @@
 
 ---
 
-# 全國兩會｜陳弘毅稱國安法是否須修改由國安委決定　毋須人大處理
+# 全國兩會｜陳弘毅稱國安法實施細則由國安委決定
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794717_1_20250307125009.jpg&q=90)
   
