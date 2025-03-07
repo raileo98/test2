@@ -1,3 +1,32 @@
+# 特朗普稱強烈考慮對俄實施制裁　籲俄烏返談判桌
+
+![特朗普敦促俄羅斯及烏克蘭回到談判桌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794824_1_20250308013427.jpg&q=90)
+  
+
+美國總統特朗普在旗下社交平台貼文表示，鑒於俄羅斯目前在前線，對烏克蘭發動猛烈攻擊，他強烈考慮對俄羅斯實施制裁，包括銀行業在內的大規模制裁及關稅制裁，直至達成停火及最終和平協議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm)
+
+---
+
 # 澤連斯基指俄軍再襲烏克蘭能源設施　使用導彈及無人機
 
 ![澤連斯基說目前各地正進行救援及恢復工作。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794823_1_20250308012954.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794552-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794552-20250306.htm)
-
----
-
-# 韓美軍演誤擲炸彈入社區增至最少15傷　報道指或涉機師犯錯
-
-![炸彈導致房屋受損，當局封鎖現場調查。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794543_1_20250306144148.jpg&q=85)
-  
-
-南韓軍方證實，參與韓美軍事演習的兩部戰機，錯誤將8顆炸彈投擲到訓練場外，落入一個社區。報道指增至最少15人受傷，當中部分人重傷，而事件起因可能是機師犯錯。空軍就事件對平民造成傷害表示歉意，祝願傷者早日康復，將進行調查及採取一切包括賠償的一切必要措施。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm)
 
 ---

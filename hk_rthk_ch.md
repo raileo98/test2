@@ -1,3 +1,32 @@
+# 特朗普稱強烈考慮對俄實施制裁　籲俄烏返談判桌
+
+![特朗普敦促俄羅斯及烏克蘭回到談判桌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794824_1_20250308013427.jpg&q=90)
+  
+
+美國總統特朗普在旗下社交平台貼文表示，鑒於俄羅斯目前在前線，對烏克蘭發動猛烈攻擊，他強烈考慮對俄羅斯實施制裁，包括銀行業在內的大規模制裁及關稅制裁，直至達成停火及最終和平協議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm)
+
+---
+
 # 澤連斯基指俄軍再襲烏克蘭能源設施　使用導彈及無人機
 
 ![澤連斯基說目前各地正進行救援及恢復工作。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794823_1_20250308012954.jpg&q=90)
@@ -1698,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm)
-
----
-
-# 鐵路總工會引述港鐵加薪1.8%至5.4%　平均加幅3.78%
-
-![港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794757_1_20250307172048.jpg&q=85)
-  
-
-香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm)
 
 ---
