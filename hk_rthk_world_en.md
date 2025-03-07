@@ -1,3 +1,32 @@
+# Trump threatens new Russia sanctions over Ukraine
+
+![Last month, Trump spoke by telephone with Russian President Vladimir Putin about undoing sweeping sanctions imposed under former president Joe Biden. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794817_1_20250307225043.jpg&q=90)
+  
+
+President Donald Trump on Friday threatened new sanctions and tariffs on Russia over its bombardments of Ukraine, after previously suspending US aid to Kyiv in a stated bid to encourage diplomacy.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm)
+
+---
+
 # Hamas delegation in Cairo for more Gaza truce talks
 
 ![Palestinian children eat the evening Iftar meal with which Muslims end their daily fast at sunset during Ramadan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794803_1_20250307211901.jpg&q=85)
@@ -1711,34 +1740,5 @@ Hollywood legend Gene Hackman had likely been dead for over a week when he and h
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm)
-
----
-
-# Japan battles biggest wildfire in decades
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793771_1_20250301115415.jpg&q=85)
-  
-
-Japan was battling its largest wildfire in more than three decades on Saturday, one of several blazes that have killed one person and forced the evacuation of more than a thousand.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793771-20250301.htm)
 
 ---
