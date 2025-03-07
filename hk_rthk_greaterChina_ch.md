@@ -1,3 +1,31 @@
+# 全國兩會｜何超瓊建議構建跨境低空觀光及接駁航線
+
+  
+
+全國政協常委、信德集團行政主席何超瓊建議，聯合民航局、港澳交通部門，開通「港澳—珠海橫琴」、「港澳—廣州南沙」跨境低空觀光及接駁航線、試點直升機等，進一步拓展「多式聯運」網絡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm)
+
+---
+
 # 全國兩會｜有人大引述丁薛祥稱香港在由治及興路上越走越穩
 
   
@@ -1702,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
-
----
-
-# 外交部：中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實
-
-![林劍稱，中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794564_1_20250306163756.jpg&q=90)
-  
-
-在北京，外交部回應美國國防部長的涉華言論，發言人林劍說，中方奉勸美方不要用自身的霸權邏輯鏡像中國，不要用過時的冷戰思維看待中美關係，不要以戰略競爭為名，行對華遏制、打壓之實。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm)
 
 ---

@@ -1,3 +1,31 @@
+# 陳克勤料本港與泰國建立機制　致參與營救行動更實質及具體
+
+  
+
+再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。立法會議員陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動，而非如以往般，身處幕後角色，主要依靠當地政府及執法部門，或國家駐當地的使領館。他估計是與早前保安局副局長率領專責小組前往泰國協調有關，令雙方建立了合作機制，令今次特區政府的參與更實質和具體。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
+
+---
+
 # 全國兩會｜何超瓊建議構建跨境低空觀光及接駁航線
 
   
@@ -1699,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
-
----
-
-# 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
-
-![特區政府發言人同意標準普爾就香港銀行有能力應對商業房地產所帶來的壓力的觀點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794615_1_20250306205636.jpg&q=35)
-  
-
-就標準普爾對於香港銀行及物業市場發表的報告，特區政府發言人說，不同意住宅物業供應過剩的觀點，去年底私人住宅單位的空置率為4.5%，與過去20年的長期平均數相同，租金亦持續穩健上升，數據反映目前住屋需求殷切。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
 
 ---

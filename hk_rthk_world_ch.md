@@ -1,3 +1,31 @@
+# 陳克勤料本港與泰國建立機制　致參與營救行動更實質及具體
+
+  
+
+再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。立法會議員陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動，而非如以往般，身處幕後角色，主要依靠當地政府及執法部門，或國家駐當地的使領館。他估計是與早前保安局副局長率領專責小組前往泰國協調有關，令雙方建立了合作機制，令今次特區政府的參與更實質和具體。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
+
+---
+
 # 特朗普：暫緩對符合《美墨加協定》商品徵收關稅
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794773_1_20250307181453.jpg&q=80)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794463-20250306.htm)
-
----
-
-# 羅馬尼亞將兩名俄外交官列「不受歡迎的人」　俄方稱將有措施回應
-
-![羅馬尼亞將兩名俄外交官列「不受歡迎的人」　俄方稱將有措施回應](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794462_1_20250306031050.jpg&q=90)
-  
-
-羅馬尼亞將兩名俄羅斯駐當地使館外交官，列為「不受歡迎的人」，俄羅斯外交部就表示，將採取措施回應。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm)
 
 ---
