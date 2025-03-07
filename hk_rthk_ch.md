@@ -1,3 +1,27 @@
+# 機場南交匯處約80名工人疑因欠薪阻擋地盤入口　其後散去
+
+  
+
+機場南交匯處早上近10時，有約80名工人阻擋其中一個地盤入口，懷疑被欠薪，工人其後在大約11時許散去。警方列作糾紛案處理。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm)
+
+---
+
 # 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
 
   

@@ -1,3 +1,27 @@
+# 機場南交匯處約80名工人疑因欠薪阻擋地盤入口　其後散去
+
+  
+
+機場南交匯處早上近10時，有約80名工人阻擋其中一個地盤入口，懷疑被欠薪，工人其後在大約11時許散去。警方列作糾紛案處理。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm)
+
+---
+
 # 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
 
   
@@ -1700,34 +1724,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm)
-
----
-
-# 政府提醒市民勿誤信聲稱行政長官公布發行香港代幣的假信息
-
-![政府發言人提醒市民，切勿誤信網上假冒行政長官公布在區塊鏈上發行香港代幣（launch of the National Hong Kong Coin）的信息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794534_1_20250306135648.jpg&q=90)
-  
-
-政府發言人提醒市民，切勿誤信網上假冒行政長官公布在區塊鏈上發行香港代幣（launch of the National Hong Kong Coin）的信息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm)
 
 ---
