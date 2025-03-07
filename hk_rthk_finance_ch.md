@@ -1,3 +1,32 @@
+# 歐元區上季經濟按季增長減慢至0.2%　但高過初值
+
+![歐元區去年第4季經濟按季增長減慢至0.2%，但好過初值的0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794794_1_20250307190232.jpg&q=75)
+  
+
+歐元區去年第4季經濟按季增長0.2%，增速慢過第3季的0.4%，但好過初值的0.1%，由於愛爾蘭經濟表現由初值估計的跌1.3%，大幅向上修訂至增長3.6%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm)
+
+---
+
 # 全國兩會｜何超瓊建議構建跨境低空觀光及接駁航線
 
 ![何超瓊建議，推動大灣區智慧交通系統普及化，完善共享機制，推動航線創新。（信德集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794792_1_20250307185447.jpg&q=85)
@@ -1683,34 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm)
-
----
-
-# 杜魯多稱與美國貿易戰在可預見未來將繼續
-
-![杜魯多表示，在可預見的未來，加拿大與美國的貿易戰將繼續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794634_1_20250307003606.jpg&q=90)
-  
-
-加拿大總理杜魯多表示，在可預見的未來，加拿大與美國的貿易戰將繼續。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm)
 
 ---
