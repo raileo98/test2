@@ -1,3 +1,32 @@
+# Woman killed in traffic accident in Kwai Chung
+
+![Police say a woman was killed in a traffic accident in Kwai Chung. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794688_1_20250307101912.jpg&q=85)
+  
+
+A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morning.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm)
+
+---
+
 # Second measles-related death in US in a decade
 
 ![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=35)
@@ -1710,34 +1739,5 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
-
----
-
-# 'China's economic goals reasonable and attainable'
-
-![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=45)
-  
-
-Experts on Wednesday said China's economic goals announced at the opening session of this year's National People's Congress are reasonable and attainable.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm)
 
 ---

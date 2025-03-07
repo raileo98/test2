@@ -1,3 +1,32 @@
+# Woman killed in traffic accident in Kwai Chung
+
+![Police say a woman was killed in a traffic accident in Kwai Chung. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794688_1_20250307101912.jpg&q=85)
+  
+
+A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morning.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm)
+
+---
+
 # Hong Kong stocks open lower
 
 ![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=50)
@@ -1709,34 +1738,5 @@ The Transport and Logistics Bureau is aiming to complete a review on the fixed p
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm)
-
----
-
-# Edgar Cheung tells students to never give up
-
-![Edgar Cheung, left, receives an outstanding athlete award from Lam Tai-fai. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793695_2_20250228200003.jpg&q=70)
-  
-
-Hong Kong's fencing king and two-time Olympic gold medallist Edgar Cheung has encouraged students to never give up in the face of adversity.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793695-20250228.htm)
 
 ---

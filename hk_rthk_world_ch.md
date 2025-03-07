@@ -1,3 +1,55 @@
+# 特朗普簽署行政命令建立戰略性比特幣儲備
+
+![美國建立的戰略性比特幣儲備將以聯邦政府擁有的比特幣為資本。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794693_1_20250307104107.jpg&q=70)
+  
+
+美國總統特朗普簽署行政命令，建立戰略性比特幣儲備。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱中方本著人道助打擊毒品　美國不應以怨報德
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm)
+
+---
+
 # 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
 
   
@@ -28,9 +80,10 @@
 
 # 全國兩會｜王毅稱中國反對強權霸權　大國不能唯利是圖恃強凌弱
 
+![王毅表示，大國應當承擔國際義務，履行好大國擔當，不能唯利是圖，更不能恃強凌弱。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794689_1_20250307103633.jpg&q=90)
   
 
-在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威逼利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
+在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威迫利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
   
 
   
@@ -55,6 +108,12 @@
 ---
 
 # 全國兩會｜王毅稱將以中國確定性穩住不確定世界
+
+![王毅表示，中方將做維護國際公平正義的進步力量，堅持真正的多邊主義，以人類前途為懷，人民福祉為念。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794687_1_20250307103941.jpg&q=25)
+  
+
+在北京，外長王毅表示，當今世界變亂交織，確定性日益成為全球稀缺資源，各國尤其是大國作出何種抉擇，將決定時代方向，影響世界格局。中國外交將堅定不移站在歷史正確的一邊，站在人類進步的一邊，將以中國的確定性穩住不確定的世界。
+  
 
   
 
@@ -1669,63 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm)
-
----
-
-# 白宮官員據報與澤連斯基團隊秘密會談　促烏方讓談判重回正軌
-
-![特朗普（右）日前在白宮與澤連斯基（左）不歡而散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794277_1_20250305081348.jpg&q=85)
-  
-
-美國總統特朗普日前在白宮與烏克蘭總統澤連斯基不歡而散的事件，餘波未了，白宮高級官員據報與澤連斯基團隊進行秘密會談。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794277-20250305.htm)
-
----
-
-# 《環看天下》：特朗普提高對華商品關稅至20%　中方採反制措施
-
-![美國國內有專家質疑特朗普指關稅措施能惠及國民的說法。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794273_1_20250305073756.jpg&q=90)
-  
-
-美國總統特朗普正式下令由當地星期二開始，對中國輸美產品加徵的關稅，由之前的10%提高至20%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm)
 
 ---

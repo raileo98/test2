@@ -1,5 +1,34 @@
+# 香港與澳門合辦投資推介會　鼓勵澳門企業藉香港優勢拓展海外業務
+
+  
+
+行政長官李家超於上月在禮賓府與澳門行政長官岑浩輝會面，就進一步加強港澳合作和推動大灣區高質量發展交流意見。為落實促進兩地合作，投資推廣署昨日與澳門招商投資促進局於澳門合辦的推介會，向約90名澳門製造、品牌、零售、餐飲、出入口貿易企業及商會和協會代表，介紹香港營商現況及發展新機遇，尤其在零售、餐飲和貿易行業的新商機，鼓勵澳門企業利用香港的獨特優勢，拓展海外市場。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm)
+
+---
+
 # 消委會稱不少私院及日間醫療中心只給予口頭預算　資料不夠齊全
 
+![黃鳳嫺說，消委會研究發現不少私院及日間醫療中心只是給予口頭預算，當中醫療中心情況較普遍。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794690_1_20250307103710.jpg&q=90)
   
 
 消委會過去4年接共接獲191宗有關私家醫院及日間醫療中心的投訴，當中約半數關乎收費爭議。總幹事黃鳳嫺出席本台節目《千禧年代》表示，醫療投訴不容易調解，現時成功調解比率為35%。
@@ -57,6 +86,7 @@
 
 # 全國兩會｜孫青野：國安法持續完善是正確　是否須修改由人大決定
 
+![孫青野表示，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794684_1_20250307103447.jpg&q=85)
   
 
 支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
@@ -1699,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
-
----
-
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=80)
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
