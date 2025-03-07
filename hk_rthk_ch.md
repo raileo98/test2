@@ -1,3 +1,33 @@
+# 因傷接受手術　荷蘭兩名後衛尼敦艾基及博文將休戰多個星期
+
+![尼敦艾基因傷接受手術，要養傷至少10個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_1_20250308071112.jpg&q=85)
+![博文受傷患困擾，今季上陣次數不多。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_2_20250308071112.jpg&q=90)
+  
+
+英超曼城後衛尼敦艾基因為左腳骨折，已接受手術，至少要養傷10個星期。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm)
+
+---
+
 # 道指高收222點　本周累跌逾2%
 
 ![道瓊斯指數一度跌逾400點，其後最多倒升約320點，收市報42801點，升222點，升幅0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794834_1_20250308054052.jpg&q=85)
@@ -1702,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm)
-
----
-
-# 在岸人民幣兌美元高收46點子　創逾3個月新高
-
-![在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794767_1_20250307172752.jpg&q=75)
-  
-
-在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，升幅0.06%，創逾3個月新高。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm)
 
 ---

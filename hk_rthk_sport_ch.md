@@ -1,3 +1,33 @@
+# 因傷接受手術　荷蘭兩名後衛尼敦艾基及博文將休戰多個星期
+
+![尼敦艾基因傷接受手術，要養傷至少10個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_1_20250308071112.jpg&q=85)
+![博文受傷患困擾，今季上陣次數不多。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_2_20250308071112.jpg&q=90)
+  
+
+英超曼城後衛尼敦艾基因為左腳骨折，已接受手術，至少要養傷10個星期。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm)
+
+---
+
 # 巴赫稱正研究革新奧運贊助商權益　堅守賽場純潔同時創造展示機會
 
 ![巴赫表示正考慮放寬有關商業展示限制，調整為更靈活的「清潔賽場政策」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794828_1_20250308022818.jpg&q=90)
@@ -1717,34 +1747,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793626-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793626-20250228.htm)
-
----
-
-# 啟德體育園明晚開幕禮　水樽長雨傘及專業攝影器材不准帶入會場
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793620_2_20250228124338.jpg&q=80)
-  
-
-啟德體育園啟德主場館明日傍晚舉行開幕典禮，體育專員蔡健斌說，入場的市民需要持實體門票，呼籲盡早到啟德體藝館換領。截至昨晚，公開發售的8500張門票中，已換領了3500張實體票。他呼籲市民盡早換領，避免需時換票耽誤入場時間，今日的換領時間由中午12時至晚上10時，明日的換領時間由上午9時至下午3時。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793620-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793620-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793620-20250228.htm)
 
 ---
