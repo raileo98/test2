@@ -1,3 +1,32 @@
+# 滬深股市半日個別發展　創業板指數半日跌約1%
+
+![內地股市今早個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794705_1_20250307114822.jpg&q=85)
+  
+
+內地股市今早個別發展。有色、軍工及鋼鐵股向好；金融、地產及光伏設備股份表現較弱。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm)
+
+---
+
 # 內地1-2月美元計價出口按年增長2.3%仍遜預期
 
 ![中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%；進口按年下跌8.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794702_1_20250307112414.jpg&q=60)
@@ -77,6 +106,94 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm)
+
+---
+
+# 香港與澳門合辦投資推介會　鼓勵澳門企業藉香港優勢拓展海外業務
+
+![投資推廣署與澳門特別行政區招商投資促進局於澳門合辦的推介會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794694_1_20250307104813.jpg&q=45)
+  
+
+行政長官李家超於上月在禮賓府與澳門行政長官岑浩輝會面，就進一步加強港澳合作和推動大灣區高質量發展交流意見。為落實促進兩地合作，投資推廣署昨日與澳門招商投資促進局於澳門合辦的推介會，向約90名澳門製造、品牌、零售、餐飲、出入口貿易企業及商會和協會代表，介紹香港營商現況及發展新機遇，尤其在零售、餐飲和貿易行業的新商機，鼓勵澳門企業利用香港的獨特優勢，拓展海外市場。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm)
+
+---
+
+# 特朗普簽署行政命令建立戰略性比特幣儲備
+
+![美國建立的戰略性比特幣儲備將以聯邦政府擁有的比特幣為資本。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794693_1_20250307104107.jpg&q=70)
+  
+
+美國總統特朗普簽署行政命令，建立戰略性比特幣儲備。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm)
+
+---
+
+# 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
+
+![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
+![啟德青年運動場現階段有2個室内乒乓球場開放。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_2_20250307105549.jpg&q=90)
+  
+
+啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm)
 
 ---
 
@@ -1596,121 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
-
----
-
-# 港鐵未來一年招標東涌東站第二期、屯門第16區站第一期項目
-
-![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=90)
-  
-
-港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至121.85億元，內地虧損300萬元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm)
-
----
-
-# 港鐵去年香港客運服務盈利升38%　鐵路及巴士乘客量升3%
-
-![港鐵去年旗下鐵路及巴士總乘客量19.54億人次，按年升3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794575_1_20250306171929.jpg&q=70)
-  
-
-港鐵去年總收入600.11億元，按年升逾5%。當中，香港客運服務收入升12%至283.6億元，盈利貢獻增長38%至37.1億元。其中，車務營運虧損收窄94%至6300萬元，車站商務盈利跌0.5%至37.7億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794575-20250306.htm)
-
----
-
-# 在岸人民幣兌美元高收152點子　創近1個半月新高
-
-![在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，創近1個半月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794574_1_20250306170858.jpg&q=65)
-  
-
-在岸人民幣收報7.2428兌1美元，較昨日收市價升152點子，升幅0.21%，創近1個半月新高。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794574-20250306.htm)
-
----
-
-# 市建局山東街/地士道街發展項目接獲28份發展意向書
-
-![市建局表示，九龍山東街/地士道街發展項目共接獲28份發展意向書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794568_1_20250306165153.jpg&q=80)
-  
-
-市建局九龍山東街/地士道街發展項目中午截收發展意向書。市建局表示，共接獲28份意向書。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm)
 
 ---

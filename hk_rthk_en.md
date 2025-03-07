@@ -58,7 +58,7 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
 
 # China wants a lasting peace in Ukraine: FM
 
-![Foreign Minister Wang Yi speaks at a press conference on the sidelines of the National People's Congress in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
+![Foreign Minister Wang Yi speaks at a press conference on the sidelines of the "Two Sessions" in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
   
 
 China wants to achieve a "fair, lasting and binding peace agreement" acceptable to all parties on the Ukraine war, Foreign Minister Wang Yi said on Friday.

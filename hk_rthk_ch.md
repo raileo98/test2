@@ -1,3 +1,60 @@
+# 滬深股市半日個別發展　創業板指數半日跌約1%
+
+![內地股市今早個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794705_1_20250307114822.jpg&q=85)
+  
+
+內地股市今早個別發展。有色、軍工及鋼鐵股向好；金融、地產及光伏設備股份表現較弱。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm)
+
+---
+
+# 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
+
+  
+
+中國今年出任上海合作組織輪任主席國，外長王毅宣布，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
+
+---
+
 # 內地1-2月美元計價出口按年增長2.3%仍遜預期
 
 ![中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%；進口按年下跌8.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794702_1_20250307112414.jpg&q=60)
@@ -1660,63 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm)
-
----
-
-# 長江生命科技料去年轉蝕近1.3億元
-
-![長江生命科技預料去年業績由盈轉虧，虧損約1.27億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794629_1_20250306224510.jpg&q=25)
-  
-
-長江生命科技發盈利警告，預料去年業績由盈轉虧，虧損約1.27億元，前年盈利1730萬元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm)
-
----
-
-# 全國兩會｜中央軍委委員劉振立稱要深入貫徹習近平強軍思想
-
-![中央軍委委員劉振立稱要深入貫徹習近平強軍思想。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794631_1_20250306225652.jpg&q=90)
-  
-
-出席十四屆全國人大三次會議的解放軍和武警部隊代表團繼續分組審議政府工作報告。中央軍委委員、軍委聯合參謀部參謀長劉振立說，過去一年，面對外部壓力加大、內部困難增多的複雜嚴峻形勢，黨中央、習近平主席統攬全局、沉著應變、綜合施策，團結帶領全黨全軍全國各族人民順利完成經濟社會發展主要目標任務，推動中國式現代化邁出堅實步伐。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm)
 
 ---
