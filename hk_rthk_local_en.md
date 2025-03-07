@@ -1,6 +1,6 @@
 # Smart traffic control system to be tested in Kwun Tong
 
-![The system interface will use different colours to show the speed of traffic on the roads. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794704_1_20250307113507.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794704_1_20250307113507.jpg&q=85)
   
 
 Police on Friday said they hope traffic congestion in Kwun Tong would be eased following the implementation of a new smart traffic management system in the area.
