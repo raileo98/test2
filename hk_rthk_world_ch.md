@@ -1,3 +1,82 @@
+# 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
+
+  
+
+外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱中國反對強權霸權　大國不能唯利是圖恃強凌弱
+
+  
+
+在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威逼利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱將以中國確定性穩住不確定世界
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
+
+---
+
 # 美國「星艦」第八次試飛　第二級飛船再次失聯
 
 ![「星艦」當地星期四從得州發射升空，實施第八次試飛。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794669_1_20250307085827.jpg&q=90)
@@ -1648,92 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794273-20250305.htm)
-
----
-
-# 澤連斯基：願在美國總統領導下實現持久和平
-
-![澤連斯基說，與歐洲多國領導人交談，這些領導人都表示會繼續支持烏克蘭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794268_1_20250305065247.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，他上星期與美國總統特朗普的爭吵「令人遺憾」，他與團隊已準備好在美國總統的強力領導下展開工作，以實現持久和平。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794268-20250305.htm)
-
----
-
-# 杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施
-
-![杜魯多：加拿大在貿易戰中不會退縮　墨西哥周日宣布應對措施](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794267_1_20250305064537.jpg&q=80)
-  
-
-美國對加拿大及墨西哥進口商品徵收25%關稅，加大宣布報復措施，總理杜魯多認為，美國總統特朗普的目的，是想摧毀加拿大的經濟，令美國更容易吞併加拿大。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794267-20250305.htm)
-
----
-
-# 巴基斯坦西北部一座軍營遇襲12死逾30人傷
-
-![自殺式襲擊發生後，救護車把傷者送院，民眾聚集在救護車旁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794266_1_20250305062813.jpg&q=75)
-  
-
-巴基斯坦西北部開伯爾-普什圖省一座軍營遭到襲擊，造成12名平民死亡、32人受傷。6名恐怖分子在交火中被擊斃。總統扎爾達里發表聲明，強烈譴責襲擊。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm)
 
 ---

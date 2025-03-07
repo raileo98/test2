@@ -1,3 +1,32 @@
+# 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
+
+![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
+  
+
+啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm)
+
+---
+
 # 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
 
 ![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=85)
@@ -1715,34 +1744,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793581-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793581-20250228.htm)
-
----
-
-# 全運會三項鐵人測試賽周末舉行　當局歡迎市民到場觀賞
-
-![公眾門票已透過中國香港三項鐵人總會派發，比賽當日也會預留少量門票，市民可於觀眾入口處領取門票進場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793543_1_20250227214540.jpg&q=85)
-  
-
-第十五屆全國運動會三項鐵人項目測試賽，將於周六和周日在中環海濱及維港舉行，當局歡迎市民到場觀賞。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm)
 
 ---

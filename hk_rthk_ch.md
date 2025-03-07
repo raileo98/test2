@@ -1,3 +1,110 @@
+# 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
+
+  
+
+外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm)
+
+---
+
+# 消委會稱不少私院及日間醫療中心只給予口頭預算　資料不夠齊全
+
+  
+
+消委會過去4年接共接獲191宗有關私家醫院及日間醫療中心的投訴，當中約半數關乎收費爭議。總幹事黃鳳嫺出席本台節目《千禧年代》表示，醫療投訴不容易調解，現時成功調解比率為35%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱中國反對強權霸權　大國不能唯利是圖恃強凌弱
+
+  
+
+在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威逼利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱將以中國確定性穩住不確定世界
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
+
+---
+
 # 全國兩會｜王毅稱習近平以全球視野引領中國外交守互創新
 
   
@@ -23,6 +130,7 @@
 
 # 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
 
+![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
   
 
 啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
@@ -79,6 +187,7 @@
 
 # 葵涌有女途人被巴士撞倒　送院後不治
 
+![葵涌有女途人被巴士撞倒　送院後不治](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794683_1_20250307103242.jpg&q=75)
   
 
 葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
@@ -276,6 +385,7 @@
 
 # 全國兩會｜有政協稱國家迎來低空經濟黃金機遇期　成增長新引擎
 
+![羊毅認為，國家已迎來低空經濟的黃金機遇期，將成為經濟增長的新引擎，形容「空中之城」不再是夢想。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794674_1_20250307103341.jpg&q=90)
   
 
 全國政協常委、全國婦聯副主席徐曉蘭表示，今年政府工作報告提出加快工業互聯網的創新發展，亦是連續8年對工業互聯網提出具體要求，而經歷8年發展，工業互聯網已經應用到49個國民經濟領域，核心產業規模達到1.53萬億元。
@@ -305,6 +415,11 @@
 # 全國兩會｜丁薛祥參加港區全國人大代表團審議
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主席鄭雁雄亦有出席會議。
+  
+
   
 
 
@@ -1591,121 +1706,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794618-20250306.htm)
-
----
-
-# 全國兩會｜習近平強調須強化教育對科技和人才支撐作用
-
-![習近平強調，必須強化教育對科技和人才的支撐作用。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794617_1_20250306211708.jpg&q=90)
-  
-
-中共總書記、國家主席、中央軍委主席習近平強調，必須深刻把握中國式現代化對教育、科技、人才的需求，強化教育對科技和人才的支撐作用，進一步形成人才輩出、人盡其才、才盡其用的生動局面。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm)
-
----
-
-# LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
-
-![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
-  
-
-大型體育活動事務委員會已向「LIV Golf 2025香港站」及「2025年國泰／滙豐香港國際七人欖球賽」頒授「M」品牌認可。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
-
----
-
-# 美國起訴12名中國公民涉發動網攻　中方反對美方無理指責中國
-
-![林劍表示，中方堅決反對美方無理指責中國，要求美方立即停止濫施制裁的錯誤做法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794553_1_20250306161426.jpg&q=90)
-  
-
-美國司法部起訴12名中國公民，指他們涉嫌向美國政府等機構發動網絡攻擊。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm)
-
----
-
-# 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
-
-![特區政府發言人同意標準普爾就香港銀行有能力應對商業房地產所帶來的壓力的觀點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794615_1_20250306205636.jpg&q=35)
-  
-
-就標準普爾對於香港銀行及物業市場發表的報告，特區政府發言人說，不同意住宅物業供應過剩的觀點，去年底私人住宅單位的空置率為4.5%，與過去20年的長期平均數相同，租金亦持續穩健上升，數據反映目前住屋需求殷切。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
 
 ---

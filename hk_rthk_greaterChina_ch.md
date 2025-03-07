@@ -1,3 +1,82 @@
+# 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
+
+  
+
+外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱中國反對強權霸權　大國不能唯利是圖恃強凌弱
+
+  
+
+在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威逼利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱將以中國確定性穩住不確定世界
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
+
+---
+
 # 全國兩會｜王毅稱習近平以全球視野引領中國外交守互創新
 
   
@@ -79,6 +158,7 @@
 
 # 全國兩會｜有政協稱國家迎來低空經濟黃金機遇期　成增長新引擎
 
+![羊毅認為，國家已迎來低空經濟的黃金機遇期，將成為經濟增長的新引擎，形容「空中之城」不再是夢想。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794674_1_20250307103341.jpg&q=90)
   
 
 全國政協常委、全國婦聯副主席徐曉蘭表示，今年政府工作報告提出加快工業互聯網的創新發展，亦是連續8年對工業互聯網提出具體要求，而經歷8年發展，工業互聯網已經應用到49個國民經濟領域，核心產業規模達到1.53萬億元。
@@ -108,6 +188,11 @@
 # 全國兩會｜丁薛祥參加港區全國人大代表團審議
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主席鄭雁雄亦有出席會議。
+  
+
   
 
 
@@ -1626,92 +1711,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794425-20250305.htm)
-
----
-
-# 全國兩會｜譚炯提出強化投融資機制　支持國家重大項目建設
-
-![譚炯稱要健全政府投資支持基礎性、公益性、長遠性重大項目建設長效機制。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794417_1_20250305175521.jpg&q=80)
-  
-
-全國政協委員、國家開發銀行黨委副書記譚炯提出，強化投融資機制，以支持國家重大項目建設，包括加強頂層設計，完善跨部門跨區域重大項目協調推進機制，以推動政府、企業、金融機構深化合作，協同發力共同參與重大項目謀劃建設和運營。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794417-20250305.htm)
-
----
-
-# 澳門立法會選舉《提名委員會確認申請表》明起供索取
-
-![澳門第八屆立法會選舉將在今年9月14日進行投票。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794413_1_20250305174324.jpg&q=70)
-  
-
-澳門第八屆立法會選舉管理委員會由明天開始，提供《提名委員會確認申請表》，有意組織提名委員會的人士，最遲要將申請表在下月6日前交回。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794413-20250305.htm)
-
----
-
-# 全國兩會｜曾偉雄稱不少人對內地芬太尼工作不了解　易被美國誤導
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794407_1_20250305172923.jpg&q=90)
-  
-
-在北京，國務院總理李強發表政府工作報告，提到支持香港澳門深化國際交往合作。警務處前處長、全國政協委員曾偉雄表示，十四五規劃綱要下，國家給予香港的定位非常強調「國際」，要做到國際化八大中心，政府工作報告強調國際化是合時，他認為，這是香港在發展上要更留意的地方，亦為十五五規劃打好基礎，希望大家一起努力加把勁。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
 
 ---

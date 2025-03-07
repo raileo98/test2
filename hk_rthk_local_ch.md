@@ -1,5 +1,34 @@
+# 消委會稱不少私院及日間醫療中心只給予口頭預算　資料不夠齊全
+
+  
+
+消委會過去4年接共接獲191宗有關私家醫院及日間醫療中心的投訴，當中約半數關乎收費爭議。總幹事黃鳳嫺出席本台節目《千禧年代》表示，醫療投訴不容易調解，現時成功調解比率為35%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm)
+
+---
+
 # 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
 
+![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
   
 
 啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
@@ -56,6 +85,7 @@
 
 # 葵涌有女途人被巴士撞倒　送院後不治
 
+![葵涌有女途人被巴士撞倒　送院後不治](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794683_1_20250307103242.jpg&q=75)
   
 
 葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
@@ -114,6 +144,11 @@
 # 全國兩會｜丁薛祥參加港區全國人大代表團審議
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主席鄭雁雄亦有出席會議。
+  
+
   
 
 
@@ -1693,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
-# 恒指半日升622點　科指升近半成　主板半日成交逾2000億元
-
-![恒指中午收市報24216點，升622點，升幅2.6%，半日主板成交額近2168億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794518_1_20250306121205.jpg&q=80)
-  
-
-港股連升兩日，恒生指數升穿24000點關口，高見24262點，創逾3年新高，中午收市報24216點，升622點，升幅2.6%，半日主板成交額突破2000億元，有近2168億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm)
 
 ---
