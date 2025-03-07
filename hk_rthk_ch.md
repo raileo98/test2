@@ -1,3 +1,147 @@
+# 美股初段個別發展　道指跌逾百點　納指升0.2%
+
+![美股初段個別發展，道瓊斯指數較早時報42472點，跌106點，跌幅0.25%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794816_1_20250307224154.jpg&q=80)
+  
+
+美股初段個別發展。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm)
+
+---
+
+# 越秀地產料去年盈利至少跌約65%　核心盈利至少減半
+
+![越秀地產預計，去年盈利按年跌約65%至70%，核心盈利按年跌約50%至55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794813_1_20250307221702.jpg&q=80)
+  
+
+越秀地產發盈利警告，預計去年盈利按年跌約65%至70%；撇除淨匯兌收益或虧損、投資物業公允值變動及相關稅項影響等之後，核心盈利按年跌約50%至55%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm)
+
+---
+
+# 龍湖料去年核心盈利按年跌約35%至40%
+
+![龍湖預料，去年剔除投資物業及其他衍生金融工具公平值變動影響後，核心盈利按年跌約35%至40%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794811_1_20250307221051.jpg&q=90)
+  
+
+龍湖發盈利警告，預料去年剔除投資物業及其他衍生金融工具公平值變動影響後，核心盈利按年跌約35%至40%，主要受房地產行業下行影響，地產開發業務結算收入及結算毛利率都跌。前年核心盈利為113.5億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm)
+
+---
+
+# 房委會建議公屋入息及資產限額平均上調1.7%
+
+  
+
+房委會完成公屋入息及資產限額檢討，建議2025/26年度公屋入息和資產限額均平均上調1.7%。下星期五諮詢立法會房屋事務委員會意見，之後房委會資助房屋小組將於本月21日的會議上討論。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
+
+---
+
+# 華潤飲料、毛戈平、小菜園等納入港股通名單
+
+![上海證券交易所表示，滬港通下的港股通標的名單加入多隻股份，包括華潤飲料、毛戈平、小菜園等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794808_1_20250307215320.jpg&q=85)
+  
+
+上海證券交易所表示，因應恒生綜合大型股指數等實施成份股調整，滬港通下的港股通標的名單加入多隻股份，包括貝殼、華潤飲料、迅飛醫療科技、英諾賽科、中信金融資產、毛戈平、小菜園等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm)
+
+---
+
 # 全國兩會｜鄭新聰籲講好澳門特色一國兩制成功實踐故事
 
   

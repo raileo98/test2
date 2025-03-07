@@ -1,3 +1,31 @@
+# 房委會建議公屋入息及資產限額平均上調1.7%
+
+  
+
+房委會完成公屋入息及資產限額檢討，建議2025/26年度公屋入息和資產限額均平均上調1.7%。下星期五諮詢立法會房屋事務委員會意見，之後房委會資助房屋小組將於本月21日的會議上討論。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
+
+---
+
 # 港鐵稱考慮業績市場及經濟環境與員工貢獻而調整薪酬
 
 ![港鐵表示，一直有聆聽員工代表、工會及員工就薪酬調整幅度的意見及訴求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794812_1_20250307223155.jpg&q=45)
@@ -1699,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm)
-
----
-
-# 警方擬於觀塘推出智慧交通管理系統　人工智能分辨違泊及交通事故
-
-![警方聯同科大研發推出「智慧交通管理系統」，希望改善觀塘區內交通情況。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794666_2_20250307091257.jpg&q=70)
-  
-
-警方觀塘警區聯同科大研發推出「智慧交通管理系統」，希望改善區內交通情況。為配合系統，警方在觀塘商貿區安裝11組閉路電視，全天候收集交通數據。系統由警方及運輸署共同使用，配合人工智能技術，可以即時分辨塞車、交通事故、違例泊車等情況，除了會發出警示提醒相關部門外，系統亦會提供建議，包括應該調配多少警力到現場處理事故、如何調整交通燈號等。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm)
 
 ---

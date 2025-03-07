@@ -1,3 +1,147 @@
+# 美股初段個別發展　道指跌逾百點　納指升0.2%
+
+![美股初段個別發展，道瓊斯指數較早時報42472點，跌106點，跌幅0.25%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794816_1_20250307224154.jpg&q=80)
+  
+
+美股初段個別發展。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm)
+
+---
+
+# 越秀地產料去年盈利至少跌約65%　核心盈利至少減半
+
+![越秀地產預計，去年盈利按年跌約65%至70%，核心盈利按年跌約50%至55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794813_1_20250307221702.jpg&q=80)
+  
+
+越秀地產發盈利警告，預計去年盈利按年跌約65%至70%；撇除淨匯兌收益或虧損、投資物業公允值變動及相關稅項影響等之後，核心盈利按年跌約50%至55%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm)
+
+---
+
+# 龍湖料去年核心盈利按年跌約35%至40%
+
+![龍湖預料，去年剔除投資物業及其他衍生金融工具公平值變動影響後，核心盈利按年跌約35%至40%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794811_1_20250307221051.jpg&q=90)
+  
+
+龍湖發盈利警告，預料去年剔除投資物業及其他衍生金融工具公平值變動影響後，核心盈利按年跌約35%至40%，主要受房地產行業下行影響，地產開發業務結算收入及結算毛利率都跌。前年核心盈利為113.5億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm)
+
+---
+
+# 房委會建議公屋入息及資產限額平均上調1.7%
+
+  
+
+房委會完成公屋入息及資產限額檢討，建議2025/26年度公屋入息和資產限額均平均上調1.7%。下星期五諮詢立法會房屋事務委員會意見，之後房委會資助房屋小組將於本月21日的會議上討論。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
+
+---
+
+# 華潤飲料、毛戈平、小菜園等納入港股通名單
+
+![上海證券交易所表示，滬港通下的港股通標的名單加入多隻股份，包括華潤飲料、毛戈平、小菜園等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794808_1_20250307215320.jpg&q=85)
+  
+
+上海證券交易所表示，因應恒生綜合大型股指數等實施成份股調整，滬港通下的港股通標的名單加入多隻股份，包括貝殼、華潤飲料、迅飛醫療科技、英諾賽科、中信金融資產、毛戈平、小菜園等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm)
+
+---
+
 # 全國兩會｜鄭新聰籲講好澳門特色一國兩制成功實踐故事
 
   
@@ -1570,147 +1714,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm)
-
----
-
-# 韓股初段跌約1%
-
-![首爾綜合指數較早時報2550點，跌25點，跌幅0.99%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794661_1_20250307080613.jpg&q=90)
-  
-
-南韓股市在開市初段跌約1%，首爾綜合指數較早時報2550點，跌25點，跌幅0.99%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm)
-
----
-
-# 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
-
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=85)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_4_20250307090212.jpg&q=85)
-  
-
-在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
-
----
-
-# 《環看天下》：特朗普向加墨實施關稅　分析指衝擊貿易一體化
-
-![福特是其中一間獲一個月關稅豁免汽車製造商。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794657_1_20250307073641.jpg&q=90)
-  
-
-美國總統特朗普簽署行政令，調整對加拿大和墨西哥加徵關稅措施，對符合《美墨加協定》優惠條件的進口商品豁免徵收關稅。豁免政策將持續至4月2日。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm)
-
----
-
-# 金沙中國：戈德斯坦將於明年3月辭任主席等職務
-
-![金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席等職務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794656_1_20250307071626.jpg&q=90)
-  
-
-金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席兼非執行董事等職務。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794656-20250307.htm)
-
----
-
-# 港股美國預託證券普遍較本港收市下跌
-
-![ATMXJ的ADR較本港收市跌逾1%至近5%，以京東跌幅較大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794652_1_20250307062201.jpg&q=80)
-  
-
-港股美國預託證券(ADR)普遍較本港收市下跌。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm)
 
 ---
