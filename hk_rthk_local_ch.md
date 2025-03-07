@@ -1,3 +1,59 @@
+# 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
+
+  
+
+保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm)
+
+---
+
+# 全國兩會｜胡曉明倡完善保障勞動者權益　葉玉如指港有國際化優勢
+
+  
+
+在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
+
+---
+
 # 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
 
   
@@ -113,7 +169,7 @@
 ![鄧炳強表示，獲救的6名男女，預料將於晚上返港。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
   
 
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。保安局局長鄧炳強下午由泰國返港，他在機場見傳媒時表示，過去兩日他到曼谷參與聯合營救行動，在緬甸邊境的園區救回3男3女的港人。
+再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
   
 
   
@@ -1665,63 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm)
-
----
-
-# 口岸爆炸案專家證人估計爆炸裝置放不同位置目的為「精密襲擊」
-
-![口岸爆炸案高等法院踏入第65天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794597_1_20250306183254.jpg&q=90)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第65天審訊。控方繼續傳召爆炸品專家證人、警司盧秉善作供，他表示，2020年2月在羅湖站處理兩個設計相同的簡易爆炸裝置，估計兩個裝置原本是要放置不同地點，用作造成多人傷亡或重大物質損害的「精密襲擊」。專家證人提到，雖然其中一個裝置運作時有機會破壞另一個裝置，但如果兩個裝置放在一起可以提高造成破壞或傷亡的成功率。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm)
-
----
-
-# 全國兩會｜丁薛祥：香港有背靠祖國聯通世界的獨特地位
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794591_1_20250306181859.jpg&q=85)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥，列席港澳全國政協委員聯組會議。丁薛祥發言時提及，香港有背靠祖國、聯通世界的獨特地位。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm)
 
 ---

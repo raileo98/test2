@@ -1,3 +1,115 @@
+# 全國兩會｜澳門立法會主席稱會依法選出合居民期望議員
+
+  
+
+澳門第八屆立法會選舉將在今年9月14日舉行。身兼澳門立法會主席的全國人大代表高開賢表示，立法會選舉是澳門政治生活一件大事，相信澳門特區政府與社會各界，一定會依法依規選出符合愛國者治澳要求，符合澳門居民期望的議員。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm)
+
+---
+
+# 全國兩會｜胡曉明倡完善保障勞動者權益　葉玉如指港有國際化優勢
+
+  
+
+在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
+
+---
+
+# 全國兩會｜王毅︰談判桌是烏克蘭危機終點　和平不會有輸家
+
+  
+
+中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
+
+---
+
+# 全國兩會｜王毅︰不能幻想一邊打壓一邊與中國發展良好關係
+
+  
+
+十四屆全國人大三次會議，舉行關於「中國外交政策和對外關係」的記者會，中共中央政治局委員、外長王毅說，相互尊重是國與國交往的基本準則，也是中美關係的重要前提。任何一個國家都不能幻想一邊對華打壓遏制，一邊與中國發展良好關係。他又反問美國，從關稅戰、貿易戰中得到甚麼，強調中美經貿關係是相互的、對等的。如果選擇合作，將實現互利共贏，如果一味施壓，中國必將堅決反制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm)
+
+---
+
 # 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
 
   
@@ -1612,121 +1724,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794555-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794555-20250306.htm)
-
----
-
-# 全國兩會｜廣東省生產總值連續36年全國首位　聯港澳辦好全運會
-
-![張虎（中）提出，會積極推動廣東經濟高質量發展，從多方面落實工作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794551_1_20250306162126.jpg&q=85)
-  
-
-廣東省全國人大代表團下午舉行全體會議，廣東省委書記黃坤明、廣東省省長王偉中等列席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794551-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794551-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794551-20250306.htm)
-
----
-
-# 全國兩會｜潘功勝：今年有減息降準空間
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794550_1_20250306182503.jpg&q=90)
-  
-
-人民銀行行長潘功勝表示，去年以來貨幣政策逆周期調節效果比較明顯，今年將根據國內外經濟金融形勢和金融市場情況，擇機降準減息，又指目前存款準備金率仍有下行空間。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794550-20250306.htm)
-
----
-
-# 全國兩會｜藍佛安：實施更積極財政政策　持續用力　更加給力
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794547_1_20250306164516.jpg&q=90)
-  
-
-財政部部長藍佛安表示，為應對內外部可能出現的不確定性，中央財政預留充足儲備工具和政策空間。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm)
-
----
-
-# 台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全
-
-![台灣屏東縣有核電廠冷卻水塔起火無人傷　不影響核安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794544_1_20250306145051.jpg&q=90)
-  
-
-台灣屏東縣恆春鎮的第三核能發電廠有冷卻水塔發生火警，無人受傷，對發電與核能安全亦無影響。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794544-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794544-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794544-20250306.htm)
 
 ---

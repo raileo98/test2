@@ -1,9 +1,94 @@
+# 特朗普：暫緩對符合《美墨加協定》商品徵收關稅
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794773_1_20250307181453.jpg&q=80)
+  
+
+美國總統特朗普簽署行政命令，對符合《美墨加協定》的產品，暫緩加徵關稅，直至下月2日。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm)
+
+---
+
+# 全國兩會｜王毅︰談判桌是烏克蘭危機終點　和平不會有輸家
+
+  
+
+中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
+
+---
+
+# 全國兩會｜王毅︰不能幻想一邊打壓一邊與中國發展良好關係
+
+  
+
+十四屆全國人大三次會議，舉行關於「中國外交政策和對外關係」的記者會，中共中央政治局委員、外長王毅說，相互尊重是國與國交往的基本準則，也是中美關係的重要前提。任何一個國家都不能幻想一邊對華打壓遏制，一邊與中國發展良好關係。他又反問美國，從關稅戰、貿易戰中得到甚麼，強調中美經貿關係是相互的、對等的。如果選擇合作，將實現互利共贏，如果一味施壓，中國必將堅決反制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm)
+
+---
+
 # 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
 
 ![鄧炳強表示，獲救的6名男女，預料將於晚上返港。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
   
 
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。保安局局長鄧炳強下午由泰國返港，他在機場見傳媒時表示，過去兩日他到曼谷參與聯合營救行動，在緬甸邊境的園區救回3男3女的港人。
+再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
   
 
   
@@ -1648,92 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794462-20250306.htm)
-
----
-
-# 烏美官員通電話同意舉行進一步會談
-
-![葉爾馬克，烏美團隊同意將在不久的將來舉行會晤。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794461_1_20250306031406.jpg&q=90)
-  
-
-烏克蘭總統辦公室主任葉爾馬克與美國國家安全顧問沃爾茲通電話，葉爾馬克說，烏克蘭和美國團隊同意舉行進一步會談。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794461-20250306.htm)
-
----
-
-# 俄方對烏方願和平解決衝突表示肯定　白俄羅斯有意組織俄烏美談判
-
-![佩斯科夫說，到目前為止，烏克蘭法令仍禁止其總統與俄方會談。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794460_1_20250306031136.jpg&q=90)
-  
-
-克里姆林宮發言人佩斯科夫說，俄羅斯對烏克蘭總統澤連斯基表示願意透過談判和平解決衝突持肯定態度。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794460-20250306.htm)
-
----
-
-# 美國中情局局長證實美國暫停對烏克蘭情報支持
-
-![拉特克利夫證實，美國已切斷對烏克蘭的情報支持。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794459_1_20250306005549.jpg&q=85)
-  
-
-美國中央情報局局長拉特克利夫證實，美國已切斷對烏克蘭的情報支持。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm)
 
 ---

@@ -1,3 +1,172 @@
+# 特朗普：暫緩對符合《美墨加協定》商品徵收關稅
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794773_1_20250307181453.jpg&q=80)
+  
+
+美國總統特朗普簽署行政命令，對符合《美墨加協定》的產品，暫緩加徵關稅，直至下月2日。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm)
+
+---
+
+# 全國兩會｜澳門立法會主席稱會依法選出合居民期望議員
+
+  
+
+澳門第八屆立法會選舉將在今年9月14日舉行。身兼澳門立法會主席的全國人大代表高開賢表示，立法會選舉是澳門政治生活一件大事，相信澳門特區政府與社會各界，一定會依法依規選出符合愛國者治澳要求，符合澳門居民期望的議員。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm)
+
+---
+
+# 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
+
+  
+
+保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm)
+
+---
+
+# 全國兩會｜胡曉明倡完善保障勞動者權益　葉玉如指港有國際化優勢
+
+  
+
+在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
+
+---
+
+# 全國兩會｜王毅︰談判桌是烏克蘭危機終點　和平不會有輸家
+
+  
+
+中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
+
+---
+
+# 全國兩會｜王毅︰不能幻想一邊打壓一邊與中國發展良好關係
+
+  
+
+十四屆全國人大三次會議，舉行關於「中國外交政策和對外關係」的記者會，中共中央政治局委員、外長王毅說，相互尊重是國與國交往的基本準則，也是中美關係的重要前提。任何一個國家都不能幻想一邊對華打壓遏制，一邊與中國發展良好關係。他又反問美國，從關稅戰、貿易戰中得到甚麼，強調中美經貿關係是相互的、對等的。如果選擇合作，將實現互利共贏，如果一味施壓，中國必將堅決反制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm)
+
+---
+
 # 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
 
   
@@ -113,7 +282,7 @@
 ![鄧炳強表示，獲救的6名男女，預料將於晚上返港。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
   
 
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。保安局局長鄧炳強下午由泰國返港，他在機場見傳媒時表示，過去兩日他到曼谷參與聯合營救行動，在緬甸邊境的園區救回3男3女的港人。
+再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
   
 
   

@@ -116,7 +116,7 @@ A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warran
 
 # 'Ding tells HK to promote internationalisation'
 
-![Henry Tang says Hong Kong should capitalise on the Two Systems advantage under One Country. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794744_1_20250307160338.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794744_1_20250307160338.jpg&q=90)
   
 
 Chinese People's Political Consultative Conference (CPPCC) Standing Committee member Henry Tang on Friday said Hong Kong should leverage its advantages and further promote internationalisation.
