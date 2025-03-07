@@ -1,3 +1,31 @@
+# 遠東發展與周大福企業收購布里斯本娛樂及休閒區項目一半股權
+
+  
+
+遠東發展公布，與周大福企業組成合營夥伴，與The Star Entertainment Group Limited訂立協議綱領，與The Star進行資產置換。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm)
+
+---
+
 # 藥店店員以誤導性遺漏營業行為售中藥材判社會服務令及賠償逾萬元
 
   
@@ -26,7 +54,7 @@
 
 ---
 
-# 分析：內地出口於未來兩至三個月或錄得按年跌幅
+# 分析：內地出口於未來兩至三個月或按年下跌
 
 ![林俊泓稱特朗普上任美國總統後「搶出口」已延續一段時間，市場或需時消化累積庫存。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794738_1_20250307153106.jpg&q=10)
   

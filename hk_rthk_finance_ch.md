@@ -1,4 +1,32 @@
-# 分析：內地出口於未來兩至三個月或錄得按年跌幅
+# 遠東發展與周大福企業收購布里斯本娛樂及休閒區項目一半股權
+
+  
+
+遠東發展公布，與周大福企業組成合營夥伴，與The Star Entertainment Group Limited訂立協議綱領，與The Star進行資產置換。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm)
+
+---
+
+# 分析：內地出口於未來兩至三個月或按年下跌
 
 ![林俊泓稱特朗普上任美國總統後「搶出口」已延續一段時間，市場或需時消化累積庫存。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794738_1_20250307153106.jpg&q=10)
   
@@ -1689,34 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
-
----
-
-# 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
-
-![財政部部長藍佛安表示，將加快落實落細債務置換政策，指導地方盡早發行使用今年2萬億元人民幣置換債券額度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794609_1_20250306204715.jpg&q=90)
-  
-
-人大常委會去年第4季批准增加6萬億元人民幣地方政府債務限額置換存量隱性債務。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm)
 
 ---

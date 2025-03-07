@@ -1,3 +1,31 @@
+# 唐家成出任行會、立法會及政治委任制度官員薪津獨立委員會主席
+
+  
+
+行政長官再度委任唐家成為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席，並再度委任蔡永忠和黃子遜為獨立委員會成員，任期由4月1日起生效，為期1年。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm)
+
+---
+
 # 藥店店員以誤導性遺漏營業行為售中藥材判社會服務令及賠償逾萬元
 
   
@@ -1701,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794560-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794560-20250306.htm)
-
----
-
-# 支聯會拒交資料案終極上訴得直　卓孝業：研究判詞再決定如何處理
-
-![卓孝業表示，終審庭再次作出清晰的判決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794559_1_20250306163404.jpg&q=70)
-  
-
-終審法院今日就兩宗上訴案件頒下判詞。其中人民力量前副主席譚得志發表煽動文字的案件，被終院駁回上訴。保安局副局長卓孝業表示，終審庭再次作出清晰的判決，指出在煽動罪行中，控方不必是否有煽動使用暴力或者是否有煽動危害公眾秩序作出證明，當局非常歡迎法庭的判決。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794559-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794559-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794559-20250306.htm)
 
 ---

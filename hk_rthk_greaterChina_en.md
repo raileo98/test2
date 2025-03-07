@@ -1,6 +1,36 @@
+# 'Act more firmly to safeguard national security'
+
+![Vice Premier Ding Xuexiang meets local NPC delegates in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_1_20250307153730.jpg&q=85)
+![Local NPC delegates say safeguarding national security is one of the issues they discuss with Vice Premier Ding Xuexiang. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_2_20250307153730.jpg&q=35)
+  
+
+Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguarding national security while recognising the city's effort in implementing Article 23 legislation, according to attendees at a meeting with the top official in Beijing on Friday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm)
+
+---
+
 # Good to improve NSL, Beijing official says
 
-![Sun Qingye speaks out against sanctions imposed on SAR officials and judges by certain Western countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=85)
   
 
 A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
@@ -1707,34 +1737,5 @@ About 100 Chinese nationals who engaged in illegal offshore gambling operations 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm)
-
----
-
-# 4 dead, including 2 Chinese, in SKorea bridge collapse
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793100_1_20250225161221.jpg&q=30)
-  
-
-Four people, including two Chinese nationals, were killed and six injured after a bridge collapsed at an expressway construction site in South Korea on Tuesday, authorities said.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
 
 ---
