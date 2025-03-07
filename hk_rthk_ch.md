@@ -1,3 +1,31 @@
+# 消息：6名港人被禁錮東南亞獲營救　鄧炳強下午由泰國回港交代
+
+  
+
+保安局局長鄧炳強由泰國返港後，下午約5時在機場會見傳媒。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm)
+
+---
+
 # 韓股低收約0.5%
 
 ![首爾綜合指數收報2563點，跌12點，跌幅0.49%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794734_1_20250307144613.jpg&q=85)
