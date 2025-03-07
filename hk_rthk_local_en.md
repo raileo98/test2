@@ -1,3 +1,32 @@
+# Good to improve NSL, Beijing official says
+
+![Sun Qingye speaks out against sanctions imposed on SAR officials and judges by certain Western countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=85)
+  
+
+A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
+
+---
+
 # 'Let's bring key international events to Kai Tak'
 
 ![Zhou Jinqiang says athletes from the national team are very impressed with the Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_1_20250307131416.jpg&q=90)
@@ -1710,34 +1739,5 @@ Users will be able to check the remaining number of discounted trips using an Oc
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793766-20250301.htm)
-
----
-
-# Basketball betting 'could be legalised by September'
-
-![It is believed that basketball betting activities could be legalised within this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793724_1_20250228221320.jpg&q=90)
-  
-
-Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the way for basketball betting will be passed by lawmakers by September this year.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm)
 
 ---

@@ -1,3 +1,32 @@
+# Good to improve NSL, Beijing official says
+
+![Sun Qingye speaks out against sanctions imposed on SAR officials and judges by certain Western countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=85)
+  
+
+A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
+
+---
+
 # 'China's diplomacy gives certainty to uncertain world'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
@@ -1707,34 +1736,5 @@ Four people, including two Chinese nationals, were killed and six injured after 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793100-20250225.htm)
-
----
-
-# China mulls banning arbitrary fines on private firms
-
-![The draft law was submitted to an ongoing session of the Standing Committee of the National People's Congress for a second reading. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792989_1_20250224205037.jpg&q=90)
-  
-
-Mainland lawmakers on Monday began deliberations on the draft private economy promotion law, which adds new provisions prohibiting arbitrary fees and fines on private enterprises.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm)
 
 ---

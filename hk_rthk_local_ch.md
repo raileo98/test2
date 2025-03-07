@@ -1,5 +1,35 @@
+# 保安局局長鄧炳強由泰國返港　下午在機場會見傳媒
+
+![鄧炳強由泰國返港後， 於下午約5時在機場會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794728_1_20250307141124.jpg&q=90)
+  
+
+保安局局長鄧炳強由泰國返港後， 於下午約5時在機場會見傳媒。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm)
+
+---
+
 # 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
 
+![馬逢國表示，丁薛祥提到香港過去一年亦取得一系列新的突破，特別強調《基本法》23條立法圓滿完成。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
@@ -724,7 +754,7 @@
 
 # 全國兩會｜李慧琼支持國家積極財政政策　拉動消費刺激內需
 
-![李慧琼說，政府工作報告中的規劃及財政預算「全面、穩中有進」。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794620_1_20250306220901.jpg&q=80)
+![李慧琼說，政府工作報告中的規劃及財政預算「全面、穩中有進」。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794620_3_20250307141502.jpg&q=60)
   
 
 港區全國人大代表團繼續審議政府工作報告及相關報告。副團長陳勇說，各代表在會上積極建言獻策，提供過去一年累積整理的真知灼見。
@@ -1702,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm)
-
----
-
-# 遙控泊車功能本月起可使用　運輸署提醒須用獲批遙控泊車系統
-
-![運輸署表示，本月1日起司機可使用遙控泊車功能。（運輸署）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794542_1_20250306145551.jpg&q=90)
-  
-
-運輸署表示，本月1日起司機可使用遙控泊車功能，但提醒要用署方批准的遙控泊車系統，同時司機必須在車外近距離操作，全程監察車輛情況。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm)
 
 ---

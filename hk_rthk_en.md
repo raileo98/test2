@@ -1,3 +1,32 @@
+# Good to improve NSL, Beijing official says
+
+![Sun Qingye speaks out against sanctions imposed on SAR officials and judges by certain Western countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=85)
+  
+
+A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
+
+---
+
 # 'Let's bring key international events to Kai Tak'
 
 ![Zhou Jinqiang says athletes from the national team are very impressed with the Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_1_20250307131416.jpg&q=90)
@@ -1711,34 +1740,5 @@ Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index u
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm)
-
----
-
-# Hospital patient chokes to death after meal blunder
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=85)
-  
-
-Caritas Medical Centre on Wednesday said it is investigating what led to an elderly patient choking to death after he was given a regular meal despite not being able to eat solid food.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794392-20250305.htm)
 
 ---
