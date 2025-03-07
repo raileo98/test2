@@ -1,6 +1,64 @@
+# Hong Kong stocks open lower
+
+![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=50)
+  
+
+Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street over US President Donald Trump's shifting trade policy, while European bourses advanced following an ECB interest rate cut.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
+
+---
+
+# French shipping giant pledges to boost US shipbuilding
+
+![President Trump listens as Rodolphe Saade, CEO of CMA CGM Group, speaks in the Oval Office. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794675_1_20250307092145.jpg&q=75)
+  
+
+US President Donald Trump on Thursday said French-based shipping firm CMA CGM would invest US$20 billion in the United States to build out shipping logistics and terminals.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm)
+
+---
+
 # Cyclone Alfred edges closer to Australia's east coast
 
-![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=5)
+![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=30)
   
 
 Violent winds toppled power lines on Friday as a tropical cyclone inched towards Australia's eastern coast, sparking evacuation orders and leaving more than 50,000 homes without electricity.
@@ -58,7 +116,7 @@ Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship m
 
 # 'Govt should seek new revenue streams amid deficit'
 
-![NPC deputies Frank Chan (L) and Nicholas Chan (R) are attending the "Two Sessions" meetings in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=55)
+![NPC deputies Frank Chan (L) and Nicholas Chan (R) are attending the "Two Sessions" meetings in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=85)
   
 
 Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
@@ -87,7 +145,7 @@ Former transport secretary Frank Chan says it is appropriate for the government 
 
 # US stocks tumble again on slowdown worries
 
-![The Dow finished down one percent at 42.579, after spending the entire session in negative territory. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794654_1_20250307064135.jpg&q=85)
+![The Dow finished down one percent at 42.579, after spending the entire session in negative territory. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794654_1_20250307064135.jpg&q=90)
   
 
 Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key US jobs data as markets shrugged off President Trump's latest moves to soften tariff actions.
@@ -116,8 +174,8 @@ Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key 
 
 # Man Utd draw in Europa League last 16; Spurs beaten
 
-![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=30)
-![Lucas Bergvall's own goal condemned Spurs to defeat by Dutch side AZ Alkmaar.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_2_20250307055618.jpg&q=50)
+![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=75)
+![Lucas Bergvall's own goal condemned Spurs to defeat by Dutch side AZ Alkmaar.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_2_20250307055618.jpg&q=80)
   
 
 Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europa League last-16 tie, while Tottenham suffered a 1-0 loss away to Dutch side AZ Alkmaar.
@@ -175,7 +233,7 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
 
 # Trump backs off Mexico, Canada tariffs
 
-![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=75)
+![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=85)
   
 
 US President Donald Trump on Thursday unveiled a temporary rollback to steep tariffs targeting Canada and Mexico, providing some reprieve to companies and consumers after blowback on financial markets.
@@ -204,7 +262,7 @@ US President Donald Trump on Thursday unveiled a temporary rollback to steep tar
 
 # Ireland's Doris fit to face France in Six Nations
 
-![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=75)
+![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=85)
   
 
 Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
@@ -233,7 +291,7 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
 
 # "Home demand is keen": govt rejects oversupply claims
 
-![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=25)
+![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=75)
   
 
 Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
@@ -262,7 +320,7 @@ Authorities insist there is still keen demand for housing, citing a low vacancy 
 
 # World's sea ice cover hits record low in February
 
-![In the Antarctic the frozen cover was 26 percent below average across February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794625_1_20250306221837.jpg&q=40)
+![In the Antarctic the frozen cover was 26 percent below average across February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794625_1_20250306221837.jpg&q=80)
   
 
 Global sea ice cover fell to a historic low in February when the world continued to experience exceptional heat, and temperatures reached 11 degrees Celsius above average near the North Pole, Europe's climate monitor said on Thursday.
@@ -291,7 +349,7 @@ Global sea ice cover fell to a historic low in February when the world continued
 
 # EU leaders, Zelensky, gather for crisis Ukraine talks
 
-![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=55)
+![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=85)
   
 
 EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in Brussels in search of unity on bolstering Ukraine and Europe's defences, after US President Donald Trump upended traditional US alliances and retracted wartime backing for Kyiv.
@@ -320,7 +378,7 @@ EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in B
 
 # Trump sends new warning to Hamas over Gaza hostages
 
-![The US President's warning came hours after his administration revealed it held unprecedented direct talks with Hamas, focused on American hostages. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794601_1_20250306185235.jpg&q=75)
+![The US President's warning came hours after his administration revealed it held unprecedented direct talks with Hamas, focused on American hostages. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794601_1_20250306185235.jpg&q=90)
   
 
 Hamas said on Thursday that Donald Trump's threats would encourage Israel to disregard the fragile ceasefire, after the US president said that unless hostages are freed, the people of Gaza would be "DEAD".
@@ -349,7 +407,7 @@ Hamas said on Thursday that Donald Trump's threats would encourage Israel to dis
 
 # Visit GBA for National Games: Guangdong governor
 
-![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=40)
+![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=80)
   
 
 A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
@@ -378,7 +436,7 @@ A senior Guangdong official on Thursday said the province will work closely with
 
 # Thanks to property gains, MTR profit more than doubles
 
-![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=35)
+![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=75)
   
 
 Net profit at the MTR Corporation more than doubled last year, thanks largely to strong gains in local property development.
@@ -407,7 +465,7 @@ Net profit at the MTR Corporation more than doubled last year, thanks largely to
 
 # Four charged with fixing HK football matches
 
-![The ICAC said the case centred on 11 league and cup matches between 2021 and 2022. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794578_1_20250306172359.jpg&q=45)
+![The ICAC said the case centred on 11 league and cup matches between 2021 and 2022. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794578_1_20250306172359.jpg&q=80)
   
 
 The ICAC on Thursday charged four people on suspicion of fixing matches in the Hong Kong football league.
@@ -436,7 +494,7 @@ The ICAC on Thursday charged four people on suspicion of fixing matches in the H
 
 # 'Growth target can be met despite uncertainty'
 
-![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=85)
+![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=90)
   
 
 The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set by China for 2025 can be met, despite external headwinds and weak domestic demand.
@@ -465,7 +523,7 @@ The head of the National Development and Reform Commission said he's confident t
 
 # Tech gains see HK stocks close higher
 
-![Shares in tech firms helped the Hang Seng Index close higher. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794569_1_20250306165157.jpg&q=20)
+![Shares in tech firms helped the Hang Seng Index close higher. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794569_1_20250306165157.jpg&q=60)
   
 
 Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soaring over three percent, as tech shares led the gains.
@@ -494,7 +552,7 @@ Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soari
 
 # Top court upholds sedition convictions of Tam Tak-chi
 
-![Court of Final Appeal judges dismissed arguments from Tam Tak-chi's lawyers and upheld his sedition convictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794531_1_20250306130910.jpg&q=10)
+![Court of Final Appeal judges dismissed arguments from Tam Tak-chi's lawyers and upheld his sedition convictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794531_1_20250306130910.jpg&q=40)
   
 
 Hong Kong's top court on Thursday upheld the sedition convictions of former activist Tam Tak-chi over a string of incitement incidents in public in 2020.
@@ -523,7 +581,7 @@ Hong Kong's top court on Thursday upheld the sedition convictions of former acti
 
 # Capitalise on your strengths, vice premier tells HK
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=80)
   
 
 Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantages and to continue to safeguard national security, according to SAR delegates of the nation’s top political advisory body.
@@ -552,7 +610,7 @@ Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantage
 
 # 'More transparent private healthcare charges needed'
 
-![The Consumer Council says many private hospitals and clinics did not provide sufficient price information, resulting in a flood of complaints. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794529_1_20250306130052.jpg&q=50)
+![The Consumer Council says many private hospitals and clinics did not provide sufficient price information, resulting in a flood of complaints. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794529_1_20250306130052.jpg&q=85)
   
 
 The city's consumer watchdog on Thursday called on various private healthcare service providers, including hospitals and clinics, to be more transparent when they disclose their fees, given complaints over unexpectedly higher medical costs.
@@ -581,7 +639,7 @@ The city's consumer watchdog on Thursday called on various private healthcare se
 
 # Chinese PhD student convicted of raping 10 women
 
-![UK police say Zou Zhenhao used online platforms and dating apps to meet women who he invited to his home under the pretext of having drinks or studying before he drugged them. Photo: Metropolitan Police via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794530_1_20250306130805.jpg&q=85)
+![UK police say Zou Zhenhao used online platforms and dating apps to meet women who he invited to his home under the pretext of having drinks or studying before he drugged them. Photo: Metropolitan Police via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794530_1_20250306130805.jpg&q=90)
   
 
 A PhD student from China was found guilty on Wednesday in a London court of drugging and raping 10 women in China and the UK, as British police warned there could be more than 50 other victims.
@@ -610,7 +668,7 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
 
 # Top court clears ex-Alliance trio over security probe
 
-![Tang Ngok-kwan shares a moment with Chow Hang-tung's mother outside court after the ruling. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794515_1_20250306114719.jpg&q=30)
+![Tang Ngok-kwan shares a moment with Chow Hang-tung's mother outside court after the ruling. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794515_1_20250306114719.jpg&q=75)
   
 
 Hong Kong’s top court on Thursday overturned the convictions of three people for refusing to hand information to the police in a national security investigation.
@@ -639,7 +697,7 @@ Hong Kong’s top court on Thursday overturned the convictions of three people f
 
 # Rare cyclone approaches Australian coast
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794517_1_20250306120635.jpg&q=35)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794517_1_20250306120635.jpg&q=80)
   
 
 Early wind and rain from a rare tropical cyclone began lashing part of eastern Australia on Thursday as schools were closed, public transport was stopped and desperate residents got around shortages of sandbags by buying potting mix.
@@ -668,8 +726,8 @@ Early wind and rain from a rare tropical cyclone began lashing part of eastern A
 
 # Cavs hold off Heat to clinch NBA playoff berth
 
-![Donovan Mitchell poured in 26 points to lead the Cavs to their 12th straight victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_1_20250306120255.jpg&q=80)
-![Payton Pritchard knocked down 10 three-pointers in the Celtics' win over the Blazers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_2_20250306120515.jpg&q=40)
+![Donovan Mitchell poured in 26 points to lead the Cavs to their 12th straight victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_1_20250306120255.jpg&q=90)
+![Payton Pritchard knocked down 10 three-pointers in the Celtics' win over the Blazers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_2_20250306120515.jpg&q=80)
   
 
 Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticket to the NBA playoffs with a hard-fought 112-107 victory over the Miami Heat.
@@ -698,7 +756,7 @@ Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticke
 
 # Tibet official says classes resume after deadly quake
 
-![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=10)
+![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=45)
   
 
 The chairman of the people's government of the Tibet Autonomous Region on Thursday said classes have resumed in Dingri County following the massive earthquake earlier this year.
@@ -727,7 +785,7 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
 
 # SKorea military jet misdrops bombs, injuring civilians
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=15)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=50)
   
 
 South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
@@ -756,7 +814,7 @@ South Korea's Air Force on Thursday said one of its fighter jets had accidentall
 
 # Tech stocks push HSI over 24,000 points
 
-![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=75)
+![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=90)
   
 
 Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Trump administration delayed auto tariffs on Canada and Mexico.
@@ -785,7 +843,7 @@ Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Tru
 
 # Briton jailed for 19 years for fighting for Ukraine
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794494_1_20250306091939.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794494_1_20250306091939.jpg&q=90)
   
 
 Britain strongly condemned on Wednesday the sentencing of UK national James Anderson to 19 years in prison by a Russian court, which accused him of having fought for the Ukrainian army.
@@ -814,7 +872,7 @@ Britain strongly condemned on Wednesday the sentencing of UK national James Ande
 
 # 'Premier offers guidance on One Country, Two Systems'
 
-![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=15)
+![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=65)
   
 
 Premier Li Qiang’s work report has offered “important guidance” on implementing the One Country, Two Systems policy, Chief Executive John Lee said on Thursday, as he pledged to further align Hong Kong with national development strategies.
@@ -843,7 +901,7 @@ Premier Li Qiang’s work report has offered “important guidance” on impleme
 
 # US breaks with policy to negotiate with Hamas
 
-![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=60)
+![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=85)
   
 
 US President Donald Trump on Wednesday issued what he called a “last warning” to Hamas to release all remaining hostages held in Gaza, directing a sharply-worded message after the White House confirmed he had recently dispatched an envoy for unprecedented direct talks with the militant group.
@@ -872,7 +930,7 @@ US President Donald Trump on Wednesday issued what he called a “last warning�
 
 # Wall Street rebounds after Trump pauses auto tariffs
 
-![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=85)
+![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
   
 
 US stocks climbed on Wednesday after US President Donald Trump pulled back on some of his tariffs temporarily.
@@ -901,7 +959,7 @@ US stocks climbed on Wednesday after US President Donald Trump pulled back on so
 
 # Israel appoints new military chief, says war not over
 
-![Eyal Zamir is replacing Herzi Halevi, who announced his resignation as armed forces chief in January over the military's shortcomings on October 7, 2023. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794466_1_20250306033340.jpg&q=20)
+![Eyal Zamir is replacing Herzi Halevi, who announced his resignation as armed forces chief in January over the military's shortcomings on October 7, 2023. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794466_1_20250306033340.jpg&q=55)
   
 
 Israel's new military chief Eyal Zamir said his country's mission to defeat Hamas remained unfinished as he took office on Wednesday, with uncertainty hanging over the fragile Gaza ceasefire.
@@ -930,7 +988,7 @@ Israel's new military chief Eyal Zamir said his country's mission to defeat Hama
 
 # 'AI startups boosting nation's development'
 
-![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=80)
+![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=85)
   
 
 An analyst on Thursday said the advent of artificial intelligence startups such as DeepSeek has been a boon to the nation’s technological development.
@@ -959,7 +1017,7 @@ An analyst on Thursday said the advent of artificial intelligence startups such 
 
 # Greenlanders shrug off Trump's takeover bid
 
-![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=45)
+![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=80)
   
 
 Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take over the Arctic island, seeing it merely as an opportunity to advance their own independence bid.
@@ -988,8 +1046,8 @@ Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take o
 
 # Liverpool stun PSG in Champions League; Barca cruise
 
-![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=85)
-![Raphinha's goal in the 61st minute proved to be the winner for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_2_20250306071920.jpg&q=85)
+![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=90)
+![Raphinha's goal in the 61st minute proved to be the winner for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_2_20250306071920.jpg&q=90)
   
 
 Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the first leg of their heavyweight Champions League last-16 tie, as Barcelona claimed a 1-0 win at Benfica despite the Catalan giants playing most of the game with 10 men.
@@ -1018,7 +1076,7 @@ Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the fir
 
 # NZ crush South Africa to reach Champions Trophy final
 
-![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=70)
+![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=85)
   
 
 Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50-run win over South Africa in Lahore to set up a rematch with India in the Champions Trophy final.
@@ -1047,7 +1105,7 @@ Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50
 
 # US pauses intelligence sharing with Ukraine
 
-![The Central Intelligence Agency director John Ratcliffe describes the pause as temporary. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794449_1_20250305221949.jpg&q=80)
+![The Central Intelligence Agency director John Ratcliffe describes the pause as temporary. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794449_1_20250305221949.jpg&q=90)
   
 
 The United States has "paused" intelligence sharing with Ukraine after a dramatic breakdown in relations between Kyiv and the White House, CIA director John Ratcliffe said on Wednesday.
@@ -1076,8 +1134,8 @@ The United States has "paused" intelligence sharing with Ukraine after a dramati
 
 # Beijing backs SARs in national integration: Xia
 
-![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=80)
-![Liaison office chief Zheng Yanxiong has outlined four key roles for local NPC deputies in Hong Kong’s development. Photo courtesy of the Liaison Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_2_20250305223240.jpg&q=80)
+![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
+![Liaison office chief Zheng Yanxiong has outlined four key roles for local NPC deputies in Hong Kong’s development. Photo courtesy of the Liaison Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_2_20250305223240.jpg&q=90)
   
 
 Hong Kong and Macau have the full backing of the central government in integrating into the country’s development, a senior Beijing official said on Wednesday.
@@ -1106,7 +1164,7 @@ Hong Kong and Macau have the full backing of the central government in integrati
 
 # World's most accurate clock goes on sale for US$3.3mn
 
-![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=25)
+![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=75)
   
 
 Resembling a squat, wide fridge, the world's most accurate clock went on sale for US$3.3 million in Japan on Wednesday.
@@ -1135,7 +1193,7 @@ Resembling a squat, wide fridge, the world's most accurate clock went on sale fo
 
 # Indian festival to hit streets of Lan Kwai Fong
 
-![The "Incredible India Festival" will be held on March 15 and 16 at Lan Kwai Fong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794437_1_20250305203811.jpg&q=35)
+![The "Incredible India Festival" will be held on March 15 and 16 at Lan Kwai Fong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794437_1_20250305203811.jpg&q=75)
   
 
 A vibrant festival celebrating Indian culture through dance, music and cuisine, is set to brighten up the streets of Lan Kwai Fong later this month.
@@ -1164,7 +1222,7 @@ A vibrant festival celebrating Indian culture through dance, music and cuisine, 
 
 # Air passenger departure tax to go up from Oct 1
 
-![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250306110817.jpg&q=30)
+![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250306110817.jpg&q=75)
   
 
 Travellers purchasing a plane ticket to fly out of Hong Kong from October 1 will have to pay HK$200 in air passenger departure tax (APDT) instead of the current HK$120, the government announced on Wednesday.
@@ -1193,7 +1251,7 @@ Travellers purchasing a plane ticket to fly out of Hong Kong from October 1 will
 
 # LeBron James first NBA player ever to score 50,000 pts
 
-![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=45)
+![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=80)
   
 
 LeBron James became the first player in NBA history to score 50,000 career points on Tuesday, extending his lead as the league's all-time record scorer by reaching a milestone tally that may never be surpassed.
@@ -1222,7 +1280,7 @@ LeBron James became the first player in NBA history to score 50,000 career point
 
 # 'Mild inflation target still a concern'
 
-![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=40)
+![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=80)
   
 
 Economists have struck a cautious note on China's plan to lower the nation's inflation target from three to two percent in the coming year, citing prolonged deflationary pressure.
@@ -1251,7 +1309,7 @@ Economists have struck a cautious note on China's plan to lower the nation's inf
 
 # CPPCC member slams extra US tariffs on China
 
-![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=80)
+![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=75)
   
 
 Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on Wednesday slammed the US move to slap additional tariffs on Chinese exports because of the fentanyl crisis.
@@ -1280,7 +1338,7 @@ Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on 
 
 # 'HK has key role to play in national development'
 
-![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=85)
+![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
   
 
 Hong Kong and Macau will always have the central government's backing in terms of developing the economy and improving people's livelihood, a senior official in charge of the SARs' affairs pledged on Wednesday.
@@ -1309,7 +1367,7 @@ Hong Kong and Macau will always have the central government's backing in terms o
 
 # More spectators expected at this year's LIV Golf HK
 
-![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=45)
+![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=85)
   
 
 Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
@@ -1338,7 +1396,7 @@ Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects 
 
 # Market regulator vows e-commerce malpractice crackdown
 
-![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=50)
+![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=85)
   
 
 The head of China's market regulator has pledged to tighten oversight of the rapidly growing e-commerce sector, and promote the healthy development of the so-called platform economy.
@@ -1367,7 +1425,7 @@ The head of China's market regulator has pledged to tighten oversight of the rap
 
 # Hong Kong stocks finish higher
 
-![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=1)
+![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=25)
   
 
 Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index up 2.8 percent at 23,594.
@@ -1396,7 +1454,7 @@ Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index u
 
 # Hospital patient chokes to death after meal blunder
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794392_1_20250305160918.jpg&q=85)
   
 
 Caritas Medical Centre on Wednesday said it is investigating what led to an elderly patient choking to death after he was given a regular meal despite not being able to eat solid food.
@@ -1425,7 +1483,7 @@ Caritas Medical Centre on Wednesday said it is investigating what led to an elde
 
 # 'Govt will support NGOs amid funding cuts'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794342_1_20250305121400.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794342_1_20250305121400.jpg&q=85)
   
 
 Labour and welfare minister Chris Sun on Wednesday said the government would help NGOs save costs by streamlining administrative procedures amid funding cuts due to the fiscal deficit.
@@ -1483,7 +1541,7 @@ Wet weather looked poised to offer relief Wednesday as Japan battled its worst w
 
 # Snooker fans won't be kicked out again: minister
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=55)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=85)
   
 
 Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
@@ -1512,7 +1570,7 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
 
 # Democrat lawmaker ejected during Trump's speech
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794354_1_20250305130103.jpg&q=90)
   
 
 Democrats protested President Donald Trump's address to Congress on Tuesday with signs reading "No King!" and "Save Medicaid," with some turning their backs on the Republican as he spoke and one lawmaker marched out by security.
@@ -1541,7 +1599,7 @@ Democrats protested President Donald Trump's address to Congress on Tuesday with
 
 # '5pc target is no easy feat but can be achieved'
 
-![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=60)
+![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=85)
   
 
 Hong Kong's deputies to the National People's Congress (NPC) and the Chinese People's Political Consultative Conference (CPPCC) have given their backing to the country's economic growth target of around five percent target this year, saying it was no easy feat but achievable.
@@ -1570,7 +1628,7 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
 
 # CE encouraged by Premier's work report
 
-![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=45)
+![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=80)
   
 
 Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
@@ -1599,7 +1657,7 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
 
 # Chinese firms double down on tech: Xiaomi, Haier
 
-![Zhou Yunjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=75)
+![Zhou Yunjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=90)
   
 
 Chinese companies are doubling down on innovation as part of efforts to contribute to the national drive of developing "new quality productive forces", with leaders convening in Beijing for the annual Two Sessions meetings.
@@ -1628,7 +1686,7 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 
 # 'China's economic goals reasonable and attainable'
 
-![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=5)
+![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=45)
   
 
 Experts on Wednesday said China's economic goals announced at the opening session of this year's National People's Congress are reasonable and attainable.
@@ -1657,7 +1715,7 @@ Experts on Wednesday said China's economic goals announced at the opening sessio
 
 # Domestic demand 'main engine and anchor' of growth
 
-![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=30)
+![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
   
 
 Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in his government work report.
@@ -1681,63 +1739,5 @@ Premier Li Qiang on Wednesday said the nation will vigorously boost consumption 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
-
----
-
-# China defence spending to go up by 7.2pc this year
-
-![Delegates from the military arrive at the Great Hall of the People in Beijing for the opening NPC session. Growth in China's defence spending in 2025 is set to be the same as a year ago. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794329_1_20250305110705.jpg&q=75)
-  
-
-China said its military spending will rise by 7.2 percent in 2025, the same increase as a year ago.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm)
-
----
-
-# Trump hails 'unstoppable' America in Congress speech
-
-![US President Donald Trump hailed his first few weeks in office, telling Congress his administration had accomplished great things for America. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794327_1_20250305104833.jpg&q=80)
-  
-
-US President Donald Trump took a victory lap in a speech to Congress on Tuesday, exulting in a series of dramatic actions that have upended American foreign policy, ignited a trade war with close allies and slashed the federal workforce since he took office six weeks ago.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm)
 
 ---
