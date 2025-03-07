@@ -1,3 +1,31 @@
+# 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
+
+  
+
+在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
+
+---
+
 # 特朗普簽署行政命令建立戰略性比特幣儲備
 
 ![美國建立的戰略性比特幣儲備將以聯邦政府擁有的比特幣為資本。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794693_1_20250307104107.jpg&q=70)
@@ -52,6 +80,7 @@
 
 # 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
 
+![王毅指出一個成熟、堅韌、穩定的中俄關係，不會受一事而變，更不會受第三方的干擾。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
   
 
 外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
@@ -1699,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm)
-
----
-
-# 聯合國警告若加沙有關口岸續關閉將為民眾帶來毀滅性後果
-
-![人道主義物資准入對加沙民眾來說是至關重要。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794278_1_20250305082639.jpg&q=90)
-  
-
-聯合國人道主義事務協調廳發表報告，指出通往加沙地帶的凱雷姆沙洛姆口岸、齊基姆口岸及埃雷茲口岸，連續第三日禁止貨物通行，警告有關口岸若繼續被關閉，將為剛開始從貧困及饑餓中見到曙光的加沙民眾，帶來毀滅性後果。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794278-20250305.htm)
 
 ---

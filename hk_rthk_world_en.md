@@ -1,3 +1,32 @@
+# China wants a lasting peace in Ukraine: FM
+
+![Foreign Minister Wang Yi speaks at a press conference on the sidelines of the National People's Congress in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
+  
+
+China wants to achieve a "fair, lasting and binding peace agreement" acceptable to all parties on the Ukraine war, Foreign Minister Wang Yi said on Friday.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm)
+
+---
+
 # Second measles-related death in US in a decade
 
 ![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=35)
@@ -1711,34 +1740,5 @@ The United States has slashed its multi-year aid contracts by 92 percent, as it 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793539-20250227.htm)
-
----
-
-# EU 'wasn't formed to screw anyone', says Polish PM
-
-![Donald Tusk says the EU was formed to maintain peace and create free and fair trade, and "wasn’t formed to screw anyone". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793547_2_20250227221517.jpg&q=90)
-  
-
-The European Union on Thursday pushed back against allegations by US President Donald Trump that the 27-nation bloc was out to get the United States, and warned that it would fight any wholesale tariff of 25 percent on all EU products.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm)
 
 ---

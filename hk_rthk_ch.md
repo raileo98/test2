@@ -1,5 +1,110 @@
+# 全國兩會｜李福書：應支持民營製造業企業加快數字化、綠色化轉型
+
+  
+
+全國政協委員、吉利控股集團董事長李書福表示，在新舊動能轉換過程中，應支持民營製造業企業加快數字化、綠色化轉型，為推動傳統產業高質量發展發揮關鍵作用。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱任何人支持中國統一堅持一個中國就應反對台獨
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm)
+
+---
+
+# 日股半日跌近2%
+
+![日經指數半日跌696點，報37008點，跌幅1.85%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794696_1_20250307104956.jpg&q=90)
+  
+
+東京股市下跌。日經指數半日跌696點，報37008點，跌幅1.85%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm)
+
+---
+
+# 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
+
+  
+
+在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
+
+---
+
 # 香港與澳門合辦投資推介會　鼓勵澳門企業藉香港優勢拓展海外業務
 
+![投資推廣署與澳門特別行政區招商投資促進局於澳門合辦的推介會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794694_1_20250307104813.jpg&q=45)
   
 
 行政長官李家超於上月在禮賓府與澳門行政長官岑浩輝會面，就進一步加強港澳合作和推動大灣區高質量發展交流意見。為落實促進兩地合作，投資推廣署昨日與澳門招商投資促進局於澳門合辦的推介會，向約90名澳門製造、品牌、零售、餐飲、出入口貿易企業及商會和協會代表，介紹香港營商現況及發展新機遇，尤其在零售、餐飲和貿易行業的新商機，鼓勵澳門企業利用香港的獨特優勢，拓展海外市場。
@@ -80,6 +185,7 @@
 
 # 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
 
+![王毅指出一個成熟、堅韌、穩定的中俄關係，不會受一事而變，更不會受第三方的干擾。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
   
 
 外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
@@ -219,6 +325,7 @@
 # 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
 
 ![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
+![啟德青年運動場現階段有2個室内乒乓球場開放。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_2_20250307105549.jpg&q=90)
   
 
 啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
@@ -1592,121 +1699,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm)
-
----
-
-# 美國1月貿易赤字按月擴大約34%　超出預期
-
-![美國1月貿易赤字重上千億美元水平，達到1314億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794624_1_20250306221320.jpg&q=65)
-  
-
-美國1月貿易赤字重上千億美元水平，達到1314億美元，超出預期，按月擴大約34%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794624-20250306.htm)
-
----
-
-# 美國上星期新申領失業救濟人數22.1萬人　減幅超出預期
-
-![美國上星期新申領失業救濟人數減少至22.1萬人，按星期減少2.1萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794623_1_20250306220734.jpg&q=90)
-  
-
-美國上星期新申領失業救濟人數減少至22.1萬人，按星期減少2.1萬人，減幅超出市場預期。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm)
-
----
-
-# 政府歡迎終院維持譚得志案裁決　另備悉支聯會案判決將研究判詞
-
-![政府回應終審法院就「譚得志上訴案」及「支聯會拒交資料案」裁決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794622_2_20250306220034.jpg&q=85)
-  
-
-終審法院就「譚得志上訴案」及「支聯會拒交資料案」作出裁決，特區政府表示，歡迎終審法院就「譚得志發表煽動文字案」的判決，就原《刑事罪行條例》中的「煽動罪」，裁定控罪元素並不包括意圖煽惑暴力或擾亂公共秩序，控方毋須證明煽惑擾亂公共秩序或煽惑暴力的意圖，《維護國家安全條例》生效後發生的煽動行為，須按該條例規定處理。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm)
-
----
-
-# 歐洲央行減息0.25厘符合預期　下調今明兩年經濟增長預測
-
-![歐洲央行一如預期減息0.25厘，是今個減息周期第6次減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794621_1_20250306213845.jpg&q=80)
-  
-
-歐洲央行一如預期減息0.25厘，存款工具利率減至2.5厘，主要再融資利率減至2.65厘。央行連續5次會議減息，亦是今個減息周期第6次減息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm)
 
 ---

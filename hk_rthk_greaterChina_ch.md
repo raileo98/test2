@@ -1,5 +1,85 @@
+# 全國兩會｜李福書：應支持民營製造業企業加快數字化、綠色化轉型
+
+  
+
+全國政協委員、吉利控股集團董事長李書福表示，在新舊動能轉換過程中，應支持民營製造業企業加快數字化、綠色化轉型，為推動傳統產業高質量發展發揮關鍵作用。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱任何人支持中國統一堅持一個中國就應反對台獨
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm)
+
+---
+
+# 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
+
+  
+
+在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
+
+---
+
 # 香港與澳門合辦投資推介會　鼓勵澳門企業藉香港優勢拓展海外業務
 
+![投資推廣署與澳門特別行政區招商投資促進局於澳門合辦的推介會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794694_1_20250307104813.jpg&q=45)
   
 
 行政長官李家超於上月在禮賓府與澳門行政長官岑浩輝會面，就進一步加強港澳合作和推動大灣區高質量發展交流意見。為落實促進兩地合作，投資推廣署昨日與澳門招商投資促進局於澳門合辦的推介會，向約90名澳門製造、品牌、零售、餐飲、出入口貿易企業及商會和協會代表，介紹香港營商現況及發展新機遇，尤其在零售、餐飲和貿易行業的新商機，鼓勵澳門企業利用香港的獨特優勢，拓展海外市場。
@@ -51,6 +131,7 @@
 
 # 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
 
+![王毅指出一個成熟、堅韌、穩定的中俄關係，不會受一事而變，更不會受第三方的干擾。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
   
 
 外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
@@ -1626,92 +1707,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm)
-
----
-
-# 全國兩會｜李強：今年國內生產總值增長目標5%左右
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794411_1_20250305183804.jpg&q=80)
-  
-
-十四屆全國人大三次會上午在北京開幕，國務院總理李強發表政府工作報告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794411-20250305.htm)
-
----
-
-# 全國兩會｜李強：今年將開展「十五五」規劃編制工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794412_1_20250305183729.jpg&q=75)
-  
-
-國務院總理李強在政府工作報告提到，今年將開展「十五五」規劃編制工作，要深入分析「十五五」時期新的階段性特徵，科學確定發展目標，謀劃好重大戰略任務、重大政策舉措、重大工程項目，更好發揮規劃對經濟社會發展的引領指導作用。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794412-20250305.htm)
-
----
-
-# 全國兩會｜李強：更大力度穩定和擴大就業　發放育兒津貼
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794414_1_20250305183043.jpg&q=85)
-  
-
-國務院總理李強在政府工作報告提出，要加大保障和改善民生力度，提升社會治理效能，更大力度穩定和擴大就業，讓多勞者多得、技高者多得、創新者多得。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794414-20250305.htm)
 
 ---

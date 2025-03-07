@@ -1,3 +1,56 @@
+# 全國兩會｜李福書：應支持民營製造業企業加快數字化、綠色化轉型
+
+  
+
+全國政協委員、吉利控股集團董事長李書福表示，在新舊動能轉換過程中，應支持民營製造業企業加快數字化、綠色化轉型，為推動傳統產業高質量發展發揮關鍵作用。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm)
+
+---
+
+# 日股半日跌近2%
+
+![日經指數半日跌696點，報37008點，跌幅1.85%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794696_1_20250307104956.jpg&q=90)
+  
+
+東京股市下跌。日經指數半日跌696點，報37008點，跌幅1.85%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm)
+
+---
+
 # 內地股市初段偏軟
 
 ![上證綜合指數較早時報3371點，跌9點，跌幅0.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794680_1_20250307093425.jpg&q=90)
@@ -1659,63 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm)
-
----
-
-# 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
-
-![鄭柵潔表示，新質生產力正全面改造生產方式和改變生活方式，體會到技術突破正在加快。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794570_1_20250306173413.jpg&q=90)
-  
-
-在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
-
----
-
-# 港鐵去年盈利升一倍　末期息每股0.89元
-
-![港鐵去年盈利157.7億元，按年增長1.02倍，派末期息每股0.89元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794562_1_20250306165914.jpg&q=85)
-  
-
-港鐵去年盈利157.7億元，按年增長1.02倍。派末期息每股0.89元，全年派息1.31元，與前年相同。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm)
 
 ---
