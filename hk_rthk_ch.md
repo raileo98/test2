@@ -1,3 +1,119 @@
+# 港股美國預託證券普遍較本港收市下跌
+
+![ATMXJ的ADR較本港收市下跌，其中京東跌幅逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794841_1_20250308070123.jpg&q=80)
+  
+
+港股美國預託證券(ADR)普遍較本港收市下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm)
+
+---
+
+# 美元下跌　美國就業市場數據遜預期
+
+![美元指數報103.88，跌幅約0.3%。本周累計下跌逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794840_1_20250308065750.jpg&q=75)
+  
+
+美元兌多數貨幣下跌，數據顯示美國勞動力市場在2月放緩。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm)
+
+---
+
+# 鮑威爾：關稅政策對通脹影響有待觀察　無需倉促減息
+
+![鮑威爾表示，關稅政策會否刺激通脹上升仍有待觀察，但強調美國經濟仍保持良好勢頭，無需倉促減息。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794837_1_20250308055826.jpg&q=90)
+  
+
+美國聯儲局主席鮑威爾表示，總統特朗普的關稅政策會否刺激通脹上升仍有待觀察，但強調美國經濟仍保持良好勢頭，無需倉促減息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794837-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794837-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794837-20250308.htm)
+
+---
+
+# 現貨金本周升近2%
+
+![現貨金報每盎司2911.48美元，升幅0.05%。全星期升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794838_1_20250308061523.jpg&q=40)
+  
+
+現貨金周五變動不大，但本周上升，受惠於避險資金流入。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794838-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794838-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794838-20250308.htm)
+
+---
+
 # 因傷接受手術　荷蘭兩名後衛尼敦艾基及博文將休戰多個星期
 
 ![尼敦艾基因傷接受手術，要養傷至少10個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_1_20250308071112.jpg&q=85)
@@ -1616,121 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
-
----
-
-# 百度擬發行不超過20億美元可交換債券　或以攜程股份交付
-
-![百度計劃以離岸方式發行可交換債券，當滿足若干條件，百度可選擇以持有的攜程股份交付。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794774_1_20250307173835.jpg&q=90)
-  
-
-百度集團宣布以離岸方式發行可交換債券，本金總額不超過20億美元，2032年到期。債券將參考攜程集團在本港上市的普通股。當滿足若干條件，百度可選擇以持有的攜程股份代替現金交付，或以現金加攜程股份結合方式交付。債券交換率及其他條款尚未最終確定。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm)
-
----
-
-# 不忿被逐出師門披露師母個人資料　女佛教徒「起底」罪成候判
-
-![法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794771_1_20250307173342.jpg&q=85)
-  
-
-一名女佛教徒前年因拍拖遭逐出師門後與師父交惡，涉嫌在手機通訊創立群組，公開任職護士的師母個人資料，女徒弟被控一項未獲當事人同意下披露其個人資料罪，在西九龍裁判法院被裁定罪名成立，法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm)
-
----
-
-# 呷哺呷哺料去年淨虧損擴大逾1倍
-
-![呷哺呷哺發盈警，預期去年淨虧損按年擴大約1.1倍至約1.2倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794770_1_20250307173327.jpg&q=75)
-  
-
-呷哺呷哺發盈警，預期去年淨虧損有所擴大，介乎3.9億至4.1億元人民幣，按年擴大約1.1倍至約1.2倍。期內，收入約48億元，按年減少約20%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm)
-
----
-
-# 警方擬觀塘引入智慧交通管理系統　即時分辨塞車、違泊
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794769_1_20250307184113.jpg&q=65)
-  
-
-警方推出智慧交通管理系統，在觀塘安裝11組閉路電視，涵蓋9條主要街道，實時監測車流狀況，透過人工智能，即時分辨塞車與違泊等情況，預計系統下半年投入服務，若成效良好考慮推展至全港其他地區。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm)
 
 ---

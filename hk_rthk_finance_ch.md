@@ -1,3 +1,119 @@
+# 港股美國預託證券普遍較本港收市下跌
+
+![ATMXJ的ADR較本港收市下跌，其中京東跌幅逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794841_1_20250308070123.jpg&q=80)
+  
+
+港股美國預託證券(ADR)普遍較本港收市下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm)
+
+---
+
+# 美元下跌　美國就業市場數據遜預期
+
+![美元指數報103.88，跌幅約0.3%。本周累計下跌逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794840_1_20250308065750.jpg&q=75)
+  
+
+美元兌多數貨幣下跌，數據顯示美國勞動力市場在2月放緩。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm)
+
+---
+
+# 鮑威爾：關稅政策對通脹影響有待觀察　無需倉促減息
+
+![鮑威爾表示，關稅政策會否刺激通脹上升仍有待觀察，但強調美國經濟仍保持良好勢頭，無需倉促減息。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794837_1_20250308055826.jpg&q=90)
+  
+
+美國聯儲局主席鮑威爾表示，總統特朗普的關稅政策會否刺激通脹上升仍有待觀察，但強調美國經濟仍保持良好勢頭，無需倉促減息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794837-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794837-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794837-20250308.htm)
+
+---
+
+# 現貨金本周升近2%
+
+![現貨金報每盎司2911.48美元，升幅0.05%。全星期升近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794838_1_20250308061523.jpg&q=40)
+  
+
+現貨金周五變動不大，但本周上升，受惠於避險資金流入。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794838-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794838-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794838-20250308.htm)
+
+---
+
 # 道指高收222點　本周累跌逾2%
 
 ![道瓊斯指數一度跌逾400點，其後最多倒升約320點，收市報42801點，升222點，升幅0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794834_1_20250308054052.jpg&q=85)
@@ -1612,117 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794678-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794678-20250307.htm)
-
----
-
-# 恒指競價時段跌187點
-
-![恒生指數競價時段報24182點，跌187點，跌幅0.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794676_1_20250307092430.jpg&q=1)
-  
-
-港股競價時段下跌，恒生指數報24182點，跌187點，跌幅0.77%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794676-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794676-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794676-20250307.htm)
-
----
-
-# 孫東訪葡萄牙考察當地最大科技園　拜會中國駐葡萄牙特命全權大使
-
-![孫東在葡萄牙與奧艾拉什市投資促進局代表會面，並與當地的企業交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794677_1_20250307093736.jpg&q=80)
-  
-
-創新科技及工業局局長孫東率領的香港創新科技業界代表團，昨日轉往葡萄牙里斯本訪問。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm)
-
----
-
-# 人民幣兌美元中間價微跌
-
-![人民幣中間價報7.1705兌1美元，較上日中間價跌13點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794673_1_20250307091930.jpg&q=75)
-  
-
-人民幣中間價報7.1705兌1美元，較上日中間價跌13點子。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm)
-
----
-
-# 全國兩會｜有政協稱國家迎來低空經濟黃金機遇期　成增長新引擎
-
-![羊毅認為，國家已迎來低空經濟的黃金機遇期，將成為經濟增長的新引擎，形容「空中之城」不再是夢想。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794674_1_20250307103341.jpg&q=90)
-  
-
-全國政協常委、全國婦聯副主席徐曉蘭表示，今年政府工作報告提出加快工業互聯網的創新發展，亦是連續8年對工業互聯網提出具體要求，而經歷8年發展，工業互聯網已經應用到49個國民經濟領域，核心產業規模達到1.53萬億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm)
 
 ---
