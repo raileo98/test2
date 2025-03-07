@@ -1,3 +1,33 @@
+# 'Let's bring key international events to Kai Tak'
+
+![Zhou Jinqiang says athletes from the national team are very impressed with the Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_1_20250307131416.jpg&q=90)
+![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=85)
+  
+
+The Kai Tak Sports Park will promote sports development and exchanges between Hong Kong and the mainland, according to senior Chinese sports officials attending the "Two Sessions" in Beijing.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
+
+---
+
 # Man Utd draw in Europa League last 16; Spurs beaten
 
 ![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=75)
@@ -1717,34 +1747,5 @@ Novak Djokovic has urged tennis authorities to overhaul the sport's anti-doping 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792046-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792046-20250218.htm)
-
----
-
-# Team Shaq wins NBA All-Star revamp as James sits out
-
-![Team Shaq’s OGs celebrate after winning the 2025 NBA All-Star match in San Francisco. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1791953_1_20250217121940.jpg&q=75)
-  
-
-Shaq's OGs won the first All-Star mini-tournament in NBA history, getting 15 points from Tatum and 12 from Stephen Curry to beat Chuck's Global Stars 41-25 in the final.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1791953-20250217.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1791953-20250217.htm](https://news.rthk.hk/rthk/en/component/k2/1791953-20250217.htm)
 
 ---

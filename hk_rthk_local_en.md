@@ -1,3 +1,33 @@
+# 'Let's bring key international events to Kai Tak'
+
+![Zhou Jinqiang says athletes from the national team are very impressed with the Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_1_20250307131416.jpg&q=90)
+![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=85)
+  
+
+The Kai Tak Sports Park will promote sports development and exchanges between Hong Kong and the mainland, according to senior Chinese sports officials attending the "Two Sessions" in Beijing.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
+
+---
+
 # Smart traffic control system to be tested in Kwun Tong
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794704_1_20250307113507.jpg&q=85)
@@ -1709,34 +1739,5 @@ Sources said the Hong Kong Jockey Club is hopeful that legislation clearing the 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793724-20250228.htm)
-
----
-
-# 'Not enough separation for planes after take-off'
-
-![The Civil Aviation Department says air traffic control staff involved in the incident near Hong Kong International Airport have been removed from frontline duties temporarily. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793718_1_20250228212309.jpg&q=85)
-  
-
-An unspecified number of air traffic control staff have been suspended over an incident involving two cargo planes that triggered an alert after take-off.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm)
 
 ---

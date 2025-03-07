@@ -1,3 +1,27 @@
+# 法院批准取消拘留申請　尹錫悅獲釋
+
+  
+
+韓聯社報道，被彈劾的總統尹錫悅從拘留中心獲釋，法院通過取消拘留請求。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm)
+
+---
+
 # 港股下午開市後上升
 
 ![恒生指數較早時報24494點，升125點，升幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794722_1_20250307130532.jpg&q=75)
