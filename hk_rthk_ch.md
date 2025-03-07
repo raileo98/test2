@@ -1,5 +1,64 @@
+# 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
+
+  
+
+國家主席習近平上月出席民營企業座談會並發表重要講活。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm)
+
+---
+
+# 鐵路總工會引述港鐵加薪1.8%至5.4%　平均加幅3.78%
+
+  
+
+香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm)
+
+---
+
 # 葉子季將出任規劃署署長　廖嘉俊出任政府飛行服務隊
 
+![葉子季將出任規劃署署長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_1_20250307170024.jpg&q=90)
+![廖嘉俊將出任政府飛行服務隊總監。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_2_20250307170024.jpg&q=90)
+![周麗蓮將出任破產管理署署長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_3_20250307170024.jpg&q=90)
   
 
 政府高層官員任命，首席政府城市規劃師葉子季將於本月18日出任規劃署署長，接替於同日展開退休前休假的鍾文傑；政府飛行服務隊總機師廖嘉俊於本月13日出任政府飛行服務隊總監，接替同日展開退休前休假的胡偉雄；及副首席律師周麗蓮於本月31日出任破產管理署署長，接替同日開始退休前休假的麥錦羅。

@@ -1,3 +1,31 @@
+# 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
+
+  
+
+國家主席習近平上月出席民營企業座談會並發表重要講活。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm)
+
+---
+
 # 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
 
 ![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
@@ -1701,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm)
-
----
-
-# 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
-
-![李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794521_1_20250306124830.jpg&q=85)
-  
-
-行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm)
 
 ---

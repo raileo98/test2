@@ -1,5 +1,36 @@
+# 鐵路總工會引述港鐵加薪1.8%至5.4%　平均加幅3.78%
+
+  
+
+香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm)
+
+---
+
 # 葉子季將出任規劃署署長　廖嘉俊出任政府飛行服務隊
 
+![葉子季將出任規劃署署長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_1_20250307170024.jpg&q=90)
+![廖嘉俊將出任政府飛行服務隊總監。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_2_20250307170024.jpg&q=90)
+![周麗蓮將出任破產管理署署長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_3_20250307170024.jpg&q=90)
   
 
 政府高層官員任命，首席政府城市規劃師葉子季將於本月18日出任規劃署署長，接替於同日展開退休前休假的鍾文傑；政府飛行服務隊總機師廖嘉俊於本月13日出任政府飛行服務隊總監，接替同日展開退休前休假的胡偉雄；及副首席律師周麗蓮於本月31日出任破產管理署署長，接替同日開始退休前休假的麥錦羅。
@@ -1702,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794567-20250306.htm)
-
----
-
-# 勞工處籲僱主及僱員在寒冷天氣下採取預防措施
-
-![勞工處提醒僱主，由於寒冷天氣警告生效，僱主應採取適當的預防措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794566_1_20250306164936.jpg&q=90)
-  
-
-天文台在下午4時20分發出寒冷天氣警告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm)
 
 ---
