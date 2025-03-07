@@ -1,6 +1,6 @@
-# 'China's diplomacy gives stability to uncertain world'
+# 'China's diplomacy gives certainty to uncertain world'
 
-![President Xi Jinping meets European Council President Charles Michel and European Commission President Ursula von der Leyen in Beijing in 2023. Foreign Minister Wang Yi says Beijing is confident that Europe can be its trusted trading partner. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
   
 
 Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.

@@ -1,4 +1,62 @@
-# 港股半日升135點
+# 港股下午開市後上升
+
+![恒生指數較早時報24494點，升125點，升幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794722_1_20250307130532.jpg&q=75)
+  
+
+港股上升。恒生指數較早時報24494點，升125點，升幅0.51%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm)
+
+---
+
+# 日圓匯價轉強　市場關注日本加息步伐
+
+![黃燕娥稱日本債息反映日本央行將持續加息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794720_1_20250307130806.jpg&q=40)
+  
+
+日本央行本月稍後議息，日圓匯價近日轉強。當地正進行薪酬談判。如果工會成功爭取到5.1%加薪幅度，將再創逾30年新高。預計談判結果在議息前公布。市場關注日本今個月加息機會。有市場人士估計，央行會在7月及12月分別加息25個基點。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm)
+
+---
+
+# 港股半日升135點　科技股支持大市
 
 ![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
   
@@ -90,7 +148,7 @@
 ![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
   
 
-在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網路電詐這顆毒瘤。
+在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網絡電詐這顆毒瘤。
   
 
   
@@ -1660,63 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm)
-
----
-
-# 全國兩會｜鄭柵潔︰有信心實現今年經濟增長達5%左右目標
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794590_1_20250306181928.jpg&q=90)
-  
-
-在北京，國家發改委主任鄭柵潔說，政府工作報告提出，今年經濟增長5%左右的目標，是有基礎、有支撐、有保障，對實現目標充滿信心。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm)
-
----
-
-# 全國兩會｜有政協委員引述丁薛祥以「鑽石」形容香港
-
-![丁薛祥參加港澳地區全國政協委員聯組會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794593_1_20250306193855.jpg&q=80)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
 
 ---

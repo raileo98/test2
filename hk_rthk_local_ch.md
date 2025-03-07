@@ -1,3 +1,32 @@
+# 港股下午開市後上升
+
+![恒生指數較早時報24494點，升125點，升幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794722_1_20250307130532.jpg&q=75)
+  
+
+港股上升。恒生指數較早時報24494點，升125點，升幅0.51%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm)
+
+---
+
 # 機場南交匯處約80名工人疑因欠薪阻擋地盤入口　其後散去
 
 ![警方將案件列作糾紛案處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794719_1_20250307125326.jpg&q=20)
@@ -141,7 +170,7 @@
 
 ---
 
-# 港股半日升135點
+# 港股半日升135點　科技股支持大市
 
 ![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
   
@@ -233,7 +262,7 @@
 ![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
   
 
-在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網路電詐這顆毒瘤。
+在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網絡電詐這顆毒瘤。
   
 
   
@@ -1703,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm)
-
----
-
-# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=90)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm)
 
 ---
