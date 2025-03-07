@@ -1,3 +1,31 @@
+# 伊媒報道特朗普致信消息　安全機關新聞機構形容華盛頓重複表演
+
+  
+
+伊朗傳媒已報道美國總統特朗普宣稱已向伊朗最高領袖哈梅內伊致送信件，敦促伊方放棄開發核武的消息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm)
+
+---
+
 # 特朗普稱致信哈梅內伊促談判放棄開發核武　強調不想傷害伊朗
 
   
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm)
-
----
-
-# 韓軍戰機機師錯誤輸入座標致誤炸15傷　軍方暫停實彈演習
-
-![有建築物在誤炸事件中受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794579_1_20250306172428.jpg&q=60)
-  
-
-南韓軍方兩架戰機在演習期間，錯誤向京畿道抱川市的平民區投擲炸彈，造成至少15人受傷，其中兩人傷勢嚴重。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794579-20250306.htm)
 
 ---

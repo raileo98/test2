@@ -1,3 +1,31 @@
+# 伊媒報道特朗普致信消息　安全機關新聞機構形容華盛頓重複表演
+
+  
+
+伊朗傳媒已報道美國總統特朗普宣稱已向伊朗最高領袖哈梅內伊致送信件，敦促伊方放棄開發核武的消息。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm)
+
+---
+
 # 特朗普稱致信哈梅內伊促談判放棄開發核武　強調不想傷害伊朗
 
   
@@ -1701,30 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm)
-
----
-
-# 公立醫院前年10月至去年9月通報109宗風險警示事件
-
-![公立醫院通報29宗醫療風險警示事件，以及呈報的80宗重要風險事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794762_1_20250307172916.jpg&q=80)
-  
-
-醫管局發布醫療風險警示事件及重要風險事件周年報告，涵蓋2023年10月1日至去年9月30日期間公立醫院通報的29宗醫療風險警示事件，以及呈報的80宗重要風險事件。在重要風險事件中，有74宗涉及藥物錯誤及6宗錯誤識別病人身分或資料。有關報告已獲醫管局大會通過。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm)
 
 ---
