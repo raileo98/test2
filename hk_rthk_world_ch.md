@@ -1,3 +1,61 @@
+# 《環看天下》：人工智能成本年度世界移動通信大會焦點
+
+![人工智能落地應用成為本年度世界移動通信大會焦點。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794845_1_20250308073122.jpg&q=85)
+  
+
+2025年世界移動通信大會在西班牙巴塞羅那舉行，人工智能落地應用成為焦點。有知名創業孵化器的合夥人估計，AI應用市場規模，可催生出市值超過3000億美元的新大型科技公司。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794845-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794845-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794845-20250308.htm)
+
+---
+
+# 美當局指真赫曼死於自然原因　或因阿茲海默症不察覺妻子已離世
+
+![日前舉行的奧斯卡頒獎禮有悼念真赫曼的環節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794844_1_20250308073043.jpg&q=90)
+  
+
+美國當局表示，上月底被發現離世的著名演員真赫曼，死於自然，而他的妻子就死於一種罕見疾病。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm)
+
+---
+
 # 圖斯克計劃軍訓所有波蘭成年男子　形容是軍事儲備應對潛在威脅
 
 ![圖斯克說希望將波蘭軍隊的規模，從現在的大約20萬人增加到50萬人。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794836_1_20250308055652.jpg&q=90)
@@ -1677,63 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
-
----
-
-# 歐委會主席稱歐洲須有能力保衛自己　澤連斯基指烏克蘭並不孤單
-
-![馮德萊恩（右）與科斯塔（左）在會前陪同澤連斯基見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794611_1_20250306201203.jpg&q=90)
-  
-
-歐盟領導人在布魯塞爾召開緊急峰會，商討烏克蘭危機和加強歐洲自主防衛，烏克蘭總統澤連斯基應邀出席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm)
-
----
-
-# 澤連斯基：和平不能意味烏克蘭投降或崩潰
-
-![澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794610_1_20250306195842.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會，議題包括烏克蘭危機及加強歐洲防禦。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm)
 
 ---

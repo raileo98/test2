@@ -1,3 +1,32 @@
+# 美當局指真赫曼死於自然原因　或因阿茲海默症不察覺妻子已離世
+
+![日前舉行的奧斯卡頒獎禮有悼念真赫曼的環節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794844_1_20250308073043.jpg&q=90)
+  
+
+美國當局表示，上月底被發現離世的著名演員真赫曼，死於自然，而他的妻子就死於一種罕見疾病。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm)
+
+---
+
 # 國際油價高收1%或以上　本周累跌近4%
 
 ![英美期油價格周五收市升1%或以上，全星期則下跌近4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794843_1_20250308071855.jpg&q=90)
@@ -1703,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm)
-
----
-
-# 再多兩名上月參與「清遠佛山旅行團」的人士感染退伍軍人病
-
-![中心已知會旅遊業監管局，並知會通報廣東省衞生當局，以作相關環境調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794776_1_20250307174744.jpg&q=80)
-  
-
-領華旅遊社「清遠佛山旅行團」再多兩名分別71歲男子和69歲女子感染退伍軍人病，兩人分別參加上月20至22日和21至23日的旅行團，他們與日前公布一個涉及4人的群組個案有流行病學關連。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm)
 
 ---
