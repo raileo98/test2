@@ -1,3 +1,55 @@
+# 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
+
+---
+
+# 百度擬發行不超過20億美元可交換債券　或以攜程股份交付
+
+![百度計劃以離岸方式發行可交換債券，當滿足若干條件，百度可選擇以持有的攜程股份交付。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794774_1_20250307173835.jpg&q=90)
+  
+
+百度集團宣布以離岸方式發行可交換債券，本金總額不超過20億美元，2032年到期。債券將參考攜程集團在本港上市的普通股。當滿足若干條件，百度可選擇以持有的攜程股份代替現金交付，或以現金加攜程股份結合方式交付。債券交換率及其他條款尚未最終確定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm)
+
+---
+
 # 不忿被逐出師門披露師母個人資料　女佛教徒「起底」罪成候判
 
 ![法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794771_1_20250307173342.jpg&q=85)
@@ -519,10 +571,10 @@
 
 # 蔡若蓮稱杭州交流團學生離世事件與交流及考察活動無關
 
-![蔡若蓮表示，日前在杭州交流團離世的學生，事件與交流及考察活動無關。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794751_1_20250307164024.jpg&q=90)
+![蔡若蓮說，日前在杭州交流團離世的學生，事件與交流及考察活動無關。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794751_1_20250307164024.jpg&q=90)
   
 
-聖保羅書院一名中五學生早前在內地杭州交流期間死亡。教育局局長蔡若蓮首次開控回應，表示相關調查告已告一段落，明確了解到事件與交流活動及考察無關，為尊重死者家屬意願，不會披露個案內容。她說，對這宗不幸事固感到非常難過，向家人致以深切慰問。
+聖保羅書院一名中五學生早前在杭州交流期間死亡。教育局局長蔡若蓮首次開腔回應，表示相關調查已告一段落，明確了解到事件與交流活動及考察無關，為尊重死者家屬意願，不會披露個案內容。她說，對這宗不幸事故感到非常難過，向家人致以深切慰問。
   
 
   

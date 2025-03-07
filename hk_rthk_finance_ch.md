@@ -1,3 +1,32 @@
+# 百度擬發行不超過20億美元可交換債券　或以攜程股份交付
+
+![百度計劃以離岸方式發行可交換債券，當滿足若干條件，百度可選擇以持有的攜程股份交付。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794774_1_20250307173835.jpg&q=90)
+  
+
+百度集團宣布以離岸方式發行可交換債券，本金總額不超過20億美元，2032年到期。債券將參考攜程集團在本港上市的普通股。當滿足若干條件，百度可選擇以持有的攜程股份代替現金交付，或以現金加攜程股份結合方式交付。債券交換率及其他條款尚未最終確定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm)
+
+---
+
 # 呷哺呷哺料去年淨虧損擴大逾1倍
 
 ![呷哺呷哺發盈警，預期去年淨虧損按年擴大約1.1倍至約1.2倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794770_1_20250307173327.jpg&q=75)
@@ -256,35 +285,6 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm)
-
----
-
-# 17名「劏房」業主因違反相關法例規定被定罪及罰款共逾4萬元
-
-![17名「劏房」業主承認有關控罪，判處罰款共44400元。（陳裕行攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794750_1_20250307163949.jpg&q=90)
-  
-
-17名「劏房」業主因違反《業主與租客（綜合）條例》的相關規定，今日在東區裁判法院承認有關控罪，被判處罰款共44400元。自條例生效以來，差餉物業估價署已成功檢控610宗個案，共涉及522名「劏房」業主，罰款介乎400元至34800元，合計總罰款共逾143萬元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm)
 
 ---
 

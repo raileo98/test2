@@ -1,3 +1,26 @@
+# 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
+
+---
+
 # 教宗方濟各發表入院以來首段錄音　感謝信眾支持
 
 ![在教宗方濟各入住的醫院外，不少信眾都寫下對他的祝福。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794764_1_20250307171822.jpg&q=70)
@@ -1706,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794459-20250306.htm)
-
----
-
-# 美商務部長︰若加拿大能阻止芬太尼　特朗普或對部分行業減免關稅
-
-![盧特尼克說，如果加拿大能阻止芬太尼，特朗普將對其關稅持開放態度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794458_1_20250306005441.jpg&q=90)
-  
-
-美國商務部長盧特尼克透露，總統特朗普預料將公布調整對加拿大和墨西哥商品加徵的關稅，可能給予汽車等行業部分減免。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm)
 
 ---
