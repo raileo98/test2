@@ -1,3 +1,32 @@
+# 'Ding tells HK to promote internationalisation'
+
+![Henry Tang says Hong Kong should capitalise on the Two Systems advantage under One Country. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794744_1_20250307160338.jpg&q=90)
+  
+
+Chinese People's Political Consultative Conference (CPPCC) Standing Committee member Henry Tang on Friday said Hong Kong should leverage its advantages and further promote internationalisation.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm)
+
+---
+
 # 'Act more firmly to safeguard national security'
 
 ![Vice Premier Ding Xuexiang meets local NPC delegates in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_1_20250307153730.jpg&q=85)
@@ -91,7 +120,7 @@ Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed s
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
   
 
-China has ushered a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
+China has ushered in a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
   
 
   
@@ -1708,34 +1737,5 @@ Forty Chinese nationals involved in illegal immigration were repatriated from Th
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793533-20250227.htm)
-
----
-
-# Manila repatriates 100 Chinese nationals in joint op
-
-![The Chinese Embassy in Manila urged Philippines authorities to "completely eradicate the scourge" inflicted by offshore gambling. Photo: screenshot of embassy website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793364_1_20250226205158.jpg&q=85)
-  
-
-About 100 Chinese nationals who engaged in illegal offshore gambling operations in the Philippines have been repatriated to the country.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793364-20250226.htm)
 
 ---

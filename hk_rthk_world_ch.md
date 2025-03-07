@@ -1,3 +1,32 @@
+# 巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運
+
+![巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794745_1_20250307160914.jpg&q=90)
+  
+
+法國巴黎北站附近的鐵路路軌發現一枚未引爆的二戰時期炸彈，進出巴黎北站的火車服務全部停運。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm)
+
+---
+
 # 特朗普：可能延長TikTok賣盤截止期限
 
 ![特朗普說，對TikTok有很大興趣。如果需要，他可能會延長TikTok賣盤的截止期限。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794730_1_20250307142757.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
-
-![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=80)
-  
-
-截至2025年3月5日下午5時，消費者委員會共接獲10宗與「世界格蘭披治桌球大獎賽」相關的投訴，其中7宗涉及消費者對心儀球員退賽的不滿，認為未能觀賞該球員參與的賽事是貨不對辦；另有3宗則涉及3月4日晚部分觀眾不滿在比賽結束前被要求提早離場，10宗個案涉及金額共16885元。消委會正積極與主辦單位聯絡處理個案。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794429-20250305.htm)
 
 ---

@@ -1,3 +1,32 @@
+# S Korea court orders Yoon's release, pending trial
+
+![Yoon Suk-yeol's supporters cheer after a court decides to release him. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794746_1_20250307161141.jpg&q=90)
+  
+
+A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warrant on Friday, paving the way for his release from jail following his arrest in mid-January on insurrection charges over a brief imposition of martial law.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm)
+
+---
+
 # 'China's diplomacy gives certainty to uncertain world'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
@@ -1711,34 +1740,5 @@ US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm)
-
----
-
-# Argentina agency blasted over disability scale
-
-![Argentina's President Javier Milei says he is trying to clamp down on disability fraud. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793586_1_20250228072938.jpg&q=90)
-  
-
-Argentina's state disability agency apologised on Thursday following a furore over the use of the terms "idiot", "imbecile" and "mentally retarded" to describe people with disabilities.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm)
 
 ---

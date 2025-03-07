@@ -1,3 +1,61 @@
+# 港股反覆低收138點　京東績後挫約5%
+
+![恒生指數一度升約300點，觸及24669點，再創逾3年新高，收市報24231點，跌138點，跌幅約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794747_1_20250307161746.jpg&q=1)
+  
+
+港股表現反覆，恒生指數一度升約300點，觸及24669點，再創逾3年新高，尾市回落，收市報24231點，跌138點，跌幅約0.6%，主板成交額約3832億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm)
+
+---
+
+# 唐家成出任行會、立法會及政治委任制度官員薪津獨立委員會主席
+
+![唐家成獲委任為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794742_1_20250307154353.jpg&q=90)
+  
+
+行政長官再度委任唐家成為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席，並再度委任蔡永忠和黃子遜為獨立委員會成員，任期由4月1日起生效，為期1年。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm)
+
+---
+
 # 遠東發展與周大福企業收購布里斯本娛樂及休閒區項目一半股權
 
   
@@ -1659,63 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
-
----
-
-# 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
-
-![特區政府發言人同意標準普爾就香港銀行有能力應對商業房地產所帶來的壓力的觀點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794615_1_20250306205636.jpg&q=35)
-  
-
-就標準普爾對於香港銀行及物業市場發表的報告，特區政府發言人說，不同意住宅物業供應過剩的觀點，去年底私人住宅單位的空置率為4.5%，與過去20年的長期平均數相同，租金亦持續穩健上升，數據反映目前住屋需求殷切。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
-
----
-
-# 全國兩會｜浙江省創新環境吸引青年　民企稱省內條件有利發展
-
-![全國人大浙江代表團舉行全體會議，開放予傳媒採訪。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794614_1_20250306202320.jpg&q=85)
-  
-
-全國人大浙江代表團下午舉行全體會議，開放予傳媒採訪。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
 
 ---

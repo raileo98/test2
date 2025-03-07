@@ -1,3 +1,61 @@
+# 港股反覆低收138點　京東績後挫約5%
+
+![恒生指數一度升約300點，觸及24669點，再創逾3年新高，收市報24231點，跌138點，跌幅約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794747_1_20250307161746.jpg&q=1)
+  
+
+港股表現反覆，恒生指數一度升約300點，觸及24669點，再創逾3年新高，尾市回落，收市報24231點，跌138點，跌幅約0.6%，主板成交額約3832億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm)
+
+---
+
+# 巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運
+
+![巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794745_1_20250307160914.jpg&q=90)
+  
+
+法國巴黎北站附近的鐵路路軌發現一枚未引爆的二戰時期炸彈，進出巴黎北站的火車服務全部停運。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm)
+
+---
+
 # 口岸爆炸案專家證人稱警方檢取證物驗出爆炸品常見成分
 
 ![學專家證人、政府化驗師作供，講述警方檢取證物所含成分。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794743_1_20250307155454.jpg&q=90)
