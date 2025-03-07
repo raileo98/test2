@@ -1,3 +1,61 @@
+# 微軟向南非追加近3億美元投資推動人工智能發展和應用
+
+![微軟承諾在未來12個月內，為5萬名南非年輕人支付參加數碼技能認證考試的費用。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794822_1_20250308011921.jpg&q=90)
+  
+
+美國微軟公司總裁史密斯表示，計劃到2027年年底前，向南非追加約合2億9千8百萬美元投資，推動當地人工智能發展和應用。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm)
+
+---
+
+# 武契奇與普京通電話商合作及地區局勢等議題
+
+![武契奇上月中表示，近期發生在塞爾維亞的抗議活動由外部勢力策劃。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794821_1_20250308011356.jpg&q=90)
+  
+
+塞爾維亞總統武契奇與俄羅斯總統普京通電話，討論雙邊關係、經濟合作及地區局勢等議題。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm)
+
+---
+
 # 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
 
 ![陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794809_1_20250307223122.jpg&q=85)
@@ -1677,63 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm)
-
----
-
-# 特朗普給予三間車企一個月關稅豁免　與杜魯多商關稅和芬太尼問題
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794504_1_20250306103458.jpg&q=75)
-  
-
-美國總統特朗普決定，給予福特等三大汽車製造商為期一個月的關稅豁免，對三間車廠透過美墨加協議、從墨西哥及加拿大進口的汽車產品，免除25%進口關稅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794504-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794504-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794504-20250306.htm)
-
----
-
-# 美國獲授權者接觸哈馬斯　白宮稱特朗普努力為國民做正確事情
-
-![萊維特（圖）指有關聯繫顯示特朗普真誠努力為美國人民做正確事情。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794492_1_20250306091258.jpg&q=90)
-  
-
-美國證實獲授權人士，接觸巴勒斯坦武裝組織哈馬斯。路透社引述消息人士報道，雙方就釋放被扣押在加沙地帶的美國人，進行秘密談判。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm)
 
 ---

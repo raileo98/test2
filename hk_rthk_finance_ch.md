@@ -1,3 +1,32 @@
+# 微軟向南非追加近3億美元投資推動人工智能發展和應用
+
+![微軟承諾在未來12個月內，為5萬名南非年輕人支付參加數碼技能認證考試的費用。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794822_1_20250308011921.jpg&q=90)
+  
+
+美國微軟公司總裁史密斯表示，計劃到2027年年底前，向南非追加約合2億9千8百萬美元投資，推動當地人工智能發展和應用。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm)
+
+---
+
 # 海關於機場及元朗檢約670萬支私煙及57萬支另類吸煙產品
 
 ![海關展示檢獲私煙。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794819_1_20250307232108.jpg&q=30)
@@ -1691,34 +1720,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm)
-
----
-
-# IMF：美國關稅政策將衝擊墨西哥及加拿大經濟
-
-![IMF表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794658_1_20250307074319.jpg&q=55)
-  
-
-國際貨幣基金組織(IMF)表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm)
 
 ---
