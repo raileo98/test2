@@ -1,3 +1,31 @@
+# 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
+
+---
+
 # 全國兩會｜王毅：中東不靜世界難安　應推動加沙全面持久停火
 
   
@@ -1699,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794510-20250306.htm)
-
----
-
-# 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794489_1_20250306093915.jpg&q=80)
-  
-
-在北京，國務院副總理丁薛祥上午出席港澳地區全國政協委員聯組會議，聽取委員發言。全國政協副主席何厚鏵、梁振英、中央港澳辦、國務院港澳辦主任夏寶龍亦有列席會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm)
 
 ---

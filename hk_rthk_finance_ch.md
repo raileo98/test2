@@ -1,3 +1,31 @@
+# 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
+
+  
+
+在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
+
+---
+
 # 港股下午開市後上升
 
 ![恒生指數較早時報24494點，升125點，升幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794722_1_20250307130532.jpg&q=75)
@@ -1689,34 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm)
-
----
-
-# 醫衞局探討立法提升私營醫療收費透明度將參考消委會報告
-
-![醫衞局正積極籌備就私營醫療收費透明度立法進行諮詢的工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794600_1_20250306183723.jpg&q=90)
-  
-
-醫務衞生局回應消委會就醫療價格透明度提出的建議時表示，歡迎消委會報告，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界，制訂相關諮詢建議時，亦會參考消委會報告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm)
 
 ---
