@@ -1,3 +1,32 @@
+# 《環看天下》：人工智能成本年度世界移動通信大會焦點
+
+![人工智能落地應用成為本年度世界移動通信大會焦點。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794845_1_20250308073122.jpg&q=85)
+  
+
+2025年世界移動通信大會在西班牙巴塞羅那舉行，人工智能落地應用成為焦點。有知名創業孵化器的合夥人估計，AI應用市場規模，可催生出市值超過3000億美元的新大型科技公司。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794845-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794845-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794845-20250308.htm)
+
+---
+
 # 美當局指真赫曼死於自然原因　或因阿茲海默症不察覺妻子已離世
 
 ![日前舉行的奧斯卡頒獎禮有悼念真赫曼的環節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794844_1_20250308073043.jpg&q=90)
@@ -1707,30 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
-
----
-
-# 金管局：2月外匯儲備資產減少51億美元
-
-![金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794772_1_20250307173630.jpg&q=90)
-  
-
-金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。外匯儲備資產總額相當於香港流通貨幣5倍多，或港元貨幣供應M3約38%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm)
 
 ---
