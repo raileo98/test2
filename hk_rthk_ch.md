@@ -1,3 +1,31 @@
+# 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
+
+  
+
+在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網路電詐這顆毒瘤。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
+
+---
+
 # 滬深股市半日個別發展　創業板指數半日跌約1%
 
 ![內地股市今早個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794705_1_20250307114822.jpg&q=85)
@@ -1688,34 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm)
-
----
-
-# 美國1月批發庫存按月升0.8%勝預期
-
-![美國1月批發庫存向上修訂至按月增長0.8%，市場原先預料維持增長0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794632_1_20250306230640.jpg&q=45)
-  
-
-美國1月批發庫存向上修訂至按月增長0.8%，市場原先預料維持增長0.7%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm)
 
 ---

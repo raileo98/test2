@@ -349,7 +349,7 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
 
 # Xi calls for stronger education role in sci-tech
 
-![President X Jinping calls for for comprehensive education reforms, including granting schools greater autonomy and improving governance. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794640_1_20250307023617.jpg&q=90)
+![President Xi Jinping calls for comprehensive education reforms, including granting schools greater autonomy and improving governance. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794640_1_20250307023617.jpg&q=90)
   
 
 President Xi Jinping on Thursday underscored the role of education in advancing science, technology, and talent development, calling for deeper alignment with the country's modernisation needs.

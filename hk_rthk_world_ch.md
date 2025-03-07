@@ -1,3 +1,31 @@
+# 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
+
+  
+
+在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網路電詐這顆毒瘤。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
+
+---
+
 # 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
 
   
@@ -1705,34 +1733,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794346-20250305.htm)
-
----
-
-# 特朗普到國會演說　稱其政府目前所做事情比別人四年任期更多
-
-![特朗普說到目前為止，他的政府行動迅速，所做的事情比其他人的四年任期更加多。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794325_1_20250305111408.jpg&q=85)
-  
-
-美國總統特朗普在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。特朗普發言時，兩側分別是眾議院議長約翰遜，以及兼任參議院議長的副總統萬斯。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm)
 
 ---
