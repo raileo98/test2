@@ -1,3 +1,32 @@
+# 日股低收約2.2%　失守37000點
+
+![日股失守37000點水平，日經指數收報36887點，跌幅2.17%，創近半年新低。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794733_1_20250307144215.jpg&q=90)
+  
+
+日股失守37000點水平，創近半年新低。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794733-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794733-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794733-20250307.htm)
+
+---
+
 # 黎智英案控辯雙方完成舉證　暫定7月28日結案陳詞
 
   
@@ -89,7 +118,7 @@
 ![特朗普說，對TikTok有很大興趣。如果需要，他可能會延長TikTok賣盤的截止期限。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794730_1_20250307142757.jpg&q=90)
   
 
-美國總統特朗普表示，如果限期屆滿時仍未達成交易，他可能延長短片分享平台TikTok賣盤的截止期限
+美國總統特朗普表示，如果限期屆滿時仍未達成交易，他可能延長短片分享平台TikTok賣盤的截止期限。
   
 
   
