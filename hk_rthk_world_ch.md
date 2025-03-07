@@ -1,3 +1,32 @@
+# 澤連斯基指俄軍再襲烏克蘭能源設施　使用導彈及無人機
+
+![澤連斯基說目前各地正進行救援及恢復工作。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794823_1_20250308012954.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，俄軍再次對烏克蘭能源設施，發動大規模襲擊。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm)
+
+---
+
 # 微軟向南非追加近3億美元投資推動人工智能發展和應用
 
 ![微軟承諾在未來12個月內，為5萬名南非年輕人支付參加數碼技能認證考試的費用。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794822_1_20250308011921.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794543-20250306.htm)
-
----
-
-# 韓美軍演有炮彈落入社區有人受傷　當局正確認具體情況
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794509_1_20250306131038.jpg&q=65)
-  
-
-韓美軍事演習懷疑有炮彈落入社區，最少7人受傷。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794509-20250306.htm)
 
 ---

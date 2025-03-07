@@ -1,3 +1,32 @@
+# 澤連斯基指俄軍再襲烏克蘭能源設施　使用導彈及無人機
+
+![澤連斯基說目前各地正進行救援及恢復工作。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794823_1_20250308012954.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，俄軍再次對烏克蘭能源設施，發動大規模襲擊。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm)
+
+---
+
 # 微軟向南非追加近3億美元投資推動人工智能發展和應用
 
 ![微軟承諾在未來12個月內，為5萬名南非年輕人支付參加數碼技能認證考試的費用。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794822_1_20250308011921.jpg&q=90)
@@ -1698,36 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm)
-
----
-
-# 葉子季將出任規劃署署長　廖嘉俊出任政府飛行服務隊總監
-
-![葉子季將出任規劃署署長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_1_20250307170024.jpg&q=90)
-![廖嘉俊將出任政府飛行服務隊總監。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_2_20250307170024.jpg&q=90)
-![周麗蓮將出任破產管理署署長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_3_20250307170024.jpg&q=90)
-  
-
-政府高層官員任命，首席政府城市規劃師葉子季將於本月18日出任規劃署署長，接替於同日展開退休前休假的鍾文傑；政府飛行服務隊總機師廖嘉俊於本月13日出任政府飛行服務隊總監，接替同日展開退休前休假的胡偉雄；及副首席律師周麗蓮於本月31日出任破產管理署署長，接替同日開始退休前休假的麥錦羅。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm)
 
 ---
