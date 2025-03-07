@@ -204,7 +204,7 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
 
 # 'Govt should seek new revenue streams amid deficit'
 
-![NPC deputies Frank Chan (L) and Nicholas Chan (R) are attending the "Two Sessions" meetings in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=85)
   
 
 Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.

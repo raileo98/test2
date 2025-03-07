@@ -1,3 +1,83 @@
+# 蔡若蓮稱杭州交流團學生離世事件與交流及考察活動無關
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm)
+
+---
+
+# 17名「劏房」規管租賃業主因違反相關法例規定被定罪及罰款
+
+  
+
+17名「劏房」業主因違反《業主與租客（綜合）條例》的相關規定，今日在東區裁判法院承認有關控罪，被判處罰款共44400元。自條例生效以來，差餉物業估價署已成功檢控610宗個案，共涉及522名「劏房」業主，罰款介乎400元至34800元，合計總罰款共逾143萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm)
+
+---
+
+# 南韓法院決定取消拘留尹錫悅　倘檢方不提抗訴將獲釋
+
+![南韓首爾中央地方法院通過撤銷逮捕尹錫悅的申請，如果檢方不提出抗訴將獲釋。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794749_1_20250307162803.jpg&q=90)
+  
+
+南韓首爾中央地方法院通過被停職總統尹錫悅撤銷逮捕的申請，尹錫悅將獲釋，並在非拘留的狀態下繼續受審。但如果檢方提出抗訴，尹錫悅將無法被釋放，目前正等待檢方的決定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm)
+
+---
+
 # 港股反覆低收138點　京東績後挫約5%
 
 ![恒生指數一度升約300點，觸及24669點，再創逾3年新高，收市報24231點，跌138點，跌幅約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794747_1_20250307161746.jpg&q=1)

@@ -1,3 +1,54 @@
+# 蔡若蓮稱杭州交流團學生離世事件與交流及考察活動無關
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm)
+
+---
+
+# 17名「劏房」規管租賃業主因違反相關法例規定被定罪及罰款
+
+  
+
+17名「劏房」業主因違反《業主與租客（綜合）條例》的相關規定，今日在東區裁判法院承認有關控罪，被判處罰款共44400元。自條例生效以來，差餉物業估價署已成功檢控610宗個案，共涉及522名「劏房」業主，罰款介乎400元至34800元，合計總罰款共逾143萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm)
+
+---
+
 # 口岸爆炸案專家證人稱警方檢取證物驗出爆炸品常見成分
 
 ![學專家證人、政府化驗師作供，講述警方檢取證物所含成分。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794743_1_20250307155454.jpg&q=90)
@@ -1674,63 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794563-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794563-20250306.htm)
-
----
-
-# 港鐵去年盈利升一倍　末期息每股0.89元
-
-![港鐵去年盈利157.7億元，按年增長1.02倍，派末期息每股0.89元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794562_1_20250306165914.jpg&q=85)
-  
-
-港鐵去年盈利157.7億元，按年增長1.02倍。派末期息每股0.89元，全年派息1.31元，與前年相同。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794562-20250306.htm)
-
----
-
-# 港股高收775點　科技指數升逾半成
-
-![港股連續兩日顯著上升，恒指高見24410點，創逾3年新高，收市報24369點，升775點；科指高收5.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794561_1_20250306162957.jpg&q=45)
-  
-
-港股連續兩日顯著上升，重上24000點以上。恒生指數尾市升近820點，高見24410點，創逾3年新高，收市報24369點，升775點，升幅3.3%。主板成交增至逾3771億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm)
 
 ---
