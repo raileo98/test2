@@ -85,7 +85,7 @@ Legal scholar and Chinese People's Political Consultative Conference (CPPCC) mem
 
 ---
 
-# S Korea court orders Yoon's release, pending trial
+# S Korea court orders Yoon's release, pending ruling
 
 ![Yoon Suk-yeol's supporters cheer after a court decides to release him. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794746_1_20250307161141.jpg&q=90)
   
