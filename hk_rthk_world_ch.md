@@ -1,3 +1,32 @@
+# 歐爾班：歐洲增自身防務開支又支持烏克蘭　此舉將毀掉歐洲
+
+![歐爾班重申，匈牙利將繼續推動和平談判，而不是為戰爭提供資金。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794801_1_20250307211337.jpg&q=90)
+  
+
+由於匈牙利反對，歐盟就軍事援助烏克蘭未能達成一致意見。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm)
+
+---
+
 # 商務部：中方促美方理性處理芬太尼問題　不要一味甩鍋推責
 
 ![商務部稱，中方敦促美方客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794804_1_20250307212107.jpg&q=45)
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm)
-
----
-
-# 美國證實與哈馬斯就被扣押人員問題進行直接會談
-
-![萊維特證實，美國與巴勒斯坦武裝組織哈馬斯，就被扣押在加沙地帶的人員進行直接談判和討論。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794469_1_20250306062223.jpg&q=90)
-  
-
-美國白宮發言人萊維特證實，美國正在與巴勒斯坦武裝組織哈馬斯，就被扣押在加沙地帶的人員進行直接談判和討論，美方已就事件同以色列磋商。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794469-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794469-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794469-20250306.htm)
 
 ---
