@@ -1,3 +1,31 @@
+# 藥店店員以誤導性遺漏營業行為售中藥材判社會服務令及賠償逾萬元
+
+  
+
+一間藥店的男店員因銷售中藥材期間作出誤導性遺漏的營業行為，違反《商品說明條例》，上月21日在西九龍裁判法院被裁定罪名成立，在還柙14日後，今日被判處120小時社會服務令及向案中受害人賠償1.1萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm)
+
+---
+
 # 分析：內地出口於未來兩至三個月或錄得按年跌幅
 
 ![林俊泓稱特朗普上任美國總統後「搶出口」已延續一段時間，市場或需時消化累積庫存。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794738_1_20250307153106.jpg&q=10)

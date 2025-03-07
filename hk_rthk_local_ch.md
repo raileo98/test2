@@ -1,3 +1,31 @@
+# 藥店店員以誤導性遺漏營業行為售中藥材判社會服務令及賠償逾萬元
+
+  
+
+一間藥店的男店員因銷售中藥材期間作出誤導性遺漏的營業行為，違反《商品說明條例》，上月21日在西九龍裁判法院被裁定罪名成立，在還柙14日後，今日被判處120小時社會服務令及向案中受害人賠償1.1萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm)
+
+---
+
 # 「打假波」案4人被控串謀詐騙等罪　案件押至7月7日再訊
 
   
@@ -1702,34 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794559-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794559-20250306.htm)
-
----
-
-# 「虎門」隊班主及「打假波」集團主腦等4人涉收買球員被廉署起訴
-
-![4人涉嫌以逾24萬元行賄多名足球員，藉此操縱球隊在多場賽事的結果，以便集團經營外圍賭博。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794554_1_20250306163329.jpg&q=80)
-  
-
-廉署搗破一個貪污「打假波」外圍賭博集團，落案起訴4人，包括集團主腦及1名香港乙組足球聯賽球隊的班主，涉嫌以逾24萬元行賄多名足球員，藉此操縱球隊在2021/22年球季多場賽事的結果，以便集團經營外圍賭博，案件明日在東區裁判法院提訊，廉署不排除會有更多人士被檢控。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794554-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794554-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794554-20250306.htm)
 
 ---
