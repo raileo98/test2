@@ -1,3 +1,32 @@
+# 南韓法院決定取消拘留尹錫悅　倘檢方不提抗訴將獲釋
+
+![南韓首爾中央地方法院通過撤銷逮捕尹錫悅的申請，如果檢方不提出抗訴將獲釋。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794749_1_20250307162803.jpg&q=90)
+  
+
+南韓首爾中央地方法院通過被停職總統尹錫悅撤銷逮捕的申請，尹錫悅將獲釋，並在非拘留的狀態下繼續受審。但如果檢方提出抗訴，尹錫悅將無法被釋放，目前正等待檢方的決定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm)
+
+---
+
 # 巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運
 
 ![巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794745_1_20250307160914.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm)
-
----
-
-# 格陵蘭自治政府總理：既不想成為丹麥人亦不想成為美國人
-
-![格陵蘭將舉行自治政府議會選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794433_1_20250305201506.jpg&q=90)
-  
-
-美國總統特朗普在國會聯席會議發言時表示，美國支持格陵蘭的未來選擇，並歡迎格陵蘭加入美國，認為美國最終會得到格陵蘭。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794433-20250305.htm)
 
 ---
