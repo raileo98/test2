@@ -1,3 +1,32 @@
+# China export growth slows, imports fall
+
+![Chinese exports climb 2.3 percent in the first two months of the year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794761_1_20250307171431.jpg&q=90)
+  
+
+China's export growth grew slower than expected in the first two months of this year while imports fell sharply, amid escalating trade tensions between the world's two biggest economies.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
+
+---
+
 # Golden era for low-altitude economy: CPPCC delegates
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
@@ -1706,34 +1735,5 @@ Wall Street stocks tumbled on Friday, concluding the week on a sour note as a bi
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792715-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792715-20250222.htm)
-
----
-
-# Hong Kong stocks surge to three-year high
-
-![The Hang Seng Index rose to a near three-year high, buoyed by a rally in the tech sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792653_1_20250221175946.jpg&q=65)
-  
-
-Shares in Alibaba soared more than 14 percent on Friday, extending a blistering rally in Hong Kong's Hang Seng Index, after forecast-topping earnings added to a growing sense of optimism over Chinese tech firms.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792653-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792653-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792653-20250221.htm)
 
 ---

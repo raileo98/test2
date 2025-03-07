@@ -1,5 +1,34 @@
+# 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
+
+  
+
+在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
+
+---
+
 # 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
 
+![黃代放表示，民企發展面臨一系列複雜挑戰，相信隨著政策持續落地與完善，民企發展難題會越來越少。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794758_2_20250307171251.jpg&q=90)
   
 
 國家主席習近平上月出席民營企業座談會並發表重要講活。
@@ -1700,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794528-20250306.htm)
-
----
-
-# 全國兩會｜西藏自治政府主席稱深化三個意識　不受反華勢力干擾
-
-![全國人大會議西藏自治區人大代表團早上舉行全體會議。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794522_1_20250306145632.jpg&q=45)
-  
-
-在北京，西藏自治區政府主席嘎瑪澤登表示，當局過去的思想教育每次都被抹黑，近年持續深化拓展國家、公民和法治「三個意識」教育，即使面對西方反華勢力干擾，也不會受影響。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794522-20250306.htm)
 
 ---

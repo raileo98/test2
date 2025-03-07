@@ -1,5 +1,116 @@
+# 公立醫院前年10月至去年9月通報109宗風險警示事件
+
+  
+
+醫管局發布醫療風險警示事件及重要風險事件周年報告，涵蓋2023年10月1日至去年9月30日期間公立醫院通報的29宗醫療風險警示事件，以及呈報的80宗重要風險事件。在重要風險事件中，有74宗涉及藥物錯誤及6宗錯誤識別病人身分或資料。有關報告已獲醫管局大會通過。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm)
+
+---
+
+# 本港二手樓價按星期升0.32%　結束兩周跌勢
+
+![中原城市領先指數最新報137.46，按星期升0.32%，結束兩星期跌勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794752_1_20250307163426.jpg&q=80)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報137.46，按星期升0.32%，結束兩星期跌勢，但仍處於近8年半低位，今年累計跌0.13%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
+
+---
+
+# 內地2月外匯儲備增加約182億美元　連續4個月增持黃金
+
+![人行數據顯示，內地2月外匯儲備規模按月增加約182億美元，連升兩個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794760_1_20250307170721.jpg&q=60)
+  
+
+國家外匯管理局公布，截至上月底，內地外匯儲備規模32272億美元，按月上升約182億美元，升幅逾0.5%，連升兩個月。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm)
+
+---
+
+# 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
+
+  
+
+在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
+
+---
+
 # 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
 
+![黃代放表示，民企發展面臨一系列複雜挑戰，相信隨著政策持續落地與完善，民企發展難題會越來越少。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794758_2_20250307171251.jpg&q=90)
   
 
 國家主席習近平上月出席民營企業座談會並發表重要講活。
@@ -54,7 +165,7 @@
 
 ---
 
-# 葉子季將出任規劃署署長　廖嘉俊出任政府飛行服務隊
+# 葉子季將出任規劃署署長　廖嘉俊出任政府飛行服務隊總監
 
 ![葉子季將出任規劃署署長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_1_20250307170024.jpg&q=90)
 ![廖嘉俊將出任政府飛行服務隊總監。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794756_2_20250307170024.jpg&q=90)

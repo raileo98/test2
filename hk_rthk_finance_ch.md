@@ -1,5 +1,64 @@
+# 本港二手樓價按星期升0.32%　結束兩周跌勢
+
+![中原城市領先指數最新報137.46，按星期升0.32%，結束兩星期跌勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794752_1_20250307163426.jpg&q=80)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報137.46，按星期升0.32%，結束兩星期跌勢，但仍處於近8年半低位，今年累計跌0.13%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
+
+---
+
+# 內地2月外匯儲備增加約182億美元　連續4個月增持黃金
+
+![人行數據顯示，內地2月外匯儲備規模按月增加約182億美元，連升兩個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794760_1_20250307170721.jpg&q=60)
+  
+
+國家外匯管理局公布，截至上月底，內地外匯儲備規模32272億美元，按月上升約182億美元，升幅逾0.5%，連升兩個月。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm)
+
+---
+
 # 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
 
+![黃代放表示，民企發展面臨一系列複雜挑戰，相信隨著政策持續落地與完善，民企發展難題會越來越少。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794758_2_20250307171251.jpg&q=90)
   
 
 國家主席習近平上月出席民營企業座談會並發表重要講活。
@@ -1657,63 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm)
-
----
-
-# 全國兩會｜李慧琼支持國家積極財政政策　拉動消費刺激內需
-
-![李慧琼說，政府工作報告中的規劃及財政預算「全面、穩中有進」。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794620_3_20250307141502.jpg&q=60)
-  
-
-港區全國人大代表團繼續審議政府工作報告及相關報告。副團長陳勇說，各代表在會上積極建言獻策，提供過去一年累積整理的真知灼見。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm)
-
----
-
-# 美國2月宣布裁員人數逾17萬人　政府部門減逾6萬人
-
-![美國2月宣布裁員人數17.2萬人，政府部門減逾6萬人。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794619_1_20250306212926.jpg&q=60)
-  
-
-人力資源服務公司Challenger, Gray and Christmas發表報告指，美國2月宣布裁員人數急增至17.2萬人，創2020年7月以來新高，按月大幅增加2.45倍，按年亦升1.03倍。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794619-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794619-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794619-20250306.htm)
 
 ---
