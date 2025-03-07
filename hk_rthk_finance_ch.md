@@ -1,3 +1,32 @@
+# 韓股低收約0.5%
+
+![首爾綜合指數收報2563點，跌12點，跌幅0.49%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794734_1_20250307144613.jpg&q=85)
+  
+
+南韓股市偏軟，首爾綜合指數收報2563點，跌12點，跌幅0.49%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm)
+
+---
+
 # 日股低收約2.2%　失守37000點
 
 ![日股失守37000點水平，日經指數收報36887點，跌幅2.17%，創近半年新低。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794733_1_20250307144215.jpg&q=90)
@@ -1689,34 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm)
-
----
-
-# 全國兩會｜王文濤：經濟全球化歷史潮流不可逆轉　有信心穩住外貿
-
-![商務部部長王文濤表示，經濟全球化歷史潮流不可逆轉，全球貿易合作不可阻擋，完全有信心、有底氣穩住外貿基本盤。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794606_1_20250306204806.jpg&q=90)
-  
-
-商務部部長王文濤表示，外部環境帶來的不利影響加深，單邊主義和保護主義加劇，個別國家揮舞「關稅大棒」，擾亂國際貿易秩序，衝擊全球產業鏈供應鏈穩定，中國外貿發展面臨嚴峻形勢。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm)
 
 ---

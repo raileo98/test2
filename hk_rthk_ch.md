@@ -1,3 +1,32 @@
+# 韓股低收約0.5%
+
+![首爾綜合指數收報2563點，跌12點，跌幅0.49%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794734_1_20250307144613.jpg&q=85)
+  
+
+南韓股市偏軟，首爾綜合指數收報2563點，跌12點，跌幅0.49%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm)
+
+---
+
 # 日股低收約2.2%　失守37000點
 
 ![日股失守37000點水平，日經指數收報36887點，跌幅2.17%，創近半年新低。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794733_1_20250307144215.jpg&q=90)
@@ -29,6 +58,7 @@
 
 # 黎智英案控辯雙方完成舉證　暫定7月28日結案陳詞
 
+![案件暫定於7月28日結案陳詞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794732_1_20250307150114.jpg&q=85)
   
 
 壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方完成舉證，案件暫定於7月28日結案陳詞。
