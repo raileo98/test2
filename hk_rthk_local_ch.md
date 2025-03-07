@@ -1,3 +1,32 @@
+# 海關於機場及元朗檢約670萬支私煙及57萬支另類吸煙產品
+
+![海關展示檢獲私煙。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794819_1_20250307232108.jpg&q=30)
+  
+
+海關過去兩星期於香港國際機場偵破多宗航空旅客走私香煙案件，並於昨日在元朗搗破一個懷疑私煙貯存倉庫，共檢獲約670萬支懷疑私煙及約57萬支懷疑另類吸煙產品，市值共約3300萬元，私煙應課稅值共約2200萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm)
+
+---
+
 # 房委會建議公屋入息及資產限額平均上調1.7%
 
 ![房委會建議2025/26年度公屋入息和資產限額均平均上調1.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794815_1_20250307224750.jpg&q=90)
@@ -1699,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm)
-
----
-
-# 全國兩會｜陳帆及陳曉峰提建議　促本港推動碳交易市場發展
-
-![陳帆（左）與陳曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=85)
-  
-
-在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm)
 
 ---

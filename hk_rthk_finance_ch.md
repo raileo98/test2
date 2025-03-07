@@ -1,3 +1,61 @@
+# 海關於機場及元朗檢約670萬支私煙及57萬支另類吸煙產品
+
+![海關展示檢獲私煙。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794819_1_20250307232108.jpg&q=30)
+  
+
+海關過去兩星期於香港國際機場偵破多宗航空旅客走私香煙案件，並於昨日在元朗搗破一個懷疑私煙貯存倉庫，共檢獲約670萬支懷疑私煙及約57萬支懷疑另類吸煙產品，市值共約3300萬元，私煙應課稅值共約2200萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm)
+
+---
+
+# 國泰君安吸收合併海通證券　料下周完成A、H股換股
+
+![國泰君安換股吸收合併海通證券，預計下星期四完成A股換股，下星期五完成H股換股。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794818_1_20250307225534.jpg&q=85)
+  
+
+國泰君安換股吸收合併海通證券，國泰君安發公告指，預計下星期四完成A股換股；下星期五註銷所有海通證券H股、完成H股換股、發行國泰君安H股。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm)
+
+---
+
 # 美股初段個別發展　道指跌逾百點　納指升0.2%
 
 ![美股初段個別發展，道瓊斯指數較早時報42472點，跌106點，跌幅0.25%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794816_1_20250307224154.jpg&q=80)
@@ -1662,59 +1720,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm)
-
----
-
-# 聯儲局理事沃勒：反對3月減息　但今年稍後時間仍可能減息
-
-![美國聯儲局理事沃勒表示，反對在本月政策會議上減息，但認為如果通脹壓力持續減弱，今年稍後時間減息仍有可能。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794659_1_20250307080208.jpg&q=75)
-  
-
-美國聯儲局理事沃勒表示，反對在本月政策會議上減息，但認為如果通脹壓力持續減弱，今年稍後時間減息仍有可能，會觀察2月通脹數據及關稅政策情況。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm)
-
----
-
-# 日股初段跌近2%
-
-![日經平均指數較早時報36980點，跌724點，跌幅1.92%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794660_1_20250307080417.jpg&q=85)
-  
-
-日本股市在開市初段跌近2%，日經平均指數較早時報36980點，跌724點，跌幅1.92%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm)
 
 ---
