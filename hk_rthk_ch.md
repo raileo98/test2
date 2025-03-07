@@ -1,3 +1,198 @@
+# 寒冷天氣警告生效　衞生防護中心提醒市民採取適當措施保障健康
+
+  
+
+衞生防護中心表示，由於天氣寒冷，市民特別是長者和長期病患者應採取適當措施，保障健康。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm)
+
+---
+
+# 歐盟特別峰會結束　同意「重新武裝歐洲」計劃
+
+![歐洲理事會主席科斯塔（右）與歐盟委員會主席馮德萊恩在會議結束後會見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794663_1_20250307081614.jpg&q=80)
+  
+
+歐盟在布魯塞爾召開特別峰會，同意歐盟委員會主席馮德萊恩提出的「重新武裝歐洲」計劃。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm)
+
+---
+
+# IMF：美國關稅政策將衝擊墨西哥及加拿大經濟
+
+![IMF表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794658_1_20250307074319.jpg&q=20)
+  
+
+國際貨幣基金組織(IMF)表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm)
+
+---
+
+# 聯儲局理事沃勒：反對3月減息　但今年稍後時間仍可能減息
+
+![美國聯儲局理事沃勒表示，反對在本月政策會議上減息，但認為如果通脹壓力持續減弱，今年稍後時間減息仍有可能。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794659_1_20250307080208.jpg&q=30)
+  
+
+美國聯儲局理事沃勒表示，反對在本月政策會議上減息，但認為如果通脹壓力持續減弱，今年稍後時間減息仍有可能，會觀察2月通脹數據及關稅政策情況。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm)
+
+---
+
+# 日股初段跌近2%
+
+![日經平均指數較早時報36980點，跌724點，跌幅1.92%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794660_1_20250307080417.jpg&q=75)
+  
+
+日本股市在開市初段跌近2%，日經平均指數較早時報36980點，跌724點，跌幅1.92%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm)
+
+---
+
+# 韓股初段跌約1%
+
+![首爾綜合指數較早時報2550點，跌25點，跌幅0.99%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794661_1_20250307080613.jpg&q=85)
+  
+
+南韓股市在開市初段跌約1%，首爾綜合指數較早時報2550點，跌25點，跌幅0.99%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm)
+
+---
+
+# 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
+
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_1_20250307080749.jpg&q=75)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_2_20250307080749.jpg&q=80)
+  
+
+在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
+
+---
+
 # 《環看天下》：特朗普向加墨實施關稅　分析指衝擊貿易一體化
 
 ![福特是其中一間獲一個月關稅豁免汽車製造商。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794657_1_20250307073641.jpg&q=80)
@@ -1531,208 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm)
-
----
-
-# 全國兩會｜鄭柵潔︰有信心實現今年經濟增長達5%左右目標
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794590_1_20250306181928.jpg&q=75)
-  
-
-在北京，國家發改委主任鄭柵潔說，政府工作報告提出，今年經濟增長5%左右的目標，是有基礎、有支撐、有保障，對實現目標充滿信心。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm)
-
----
-
-# 全國兩會｜丁薛祥：香港有背靠祖國聯通世界的獨特地位
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794591_1_20250306181859.jpg&q=60)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥，列席港澳全國政協委員聯組會議。丁薛祥發言時提及，香港有背靠祖國、聯通世界的獨特地位。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm)
-
----
-
-# 全國兩會｜黃坤明稱廣東要打頭陣推進科技產業創新融合發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794595_1_20250306195450.jpg&q=85)
-  
-
-廣東省全國人大代表團下午審議政府工作報告，廣東省委書記黃坤明被問到廣東未來的經濟發展方向，他表示，廣東有使命、有機遇、有基礎，亦有行動，廣東要打頭陣、當先鋒、下苦工，推進科技、產業創新融合發展，更好更長遠擔當起經濟大省責任，必定會緊緊抓住科技浪潮引領產業發展的重大機遇，爭取百尺竿頭再邁大步。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm)
-
----
-
-# 養和醫院稱有書面預算案給予病人　有醫生指醫療物料不一收費有別
-
-![養和醫院副院長陳煥堂說，數年前開始規定醫生接收病人入院時，要有書面預算案給予病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794594_1_20250306224419.jpg&q=45)
-  
-
-私營醫療機構條例要求私家醫院提供價目資料、收費預算同過往收費統計數據。消委會研究發現，不少私營醫療機構的價目資料難明同不足，收費統計數據亦沒有即時更新，不同醫院的收費差距大，部分私家醫院或日間醫療中心收費表，一般不會列出醫生費及定價標準。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794594-20250306.htm)
-
----
-
-# 全國兩會｜有政協委員引述丁薛祥以「鑽石」形容香港
-
-![丁薛祥參加港澳地區全國政協委員聯組會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794593_1_20250306193855.jpg&q=90)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
-
----
-
-# 消委會：近半涉私院及醫療中心投訴與收費有關　建議網上公布價目
-
-![消委會硏究發現，不少私營醫療機構價目資料難明及不足；病人之間收費差距甚大。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794592_1_20250306193807.jpg&q=1)
-  
-
-消委會過去4年接獲近200宗涉及私家醫院及日間醫療中心的投訴，其中有近半數與收費爭議有關。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm)
-
----
-
-# 民政事務總署已在各區開放共十八間臨時避寒中心
-
-![臨時避寒中心將於寒冷天氣警告持續生效期間繼續開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794589_1_20250306180303.jpg&q=85)
-  
-
-民政事務總署已在各區開放共十八間臨時避寒中心，供有需要的市民避寒，中心會於寒冷天氣警告持續生效期間繼續開放。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm)
 
 ---

@@ -1,3 +1,33 @@
+# 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
+
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_1_20250307080749.jpg&q=75)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_2_20250307080749.jpg&q=80)
+  
+
+在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
+
+---
+
 # 全國兩會｜中央軍委委員劉振立稱要深入貫徹習近平強軍思想
 
 ![中央軍委委員劉振立稱要深入貫徹習近平強軍思想。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794631_1_20250306225652.jpg&q=85)
@@ -888,35 +918,6 @@
 
 ---
 
-# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
-  
-
-主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
-
----
-
 # 全國兩會｜丁薛祥出席港澳全國政協委員聯組會議　回應發言委員
 
 ![丁薛祥出席港澳地區全國政協委員聯組會議。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794520_1_20250306125753.jpg&q=85)
@@ -943,6 +944,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794520-20250306.htm)
+
+---
+
+# 全國兩會｜澳區政協引述丁薛祥　冀傳達國家大政方針助提振信心
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794519_2_20250306125720.jpg&q=40)
+  
+
+主管港澳事務的中共中央政治局常委、國務院常務副總理丁薛祥，早上出席在全國政協禮堂舉行的港澳地區全國政協委員聯組會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794519-20250306.htm)
 
 ---
 
@@ -1693,34 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm)
-
----
-
-# 全國兩會｜何猷龍稱澳門開放多年現多演唱會表演　已不僅屬賭城
-
-![何猶龍認為，澳門開放多年後，已經不只是一個「賭城」，還有演唱會、表演和會展。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794391_1_20250305161534.jpg&q=75)
-  
-
-全國政協委員、新濠博亞娛樂主席兼行政總裁何猷龍接受本台訪問表示，目前澳門經濟按照特區政府「1+4」經濟適度多元發展策略推進，「1」仍然是旅遊博彩業，其實博彩公司都希望在非博彩多元化方面努力。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794391-20250305.htm)
 
 ---

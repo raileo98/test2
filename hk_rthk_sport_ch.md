@@ -1,3 +1,33 @@
+# 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
+
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_1_20250307080749.jpg&q=75)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_2_20250307080749.jpg&q=80)
+  
+
+在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
+
+---
+
 # 歐霸盃16強首回合熱刺不敵阿爾克馬爾　曼聯被皇蘇逼和
 
 ![熱刺首回合輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_1_20250307070916.jpg&q=80)
@@ -1714,34 +1744,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793543-20250227.htm)
-
----
-
-# 啟德體育園開幕當日城巴5條特別路線前往九龍將軍澳屯門及港島
-
-![城巴表示，當日將開辦5條特別路線，直達港九新界，為市民及旅客提供交通選項。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793485_1_20250227153829.jpg&q=85)
-  
-
-啟德體育園本周六晚上舉行開幕典禮，城巴表示，當日將開辦5條特別路線，直達港九新界，為市民及旅客提供交通選項。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm](https://news.rthk.hk/rthk/ch/component/k2/1793485-20250227.htm)
 
 ---

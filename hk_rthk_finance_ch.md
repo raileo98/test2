@@ -1,3 +1,111 @@
+# IMF：美國關稅政策將衝擊墨西哥及加拿大經濟
+
+![IMF表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794658_1_20250307074319.jpg&q=20)
+  
+
+國際貨幣基金組織(IMF)表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm)
+
+---
+
+# 聯儲局理事沃勒：反對3月減息　但今年稍後時間仍可能減息
+
+![美國聯儲局理事沃勒表示，反對在本月政策會議上減息，但認為如果通脹壓力持續減弱，今年稍後時間減息仍有可能。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794659_1_20250307080208.jpg&q=30)
+  
+
+美國聯儲局理事沃勒表示，反對在本月政策會議上減息，但認為如果通脹壓力持續減弱，今年稍後時間減息仍有可能，會觀察2月通脹數據及關稅政策情況。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794659-20250307.htm)
+
+---
+
+# 日股初段跌近2%
+
+![日經平均指數較早時報36980點，跌724點，跌幅1.92%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794660_1_20250307080417.jpg&q=75)
+  
+
+日本股市在開市初段跌近2%，日經平均指數較早時報36980點，跌724點，跌幅1.92%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794660-20250307.htm)
+
+---
+
+# 韓股初段跌約1%
+
+![首爾綜合指數較早時報2550點，跌25點，跌幅0.99%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794661_1_20250307080613.jpg&q=85)
+  
+
+南韓股市在開市初段跌約1%，首爾綜合指數較早時報2550點，跌25點，跌幅0.99%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794661-20250307.htm)
+
+---
+
 # 金沙中國：戈德斯坦將於明年3月辭任主席等職務
 
 ![金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席等職務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794656_1_20250307071626.jpg&q=90)
@@ -1604,121 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm)
-
----
-
-# 政府提醒市民勿誤信聲稱行政長官公布發行香港代幣的假信息
-
-![政府發言人提醒市民，切勿誤信網上假冒行政長官公布在區塊鏈上發行香港代幣（launch of the National Hong Kong Coin）的信息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794534_1_20250306135648.jpg&q=85)
-  
-
-政府發言人提醒市民，切勿誤信網上假冒行政長官公布在區塊鏈上發行香港代幣（launch of the National Hong Kong Coin）的信息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm)
-
----
-
-# 海港企業去年度虧損收窄　基礎盈利8300萬元扭虧
-
-![海港企業去年度虧損收窄至7000萬元，基礎淨盈利8300萬元。圖為旗下美利酒店。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794532_1_20250306131020.jpg&q=20)
-  
-
-海港企業去年度虧損收窄至7000萬元，前年度則錄得近1.1億元虧損。派發中期息每股5仙，以代替派發末期息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794532-20250306.htm)
-
----
-
-# 港股下午初段升逾600點
-
-![恒生指數較早時報24274點，升679點，升幅2.88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794533_1_20250306131322.jpg&q=25)
-  
-
-港股下午開市初段延續升勢，恒生指數較早時報24274點，升679點，升幅2.88%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm)
-
----
-
-# 市建局旺角項目截收意向書　分析料項目發展促進服務或降流標風險
-
-![萊坊估計，市建局山東街/地士道街發展項目估值介乎6.5億至8億元，相信「項目發展促進服務」有助降低流標風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794526_1_20250306124632.jpg&q=85)
-  
-
-市建局九龍山東街/地士道街發展項目中午截收合作發展意向書。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm)
 
 ---

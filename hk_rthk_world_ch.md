@@ -1,3 +1,61 @@
+# 歐盟特別峰會結束　同意「重新武裝歐洲」計劃
+
+![歐洲理事會主席科斯塔（右）與歐盟委員會主席馮德萊恩在會議結束後會見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794663_1_20250307081614.jpg&q=80)
+  
+
+歐盟在布魯塞爾召開特別峰會，同意歐盟委員會主席馮德萊恩提出的「重新武裝歐洲」計劃。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm)
+
+---
+
+# IMF：美國關稅政策將衝擊墨西哥及加拿大經濟
+
+![IMF表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794658_1_20250307074319.jpg&q=20)
+  
+
+國際貨幣基金組織(IMF)表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794658-20250307.htm)
+
+---
+
 # 《環看天下》：特朗普向加墨實施關稅　分析指衝擊貿易一體化
 
 ![福特是其中一間獲一個月關稅豁免汽車製造商。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794657_1_20250307073641.jpg&q=80)
@@ -1677,63 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794260-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794260-20250305.htm)
-
----
-
-# 歐盟批評美國對加拿大和墨西哥加徵關稅
-
-![歐盟委員會發言人呼籲美國重新考慮其做法，並努力尋求一個有利於各方合作、基於規則的解決方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794258_1_20250305052921.jpg&q=50)
-  
-
-歐盟批評美國對加拿大和墨西哥加徵關稅，並呼籲美方重新考慮其貿易政策。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794258-20250305.htm)
-
----
-
-# 阿盟峰會同意設立基金為加沙重建提供資金
-
-![阿拉伯國家聯盟峰會在埃及開羅舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794253_1_20250305050923.jpg&q=30)
-  
-
-阿拉伯國家領導人達成共識，將設立一個信託基金，為加沙地帶重建提供資金，並敦促國際社會捐款，以加快重建進程。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794253-20250305.htm)
 
 ---

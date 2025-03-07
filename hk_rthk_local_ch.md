@@ -1,3 +1,61 @@
+# 寒冷天氣警告生效　衞生防護中心提醒市民採取適當措施保障健康
+
+  
+
+衞生防護中心表示，由於天氣寒冷，市民特別是長者和長期病患者應採取適當措施，保障健康。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm)
+
+---
+
+# 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
+
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_1_20250307080749.jpg&q=75)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_2_20250307080749.jpg&q=80)
+  
+
+在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
+
+---
+
 # 寒冷天氣警告生效　本港今早氣溫普遍降至12度左右
 
 ![寒冷天氣警告生效　本港今早氣溫普遍降至12度左右](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794653_1_20250307062801.jpg&q=55)
@@ -1672,63 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794499-20250306.htm)
-
----
-
-# 全國兩會｜丁薛祥參加港澳地區全國政協委員聯組會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794489_1_20250306093915.jpg&q=90)
-  
-
-在北京，國務院副總理丁薛祥上午出席港澳地區全國政協委員聯組會議，聽取委員發言。全國政協副主席何厚鏵、梁振英、中央港澳辦、國務院港澳辦主任夏寶龍亦有列席會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794489-20250306.htm)
-
----
-
-# 全國兩會｜李家超：對政府工作報告很有啟發　貫徹落實兩會精神
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794486_1_20250306090115.jpg&q=65)
-  
-
-行政長官李家超表示，很榮幸列席昨日的全國人大會議開幕會，對於國務院總理李強的政府工作報告很有啟發。第一是在施政方面，要繼續全面準確、堅定不移貫徹「一國兩制」、「港人治港」、高度自治的方針，團結社會各界進一步全面深化改革，主動識變應變求變，全力發展經濟、改善民生。他說《施政報告》特別以「齊改革同發展　惠民生建未來」作為主題，推出超過600項政策措施，進一步全面深化改革，為經濟發展注入新動能，並著力改善民生，提升市民生活質量。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm)
 
 ---
