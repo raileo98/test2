@@ -1,5 +1,6 @@
 # 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
 
+![王毅說，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794695_1_20250307110551.jpg&q=85)
   
 
 在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
@@ -162,6 +163,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱習近平以全球視野引領中國外交守互創新
+
+![王毅說，「元首外交」將書寫中國與世界雙向奔赴、雙互成就的新篇章。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794686_1_20250307110445.jpg&q=90)
+  
+
+在北京，中共中央政治局委員、外長王毅召開中外記者會，他表示去年是國際格局深刻演變一年，中國外交取得良好進展，為變亂交織的世界帶來寶貴的穩定性。他說，今年國際形勢仍然充滿挑戰，但中國會繼續把握時代潮流，捍衛國際公平正義，維護世界和平穩定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm)
 
 ---
 
@@ -1699,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm)
-
----
-
-# 尼日利亞有公共汽車起火後爆炸　最少16名乘客死亡
-
-![尼日利亞有公共汽車起火後爆炸　最少16名乘客死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794281_1_20250305084255.jpg&q=90)
-  
-
-尼日利亞有公共汽車爆炸，最少16名乘客死亡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794281-20250305.htm)
 
 ---
