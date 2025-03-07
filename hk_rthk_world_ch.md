@@ -1,3 +1,31 @@
+# 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
+
+  
+
+中國今年出任上海合作組織輪任主席國，外長王毅宣布，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
+
+---
+
 # 全國兩會｜王毅稱中國堅定維護聯合國中心地位　無意另起爐灶
 
 ![王毅說，中方認為，矛盾越是複雜，越要突出聯合國的重要地位。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794700_1_20250307111345.jpg&q=55)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794325-20250305.htm)
-
----
-
-# 全國兩會｜李強稱深入推進練兵備戰　堅定捍衛國家主權
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794312_1_20250305103610.jpg&q=90)
-  
-
-國務院總理李強發表政府工作報告，指出要維護國家安全和社會穩定，全面貫徹總體國家安全觀，完善維護國家安全體制機制，推進國家安全體系和能力現代化，落實維護社會穩定責任制，加強公共安全治理，強化基層應急基礎和力量。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
 
 ---

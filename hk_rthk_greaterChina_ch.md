@@ -1,3 +1,31 @@
+# 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
+
+  
+
+中國今年出任上海合作組織輪任主席國，外長王毅宣布，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
+
+---
+
 # 內地1-2月美元計價出口按年增長2.3%仍遜預期
 
 ![中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%；進口按年下跌8.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794702_1_20250307112414.jpg&q=60)
@@ -1697,34 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm)
-
----
-
-# 國務院發文要求做好科技金融及綠色金融等範疇
-
-![國務院發文指，要做好科技金融、綠色金融、普惠金融、養老金融、數字金融，這五篇大文章。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794428_1_20250305185612.jpg&q=85)
-  
-
-國務院發文要求做好金融「五篇大文章」，做好科技金融、綠色金融、普惠金融、養老金融、數字金融。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm)
 
 ---
