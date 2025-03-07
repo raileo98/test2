@@ -1,6 +1,6 @@
 # Golden era for low-altitude economy: CPPCC delegates
 
-![CPPCC delegate Yang Yi told reporters in Beijing that a "sky city" was an achievable reality. Photo: Courtesy of Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
   
 
 China has ushered a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.

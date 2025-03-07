@@ -1,3 +1,115 @@
+# 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
+
+  
+
+在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
+
+---
+
+# 全國兩會｜周進強：全運會籌備工作順利　劉國梁：將帶來重大突破
+
+  
+
+在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
+
+---
+
+# 全國兩會｜孫青野：修改國安法由人大決定　陳弘毅：不涉輸打贏要
+
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。特區政府表示，會研究如何進一步完善香港特區維護國家安全的法律制度及執行機制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
+
+---
+
+# 全國兩會｜陳弘毅：法例隨時可修改　不涉輸打嬴要
+
+  
+
+支聯會拒交資料案，3名上訴人鄒幸彤、鄧岳君及徐漢光終極上訴得直。特區政府表示，會積極審視香港特區維護國家安全的執法經驗，研究如何進一步完善香港特區相關的法律制度及執行機制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm)
+
+---
+
 # 港股半日升135點
 
 ![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
@@ -1617,118 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794534-20250306.htm)
-
----
-
-# 港股下午初段升逾600點
-
-![恒生指數較早時報24274點，升679點，升幅2.88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794533_1_20250306131322.jpg&q=60)
-  
-
-港股下午開市初段延續升勢，恒生指數較早時報24274點，升679點，升幅2.88%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794533-20250306.htm)
-
----
-
-# 天文台稱正午市區氣溫約13度　料今晚及明早氣溫進一步下降
-
-![天文台預料今晚及明早氣溫會進一步下降，呼籲市民留意天氣變化，注意保暖。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794527_1_20250306125844.jpg&q=75)
-  
-
-天文台表示，一股東北季候風正影響華南沿岸，一道廣闊雲帶亦為該區帶來幾陣雨。正午時分，本港市區氣溫在13度左右，新界再低一兩度。預料今晚及明早氣溫會進一步下降，呼籲市民留意天氣變化，注意保暖，並關顧長者及慢性病患者。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794527-20250306.htm)
-
----
-
-# 市建局旺角項目截收意向書　分析料項目發展促進服務或降流標風險
-
-![萊坊估計，市建局山東街/地士道街發展項目估值介乎6.5億至8億元，相信「項目發展促進服務」有助降低流標風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794526_1_20250306124632.jpg&q=80)
-  
-
-市建局九龍山東街/地士道街發展項目中午截收合作發展意向書。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794526-20250306.htm)
-
----
-
-# 消委會發現不少私營醫療機構價目資料難明　建議網上公布價目表
-
-![消委會硏究發現，不少私營醫療機構價目資料難明及不足；病人之間收費差距甚大。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_1_20250306125218.jpg&q=10)
-![消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794525_2_20250306181706.jpg&q=90)
-  
-
-消委會過去4年接獲近200宗有關私家醫院及日間醫療中心的投訴，其中與收費爭議有關的佔近一半。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm)
 
 ---

@@ -1,5 +1,118 @@
+# 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
+
+  
+
+在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
+
+---
+
+# 全國兩會｜周進強：全運會籌備工作順利　劉國梁：將帶來重大突破
+
+  
+
+在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
+
+---
+
+# 全國兩會｜孫青野：修改國安法由人大決定　陳弘毅：不涉輸打贏要
+
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。特區政府表示，會研究如何進一步完善香港特區維護國家安全的法律制度及執行機制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
+
+---
+
+# 全國兩會｜陳弘毅：法例隨時可修改　不涉輸打嬴要
+
+  
+
+支聯會拒交資料案，3名上訴人鄒幸彤、鄧岳君及徐漢光終極上訴得直。特區政府表示，會積極審視香港特區維護國家安全的執法經驗，研究如何進一步完善香港特區相關的法律制度及執行機制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm)
+
+---
+
 # 全國兩會｜回應中歐關係　王毅稱中國對歐洲有信心可成信任夥伴
 
+![王毅指，50年後的今天，中歐經濟總量超過世界三分之一，中歐合作更具戰略意義和世界影響。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794712_1_20250307123400.jpg&q=10)
   
 
 在北京，外長王毅回應中歐面臨長期緊張的經貿關係，如何看待中歐關係發展時表示，今年是中歐建交50周年，50年來，中歐合作獲得長足發展，貿易額從當年的24億美元增長到7800億美元，投資額從幾乎為零增長到近2600億美元。中歐班列累計開行突破10萬列，成為聯接亞歐的黃金通道。
@@ -28,6 +141,7 @@
 
 # 全國兩會｜中國經濟增長5%　王毅稱展現迎難而上奮發有為特徵
 
+![王毅說，中國的信心，來源於超大市場和國內需求，來源於強大產業和創新動能，更來源於制度優勢和改革開放。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794709_1_20250307123330.jpg&q=35)
   
 
 在北京，外長王毅表示，去年中國經濟實現了5%的增長，在主要大國中仍然一枝獨秀，這一成績是在大力推進綠色轉型中取得，是在全球增長低迷背景下實現，更是在克服美國等單邊制裁打壓下拼來，展現出中國經濟迎難而上、奮發有為的鮮明特徵。
@@ -56,6 +170,7 @@
 
 # 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
 
+![王毅說，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。（新華社）07](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794706_1_20250307123443.jpg&q=90)
   
 
 中國今年出任上海合作組織輪任主席國，外長王毅宣布，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。
@@ -142,6 +257,7 @@
 
 # 全國兩會｜李書福：應支持民營製造業企業加快數字化、綠色化轉型
 
+![李書福認為，要支持企業數字化轉型，鞏固產業升級好勢頭。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794699_1_20250307123521.jpg&q=90)
   
 
 全國政協委員、吉利控股集團董事長李書福表示，在新舊動能轉換過程中，應支持民營製造業企業加快數字化、綠色化轉型，為推動傳統產業高質量發展發揮關鍵作用。
@@ -315,7 +431,7 @@
 
 # 全國兩會｜王毅稱中國反對強權霸權　大國不能唯利是圖恃強凌弱
 
-![王毅表示，大國應當承擔國際義務，履行好大國擔當，不能唯利是圖，更不能恃強凌弱。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794689_1_20250307103633.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794689_1_20250307103633.jpg&q=90)
   
 
 在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威迫利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
@@ -1607,121 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794486-20250306.htm)
-
----
-
-# 全國兩會｜鄭雁雄籲港區人大「犯其至難而圖其至遠」意志擔當責任
-
-![鄭雁雄說，香港實現高品質發展的動能，需用好內聯外通的優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794448_1_20250305221151.jpg&q=80)
-  
-
-在北京，全國人大香港代表團下午舉行全體會議，審議政府工作報告。中聯辦主任鄭雁雄形容報告求真務實、凝心聚力，分析形勢科學精準，部署工作務實具體，亦回應人民的熱切期盼，對此倍感振奮、備受鼓舞。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794448-20250305.htm)
-
----
-
-# 清遠佛山旅行團四人感染退伍軍人病　衞生防護中心列為輸入個案
-
-![衞生防護中心呼籲曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794447_1_20250305220536.jpg&q=90)
-  
-
-一個清遠佛山旅行團出現退伍軍人病群組，涉及四名團友，衞生防護中心呼籲，曾於上月20日至28日參與「領華旅遊社」舉辦「清遠佛山旅行團」的人士聯絡中心，以便接受健康評估和醫學監察。中心亦已知會旅遊業監管局，並將個案通報廣東省衞生當局，流行病學調查仍在進行中。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794447-20250305.htm)
-
----
-
-# 全國兩會｜張又俠何衛東參加解放軍和武警代表團審議政府工作報告
-
-![張又俠及何衛東分別參加解放軍和武警部隊代表團分組審議政府工作報告。（網絡截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794446_1_20250305215018.jpg&q=85)
-  
-
-在北京，解放軍和武警部隊代表團分組審議政府工作報告，中央政治局委員、中央軍委副主席張又俠及何衛東分別參加小組審議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794446-20250305.htm)
-
----
-
-# 全國兩會｜李家超稱繼續凝聚力量帶領社會各界改革創新識變求變
-
-![夏寶龍（右）會見李家超（左），李家超說，會加快發展國際創新科技中心建設。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794444_1_20250305214532.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
 
 ---

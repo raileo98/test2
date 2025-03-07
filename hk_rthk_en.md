@@ -1,3 +1,32 @@
+# Pope releases audio message thanking the faithful
+
+![The Catholic faithful attend a prayer service as Pope Francis continues treatment for pneumonia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794716_1_20250307123125.jpg&q=90)
+  
+
+A weak and breathless Pope Francis thanked people for their prayers for his recovery in a remarkable audio message broadcast on Thursday, the first public sign of life from the 88-year-old pope since he was hospitalized three weeks ago with double pneumonia.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm)
+
+---
+
 # Smart traffic control system to be tested in Kwun Tong
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794704_1_20250307113507.jpg&q=85)
@@ -29,7 +58,7 @@ Police on Friday said they hope traffic congestion in Kwun Tong would be eased f
 
 # Golden era for low-altitude economy: CPPCC delegates
 
-![CPPCC delegate Yang Yi told reporters in Beijing that a "sky city" was an achievable reality. Photo: Courtesy of Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
   
 
 China has ushered a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
@@ -1710,34 +1739,5 @@ Wet weather looked poised to offer relief Wednesday as Japan battled its worst w
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm)
-
----
-
-# Snooker fans won't be kicked out again: minister
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=85)
-  
-
-Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
 
 ---

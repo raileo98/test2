@@ -1,3 +1,32 @@
+# Pope releases audio message thanking the faithful
+
+![The Catholic faithful attend a prayer service as Pope Francis continues treatment for pneumonia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794716_1_20250307123125.jpg&q=90)
+  
+
+A weak and breathless Pope Francis thanked people for their prayers for his recovery in a remarkable audio message broadcast on Thursday, the first public sign of life from the 88-year-old pope since he was hospitalized three weeks ago with double pneumonia.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm)
+
+---
+
 # China will 'firmly counter' US amid trade row: Wang Yi
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794703_1_20250307113148.jpg&q=90)
@@ -1711,34 +1740,5 @@ US President Donald Trump and British Prime Minister Keir Starmer met at the Whi
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm)
-
----
-
-# China faces additional levy, says Trump
-
-![Donald Trump says he will double the 10 percent tariff charged on imports from China from March 4. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793557_1_20250227225651.jpg&q=85)
-  
-
-US President Donald Trump said on Thursday he would impose an added 10 percent tariff on Chinese imports while moving ahead with levies on Canada and Mexico next week, citing "unacceptable" fentanyl smuggling.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793557-20250227.htm)
 
 ---

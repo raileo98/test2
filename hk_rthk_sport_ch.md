@@ -1,3 +1,31 @@
+# 全國兩會｜周進強：全運會籌備工作順利　劉國梁：將帶來重大突破
+
+  
+
+在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
+
+---
+
 # 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
 
 ![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
@@ -1716,34 +1744,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793583-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793583-20250228.htm)
-
----
-
-# 英超韋斯咸2:0挫李斯特城
-
-![英超韋斯咸2:0擊敗在降班區的李斯特城。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793581_1_20250228071111.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，在降班區的李斯特城搶分失敗，0:2不敵韋斯咸。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793581-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793581-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793581-20250228.htm)
 
 ---
