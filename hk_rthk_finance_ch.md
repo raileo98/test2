@@ -1,5 +1,34 @@
+# 全國兩會｜鄭新聰籲講好澳門特色一國兩制成功實踐故事
+
+  
+
+在北京，全國人大代表、澳門中聯辦主任鄭新聰表示，國家主席習近平去年12月到澳門視察，為澳門未來發展指明方向，激勵澳門各界打開發展新天地，不斷創造鬥志，希望媒體繼續講好一國兩制成功實踐的澳門故事，廣泛傳播正能量。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm)
+
+---
+
 # 港鐵稱考慮業績市場及經濟環境與員工貢獻而調整薪酬
 
+![港鐵表示，一直有聆聽員工代表、工會及員工就薪酬調整幅度的意見及訴求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794812_1_20250307223155.jpg&q=45)
   
 
 港鐵公司表示，按照既定及行之有效的薪酬檢討機制，在審慎考慮業績、市場及經濟環境、員工貢獻等多方面因素後，大部分的非經理級員工獲 1.8%-4.3%的基本薪酬加幅，為確保公司整體薪酬福利持續具市場競爭力，吸引及保留人才，公司亦會按業務表現等考慮發放獎金等。
@@ -57,6 +86,7 @@
 
 # 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
 
+![陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794809_1_20250307223122.jpg&q=85)
   
 
 全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
@@ -545,8 +575,8 @@
 
 # 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
 
-![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
 ![楊華勇認為，浙江民營經濟發達，杭州有政府支持，亦有民間資本，均有利發展。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_2_20250307202819.jpg&q=85)
+![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
   
 
 杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
@@ -1682,34 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm)
-
----
-
-# 美私人企業月球登陸器降落月球　公司稱未能直立或影響任務完成
-
-![「雅典娜」月球登陸器上月底發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794651_1_20250307063009.jpg&q=90)
-  
-
-美國私人公司直覺機器的月球登陸器「雅典娜」登陸月球，公司認為，「雅典娜」未能處於直立狀態，可能會限制任務的完成。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm)
 
 ---

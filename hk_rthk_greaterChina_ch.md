@@ -1,5 +1,34 @@
+# 全國兩會｜鄭新聰籲講好澳門特色一國兩制成功實踐故事
+
+  
+
+在北京，全國人大代表、澳門中聯辦主任鄭新聰表示，國家主席習近平去年12月到澳門視察，為澳門未來發展指明方向，激勵澳門各界打開發展新天地，不斷創造鬥志，希望媒體繼續講好一國兩制成功實踐的澳門故事，廣泛傳播正能量。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm)
+
+---
+
 # 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
 
+![陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794809_1_20250307223122.jpg&q=85)
   
 
 全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
@@ -463,8 +492,8 @@
 
 # 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
 
-![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
 ![楊華勇認為，浙江民營經濟發達，杭州有政府支持，亦有民間資本，均有利發展。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_2_20250307202819.jpg&q=85)
+![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
   
 
 杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
@@ -1709,34 +1738,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm)
-
----
-
-# 全國兩會｜有政協委員引述丁薛祥以「鑽石」形容香港
-
-![丁薛祥參加港澳地區全國政協委員聯組會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794593_1_20250306193855.jpg&q=80)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
 
 ---
