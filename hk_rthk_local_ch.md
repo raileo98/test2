@@ -1,3 +1,31 @@
+# 21歲以下吸毒人數上升　禁常會籲針對太空油毒品加強禁毒宣傳
+
+  
+
+去年被呈報的整體吸毒人數較前年下降9%，有5068人，最常被吸食的三類毒品分別為海洛英、可卡因及「冰毒」。但21歲以下青少年吸毒人數則上升8%達到720人，當中226人吸食太空油毒品。在這個群組中，最常被吸食的毒品依次為大麻、可卡因及太空油毒品，太空油毒品自去年上半年起，已成為此群組第三位最常被吸食的毒品。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm)
+
+---
+
 # 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
 
   
@@ -1698,34 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794622-20250306.htm)
-
----
-
-# 全國兩會｜李慧琼支持國家積極財政政策　拉動消費刺激內需
-
-![李慧琼說，政府工作報告中的規劃及財政預算「全面、穩中有進」。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794620_3_20250307141502.jpg&q=60)
-  
-
-港區全國人大代表團繼續審議政府工作報告及相關報告。副團長陳勇說，各代表在會上積極建言獻策，提供過去一年累積整理的真知灼見。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm)
 
 ---
