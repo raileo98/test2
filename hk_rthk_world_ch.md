@@ -1,3 +1,32 @@
+# 日本岩手縣山火火勢減弱　當局解除部分地區疏散指示
+
+![大船渡市有房屋被山火燒毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794807_1_20250307214310.jpg&q=75)
+  
+
+日本岩手縣消防部門及自衛隊的大型直升機繼續撲救大船渡市的山火。由於降雨使火勢有所減弱，當局解除對不再有蔓延隱患的赤崎町6個地區、超過950名居民的疏散指示，是山火發生以來首次。至於對三陸町綾里全境等3600多名居民的疏散指示繼續有效。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm)
+
+---
+
 # 歐爾班：歐洲增自身防務開支又支持烏克蘭　此舉將毀掉歐洲
 
 ![歐爾班重申，匈牙利將繼續推動和平談判，而不是為戰爭提供資金。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794801_1_20250307211337.jpg&q=90)
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm)
-
----
-
-# 馬克龍強調拒絕簽訂脆弱俄烏停火協議
-
-![馬克龍表示，美國減少對烏克蘭支持，為歐洲未來的安全和繁榮增加更多不確定性。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794473_1_20250306062035.jpg&q=90)
-  
-
-法國總統馬克龍表示，歐洲的盟友美國已經改變在俄烏衝突的立場，減少對烏克蘭支持，為歐洲未來的安全和繁榮增加更多不確定性。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794473-20250306.htm)
 
 ---

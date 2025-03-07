@@ -658,7 +658,7 @@
 
 # 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
 
-![霍啟剛表示，本港在十五五規劃中可以在文化產業發展上作出更多貢獻，包括以國際金融中心優勢。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
   
 
 在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。

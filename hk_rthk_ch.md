@@ -1,3 +1,90 @@
+# 美國2月非農業新增職位15.1萬個遜預期　失業率升至4.1%
+
+![美國2月非農業新增職位15.1萬個，少過市場預期，失業率出乎意料升至4.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794806_1_20250307214245.jpg&q=75)
+  
+
+美國2月非農業新增職位15.1萬個，少過市場預期的16萬個，但多過1月向下修訂後的12.5萬個。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm)
+
+---
+
+# 日本岩手縣山火火勢減弱　當局解除部分地區疏散指示
+
+![大船渡市有房屋被山火燒毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794807_1_20250307214310.jpg&q=75)
+  
+
+日本岩手縣消防部門及自衛隊的大型直升機繼續撲救大船渡市的山火。由於降雨使火勢有所減弱，當局解除對不再有蔓延隱患的赤崎町6個地區、超過950名居民的疏散指示，是山火發生以來首次。至於對三陸町綾里全境等3600多名居民的疏散指示繼續有效。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm)
+
+---
+
+# 歐爾班：歐洲增自身防務開支又支持烏克蘭　此舉將毀掉歐洲
+
+![歐爾班重申，匈牙利將繼續推動和平談判，而不是為戰爭提供資金。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794801_1_20250307211337.jpg&q=90)
+  
+
+由於匈牙利反對，歐盟就軍事援助烏克蘭未能達成一致意見。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm)
+
+---
+
 # 恒大物業料去年盈利至少跌28%　但財務狀況持續改善
 
 ![恒大物業預料，去年盈利按年跌逾28%至逾37%，受稅收滯納金等非經營支出影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794805_1_20250307212617.jpg&q=90)
@@ -1122,7 +1209,7 @@
 
 # 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
 
-![霍啟剛表示，本港在十五五規劃中可以在文化產業發展上作出更多貢獻，包括以國際金融中心優勢。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
   
 
 在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。

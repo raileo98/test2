@@ -1,3 +1,32 @@
+# 美國2月非農業新增職位15.1萬個遜預期　失業率升至4.1%
+
+![美國2月非農業新增職位15.1萬個，少過市場預期，失業率出乎意料升至4.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794806_1_20250307214245.jpg&q=75)
+  
+
+美國2月非農業新增職位15.1萬個，少過市場預期的16萬個，但多過1月向下修訂後的12.5萬個。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm)
+
+---
+
 # 恒大物業料去年盈利至少跌28%　但財務狀況持續改善
 
 ![恒大物業預料，去年盈利按年跌逾28%至逾37%，受稅收滯納金等非經營支出影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794805_1_20250307212617.jpg&q=90)
@@ -344,7 +373,7 @@
 
 # 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
 
-![霍啟剛表示，本港在十五五規劃中可以在文化產業發展上作出更多貢獻，包括以國際金融中心優勢。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
   
 
 在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
@@ -1684,34 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm)
-
----
-
-# 國際油價收市靠穩
-
-![國際油價反覆靠穩，英美期油收市升近0.1%至0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794646_1_20250307051909.jpg&q=90)
-  
-
-國際油價反覆靠穩，受關稅不確定性，以及石油輸出國組織及其盟友(OPEC+)增產計劃影響。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm)
 
 ---
