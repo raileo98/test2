@@ -1,3 +1,32 @@
+# 'China's diplomacy gives stability to uncertain world'
+
+![President Xi Jinping meets European Council President Charles Michel and European Commission President Ursula von der Leyen in Beijing in 2023. Foreign Minister Wang Yi says Beijing is confident that Europe can be its trusted trading partner. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
+  
+
+Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
+
+---
+
 # Pope releases audio message thanking the faithful
 
 ![The Catholic faithful attend a prayer service as Pope Francis continues treatment for pneumonia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794716_1_20250307123125.jpg&q=90)
@@ -1711,34 +1740,5 @@ Argentina's state disability agency apologised on Thursday following a furore ov
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793586-20250228.htm)
-
----
-
-# Trump meets UK PM, says he trusts Putin
-
-![US President Trump (Right) said a peace deal between Ukraine and Russia will "either be soon or won't be at all". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793570_1_20250228043154.jpg&q=75)
-  
-
-US President Donald Trump and British Prime Minister Keir Starmer met at the White House on Thursday for their first in-person talks since the Republican leader upended US policy on Ukraine, the Middle East, and global trade.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793570-20250228.htm)
 
 ---

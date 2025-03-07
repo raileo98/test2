@@ -1,3 +1,32 @@
+# 'China's diplomacy gives stability to uncertain world'
+
+![President Xi Jinping meets European Council President Charles Michel and European Commission President Ursula von der Leyen in Beijing in 2023. Foreign Minister Wang Yi says Beijing is confident that Europe can be its trusted trading partner. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
+  
+
+Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
+
+---
+
 # Pope releases audio message thanking the faithful
 
 ![The Catholic faithful attend a prayer service as Pope Francis continues treatment for pneumonia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794716_1_20250307123125.jpg&q=90)
@@ -1710,34 +1739,5 @@ Labour and welfare minister Chris Sun on Wednesday said the government would hel
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794342-20250305.htm)
-
----
-
-# Rain offers hope in Japan's worst wildfire in 50 years
-
-![The wildfire broke out on February 26, and firefighting efforts including Japan Self-Defense Forces, have continued while thousands have evacuated their homes. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794373_1_20250305144046.jpg&q=90)
-  
-
-Wet weather looked poised to offer relief Wednesday as Japan battled its worst wildfire in half a century in a northern region hit by record-low rainfall.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm)
 
 ---

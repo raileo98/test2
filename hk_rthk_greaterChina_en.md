@@ -1,3 +1,32 @@
+# 'China's diplomacy gives stability to uncertain world'
+
+![President Xi Jinping meets European Council President Charles Michel and European Commission President Ursula von der Leyen in Beijing in 2023. Foreign Minister Wang Yi says Beijing is confident that Europe can be its trusted trading partner. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
+  
+
+Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
+
+---
+
 # Golden era for low-altitude economy: CPPCC delegates
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
@@ -1707,34 +1736,5 @@ Mainland lawmakers on Monday began deliberations on the draft private economy pr
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792989-20250224.htm)
-
----
-
-# Xi praises efforts to defuse Ukraine crisis
-
-![President Xi Jinping says China and Russia are good neighbours and true friends supporting each other. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792982_1_20250224190145.jpg&q=90)
-  
-
-President Xi Jinping on Monday held a phone conversation with his Russian counterpart Vladimir Putin on the third anniversary of the war in Ukraine and said China is happy to see efforts by Moscow and others to defuse the crisis.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm)
 
 ---

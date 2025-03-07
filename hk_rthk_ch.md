@@ -201,6 +201,7 @@
 
 # 34歲男子離開秀茂坪住所後失蹤　今日凌晨在旺角被尋回
 
+![該名男子今日凌晨在旺角通菜街被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794710_1_20250307125834.jpg&q=90)
   
 
 一名在秀茂坪失蹤男子已被尋回。
