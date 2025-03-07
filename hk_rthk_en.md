@@ -1,3 +1,32 @@
+# Six dead, hundreds evacuated in Argentina floods
+
+![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=80)
+  
+
+Six people died and hundreds were evacuated in the Argentine port city of Bahia Blanca on Friday as torrential rains flooded homes and hospitals, destroyed roads and forced authorities to cut the power.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm)
+
+---
+
 # US stocks end higher after Powell remarks
 
 ![The broad-based S&P 500 finished at 5,770, up 0.6 percent for the day but down 3.1 percent for the week. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794835_1_20250308054159.jpg&q=85)
@@ -1709,34 +1738,5 @@ Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the fir
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
-
----
-
-# NZ crush South Africa to reach Champions Trophy final
-
-![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=85)
-  
-
-Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50-run win over South Africa in Lahore to set up a rematch with India in the Champions Trophy final.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm)
 
 ---

@@ -1,3 +1,32 @@
+# Six dead, hundreds evacuated in Argentina floods
+
+![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=80)
+  
+
+Six people died and hundreds were evacuated in the Argentine port city of Bahia Blanca on Friday as torrential rains flooded homes and hospitals, destroyed roads and forced authorities to cut the power.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm)
+
+---
+
 # Trump threatens new Russia sanctions over Ukraine
 
 ![Last month, Trump spoke by telephone with Russian President Vladimir Putin about undoing sweeping sanctions imposed under former president Joe Biden. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794817_1_20250307225043.jpg&q=90)
@@ -1711,34 +1740,5 @@ Search teams in northern India on Saturday attempted to rescue 22 workers believ
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm)
-
----
-
-# Hackman likely dead for nine days before being found
-
-![Gene Hackman was a two-time Academy Award winner and credited for intense performances inspired by his troubled upbringing. (AFP)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793774_1_20250301120931.jpg&q=90)
-  
-
-Hollywood legend Gene Hackman had likely been dead for over a week when he and his wife were found lifeless in their New Mexico home, the local sheriff said on Friday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793774-20250301.htm)
 
 ---
