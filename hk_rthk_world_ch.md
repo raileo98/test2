@@ -1,3 +1,32 @@
+# 4船於也門及吉布提附近海域翻側最少兩死　多人失蹤
+
+![有關航道是全球最繁忙、風險最高的船民遷移路徑之一。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794826_1_20250308015036.jpg&q=65)
+  
+
+聯合國國際移民組織公布，4艘人蛇船隻在當地星期四晚間，在也門及吉布提附近海域翻側，最少2人死亡，超過180人失蹤。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm)
+
+---
+
 # 特朗普稱強烈考慮對俄實施制裁　籲俄烏返談判桌
 
 ![特朗普敦促俄羅斯及烏克蘭回到談判桌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794824_1_20250308013427.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm)
-
----
-
-# 歐盟召開特別峰會討論援烏及歐洲防衛問題
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794552_1_20250306184300.jpg&q=75)
-  
-
-歐盟多國領袖召開特別峰會，討論如何支援烏克蘭及歐洲防衛問題。歐盟內唯一擁有核武的國家法國，總統馬克龍在峰會前夕就說，會就法國向歐洲盟國提供「核保護傘」的問題展開戰略討論。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794552-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794552-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794552-20250306.htm)
 
 ---
