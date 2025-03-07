@@ -413,7 +413,7 @@ async def optimize_image_quality(imgUrl):
                     
                     break
                 
-                if content_length > 1000 * 50 or content_length > upstream_response_length:
+                if content_length > 1000 * 100 or content_length > upstream_response_length:
                     if q == 99:
                         q = 95
                     
@@ -423,8 +423,8 @@ async def optimize_image_quality(imgUrl):
                     if content_length > upstream_response_length:
                         has_matched_condition = True
                 
-                elif content_length <= 1000 * 50:
-                    logging.info(f'[INFO] 圖片大小小於 50 KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
+                elif content_length <= 1000 * 100:
+                    logging.info(f'[INFO] 圖片大小小於 100 KB - imageUrl: {imgUrl} - 當前質量參數 q: {q}')
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     
                     break
@@ -436,7 +436,7 @@ async def optimize_image_quality(imgUrl):
             
             break
 
-    if (upstream_response_length <= 1000 * 50 or (content_length_q99 is not None and content_length_q99 <= 1000 * 50)):
+    if (upstream_response_length <= 1000 * 100 or (content_length_q99 is not None and content_length_q99 <= 1000 * 100)):
         if q == 99:
             q = 90
         
@@ -445,7 +445,7 @@ async def optimize_image_quality(imgUrl):
         
         latest_imgUrl = modify_image_url(imgUrl, q)
         
-        print(f'圖像小於 50 KB，{imgUrl} --> {latest_imgUrl}')
+        print(f'圖像小於 100 KB，{imgUrl} --> {latest_imgUrl}')
     
     return latest_imgUrl
 
@@ -456,7 +456,7 @@ def modify_image_url(imageUrl, new_quality):
     new_query = urllib.parse.urlencode(query_params, doseq=True)
     new_url = urllib.parse.urlunparse(parsed_url._replace(query=new_query))
     new_url = new_url.replace('n=-1&h=720', 'n=-1&we&h=720')
-    new_url = new_url.replace('&amp;', '&')
+    new_url = new_url.replace('&amp;', '&') # temp solution
     
     return new_url
 
