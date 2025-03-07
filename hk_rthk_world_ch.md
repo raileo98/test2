@@ -1,3 +1,32 @@
+# 哈馬斯代表團抵達開羅討論推進停火協議第二階段談判
+
+![加沙地帶大量房屋在以軍行動中被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794846_1_20250308075132.jpg&q=65)
+  
+
+巴勒斯坦武裝組織哈馬斯代表團抵達開羅，參與討論推進加沙停火協議第二階段談判。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm)
+
+---
+
 # 《環看天下》：人工智能成本年度世界移動通信大會焦點
 
 ![人工智能落地應用成為本年度世界移動通信大會焦點。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794845_1_20250308073122.jpg&q=85)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm)
-
----
-
-# 回應標普報告政府稱物業投資信貸風險可控　不同意住宅供應過剩
-
-![特區政府發言人同意標準普爾就香港銀行有能力應對商業房地產所帶來的壓力的觀點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794615_1_20250306205636.jpg&q=35)
-  
-
-就標準普爾對於香港銀行及物業市場發表的報告，特區政府發言人說，不同意住宅物業供應過剩的觀點，去年底私人住宅單位的空置率為4.5%，與過去20年的長期平均數相同，租金亦持續穩健上升，數據反映目前住屋需求殷切。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
 
 ---

@@ -1,3 +1,32 @@
+# 哈馬斯代表團抵達開羅討論推進停火協議第二階段談判
+
+![加沙地帶大量房屋在以軍行動中被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794846_1_20250308075132.jpg&q=65)
+  
+
+巴勒斯坦武裝組織哈馬斯代表團抵達開羅，參與討論推進加沙停火協議第二階段談判。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm)
+
+---
+
 # 《環看天下》：人工智能成本年度世界移動通信大會焦點
 
 ![人工智能落地應用成為本年度世界移動通信大會焦點。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794845_1_20250308073122.jpg&q=85)
@@ -1707,34 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
-
----
-
-# 全國兩會｜馬逢國：丁薛祥特別強調二十三條立法圓滿完成
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794777_2_20250307183326.jpg&q=85)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
 
 ---
