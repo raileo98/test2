@@ -1,5 +1,91 @@
+# 緬甸獲救6港人其中1人暫留泰國以證人身分助查料明日才返港
+
+  
+
+保安局表示，在緬甸獲救的6名港人，其中1人會留在泰國當地，以證人身分協助泰國警方調查被誘騙至緬甸從事非法工作的案件。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm)
+
+---
+
+# 聯合醫院精神科女病房3病人染人類偏肺病毒　情況穩定
+
+  
+
+聯合醫院一個精神科女病房自上月25日起，先後有病人出現輕微呼吸道感染徵狀，其中3名病人對人類偏肺病毒呈陽性反應，正接受隔離治療，情況穩定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm)
+
+---
+
+# 21歲以下吸毒人數上升　禁常會籲針對太空油毒品加強禁毒宣傳
+
+![李國棟建議政府繼續全方位加強禁毒宣傳。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794799_1_20250307210439.jpg&q=55)
+  
+
+去年被呈報的整體吸毒人數較前年下降9%，有5068人，最常被吸食的三類毒品分別為海洛英、可卡因及「冰毒」。但21歲以下青少年吸毒人數則上升8%達到720人，當中226人吸食太空油毒品。在這個群組中，最常被吸食的毒品依次為大麻、可卡因及太空油毒品，太空油毒品自去年上半年起，已成為此群組第三位最常被吸食的毒品。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm)
+
+---
+
 # 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
 
+![機管局十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794798_1_20250307210418.jpg&q=80)
   
 
 一批建築工人懷疑因勞資糾紛早上在機場南交匯處附近聚集，現場交通一度受阻，機管局表示，十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜，確保相關工人獲應得報酬，機管局會繼續密切監察承建商的跟進工作。
@@ -28,6 +114,7 @@
 
 # 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
 
+![丁薛祥上午分別參加香港代表團、澳門代表團審議。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794797_1_20250307210355.jpg&q=80)
   
 
 中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。

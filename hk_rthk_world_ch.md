@@ -1,5 +1,34 @@
+# 緬甸獲救6港人其中1人暫留泰國以證人身分助查料明日才返港
+
+  
+
+保安局表示，在緬甸獲救的6名港人，其中1人會留在泰國當地，以證人身分協助泰國警方調查被誘騙至緬甸從事非法工作的案件。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm)
+
+---
+
 # 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
 
+![丁薛祥上午分別參加香港代表團、澳門代表團審議。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794797_1_20250307210355.jpg&q=80)
   
 
 中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794467-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794467-20250306.htm)
-
----
-
-# 美國白宮證實特朗普同意對墨加部分汽車推遲一個月徵收關稅
-
-![萊維特說，對等關稅措施仍將於4月2日生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794465_1_20250306061717.jpg&q=90)
-  
-
-美國白宮證實，總統特朗普將在對墨西哥和加拿大加徵的關稅中，給予部分汽車製造商一個月的豁免。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794465-20250306.htm)
 
 ---
