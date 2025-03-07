@@ -1,3 +1,32 @@
+# Golden era for low-altitude economy: CPPCC delegates
+
+![CPPCC delegate Yang Yi told reporters in Beijing that a "sky city" was an achievable reality. Photo: Courtesy of Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
+  
+
+China has ushered a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
+
+---
+
 # Hong Kong stocks open lower
 
 ![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=50)
@@ -1706,34 +1735,5 @@ Shares in Alibaba soared more than 14 percent on Friday, extending a blistering 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792653-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792653-20250221.htm)
-
----
-
-# Hong Kong stocks up 3 percent
-
-![Hong Kong stocks soared more than three percent on Friday afternoon. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792606_1_20250221132824.jpg&q=50)
-  
-
-Hong Kong stocks soared more than three percent on Friday afternoon, boosted by a rally in the tech sector as e-commerce titan Alibaba piled on more than 13 percent following a forecast-topping earnings report.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792606-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792606-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792606-20250221.htm)
 
 ---

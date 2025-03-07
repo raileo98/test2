@@ -1,3 +1,32 @@
+# Golden era for low-altitude economy: CPPCC delegates
+
+![CPPCC delegate Yang Yi told reporters in Beijing that a "sky city" was an achievable reality. Photo: Courtesy of Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
+  
+
+China has ushered a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
+
+---
+
 # China will 'firmly counter' US amid trade row: Wang Yi
 
 ![The foreign minister says the "law of the jungle" could take hold in the world. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794703_1_20250307113148.jpg&q=90)
@@ -1707,34 +1736,5 @@ President Xi Jinping on Monday held a phone conversation with his Russian counte
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792982-20250224.htm)
-
----
-
-# China jails four for life over telecom fraud
-
-![The Supreme People's Court in Beijing released documents over sentences of seven fraud cases in the country. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792932_1_20250224151412.jpg&q=90)
-  
-
-A mainland court has sentenced four people described as key figures in cross-boundary fraud cases to life in prison.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm)
 
 ---
