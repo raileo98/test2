@@ -1,3 +1,32 @@
+# Second measles-related death in US in a decade
+
+![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=35)
+  
+
+A New Mexico resident who has died, tested positive for measles, the state health department said on Thursday, marking the second measles-related death in the United States in more than a decade.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm)
+
+---
+
 # Hong Kong stocks open lower
 
 ![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=50)
@@ -1710,34 +1739,5 @@ Experts on Wednesday said China's economic goals announced at the opening sessio
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm)
-
----
-
-# Domestic demand 'main engine and anchor' of growth
-
-![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
-  
-
-Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in his government work report.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
 
 ---

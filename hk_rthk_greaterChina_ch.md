@@ -1,3 +1,82 @@
+# 全國兩會｜王毅稱習近平以全球視野引領中國外交守互創新
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm)
+
+---
+
+# 全國兩會｜孫青野：國安法持續完善是正確　是否須修改由人大決定
+
+  
+
+支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm)
+
+---
+
+# 全國兩會｜陳旭：中國走出符合國情也符合世界潮流的人權道路
+
+  
+
+在北京，全國政協委員、中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭，接受本台訪問時說，中國走出了一個符合中國國情，也符合世界潮流的人權道路，中國人權取得巨大成就。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm)
+
+---
+
 # 全國兩會｜有政協稱國家迎來低空經濟黃金機遇期　成增長新引擎
 
   
@@ -28,7 +107,7 @@
 
 # 全國兩會｜丁薛祥參加港區全國人大代表團審議
 
-![丁薛祥參加港區全國人大代表團審議（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
   
 
 
@@ -1634,92 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794407-20250305.htm)
-
----
-
-# 全國兩會｜岑浩輝稱澳門特區持續維護好國家主權安全及發展利益
-
-![岑浩輝列席十四屆全國人大三次會議開幕會議。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794406_1_20250305172503.jpg&q=80)
-  
-
-澳門行政長官岑浩輝說，特區政府將繼續堅定不移，全面準確落實「一國兩制」方針，鞏固和發展好具澳門特色「一國兩制」成功實踐所取得的成就。他又表示，國家安全是「一國兩制」的根本原則，澳門特區要持續維護好國家主權、安全及發展利益。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794406-20250305.htm)
-
----
-
-# 全國兩會｜滙豐：消費信心或正在好轉　高盛：觀望促消費具體措施
-
-![滙豐認為內地政府工作報告釋出強勁的國內政策支持信號以提振內需，又相信消費信心或正在好轉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794403_1_20250305170242.jpg&q=90)
-  
-
-滙豐報告認為，內地今年財政目標整體符合預期，財政政策起到主導作用，赤字佔國內生產總值（GDP）達到4%創新高，經濟增長目標維持5%左右展現信心，並釋出強勁國內政策支持信號以提振內需，又相信消費信心可能正在好轉。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794403-20250305.htm)
-
----
-
-# 全國兩會｜蒲淳：要加快統一大市場建設　加力擴大市場開放
-
-![蒲淳認為，未能建成統一大市場，就不能發揮社會主義制度優勢。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794402_1_20250305172607.jpg&q=90)
-  
-
-全國政協委員、國家市場監督管理總局原副局長蒲淳表示，要加快統一大市場建設，他指出最大障礙在於地方保護主義，認為未能建成統一大市場，就不能發揮社會主義制度優勢。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm)
 
 ---

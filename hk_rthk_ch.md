@@ -1,3 +1,138 @@
+# 全國兩會｜王毅稱習近平以全球視野引領中國外交守互創新
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm)
+
+---
+
+# 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
+
+  
+
+啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm)
+
+---
+
+# 全國兩會｜孫青野：國安法持續完善是正確　是否須修改由人大決定
+
+  
+
+支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm)
+
+---
+
+# 葵涌有女途人被巴士撞倒　送院後不治
+
+  
+
+葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm)
+
+---
+
+# 全國兩會｜陳旭：中國走出符合國情也符合世界潮流的人權道路
+
+  
+
+在北京，全國政協委員、中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭，接受本台訪問時說，中國走出了一個符合中國國情，也符合世界潮流的人權道路，中國人權取得巨大成就。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm)
+
+---
+
 # 內地股市初段偏軟
 
 ![上證綜合指數較早時報3371點，跌9點，跌幅0.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794680_1_20250307093425.jpg&q=90)
@@ -169,7 +304,7 @@
 
 # 全國兩會｜丁薛祥參加港區全國人大代表團審議
 
-![丁薛祥參加港區全國人大代表團審議（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
   
 
 
@@ -1572,150 +1707,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794615-20250306.htm)
-
----
-
-# 全國兩會｜習近平向全國各族各界婦女致以節日祝福
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306215244.jpg&q=80)
-  
-
-中共總書記、國家主席、中央軍委主席習近平下午看望參加全國政協十四屆三次會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm)
-
----
-
-# 全國兩會｜浙江省創新環境吸引青年　民企稱省內條件有利發展
-
-![全國人大浙江代表團舉行全體會議，開放予傳媒採訪。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794614_1_20250306202320.jpg&q=85)
-  
-
-全國人大浙江代表團下午舉行全體會議，開放予傳媒採訪。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
-
----
-
-# 歐委會主席稱歐洲須有能力保衛自己　澤連斯基指烏克蘭並不孤單
-
-![馮德萊恩（右）與科斯塔（左）在會前陪同澤連斯基見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794611_1_20250306201203.jpg&q=90)
-  
-
-歐盟領導人在布魯塞爾召開緊急峰會，商討烏克蘭危機和加強歐洲自主防衛，烏克蘭總統澤連斯基應邀出席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794611-20250306.htm)
-
----
-
-# 澤連斯基：和平不能意味烏克蘭投降或崩潰
-
-![澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794610_1_20250306195842.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基抵達布魯塞爾，出席歐盟領導人在當地舉行的緊急峰會，議題包括烏克蘭危機及加強歐洲防禦。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm)
-
----
-
-# 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
-
-![財政部部長藍佛安表示，將加快落實落細債務置換政策，指導地方盡早發行使用今年2萬億元人民幣置換債券額度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794609_1_20250306204715.jpg&q=90)
-  
-
-人大常委會去年第4季批准增加6萬億元人民幣地方政府債務限額置換存量隱性債務。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm)
 
 ---

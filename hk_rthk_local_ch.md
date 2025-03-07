@@ -1,3 +1,87 @@
+# 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
+
+  
+
+啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm)
+
+---
+
+# 全國兩會｜孫青野：國安法持續完善是正確　是否須修改由人大決定
+
+  
+
+支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm)
+
+---
+
+# 葵涌有女途人被巴士撞倒　送院後不治
+
+  
+
+葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm)
+
+---
+
 # 孫東訪葡萄牙考察當地最大科技園　拜會中國駐葡萄牙特命全權大使
 
 ![孫東在葡萄牙與奧艾拉什市投資促進局代表會面，並與當地的企業交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794677_1_20250307093736.jpg&q=80)
@@ -29,7 +113,7 @@
 
 # 全國兩會｜丁薛祥參加港區全國人大代表團審議
 
-![丁薛祥參加港區全國人大代表團審議（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
   
 
 
@@ -1638,93 +1722,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794518-20250306.htm)
-
----
-
-# 積金易平台第二階段上線　僱主帳戶資料逾1萬個　僱員40多萬
-
-![鄭恩賜表示，積金易平台去年6月底起推出至今8個月，運作大致暢順。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794507_1_20250306105847.jpg&q=85)
-  
-
-積金易平台昨日展開第二階段上線工作。積金局行政總監及執行董事鄭恩賜表示，第二階段首個計劃上台後，總資產值佔比升至3%，平台僱主帳戶資料經已有1.1萬個，涉及僱員數目40多萬個。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794507-20250306.htm)
-
----
-
-# 譚得志煽動案上訴被終審法院駁回
-
-![判詞指《刑事罪行條例》第10條下的罪行並非普通法罪行，控方毋須證明煽惑暴力意圖作為罪行元素。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794508_1_20250306111508.jpg&q=75)
-  
-
-人民力量前副主席譚得志「快必」於2020年多次在街站叫喊「光時」等口號，經審訊後被裁定7項發表煽動文字等共11罪成，判監40個月及罰款5000元。譚得志上訴至終審法院，5名終院法官頒下判詞，一致駁回上訴。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794508-20250306.htm)
-
----
-
-# 孫東在巴塞羅那出席世界移動通信大會並考察當地超算中心
-
-![孫東在全球移動通信系統協會（GSMA）部長級會議「2025+- A Tech Odyssey」環節中發表主旨演講。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_1_20250306105940.jpg&q=85)
-![孫東（右三）和代表團一行考察巴塞羅那超算中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794505_2_20250306105940.jpg&q=80)
-  
-
-創新科技及工業局局長孫東率領創新科技業界代表團繼續在西班牙巴塞羅那的訪問行程，並出席世界移動通信大會2025。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm)
 
 ---

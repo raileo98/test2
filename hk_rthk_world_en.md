@@ -1,3 +1,32 @@
+# Second measles-related death in US in a decade
+
+![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=35)
+  
+
+A New Mexico resident who has died, tested positive for measles, the state health department said on Thursday, marking the second measles-related death in the United States in more than a decade.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm)
+
+---
+
 # French shipping giant pledges to boost US shipbuilding
 
 ![President Trump listens as Rodolphe Saade, CEO of CMA CGM Group, speaks in the Oval Office. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794675_1_20250307092145.jpg&q=75)
@@ -1711,34 +1740,5 @@ The European Union on Thursday pushed back against allegations by US President D
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793547-20250227.htm)
-
----
-
-# Oscar-winning actor Gene Hackman, wife found dead
-
-![Oscar-winning US actor Gene Hackman and his wife Betsy Arakawa were found dead inside their home in New Mexico. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793513_1_20250227175330.jpg&q=90)
-  
-
-Oscar-winning actor Gene Hackman, his wife and their dog were found dead in their New Mexico home on Wednesday, authorities said.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793513-20250227.htm)
 
 ---
