@@ -1,3 +1,31 @@
+# 被騙到緬甸後獲救港人部分回港　由警方車輛接載到機場警署
+
+  
+
+再多6名被誘騙到緬甸的香港人獲救。除了一人留在泰國，其餘返抵本港。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm)
+
+---
+
 # 海關於機場及元朗檢約670萬支私煙及57萬支另類吸煙產品
 
 ![海關展示檢獲私煙。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794819_1_20250307232108.jpg&q=30)
@@ -1699,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm)
-
----
-
-# 全國兩會｜丁薛祥參加港區全國人大代表團審議
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm)
 
 ---
