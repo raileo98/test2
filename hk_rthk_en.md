@@ -1,3 +1,32 @@
+# US stocks end higher after Powell remarks
+
+![The broad-based S&P 500 finished at 5,770, up 0.6 percent for the day but down 3.1 percent for the week. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794835_1_20250308054159.jpg&q=85)
+  
+
+Wall Street stocks finished higher on Friday after a roller-coaster session following mixed labor market data, concluding a losing week on a positive note.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm)
+
+---
+
 # Customs cracks down on illicit cigarette smuggling
 
 ![Over the past two weeks, Customs intercepted 20 illicit cigarette smuggling cases at the airport, arresting 13 men and eight women. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794825_1_20250308014937.jpg&q=65)
@@ -1709,34 +1738,5 @@ Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm)
-
----
-
-# US pauses intelligence sharing with Ukraine
-
-![The Central Intelligence Agency director John Ratcliffe describes the pause as temporary. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794449_1_20250305221949.jpg&q=90)
-  
-
-The United States has "paused" intelligence sharing with Ukraine after a dramatic breakdown in relations between Kyiv and the White House, CIA director John Ratcliffe said on Wednesday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm)
 
 ---

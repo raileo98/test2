@@ -1,3 +1,32 @@
+# US stocks end higher after Powell remarks
+
+![The broad-based S&P 500 finished at 5,770, up 0.6 percent for the day but down 3.1 percent for the week. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794835_1_20250308054159.jpg&q=85)
+  
+
+Wall Street stocks finished higher on Friday after a roller-coaster session following mixed labor market data, concluding a losing week on a positive note.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm)
+
+---
+
 # Hong Kong stocks finish week in the red
 
 ![The Hang Seng Index closes 0.57 percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794768_1_20250307172828.jpg&q=90)
@@ -1706,34 +1735,5 @@ Hong Kong's Hang Seng Index fell 5.78 points, or 0.02 percent, to open at 23,472
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792891-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792891-20250224.htm)
-
----
-
-# Fiscal consolidation to bring HK out of the 'blue': FS
-
-![Financial Secretary Paul Chan says the aqua-coloured cover of the budget represents the unlimited opportunities presented in future developments. Photo courtesy of the Financial Secretary's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792823_1_20250223124333.jpg&q=90)
-  
-
-Financial Secretary Paul Chan has said Wednesday's budget will detail the government's fiscal consolidation strategies, while revealing the colour of choice for his upcoming blueprint.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792823-20250223.htm)
 
 ---

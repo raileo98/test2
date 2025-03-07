@@ -1,3 +1,31 @@
+# 圖斯克計劃軍訓所有波蘭成年男子　形容是軍事儲備應對潛在威脅
+
+  
+
+波蘭總理圖斯克在國會發表演說時表示，計劃安排當地所有成年男子接受軍事訓練，政府在未來幾個月內會提供全部細節。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm)
+
+---
+
 # 特朗普稱須知道烏克蘭冀解決問題　與烏交涉難於與俄交涉
 
 ![特朗普說如果烏方不想和解，美方就會退出。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794831_1_20250308035652.jpg&q=90)
@@ -1706,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794610-20250306.htm)
-
----
-
-# 美國證實一架黑鷹直升機在洪都拉斯緊急降落
-
-![美國證實一架黑鷹直升機在洪都拉斯緊急降落](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794584_1_20250306175045.jpg&q=90)
-  
-
-美國駐洪都拉斯大使館表示，一架UH-60「黑鷹」直升機在洪都拉斯索托卡諾空軍基地附近緊急迫降，機上5名聯合特遣部隊機組人員安全。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794584-20250306.htm)
 
 ---
