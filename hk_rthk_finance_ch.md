@@ -1,3 +1,32 @@
+# 奈雪的茶料去年業績轉虧　料持續關閉或改造經營不善門店
+
+![奈雪的茶預計，將繼續關閉或改造經營不善的門店，因而計提資產減值準備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794766_1_20250307172217.jpg&q=80)
+  
+
+奈雪的茶發盈警，預計去年業績由盈轉虧，以非國際財務報告準則計，經調整虧損約8.8億至9.7億元人民幣，而前年經調整盈利約2090萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm)
+
+---
+
 # 本港二手樓價按星期升0.32%　結束兩周跌勢
 
 ![中原城市領先指數最新報137.46，按星期升0.32%，結束兩星期跌勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794752_1_20250307163426.jpg&q=80)
@@ -1687,34 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794623-20250306.htm)
-
----
-
-# 歐洲央行減息0.25厘符合預期　下調今明兩年經濟增長預測
-
-![歐洲央行一如預期減息0.25厘，是今個減息周期第6次減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794621_1_20250306213845.jpg&q=80)
-  
-
-歐洲央行一如預期減息0.25厘，存款工具利率減至2.5厘，主要再融資利率減至2.65厘。央行連續5次會議減息，亦是今個減息周期第6次減息。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794621-20250306.htm)
 
 ---

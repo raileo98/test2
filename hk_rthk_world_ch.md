@@ -1,3 +1,32 @@
+# 教宗方濟各發表入院以來首段錄音　感謝信眾支持
+
+![在教宗方濟各入住的醫院外，不少信眾都寫下對他的祝福。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794764_1_20250307171822.jpg&q=70)
+  
+
+因肺炎留院3星期的教宗方濟各連續3天病情穩定，沒有再次出現呼吸危機。他發表入院以來首段錄音，感謝信眾支持。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm)
+
+---
+
 # 扎哈羅娃：任何挑起俄中關係不和企圖　俄中將堅決回擊
 
 ![扎哈羅娃強調，俄中將對挑起兩國關係不和的企圖予以堅決回擊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794755_1_20250307164513.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794458-20250306.htm)
-
----
-
-# 美國停向烏方分享情報　若安排好和談並建立信任特朗普或恢復軍援
-
-![沃爾茲說，如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794453_1_20250305223835.jpg&q=90)
-  
-
-白宮國家安全顧問沃爾茲確認，美國已暫停向烏克蘭分享情報，又說如果安排好和平談判，並採取建立信任的措施，總統特朗普會考慮恢復對烏克蘭的援助。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm)
 
 ---

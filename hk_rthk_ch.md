@@ -1,3 +1,117 @@
+# 奈雪的茶料去年業績轉虧　料持續關閉或改造經營不善門店
+
+![奈雪的茶預計，將繼續關閉或改造經營不善的門店，因而計提資產減值準備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794766_1_20250307172217.jpg&q=80)
+  
+
+奈雪的茶發盈警，預計去年業績由盈轉虧，以非國際財務報告準則計，經調整虧損約8.8億至9.7億元人民幣，而前年經調整盈利約2090萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm)
+
+---
+
+# 食安中心倡市民膳食中加入碘含量豐富食物包括藻類及海鮮等
+
+  
+
+食物安全中心就食物碘含量展開風險評估研究，發現碘含量最高食品是乾海帶，每100克達18萬微克，其次是乾紫菜、蟹乾小食及海苔小食。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm)
+
+---
+
+# 教宗方濟各發表入院以來首段錄音　感謝信眾支持
+
+![在教宗方濟各入住的醫院外，不少信眾都寫下對他的祝福。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794764_1_20250307171822.jpg&q=70)
+  
+
+因肺炎留院3星期的教宗方濟各連續3天病情穩定，沒有再次出現呼吸危機。他發表入院以來首段錄音，感謝信眾支持。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm)
+
+---
+
+# 新增一宗外地傳入登革熱感染　病人潛伏期內曾到印尼
+
+  
+
+衞生防護中心過去一星期錄得1宗外地傳入的登革熱感染個案。病人於潛伏期內曾到印尼。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm)
+
+---
+
 # 公立醫院前年10月至去年9月通報109宗風險警示事件
 
   
@@ -82,6 +196,7 @@
 
 # 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
 
+![霍啟剛表示，本港在十五五規劃中可以在文化產業發展上作出更多貢獻，包括以國際金融中心優勢。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
   
 
 在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
@@ -139,6 +254,7 @@
 
 # 鐵路總工會引述港鐵加薪1.8%至5.4%　平均加幅3.78%
 
+![港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794757_1_20250307172048.jpg&q=85)
   
 
 香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。

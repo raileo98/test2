@@ -1,3 +1,59 @@
+# 食安中心倡市民膳食中加入碘含量豐富食物包括藻類及海鮮等
+
+  
+
+食物安全中心就食物碘含量展開風險評估研究，發現碘含量最高食品是乾海帶，每100克達18萬微克，其次是乾紫菜、蟹乾小食及海苔小食。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm)
+
+---
+
+# 新增一宗外地傳入登革熱感染　病人潛伏期內曾到印尼
+
+  
+
+衞生防護中心過去一星期錄得1宗外地傳入的登革熱感染個案。病人於潛伏期內曾到印尼。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm)
+
+---
+
 # 公立醫院前年10月至去年9月通報109宗風險警示事件
 
   
@@ -53,6 +109,7 @@
 
 # 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
 
+![霍啟剛表示，本港在十五五規劃中可以在文化產業發展上作出更多貢獻，包括以國際金融中心優勢。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
   
 
 在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
@@ -81,6 +138,7 @@
 
 # 鐵路總工會引述港鐵加薪1.8%至5.4%　平均加幅3.78%
 
+![港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794757_1_20250307172048.jpg&q=85)
   
 
 香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。
@@ -1669,63 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm)
-
----
-
-# 港鐵未來一年招標東涌東站第二期、屯門第16區站第一期項目
-
-![港鐵預計未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794581_1_20250306173516.jpg&q=90)
-  
-
-港鐵去年物業發展利潤102.7億元，按年升3.9倍。當中，香港物業發展利潤增長逾4倍至121.85億元，內地虧損300萬元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794581-20250306.htm)
-
----
-
-# 青少年護齒計劃13至17歲每年檢查　衞生署向牙醫資助200元
-
-![計劃將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794577_1_20250306172202.jpg&q=75)
-  
-
-衞生署「青少年護齒共同治理先導計劃」將於本月20日起推行，資助13至17歲合資格的青少年每年接受一次私營牙科檢查服務。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794577-20250306.htm)
 
 ---
