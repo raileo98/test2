@@ -1,5 +1,92 @@
+# 港股半日升135點
+
+![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
+  
+
+港股今早先跌後升，恒生指數跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點，主板半日成交約1830億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm)
+
+---
+
+# 34歲男子離開秀茂坪住所後失蹤　今日凌晨在旺角被尋回
+
+  
+
+一名在秀茂坪失蹤男子已被尋回。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm)
+
+---
+
+# 葵涌致命車禍　九巴稱車長駕駛表現良好入職後未曾發生交通意外
+
+![九巴對事件感到難過，對死者致深切哀悼，已派員慰問家屬，並會配合警方調查起因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794708_1_20250307121715.jpg&q=75)
+  
+
+葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm)
+
+---
+
 # 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
 
+![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
   
 
 在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網路電詐這顆毒瘤。
@@ -55,7 +142,7 @@
 
 ---
 
-# 消委會稱不少私院及日間醫療中心只給予口頭預算　資料不夠齊全
+# 消委會接投訴有病人膝蓋手術「報錯價」　女童割傷手指手術十萬元
 
 ![黃鳳嫺說，消委會研究發現不少私院及日間醫療中心只是給予口頭預算，當中醫療中心情況較普遍。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794690_1_20250307103710.jpg&q=90)
   
@@ -1643,92 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794525-20250306.htm)
-
----
-
-# 鄒幸彤沒提供資料案上訴得直　譚得志煽動文字案被駁回上訴
-
-![鄒幸彤及兩名前常委上訴得直，撤銷定罪及刑罰。譚得志發表煽動文字的案件，被終院駁回上訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794524_1_20250306125822.jpg&q=60)
-  
-
-終審法院就兩宗上訴案件頒下判詞。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794524-20250306.htm)
-
----
-
-# 大欖女懲教所25歲還押人士疑體內藏毒　案件交警方跟進
-
-![大欖女懲教所職員成功堵截一名女性還押在囚人士，利用體內藏毒，將懷疑毒品偷運進入懲教院所。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794523_1_20250306125152.jpg&q=60)
-  
-
-大欖女懲教所職員成功堵截一名女性還押在囚人士，利用體內藏毒，將懷疑毒品偷運進入懲教院所。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794523-20250306.htm)
-
----
-
-# 全國兩會｜李家超稱香港會繼續深化對外交往　大力開拓新市場
-
-![李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794521_1_20250306124830.jpg&q=85)
-  
-
-行政長官李家超表示，國務院總理李強發表的政府工作報告對他有三點啟發。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794521-20250306.htm)
 
 ---

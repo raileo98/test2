@@ -1,3 +1,117 @@
+# 港股半日升135點
+
+![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
+  
+
+港股今早先跌後升，恒生指數跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點，主板半日成交約1830億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm)
+
+---
+
+# 全國兩會｜回應中歐關係　王毅稱中國對歐洲有信心可成信任夥伴
+
+  
+
+在北京，外長王毅回應中歐面臨長期緊張的經貿關係，如何看待中歐關係發展時表示，今年是中歐建交50周年，50年來，中歐合作獲得長足發展，貿易額從當年的24億美元增長到7800億美元，投資額從幾乎為零增長到近2600億美元。中歐班列累計開行突破10萬列，成為聯接亞歐的黃金通道。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
+
+---
+
+# 全國兩會｜中國經濟增長5%　王毅稱展現迎難而上奮發有為特徵
+
+  
+
+在北京，外長王毅表示，去年中國經濟實現了5%的增長，在主要大國中仍然一枝獨秀，這一成績是在大力推進綠色轉型中取得，是在全球增長低迷背景下實現，更是在克服美國等單邊制裁打壓下拼來，展現出中國經濟迎難而上、奮發有為的鮮明特徵。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
+
+---
+
+# 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
+
+![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
+  
+
+在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網路電詐這顆毒瘤。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
+
+---
+
 # 滬深股市半日個別發展　創業板指數半日跌約1%
 
 ![內地股市今早個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794705_1_20250307114822.jpg&q=85)
@@ -1601,117 +1715,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
-
----
-
-# 全國兩會｜王文濤︰相信「辦法總比困難多」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794586_1_20250306181504.jpg&q=70)
-  
-
-商務部部長王文濤，被問到如何看待今年外貿發展面臨形勢時說，個別國家揮舞「關稅大棒」，國家外貿發展面臨嚴峻形勢，但相信「辦法總比困難多」，完全有信心、有底氣穩住外貿基本盤。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794586-20250306.htm)
-
----
-
-# 京東集團上季盈利升1.9倍　全年盈利升71%
-
-![京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794583_1_20250306174948.jpg&q=80)
-  
-
-京東集團去年第4季盈利98.5億元人民幣，按年升1.9倍，總收入升13%至約3470億元。按非美國通用會計準則計，盈利升32%至112.9億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794583-20250306.htm)
-
----
-
-# 港鐵去年本地總乘客量逾19億人次近疫情前水平　高鐵載客人數升
-
-![港鐵表示，去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794585_1_20250306181006.jpg&q=85)
-  
-
-港鐵去年盈利超過157億元，港鐵行政總裁金澤培在業績記者會上表示，港鐵去年全年本地總乘客量超過19億人次，逐漸貼近疫情前水平，但過境鐵路及機場快綫的乘客量仍未回復疫情前水平，估計與過境口岸增加，其他公共交通競爭激烈有關，加上旅客的出行模式改變。至於高鐵的載客人數去年就持續上升，全年突破2600萬人次。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794585-20250306.htm)
-
----
-
-# 全國兩會｜王文濤：如美方在錯誤道路上愈行愈遠　中方將奉陪到底
-
-![商務部部長王文濤（左二）表示，中方捍衛自身利益的決心是堅定不移，如美方在錯誤道路上愈行愈遠，中方將奉陪到底。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794582_1_20250306193058.jpg&q=90)
-  
-
-在北京，商務部部長王文濤表示，美國以芬太尼問題為藉口對華加徵關稅是混淆是非、顛倒黑白，批評美國新政府上台後關稅單子似乎愈來愈長，以關稅威脅、要脅是典型單邊和霸凌主義，嚴重違反世貿組織規則，破壞中美正常經貿關係，擾亂全球產業鏈供應鏈穩定，阻礙世界經濟發展，必將損害美國民眾和美國企業的利益，是典型損人不利己。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794582-20250306.htm)
 
 ---

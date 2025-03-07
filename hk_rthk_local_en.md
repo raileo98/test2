@@ -1,3 +1,32 @@
+# Smart traffic control system to be tested in Kwun Tong
+
+![The system interface will use different colours to show the speed of traffic on the roads. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794704_1_20250307113507.jpg&q=85)
+  
+
+Police on Friday said they hope traffic congestion in Kwun Tong would be eased following the implementation of a new smart traffic management system in the area.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm)
+
+---
+
 # Woman killed in traffic accident in Kwai Chung
 
 ![Police say a woman was killed in a traffic accident in Kwai Chung. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794688_1_20250307101912.jpg&q=85)
@@ -1709,34 +1738,5 @@ An unspecified number of air traffic control staff have been suspended over an i
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793718-20250228.htm)
-
----
-
-# Review on tolls, traffic penalties to finish this year
-
-![Mable Chan says the review by her bureau will focus on traffic charges that have not gone up for years. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793702_1_20250228192045.jpg&q=90)
-  
-
-The Transport and Logistics Bureau is aiming to complete a review on the fixed penalties for traffic-related offences and various fees and tolls this year, its chief said on Friday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793702-20250228.htm)
 
 ---

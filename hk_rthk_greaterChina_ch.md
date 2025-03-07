@@ -1,3 +1,59 @@
+# 全國兩會｜回應中歐關係　王毅稱中國對歐洲有信心可成信任夥伴
+
+  
+
+在北京，外長王毅回應中歐面臨長期緊張的經貿關係，如何看待中歐關係發展時表示，今年是中歐建交50周年，50年來，中歐合作獲得長足發展，貿易額從當年的24億美元增長到7800億美元，投資額從幾乎為零增長到近2600億美元。中歐班列累計開行突破10萬列，成為聯接亞歐的黃金通道。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
+
+---
+
+# 全國兩會｜中國經濟增長5%　王毅稱展現迎難而上奮發有為特徵
+
+  
+
+在北京，外長王毅表示，去年中國經濟實現了5%的增長，在主要大國中仍然一枝獨秀，這一成績是在大力推進綠色轉型中取得，是在全球增長低迷背景下實現，更是在克服美國等單邊制裁打壓下拼來，展現出中國經濟迎難而上、奮發有為的鮮明特徵。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
+
+---
+
 # 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
 
   
@@ -114,7 +170,7 @@
 
 # 全國兩會｜王毅指任何人支持中國統一堅持一個中國就應反對台獨
 
-![王毅說，台獨分裂只會玩火自焚，以台制華無異於螳臂擋車，中國終將統一也必將統一。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794698_1_20250307111909.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794698_1_20250307111909.jpg&q=90)
   
 
 在北京，外長王毅表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。他強調，鼓吹台獨就是分裂國家，支持台獨就是干涉中國內政，縱容台獨就是破壞台海穩定，主權原則是聯合國憲章的基石，任何國家和任何人都不應搞雙重標準，
@@ -1667,63 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794444-20250305.htm)
-
----
-
-# 全國兩會｜習近平：經濟大省要挑大樑　為全國發展大局做貢獻
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794435_1_20250305202740.jpg&q=90)
-  
-
-國家主席習近平表示，要全面落實民營企業座談會精神，一視同仁對待各種所有制企業，持續優化營商環境，要深化要素市場化配置改革，主動破除地方保護、市場分割及內卷式競爭。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794435-20250305.htm)
-
----
-
-# 全國兩會｜夏寶龍晤李家超稱中央全力支援港澳融入國家發展大局
-
-![夏寶龍（右）會見李家超（左），夏寶龍相信香港特區政府和社會各界一定會把握機遇。（國務院港澳辦網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794432_1_20250305214643.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見行政長官李家超。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794432-20250305.htm)
 
 ---

@@ -1,5 +1,148 @@
+# 港股半日升135點
+
+![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
+  
+
+港股今早先跌後升，恒生指數跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點，主板半日成交約1830億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm)
+
+---
+
+# 全國兩會｜回應中歐關係　王毅稱中國對歐洲有信心可成信任夥伴
+
+  
+
+在北京，外長王毅回應中歐面臨長期緊張的經貿關係，如何看待中歐關係發展時表示，今年是中歐建交50周年，50年來，中歐合作獲得長足發展，貿易額從當年的24億美元增長到7800億美元，投資額從幾乎為零增長到近2600億美元。中歐班列累計開行突破10萬列，成為聯接亞歐的黃金通道。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
+
+---
+
+# 34歲男子離開秀茂坪住所後失蹤　今日凌晨在旺角被尋回
+
+  
+
+一名在秀茂坪失蹤男子已被尋回。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm)
+
+---
+
+# 全國兩會｜中國經濟增長5%　王毅稱展現迎難而上奮發有為特徵
+
+  
+
+在北京，外長王毅表示，去年中國經濟實現了5%的增長，在主要大國中仍然一枝獨秀，這一成績是在大力推進綠色轉型中取得，是在全球增長低迷背景下實現，更是在克服美國等單邊制裁打壓下拼來，展現出中國經濟迎難而上、奮發有為的鮮明特徵。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
+
+---
+
+# 葵涌致命車禍　九巴稱車長駕駛表現良好入職後未曾發生交通意外
+
+![九巴對事件感到難過，對死者致深切哀悼，已派員慰問家屬，並會配合警方調查起因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794708_1_20250307121715.jpg&q=75)
+  
+
+葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm)
+
+---
+
 # 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
 
+![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
   
 
 在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網路電詐這顆毒瘤。
@@ -171,7 +314,7 @@
 
 # 全國兩會｜王毅指任何人支持中國統一堅持一個中國就應反對台獨
 
-![王毅說，台獨分裂只會玩火自焚，以台制華無異於螳臂擋車，中國終將統一也必將統一。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794698_1_20250307111909.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794698_1_20250307111909.jpg&q=90)
   
 
 在北京，外長王毅表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。他強調，鼓吹台獨就是分裂國家，支持台獨就是干涉中國內政，縱容台獨就是破壞台海穩定，主權原則是聯合國憲章的基石，任何國家和任何人都不應搞雙重標準，
@@ -368,7 +511,7 @@
 
 ---
 
-# 消委會稱不少私院及日間醫療中心只給予口頭預算　資料不夠齊全
+# 消委會接投訴有病人膝蓋手術「報錯價」　女童割傷手指手術十萬元
 
 ![黃鳳嫺說，消委會研究發現不少私院及日間醫療中心只是給予口頭預算，當中醫療中心情況較普遍。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794690_1_20250307103710.jpg&q=90)
   
@@ -1687,34 +1830,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm)
-
----
-
-# 美元指數失守104　創4個月新低
-
-![美元指數連續4日下挫，較早時失守104水平，低見103.74，創4個月新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794633_1_20250306234219.jpg&q=80)
-  
-
-美元指數連續4日下挫，近日接連失守多個整數關口，較早時失守104水平，低見103.74，創4個月新低，4日累計跌逾3%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794633-20250306.htm)
 
 ---

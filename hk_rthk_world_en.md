@@ -1,6 +1,6 @@
 # China will 'firmly counter' US amid trade row: Wang Yi
 
-![The foreign minister says the "law of the jungle" could take hold in the world. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794703_1_20250307113148.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794703_1_20250307113148.jpg&q=90)
   
 
 Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, after Washington imposed new tariffs on Chinese goods.
@@ -29,7 +29,7 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
 
 # China wants a lasting peace in Ukraine: FM
 
-![Foreign Minister Wang Yi speaks at a press conference on the sidelines of the "Two Sessions" in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
   
 
 China wants to achieve a "fair, lasting and binding peace agreement" acceptable to all parties on the Ukraine war, Foreign Minister Wang Yi said on Friday.
@@ -145,7 +145,7 @@ Violent winds toppled power lines on Friday as a tropical cyclone inched towards
 
 # SpaceX loses contact with Starship rocket after launch
 
-![The Super Heavy booster returns to its launch pad after the SpaceX Starship spacecraft continued to space following its launch on its eighth test. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794668_1_20250307085312.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794668_1_20250307085312.jpg&q=90)
   
 
 Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship mega-rocket on Thursday, successfully catching the massive booster but with the upper stage failing for the second consecutive time.
