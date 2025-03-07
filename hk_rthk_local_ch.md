@@ -1,3 +1,32 @@
+# 口岸爆炸案專家證人稱警方檢取證物驗出爆炸品常見成分
+
+![學專家證人、政府化驗師作供，講述警方檢取證物所含成分。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794743_1_20250307155454.jpg&q=90)
+  
+
+8名男女涉2020年初口岸爆炸案，高等法院踏入第66天審訊，控方傳召化學專家證人、政府化驗師作供。證人表示，當年2月至3月期間化驗警方檢獲的多項證物，包括警方在明愛醫院爆炸案和港鐵羅湖站爆炸案中檢取的證物，驗出硝酸鉀及糖等爆炸品常見成分。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794743-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794743-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794743-20250307.htm)
+
+---
+
 # 唐家成出任行會、立法會及政治委任制度官員薪津獨立委員會主席
 
 ![唐家成獲委任為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794742_1_20250307154353.jpg&q=90)
@@ -286,7 +315,7 @@
 
 # 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
 
-![唐英年相信，中央是看到本港的優勢，鼓勵特區進一步國際化。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794718_1_20250307125013.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794718_1_20250307125013.jpg&q=85)
   
 
 在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
@@ -1703,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794561-20250306.htm)
-
----
-
-# 天文台發出寒冷天氣警告　今晚及明早寒冷市區最低氣溫約12度
-
-![天文台預測，本港今晚及明早天氣寒冷，市區最低氣溫約12度左右，新界再低一兩度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794560_1_20250306165057.jpg&q=90)
-  
-
-天文台在下午4時20分發出寒冷天氣警告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794560-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794560-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794560-20250306.htm)
 
 ---

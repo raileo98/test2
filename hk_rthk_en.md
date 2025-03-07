@@ -59,7 +59,6 @@ A Beijing official on Friday said that it'll be the right thing to do to keep im
 
 # 'Let's bring key international events to Kai Tak'
 
-![Zhou Jinqiang says athletes from the national team are very impressed with the Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_1_20250307131416.jpg&q=90)
 ![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=85)
   
 
