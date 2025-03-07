@@ -1,5 +1,34 @@
+# 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
+
+  
+
+全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
+
+---
+
 # 緬甸獲救6港人其中1人暫留泰國以證人身分助查料明日才返港
 
+![鄧炳強（左）早前在泰國期間與中國駐泰王國特命全權大使韓志強（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794802_1_20250307215639.jpg&q=75)
   
 
 保安局表示，在緬甸獲救的6名港人，其中1人會留在泰國當地，以證人身分協助泰國警方調查被誘騙至緬甸從事非法工作的案件。
@@ -1699,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
-
----
-
-# 寒冷天氣警告生效　本港今早氣溫普遍降至12度左右
-
-![寒冷天氣警告生效　本港今早氣溫普遍降至12度左右](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794653_1_20250307062801.jpg&q=85)
-  
-
-寒冷天氣警告現正生效。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794653-20250307.htm)
 
 ---

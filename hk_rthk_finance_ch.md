@@ -1,3 +1,31 @@
+# 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
+
+  
+
+全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
+
+---
+
 # 美國2月非農業新增職位15.1萬個遜預期　失業率升至4.1%
 
 ![美國2月非農業新增職位15.1萬個，少過市場預期，失業率出乎意料升至4.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794806_1_20250307214245.jpg&q=75)
@@ -1684,34 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794648-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794648-20250307.htm)
-
----
-
-# 現貨金回軟　因美債息上升
-
-![現貨金較早時報每盎司2912.2美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794647_1_20250307052551.jpg&q=70)
-  
-
-現貨金結束連續3日升勢，受美債息上升拖累。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794647-20250307.htm)
 
 ---

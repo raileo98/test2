@@ -1,3 +1,31 @@
+# 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
+
+  
+
+全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
+
+---
+
 # 日本岩手縣山火火勢減弱　當局解除部分地區疏散指示
 
 ![大船渡市有房屋被山火燒毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794807_1_20250307214310.jpg&q=75)
@@ -87,6 +115,7 @@
 
 # 緬甸獲救6港人其中1人暫留泰國以證人身分助查料明日才返港
 
+![鄧炳強（左）早前在泰國期間與中國駐泰王國特命全權大使韓志強（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794802_1_20250307215639.jpg&q=75)
   
 
 保安局表示，在緬甸獲救的6名港人，其中1人會留在泰國當地，以證人身分協助泰國警方調查被誘騙至緬甸從事非法工作的案件。
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794492-20250306.htm)
-
----
-
-# 《環看天下》：歐盟宣布措施挽救汽車業   擴大區內電池生產線
-
-![近年歐洲電動車業務發展被指裹足不前。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794482_1_20250306080246.jpg&q=85)
-  
-
-歐盟星期三公布汽車產業發展行動計劃，加速區內電動車普及，包括支援汽車電池擴大在歐洲本土生產，並提供資金援助，以加強行業競爭力。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794482-20250306.htm)
 
 ---
