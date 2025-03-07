@@ -1,3 +1,61 @@
+# 道指高收222點　本周累跌逾2%
+
+![道瓊斯指數一度跌逾400點，其後最多倒升約320點，收市報42801點，升222點，升幅0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794834_1_20250308054052.jpg&q=85)
+  
+
+美股3大指數反覆高收，美國2月非農業新增職位15.1萬個少過預期，失業率升至4.1%，一度拖累大市向下；但聯儲局主席鮑威爾表示，要觀望總統特朗普關稅政策，再決定下一步利率行動，無需倉促減息，指數倒升收市。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794834-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794834-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794834-20250308.htm)
+
+---
+
+# 德股低收約1.8%　本周仍升2%
+
+![德國DAX指數報23008點，跌410點，跌幅約1.8%，本周累計上升2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794832_1_20250308051717.jpg&q=90)
+  
+
+歐洲主要股市收市下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794832-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794832-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794832-20250308.htm)
+
+---
+
 # 微軟向南非追加近3億美元投資推動人工智能發展和應用
 
 ![微軟承諾在未來12個月內，為5萬名南非年輕人支付參加數碼技能認證考試的費用。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794822_1_20250308011921.jpg&q=90)
@@ -1666,59 +1724,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm)
-
----
-
-# 台股初段偏軟
-
-![台灣加權指數較早時報22680點，跌34點，跌幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794671_1_20250307090932.jpg&q=90)
-  
-
-台灣股市在開市初段偏軟，加權指數較早時報22680點，跌34點，跌幅0.15%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm)
-
----
-
-# 全國兩會｜陳帆及陳曉峰提建議　促本港推動碳交易市場發展
-
-![陳帆（左）與陳曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=85)
-  
-
-在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm)
 
 ---

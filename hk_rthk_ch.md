@@ -1,3 +1,89 @@
+# 道指高收222點　本周累跌逾2%
+
+![道瓊斯指數一度跌逾400點，其後最多倒升約320點，收市報42801點，升222點，升幅0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794834_1_20250308054052.jpg&q=85)
+  
+
+美股3大指數反覆高收，美國2月非農業新增職位15.1萬個少過預期，失業率升至4.1%，一度拖累大市向下；但聯儲局主席鮑威爾表示，要觀望總統特朗普關稅政策，再決定下一步利率行動，無需倉促減息，指數倒升收市。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794834-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794834-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794834-20250308.htm)
+
+---
+
+# 德股低收約1.8%　本周仍升2%
+
+![德國DAX指數報23008點，跌410點，跌幅約1.8%，本周累計上升2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794832_1_20250308051717.jpg&q=90)
+  
+
+歐洲主要股市收市下跌。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794832-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794832-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794832-20250308.htm)
+
+---
+
+# 圖斯克計劃軍訓所有波蘭成年男子　形容是軍事儲備應對潛在威脅
+
+  
+
+波蘭總理圖斯克在國會發表演說時表示，計劃安排當地所有成年男子接受軍事訓練，政府在未來幾個月內會提供全部細節。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm)
+
+---
+
 # 特朗普稱須知道烏克蘭冀解決問題　與烏交涉難於與俄交涉
 
 ![特朗普說如果烏方不想和解，美方就會退出。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794831_1_20250308035652.jpg&q=90)
@@ -1644,92 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm)
-
----
-
-# 奈雪的茶料去年業績轉虧　料持續關閉或改造經營不善門店
-
-![奈雪的茶預計，將繼續關閉或改造經營不善的門店，因而計提資產減值準備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794766_1_20250307172217.jpg&q=80)
-  
-
-奈雪的茶發盈警，預計去年業績由盈轉虧，以非國際財務報告準則計，經調整虧損約8.8億至9.7億元人民幣，而前年經調整盈利約2090萬元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm)
-
----
-
-# 食安中心倡市民膳食中加入碘含量豐富食物包括藻類及海鮮等
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794765_1_20250307173041.jpg&q=85)
-  
-
-食物安全中心就食物碘含量展開風險評估研究，發現碘含量最高食品是乾海帶，每100克達18萬微克，其次是乾紫菜、蟹乾小食及海苔小食。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm)
-
----
-
-# 教宗方濟各發表入院以來首段錄音　感謝信眾支持
-
-![在教宗方濟各入住的醫院外，不少信眾都寫下對他的祝福。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794764_1_20250307171822.jpg&q=70)
-  
-
-因肺炎留院3星期的教宗方濟各連續3天病情穩定，沒有再次出現呼吸危機。他發表入院以來首段錄音，感謝信眾支持。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm)
 
 ---
