@@ -1,3 +1,32 @@
+# 俄國防部稱打擊確保烏克蘭軍工運作能源基礎設施　摧毀所有目標
+
+![烏克蘭哈爾科夫遇襲，有建築物受損並冒煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794827_1_20250308021709.jpg&q=70)
+  
+
+俄羅斯國防部發表戰報指出，俄軍在當地星期五凌晨，集體打擊確保烏克蘭軍工綜合體運作的天然氣能源基礎設施，所有目標都被擊毀。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm)
+
+---
+
 # 4船於也門及吉布提附近海域翻側最少兩死　多人失蹤
 
 ![有關航道是全球最繁忙、風險最高的船民遷移路徑之一。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794826_1_20250308015036.jpg&q=65)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm)
-
----
-
-# 外交部：中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實
-
-![林劍稱，中方奉勸美方不要以戰略競爭為名　行對華遏制、打壓之實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794564_1_20250306163756.jpg&q=90)
-  
-
-在北京，外交部回應美國國防部長的涉華言論，發言人林劍說，中方奉勸美方不要用自身的霸權邏輯鏡像中國，不要用過時的冷戰思維看待中美關係，不要以戰略競爭為名，行對華遏制、打壓之實。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794564-20250306.htm)
 
 ---

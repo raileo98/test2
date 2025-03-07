@@ -1,3 +1,32 @@
+# 俄國防部稱打擊確保烏克蘭軍工運作能源基礎設施　摧毀所有目標
+
+![烏克蘭哈爾科夫遇襲，有建築物受損並冒煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794827_1_20250308021709.jpg&q=70)
+  
+
+俄羅斯國防部發表戰報指出，俄軍在當地星期五凌晨，集體打擊確保烏克蘭軍工綜合體運作的天然氣能源基礎設施，所有目標都被擊毀。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm)
+
+---
+
 # 4船於也門及吉布提附近海域翻側最少兩死　多人失蹤
 
 ![有關航道是全球最繁忙、風險最高的船民遷移路徑之一。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794826_1_20250308015036.jpg&q=65)
@@ -1698,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm)
-
----
-
-# 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
-  
-
-在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
 
 ---
