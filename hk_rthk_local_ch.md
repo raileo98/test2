@@ -1,5 +1,34 @@
+# 再多兩名上月參與「清遠佛山旅行團」的人士感染退伍軍人病
+
+  
+
+領華旅遊社「清遠佛山旅行團」再多兩名分別71歲男子和69歲女子感染退伍軍人病，兩人分別參加上月20至22日和21至23日的旅行團，他們與日前公布一個涉及4人的群組個案有流行病學關連。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm)
+
+---
+
 # 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
 
+![鄧炳強表示，獲救的6名男女，預料將於晚上返港。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
   
 
 
@@ -1694,34 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794593-20250306.htm)
-
----
-
-# 消委會：近半涉私院及醫療中心投訴與收費有關　建議網上公布價目
-
-![消委會硏究發現，不少私營醫療機構價目資料難明及不足；病人之間收費差距甚大。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794592_1_20250306193807.jpg&q=10)
-  
-
-消委會過去4年接獲近200宗涉及私家醫院及日間醫療中心的投訴，其中有近半數與收費爭議有關。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794592-20250306.htm)
 
 ---

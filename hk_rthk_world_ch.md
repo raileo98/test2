@@ -1,5 +1,6 @@
 # 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
 
+![鄧炳強表示，獲救的6名男女，預料將於晚上返港。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
   
 
 
