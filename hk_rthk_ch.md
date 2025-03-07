@@ -1,3 +1,31 @@
+# 黎智英案控辯雙方完成舉證　暫定7月28日結案陳詞
+
+  
+
+壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方完成舉證，案件暫定於7月28日結案陳詞。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm)
+
+---
+
 # 葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕
 
 ![葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794731_1_20250307143143.jpg&q=80)
@@ -119,7 +147,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
   
 
-在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
+在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
   
 
   
@@ -1328,7 +1356,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
   
 
-在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主席鄭雁雄亦有出席會議。
+在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主席鄭雁雄亦有列席會議。
   
 
   

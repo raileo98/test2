@@ -27,12 +27,41 @@
 
 ---
 
+# 特朗普：可能延長TikTok賣盤截止期限
+
+![特朗普說，對TikTok有很大興趣。如果需要，他可能會延長TikTok賣盤的截止期限。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794730_1_20250307142757.jpg&q=90)
+  
+
+美國總統特朗普表示，如果限期屆滿時仍未達成交易，他可能延長短片分享平台TikTok賣盤的截止期限
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm)
+
+---
+
 # 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
   
 
-在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
+在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
   
 
   
@@ -111,6 +140,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm)
+
+---
+
+# 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
+
+![唐英年相信，中央是看到本港的優勢，鼓勵特區進一步國際化。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794718_1_20250307125013.jpg&q=85)
+  
+
+在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
 
 ---
 
@@ -1660,63 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm)
-
----
-
-# 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
-
-![國家發改委主任鄭柵潔預計，「十四五」經濟增量逾30萬億元人民幣，相當於一個發達經濟體全年經濟總量。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794605_1_20250306204857.jpg&q=90)
-  
-
-國家發改委主任鄭柵潔表示，經過「十四五」這幾年發展，對高質量發展的信心和底氣進一步增強。今年將認真做好「十五五」規劃編制相關工作，會作充分調查，通過多種方式聽取各方意見建議，與各方共同編制規劃《綱要草案》，提出一批重大戰略任務、政策舉措和工程項目，並在明年提交全國兩會。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm)
-
----
-
-# 港鐵：未來12個月多個項目有條件推出市場
-
-![港鐵計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794603_1_20250306193654.jpg&q=85)
-  
-
-港鐵物業及國際業務總監鄧智輝，計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm)
 
 ---
