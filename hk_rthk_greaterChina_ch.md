@@ -1,6 +1,6 @@
 # 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
 
-![馬逢國表示，丁薛祥提到香港過去一年亦取得一系列新的突破，特別強調《基本法》23條立法圓滿完成。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。

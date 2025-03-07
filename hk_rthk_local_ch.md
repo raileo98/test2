@@ -1,3 +1,60 @@
+# 黎智英案控辯雙方完成舉證　暫定7月28日結案陳詞
+
+  
+
+壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方完成舉證，案件暫定於7月28日結案陳詞。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm)
+
+---
+
+# 葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕
+
+![葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794731_1_20250307143143.jpg&q=80)
+  
+
+葵涌發生致命交通意外，一名女子被一輛九巴撞倒重傷，送院後不治。巴士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm)
+
+---
+
 # 保安局局長鄧炳強由泰國返港　下午在機場會見傳媒
 
 ![鄧炳強由泰國返港後， 於下午約5時在機場會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794728_1_20250307141124.jpg&q=90)
@@ -29,7 +86,7 @@
 
 # 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
 
-![馬逢國表示，丁薛祥提到香港過去一年亦取得一系列新的突破，特別強調《基本法》23條立法圓滿完成。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
@@ -1674,63 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794549-20250306.htm)
-
----
-
-# 白表居屋第二市場計劃接受申請　有符合青年計劃市民稱中籤機會增
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794548_1_20250306155057.jpg&q=80)
-  
-
-「白表居屋第二市場計劃2024」今日開始接受申請，為期3星期，今次配額大幅增加1500個至6000個，新增的1500個為「青年計劃白居二」配額，全數撥予40歲以下的青年申請者，其餘4500個屬一般配額。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794548-20250306.htm)
-
----
-
-# 食環署防範私人泳池聘不合資格救生員　持牌人須核對救生員資格
-
-![食環署計劃今年泳季起採取措施，加強防範和打擊私人泳池懷疑聘用不合資格救生員當值的違規情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794545_1_20250306150102.jpg&q=75)
-  
-
-食環署計劃於今年泳季起採取措施，加強防範和打擊私人泳池懷疑聘用不合資格救生員當值的違規情況。署方將明確要求持牌人在聘用救生員前，須核對身份證明文件、救生章和救生手冊，以及妥善保存文件副本。署方亦會制定標準格式，供持牌人記錄相關資料。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794545-20250306.htm)
 
 ---

@@ -1,6 +1,35 @@
+# 台股低收逾0.6%　本周累計跌逾2%
+
+![台灣加權指數收市報22576點，跌139點，跌幅0.61%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794729_1_20250307142044.jpg&q=90)
+  
+
+台灣股市下跌，加權指數收市報22576點，跌139點，跌幅0.61%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm)
+
+---
+
 # 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
 
-![馬逢國表示，丁薛祥提到香港過去一年亦取得一系列新的突破，特別強調《基本法》23條立法圓滿完成。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
@@ -1689,34 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm)
-
----
-
-# 全國兩會｜商務部：將推出更多舉措釋放消費增長潛能
-
-![商務部部長王文濤（左二）表示，將會同有關部門結合促消費及惠民生，推出更多舉措，釋放消費增長潛能。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794602_1_20250306193338.jpg&q=90)
-  
-
-商務部部長王文濤表示，消費仍是經濟增長第一拉動力，但國內需求不足，消費潛力釋放不充分的問題仍較突出，消費意願偏弱，有效需求受制約。政府工作報告對提振消費作出部署，強調以消費提振暢通經濟循環，以消費升級引領產業升級。商務部將會同有關部門結合促消費及惠民生，統籌商品消費及服務消費，推出更多舉措，釋放消費增長潛能。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm)
 
 ---

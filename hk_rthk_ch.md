@@ -1,3 +1,90 @@
+# 葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕
+
+![葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794731_1_20250307143143.jpg&q=80)
+  
+
+葵涌發生致命交通意外，一名女子被一輛九巴撞倒重傷，送院後不治。巴士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm)
+
+---
+
+# 台股低收逾0.6%　本周累計跌逾2%
+
+![台灣加權指數收市報22576點，跌139點，跌幅0.61%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794729_1_20250307142044.jpg&q=90)
+  
+
+台灣股市下跌，加權指數收市報22576點，跌139點，跌幅0.61%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm)
+
+---
+
+# 特朗普：可能延長TikTok賣盤截止期限
+
+![特朗普說，對TikTok有很大興趣。如果需要，他可能會延長TikTok賣盤的截止期限。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794730_1_20250307142757.jpg&q=90)
+  
+
+美國總統特朗普表示，如果限期屆滿時仍未達成交易，他可能延長短片分享平台TikTok賣盤的截止期限
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm)
+
+---
+
 # 保安局局長鄧炳強由泰國返港　下午在機場會見傳媒
 
 ![鄧炳強由泰國返港後， 於下午約5時在機場會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794728_1_20250307141124.jpg&q=90)
@@ -29,7 +116,7 @@
 
 # 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
 
-![馬逢國表示，丁薛祥提到香港過去一年亦取得一系列新的突破，特別強調《基本法》23條立法圓滿完成。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥列席港區人大代表團會議，港澳辦主任夏寶龍、中聯辦主任鄭雁雄等亦有出席。
