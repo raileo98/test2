@@ -1,3 +1,32 @@
+# 滬股低收0.25%　創業板跌1.3%
+
+![上證指數收報3372點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794736_1_20250307150918.jpg&q=90)
+  
+
+滬深股市反覆偏軟，有色金屬、軍工股造好，電池、金融、地產股偏軟。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm)
+
+---
+
 # 消息：6名港人被禁錮東南亞獲營救　鄧炳強下午由泰國回港交代
 
   

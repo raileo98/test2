@@ -1,3 +1,32 @@
+# 滬股低收0.25%　創業板跌1.3%
+
+![上證指數收報3372點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794736_1_20250307150918.jpg&q=90)
+  
+
+滬深股市反覆偏軟，有色金屬、軍工股造好，電池、金融、地產股偏軟。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm)
+
+---
+
 # 韓股低收約0.5%
 
 ![首爾綜合指數收報2563點，跌12點，跌幅0.49%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794734_1_20250307144613.jpg&q=85)
@@ -1689,34 +1718,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm)
-
----
-
-# 全國兩會｜吳清：加快健全科企支持機制　加力培育長期和耐心資本
-
-![中證監主席吳清（左）表示，很多引領性科技企業的崛起，離不開長期耐心資本投入，形容是「十年磨一劍」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794607_1_20250306204406.jpg&q=90)
-  
-
-中證監主席吳清表示，中國新質生產力發揮越來越大作用，人工智能大模型DeepSeek，讓世界對中國科技創新能力有新認識，帶動中國資產價值重估，亦帶動春節後A股、港股及其他市場的中國資產，特別是科技股。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm)
 
 ---
