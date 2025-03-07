@@ -1,3 +1,32 @@
+# Eurostar passengers stranded by WWII bomb in Paris
+
+![The Gare du Nord station lies in northern Paris and is the country's busiest train hub. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794795_1_20250307191100.jpg&q=75)
+  
+
+Thousands of passengers in Paris and London were stranded on Friday, after the discovery of a World War II bomb on tracks leading to the Gare du Nord station halted traffic at France's busiest railway terminus.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm)
+
+---
+
 # S Korea court orders Yoon's release, pending ruling
 
 ![Yoon Suk-yeol's supporters cheer after a court decides to release him. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794746_1_20250307161141.jpg&q=90)
@@ -1711,34 +1740,5 @@ Microsoft on Friday announced it was retiring Skype, the online voice and video 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793738-20250301.htm)
-
----
-
-# Trump berates Zelensky in shock Oval Office meeting
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793743_1_20250301034739.jpg&q=85)
-  
-
-US President Donald Trump cut short a meeting with Volodymyr Zelensky on Friday and said the Ukrainian leader is "not ready" for peace with Russia in an extraordinary meltdown in the Oval Office that threw question marks over chances for a truce.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793743-20250301.htm)
 
 ---

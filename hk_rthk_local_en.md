@@ -1,3 +1,32 @@
+# Six more HK people released from Myanmar scam farms
+
+![Chris Tang said he was in Thailand to help coordinate the rescue of six Hong Kong people held in scam farms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794791_1_20250307184642.jpg&q=90)
+  
+
+Security minister Chris Tang said on Friday that six more Hongkongers trapped in scam farms in Myanmar have been rescued in a joint operation by the Security Bureau and authorities from the mainland, Thailand and Myanmar.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm)
+
+---
+
 # NSL provisions can be amended: legal scholar
 
 ![Albert Chen says the Committee for Safeguarding National Security can decide to change the rules on its own, without seeking approval from the National People's Congress. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794748_1_20250307162745.jpg&q=90)
@@ -1709,34 +1738,5 @@ Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm)
-
----
-
-# Taxi fleets to be unveiled on Monday: transport chief
-
-![Five taxi fleets will hit the streets next Monday, with a range of electric vehicles on offer. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793790_1_20250301155137.jpg&q=90)
-  
-
-Five taxi companies which were awarded licences to operate taxi fleets will roll out the long-awaited service next week, according to the secretary for transport and logistics.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793790-20250301.htm)
 
 ---

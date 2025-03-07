@@ -1,3 +1,32 @@
+# Six more HK people released from Myanmar scam farms
+
+![Chris Tang said he was in Thailand to help coordinate the rescue of six Hong Kong people held in scam farms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794791_1_20250307184642.jpg&q=90)
+  
+
+Security minister Chris Tang said on Friday that six more Hongkongers trapped in scam farms in Myanmar have been rescued in a joint operation by the Security Bureau and authorities from the mainland, Thailand and Myanmar.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm)
+
+---
+
 # Hong Kong stocks finish week in the red
 
 ![The Hang Seng Index closes 0.57 percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794768_1_20250307172828.jpg&q=90)
@@ -1710,34 +1739,5 @@ Travellers purchasing a plane ticket to fly out of Hong Kong from October 1 will
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm)
-
----
-
-# LeBron James first NBA player ever to score 50,000 pts
-
-![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=80)
-  
-
-LeBron James became the first player in NBA history to score 50,000 career points on Tuesday, extending his lead as the league's all-time record scorer by reaching a milestone tally that may never be surpassed.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm)
 
 ---

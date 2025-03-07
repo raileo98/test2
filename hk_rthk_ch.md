@@ -1096,7 +1096,7 @@
 
 # 蔡若蓮稱杭州交流團學生離世事件與交流及考察活動無關
 
-![蔡若蓮說，日前在杭州交流團離世的學生，事件與交流及考察活動無關。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794751_1_20250307164024.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794751_1_20250307164024.jpg&q=90)
   
 
 聖保羅書院一名中五學生早前在杭州交流期間死亡。教育局局長蔡若蓮首次開腔回應，表示相關調查已告一段落，明確了解到事件與交流活動及考察無關，為尊重死者家屬意願，不會披露個案內容。她說，對這宗不幸事故感到非常難過，向家人致以深切慰問。
