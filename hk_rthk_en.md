@@ -1,3 +1,32 @@
+# Customs cracks down on illicit cigarette smuggling
+
+![Over the past two weeks, Customs intercepted 20 illicit cigarette smuggling cases at the airport, arresting 13 men and eight women. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794825_1_20250308014937.jpg&q=65)
+  
+
+Hong Kong Customs intensified enforcement at the international airport and uncovered multiple cases of illicit cigarette smuggling involving air passengers.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm)
+
+---
+
 # Trump threatens new Russia sanctions over Ukraine
 
 ![Last month, Trump spoke by telephone with Russian President Vladimir Putin about undoing sweeping sanctions imposed under former president Joe Biden. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794817_1_20250307225043.jpg&q=90)
@@ -1709,35 +1738,5 @@ The United States has "paused" intelligence sharing with Ukraine after a dramati
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm)
-
----
-
-# Beijing backs SARs in national integration: Xia
-
-![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
-![Liaison office chief Zheng Yanxiong has outlined four key roles for local NPC deputies in Hong Kong’s development. Photo courtesy of the Liaison Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_2_20250305223240.jpg&q=90)
-  
-
-Hong Kong and Macau have the full backing of the central government in integrating into the country’s development, a senior Beijing official said on Wednesday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
 
 ---

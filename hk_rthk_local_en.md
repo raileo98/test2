@@ -1,3 +1,32 @@
+# Customs cracks down on illicit cigarette smuggling
+
+![Over the past two weeks, Customs intercepted 20 illicit cigarette smuggling cases at the airport, arresting 13 men and eight women. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794825_1_20250308014937.jpg&q=65)
+  
+
+Hong Kong Customs intensified enforcement at the international airport and uncovered multiple cases of illicit cigarette smuggling involving air passengers.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm)
+
+---
+
 # Six more HK people released from Myanmar scam farms
 
 ![Chris Tang said he was in Thailand to help coordinate the rescue of six Hong Kong people held in scam farms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794791_1_20250307184642.jpg&q=90)
@@ -1708,35 +1737,5 @@ The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the c
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm)
-
----
-
-# Excited crowds arrive early for Kai Tak opening show
-
-![Some ticket holders were seen finishing their drinks before depositing the bottles on shelves placed near the gate. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_3_20250301182424.jpg&q=60)
-![Authorities originally told spectators to arrive by 3pm to redeem their tickets, but the redemption counter remained open after the deadline as many arrived late. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793805_2_20250301181051.jpg&q=75)
-  
-
-Jubilant and excited crowds arrived at Kai Tak Sports Park ahead of the opening ceremony on Saturday night, but some were left confused by the rules of admission.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793805-20250301.htm)
 
 ---
