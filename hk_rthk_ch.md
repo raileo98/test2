@@ -1,3 +1,32 @@
+# 全國兩會｜習近平：要實現軍隊建設「十四五」規劃圓滿收官
+
+![習近平出席十四屆全國人大三次會議解放軍和武警部隊代表團全體會議並發表重要講話。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794796_1_20250307195511.jpg&q=90)
+  
+
+中共中央總書記、國家主席、中央軍委主席習近平強調，要落實高質量發展要求，實現軍隊建設「十四五」規劃圓滿收官。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm)
+
+---
+
 # 歐元區上季經濟按季增長減慢至0.2%　但高過初值
 
 ![歐元區去年第4季經濟按季增長減慢至0.2%，但好過初值的0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794794_1_20250307190232.jpg&q=75)
@@ -290,7 +319,7 @@
 
 # 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
 
-![鄧炳強歡迎終審法院駁回譚得志發表煽動文字案件的上訴裁決。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794782_1_20250307184122.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794782_1_20250307184122.jpg&q=90)
   
 
 保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。

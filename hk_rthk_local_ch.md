@@ -145,7 +145,7 @@
 
 # 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
 
-![鄧炳強歡迎終審法院駁回譚得志發表煽動文字案件的上訴裁決。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794782_1_20250307184122.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794782_1_20250307184122.jpg&q=90)
   
 
 保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。

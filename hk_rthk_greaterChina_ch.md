@@ -1,3 +1,32 @@
+# 全國兩會｜習近平：要實現軍隊建設「十四五」規劃圓滿收官
+
+![習近平出席十四屆全國人大三次會議解放軍和武警部隊代表團全體會議並發表重要講話。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794796_1_20250307195511.jpg&q=90)
+  
+
+中共中央總書記、國家主席、中央軍委主席習近平強調，要落實高質量發展要求，實現軍隊建設「十四五」規劃圓滿收官。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm)
+
+---
+
 # 全國兩會｜何超瓊建議構建跨境低空觀光及接駁航線
 
 ![何超瓊建議，推動大灣區智慧交通系統普及化，完善共享機制，推動航線創新。（信德集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794792_1_20250307185447.jpg&q=85)
@@ -1705,34 +1734,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm)
-
----
-
-# 全國兩會｜發改委：因地制宜發展新質生產力長期任務和系統工程
-
-![鄭柵潔表示，新質生產力正全面改造生產方式和改變生活方式，體會到技術突破正在加快。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794570_1_20250306173413.jpg&q=90)
-  
-
-在北京，國家發改委主任鄭柵潔表示，因地制宜發展新質生產力是一項長期任務和系統工程，將聚焦資金、人才和生態工作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794570-20250306.htm)
 
 ---
