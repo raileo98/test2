@@ -1,3 +1,31 @@
+# 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
+
+  
+
+啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。截至傍晚6時，有397名會員使用跑步徑，11名會員使用乒乓球設施，整體運作大致順暢。預訂設施方面，累計共1733人成功預訂跑步徑設施，127人預約乒乓球設施，園方形容訂場情況理想。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
+
+---
+
 # 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
 
   
@@ -1698,35 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm)
-
----
-
-# 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
-
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=85)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_4_20250307090212.jpg&q=85)
-  
-
-在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
 
 ---

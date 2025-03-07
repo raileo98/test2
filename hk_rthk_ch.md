@@ -1,3 +1,31 @@
+# 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
+
+  
+
+啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。截至傍晚6時，有397名會員使用跑步徑，11名會員使用乒乓球設施，整體運作大致順暢。預訂設施方面，累計共1733人成功預訂跑步徑設施，127人預約乒乓球設施，園方形容訂場情況理想。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
+
+---
+
 # 全國兩會｜陳茂波稱香港於科技創新金融中心全球聯繫發揮更大功能
 
   
