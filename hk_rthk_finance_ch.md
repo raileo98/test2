@@ -1,3 +1,32 @@
+# 恒大物業料去年盈利至少跌28%　但財務狀況持續改善
+
+![恒大物業預料，去年盈利按年跌逾28%至逾37%，受稅收滯納金等非經營支出影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794805_1_20250307212617.jpg&q=90)
+  
+
+恒大物業發盈利警告，預料去年盈利介乎9.8億至11.2億元人民幣，按年跌逾28%至逾37%，由於稅收滯納金等非經營支出，及採用更謹慎的收入確認方式所致。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm)
+
+---
+
 # 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
 
 ![機管局十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794798_1_20250307210418.jpg&q=80)
@@ -1684,34 +1713,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794646-20250307.htm)
-
----
-
-# 歐股收市個別發展
-
-![歐洲主要股市收市個別發展，德國DAX指數升幅近1.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794645_1_20250307051136.jpg&q=90)
-  
-
-歐洲主要股市收市個別發展。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm)
 
 ---
