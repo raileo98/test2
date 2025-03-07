@@ -1,3 +1,32 @@
+# 全國兩會｜王毅稱中國堅定維護聯合國中心地位　無意另起爐灶
+
+![王毅說，中方認為，矛盾越是複雜，越要突出聯合國的重要地位。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794700_1_20250307111345.jpg&q=55)
+  
+
+在北京，外長王毅表示，今年是聯合國成立80周年，事實證明，聯合國經受了考驗，發揮了作用。現在形勢發生了很大變化，單邊主義抬頭，強權政治氾濫，有的國家對聯合國提出了這樣那樣的質疑，但中方認為，矛盾越是複雜，越要突出聯合國的重要地位；挑戰越是緊迫，越要維護聯合國的應有權威。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm)
+
+---
+
 # 全國兩會｜李書福：應支持民營製造業企業加快數字化、綠色化轉型
 
   
@@ -26,7 +55,13 @@
 
 ---
 
-# 全國兩會｜王毅稱任何人支持中國統一堅持一個中國就應反對台獨
+# 全國兩會｜王毅指任何人支持中國統一堅持一個中國就應反對台獨
+
+![王毅說，台獨分裂只會玩火自焚，以台制華無異於螳臂擋車，中國終將統一也必將統一。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794698_1_20250307111909.jpg&q=90)
+  
+
+在北京，外長王毅表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。他強調，鼓吹台獨就是分裂國家，支持台獨就是干涉中國內政，縱容台獨就是破壞台海穩定，主權原則是聯合國憲章的基石，任何國家和任何人都不應搞雙重標準，
+  
 
   
 
@@ -109,6 +144,12 @@
 
 # 全國兩會｜王毅稱中方本著人道助打擊毒品　美國不應以怨報德
 
+![王毅說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794692_1_20250307111310.jpg&q=90)
+  
+
+外交部長王毅回應中美關係時說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題，任何一個國家都不能幻想一邊對華打壓遏制，一邊又與中國發展良好關係，形容這種「兩面人」的做法，不僅不利於雙邊關係的穩定，亦無法建立彼此的互信。
+  
+
   
 
 
@@ -132,7 +173,7 @@
 
 # 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
 
-![王毅指出一個成熟、堅韌、穩定的中俄關係，不會受一事而變，更不會受第三方的干擾。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
   
 
 外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
@@ -1685,34 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
-
----
-
-# 全國兩會｜李強︰持續用力推動房地產市場止跌回穩
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794409_1_20250305184936.jpg&q=35)
-  
-
-國務院總理李強說，要有效防範化解重點領域風險，牢牢守住不發生系統性風險底線，包括持續用力推動房地產市場止跌回穩，合理控制新增房地產用地供應。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794409-20250305.htm)
 
 ---

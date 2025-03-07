@@ -1,3 +1,32 @@
+# 全國兩會｜王毅稱中國堅定維護聯合國中心地位　無意另起爐灶
+
+![王毅說，中方認為，矛盾越是複雜，越要突出聯合國的重要地位。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794700_1_20250307111345.jpg&q=55)
+  
+
+在北京，外長王毅表示，今年是聯合國成立80周年，事實證明，聯合國經受了考驗，發揮了作用。現在形勢發生了很大變化，單邊主義抬頭，強權政治氾濫，有的國家對聯合國提出了這樣那樣的質疑，但中方認為，矛盾越是複雜，越要突出聯合國的重要地位；挑戰越是緊迫，越要維護聯合國的應有權威。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm)
+
+---
+
 # 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
 
 ![王毅說，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794695_1_20250307110551.jpg&q=85)
@@ -58,6 +87,12 @@
 
 # 全國兩會｜王毅稱中方本著人道助打擊毒品　美國不應以怨報德
 
+![王毅說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794692_1_20250307111310.jpg&q=90)
+  
+
+外交部長王毅回應中美關係時說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題，任何一個國家都不能幻想一邊對華打壓遏制，一邊又與中國發展良好關係，形容這種「兩面人」的做法，不僅不利於雙邊關係的穩定，亦無法建立彼此的互信。
+  
+
   
 
 
@@ -81,7 +116,7 @@
 
 # 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
 
-![王毅指出一個成熟、堅韌、穩定的中俄關係，不會受一事而變，更不會受第三方的干擾。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
   
 
 外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
@@ -1700,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794312-20250305.htm)
-
----
-
-# 特朗普將於國會兩院聯席會議致辭　關稅措施及俄烏戰事等是關注點
-
-![今次是特朗普（中）再次就任總統後，首度向兩院發表講話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794297_1_20250305093422.jpg&q=80)
-  
-
-美國總統特朗普將在國會參、眾兩院聯席會議上致辭，是他再次就任總統後，首度向兩院發表講話。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794297-20250305.htm)
 
 ---
