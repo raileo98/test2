@@ -143,6 +143,35 @@
 
 ---
 
+# 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
+
+![霍啟剛表示，本港在十五五規劃中可以在文化產業發展上作出更多貢獻，包括以國際金融中心優勢。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
+  
+
+在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
+
+---
+
 # 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
 
 ![黃代放表示，民企發展面臨一系列複雜挑戰，相信隨著政策持續落地與完善，民企發展難題會越來越少。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794758_2_20250307171251.jpg&q=90)
@@ -172,6 +201,35 @@
 
 ---
 
+# 鐵路總工會引述港鐵加薪1.8%至5.4%　平均加幅3.78%
+
+![港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794757_1_20250307172048.jpg&q=85)
+  
+
+香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm)
+
+---
+
 # 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
 
 ![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
@@ -198,6 +256,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm)
+
+---
+
+# 17名「劏房」業主因違反相關法例規定被定罪及罰款共逾4萬元
+
+![17名「劏房」業主承認有關控罪，判處罰款共44400元。（陳裕行攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794750_1_20250307163949.jpg&q=90)
+  
+
+17名「劏房」業主因違反《業主與租客（綜合）條例》的相關規定，今日在東區裁判法院承認有關控罪，被判處罰款共44400元。自條例生效以來，差餉物業估價署已成功檢控610宗個案，共涉及522名「劏房」業主，罰款介乎400元至34800元，合計總罰款共逾143萬元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm)
 
 ---
 
@@ -1629,92 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794632-20250306.htm)
-
----
-
-# 長江生命科技料去年轉蝕近1.3億元
-
-![長江生命科技預料去年業績由盈轉虧，虧損約1.27億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794629_1_20250306224510.jpg&q=25)
-  
-
-長江生命科技發盈利警告，預料去年業績由盈轉虧，虧損約1.27億元，前年盈利1730萬元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794629-20250306.htm)
-
----
-
-# 啟德青年運動場跑步徑及乒乓球設施預訂情況順暢
-
-![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=35)
-  
-
-啟德體育園表示，啟德青年運動場跑步徑及乒乓球設施開放預訂首天，截至晚上8時，共有1210人成功預訂跑步徑設施，有90人預約乒乓球設施，訂場情況理想。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm)
-
----
-
-# 美股初段受壓　3大指數跌逾1%
-
-![美股初段沽壓大，道瓊斯指數較早時報42495點，跌511點，跌幅1.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794628_1_20250306224153.jpg&q=90)
-  
-
-美股初段沽壓大，3大指數跌逾1%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794628-20250306.htm)
 
 ---

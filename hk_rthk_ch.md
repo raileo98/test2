@@ -1,3 +1,61 @@
+# 不忿被逐出師門披露師母個人資料　女佛教徒「起底」罪成候判
+
+![法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794771_1_20250307173342.jpg&q=85)
+  
+
+一名女佛教徒前年因拍拖遭逐出師門後與師父交惡，涉嫌在手機通訊創立群組，公開任職護士的師母個人資料，女徒弟被控一項未獲當事人同意下披露其個人資料罪，在西九龍裁判法院被裁定罪名成立，法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm)
+
+---
+
+# 呷哺呷哺料去年淨虧損擴大逾1倍
+
+![呷哺呷哺發盈警，預期去年淨虧損按年擴大約1.1倍至約1.2倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794770_1_20250307173327.jpg&q=75)
+  
+
+呷哺呷哺發盈警，預期去年淨虧損有所擴大，介乎3.9億至4.1億元人民幣，按年擴大約1.1倍至約1.2倍。期內，收入約48億元，按年減少約20%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm)
+
+---
+
 # 警方擬觀塘引入智慧交通管理系統　即時分辨塞車、違泊
 
   

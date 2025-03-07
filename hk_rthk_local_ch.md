@@ -1,3 +1,32 @@
+# 不忿被逐出師門披露師母個人資料　女佛教徒「起底」罪成候判
+
+![法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794771_1_20250307173342.jpg&q=85)
+  
+
+一名女佛教徒前年因拍拖遭逐出師門後與師父交惡，涉嫌在手機通訊創立群組，公開任職護士的師母個人資料，女徒弟被控一項未獲當事人同意下披露其個人資料罪，在西九龍裁判法院被裁定罪名成立，法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm)
+
+---
+
 # 警方擬觀塘引入智慧交通管理系統　即時分辨塞車、違泊
 
   
@@ -1700,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794589-20250306.htm)
-
----
-
-# 勞聯調查指逾三成受訪婦女一星期內間中或常常面對抑鬱及壓力問題
-
-![勞聯建議推動全港婦女健康檢查運動，設立「婦女身體檢查津貼」，資助合資格基層婦女進行身體檢查。（勞聯提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794587_1_20250306180634.jpg&q=85)
-  
-
-勞聯一項調查發現，超過三成受訪婦女在受訪前的過去一星期內，間中或常常面對抑鬱及壓力問題，但只有9.7%的受訪婦女在面對情緒問題時會尋求專業幫助，勞聯認為結果反映本港婦女心理健康支援服務的宣傳與接收度不足。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794587-20250306.htm)
 
 ---
