@@ -1,3 +1,61 @@
+# Cyclone Alfred edges closer to Australia's east coast
+
+![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=5)
+  
+
+Violent winds toppled power lines on Friday as a tropical cyclone inched towards Australia's eastern coast, sparking evacuation orders and leaving more than 50,000 homes without electricity.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm)
+
+---
+
+# SpaceX loses contact with Starship rocket after launch
+
+![The Super Heavy booster returns to its launch pad after the SpaceX Starship spacecraft continued to space following its launch on its eighth test. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794668_1_20250307085312.jpg&q=90)
+  
+
+Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship mega-rocket on Thursday, successfully catching the massive booster but with the upper stage failing for the second consecutive time.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm)
+
+---
+
 # Trump backs off Mexico, Canada tariffs
 
 ![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=75)
@@ -1682,63 +1740,5 @@ Michelle Trachtenberg, a former child star who appeared in the 1996 “Harriet t
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793451-20250227.htm)
-
----
-
-# EU was born to 'screw' US, Trump says
-
-![US President Donald Trump hosts his first cabinet meeting with Elon Musk in attendance. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793415_1_20250227075523.jpg&q=40)
-  
-
-US President Donald Trump said on Wednesday that the European Union was born to "screw" the United States, laying bare his hostility to the longtime US partner as he detailed new tariffs.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793415-20250227.htm)
-
----
-
-# Gaza as gold resort posted on Trump social media
-
-![Palestinians sit next to a fire among the rubble of destroyed buildings, amid a ceasefire between Israel and Hamas, at Jabalia refugee camp, northern Gaza. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793405_1_20250227053207.jpg&q=10)
-  
-
-US President Donald Trump's official social media accounts posted an apparently AI-generated video depicting war-ravaged Gaza rebuilt into a seaside resort, replete with a towering golden statue of himself.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793405-20250227.htm)
 
 ---

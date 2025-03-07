@@ -1,6 +1,58 @@
+# 全國兩會｜有政協稱國家迎來低空經濟黃金機遇期　成增長新引擎
+
+  
+
+全國政協常委、全國婦聯副主席徐曉蘭表示，今年政府工作報告提出加快工業互聯網的創新發展，亦是連續8年對工業互聯網提出具體要求，而經歷8年發展，工業互聯網已經應用到49個國民經濟領域，核心產業規模達到1.53萬億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm)
+
+---
+
+# 全國兩會｜丁薛祥參加港區全國人大代表團審議
+
+![丁薛祥參加港區全國人大代表團審議（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=55)
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm)
+
+---
+
 # 全國兩會｜陳帆及陳曉峰提建議　促本港推動碳交易市場發展
 
-![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）02](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
+![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
   
 
 在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
@@ -1669,63 +1721,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794402-20250305.htm)
-
----
-
-# 全國兩會｜陳謳明稱讓青少年了解國家情況培育更多有愛國心下一代
-
-![陳謳明認為，早日讓青少年了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794401_1_20250305171241.jpg&q=75)
-  
-
-全國政協香港小組下午舉行分組討論，香港聖公會教省主教長陳謳明表示，青少年是社會明日棟樑，早日讓他們了解國家真實情況，就可以培育更多有愛國心的下一代，在各行各業出任領導工作。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794401-20250305.htm)
-
----
-
-# 全國兩會｜鄭志剛稱香港應發揮優勢打造更多中華文化「IP」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794397_1_20250305170737.jpg&q=85)
-  
-
-全國政協香港小組下午舉行會議，討論全國政協主席王滬寧工作報告內容。全國政協委員、文化藝術盛事委員會主席鄭志剛表示，王滬寧的工作報告提到推進文化自信自強、支持委員對外發聲，他深有體會，亦非常支持。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm)
 
 ---

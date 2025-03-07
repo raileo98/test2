@@ -1,3 +1,61 @@
+# Cyclone Alfred edges closer to Australia's east coast
+
+![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=5)
+  
+
+Violent winds toppled power lines on Friday as a tropical cyclone inched towards Australia's eastern coast, sparking evacuation orders and leaving more than 50,000 homes without electricity.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm)
+
+---
+
+# SpaceX loses contact with Starship rocket after launch
+
+![The Super Heavy booster returns to its launch pad after the SpaceX Starship spacecraft continued to space following its launch on its eighth test. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794668_1_20250307085312.jpg&q=90)
+  
+
+Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship mega-rocket on Thursday, successfully catching the massive booster but with the upper stage failing for the second consecutive time.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm)
+
+---
+
 # 'Govt should seek new revenue streams amid deficit'
 
 ![NPC deputies Frank Chan (L) and Nicholas Chan (R) are attending the "Two Sessions" meetings in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=55)
@@ -1681,63 +1739,5 @@ US President Donald Trump took a victory lap in a speech to Congress on Tuesday,
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm)
-
----
-
-# Premier Li pledges to uphold One Country, Two Systems
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794323_1_20250305102940.jpg&q=85)
-  
-
-Premier Li Qiang on Wednesday said Beijing would continue to fully implement the One Country, Two Systems policy and have the two SARs administered by patriots.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm)
-
----
-
-# China to foster more breakthroughs in technology
-
-![China will work to combine digital technologies with its manufacturing and market strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794321_1_20250305102235.jpg&q=85)
-  
-
-China on Wednesday said it will boost support for the application of AI models to foster more breakthroughs in technology.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm)
 
 ---

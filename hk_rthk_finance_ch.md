@@ -1,3 +1,53 @@
+# 人民幣兌美元中間價微跌
+
+![人民幣中間價報7.1705兌1美元，較上日中間價跌13點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794673_1_20250307091930.jpg&q=35)
+  
+
+人民幣中間價報7.1705兌1美元，較上日中間價跌13點子。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm)
+
+---
+
+# 台股初段偏軟
+
+![台灣加權指數較早時報22680點，跌34點，跌幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794671_1_20250307090932.jpg&q=80)
+  
+
+台灣股市在開市初段偏軟，加權指數較早時報22680點，跌34點，跌幅0.15%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm)
+
+---
+
 # IMF：美國關稅政策將衝擊墨西哥及加拿大經濟
 
 ![IMF表示，如果美國對墨西哥及加拿大加徵的關稅持續，將對兩國產生重大不利影響，因兩者與美國經濟高度融合。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794658_1_20250307074319.jpg&q=20)
@@ -106,6 +156,65 @@
 
 ---
 
+# 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
+
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=70)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_4_20250307090212.jpg&q=70)
+  
+
+在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
+
+---
+
+# 《環看天下》：特朗普向加墨實施關稅　分析指衝擊貿易一體化
+
+![福特是其中一間獲一個月關稅豁免汽車製造商。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794657_1_20250307073641.jpg&q=80)
+  
+
+美國總統特朗普簽署行政令，調整對加拿大和墨西哥加徵關稅措施，對符合《美墨加協定》優惠條件的進口商品豁免徵收關稅。豁免政策將持續至4月2日。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm)
+
+---
+
 # 金沙中國：戈德斯坦將於明年3月辭任主席等職務
 
 ![金沙中國公布，戈德斯坦將於明年3月1日起，辭任公司主席等職務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794656_1_20250307071626.jpg&q=90)
@@ -161,6 +270,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794652-20250307.htm)
+
+---
+
+# 美私人企業月球登陸器降落月球　公司稱未能直立或影響任務完成
+
+![「雅典娜」月球登陸器上月底發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794651_1_20250307063009.jpg&q=85)
+  
+
+美國私人公司直覺機器的月球登陸器「雅典娜」登陸月球，公司認為，「雅典娜」未能處於直立狀態，可能會限制任務的完成。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm)
 
 ---
 
@@ -306,6 +444,93 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794645-20250307.htm)
+
+---
+
+# 特朗普簽署修正案　暫緩對符合《美墨加協定》商品徵收關稅
+
+![特朗普簽署關稅修正案，推遲對符合《美墨加協定》的產品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794643_1_20250307052117.jpg&q=85)
+  
+
+美國總統特朗普簽署對墨西哥和加拿大關稅的修正案，推遲對符合《美墨加協定》的產品徵收關稅，直至下月2日。另外，特朗普說，不會改變對鋼鐵和鋁的關稅措施。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm)
+
+---
+
+# 美商務部長︰一個月關稅豁免或至所符合《美墨加協定》產品
+
+![盧特尼克預計，特朗普將宣布推遲關稅範圍的決定。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794635_1_20250307003531.jpg&q=80)
+  
+
+美國商務部長盧特尼克說，給予墨西哥和加拿大汽車產品為期一個月的關稅豁免，很可能會擴大至所有符合《美墨加協定》的產品。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794635-20250307.htm)
+
+---
+
+# 杜魯多稱與美國貿易戰在可預見未來將繼續
+
+![杜魯多表示，在可預見的未來，加拿大與美國的貿易戰將繼續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794634_1_20250307003606.jpg&q=85)
+  
+
+加拿大總理杜魯多表示，在可預見的未來，加拿大與美國的貿易戰將繼續。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794634-20250307.htm)
 
 ---
 
@@ -1492,225 +1717,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794547-20250306.htm)
-
----
-
-# 滬深股市高收逾1%至2%　創1星期新高
-
-![內地股市3大指數升逾1%至2%，創1星期新高。上證指數收報3381點，升幅約1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794546_1_20250306151037.jpg&q=75)
-  
-
-內地股市延續上日升勢，3大指數升逾1%至2%，創1星期新高。人工智能相關股份、算力租賃股造好，鋼鐵及銀行股下跌。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794546-20250306.htm)
-
----
-
-# 韓股全日升0.7%
-
-![首爾綜合指數收報2576點，升18點，升幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794541_1_20250306143743.jpg&q=35)
-  
-
-南韓股市造好，首爾綜合指數收報2576點，升18點，升幅0.7%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794541-20250306.htm)
-
----
-
-# 日股高收0.77%
-
-![日經指數收報37704點，升286點，升幅0.77%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794540_1_20250306143440.jpg&q=50)
-  
-
-日股延續上日升勢，日經指數收報37704點，升286點，升幅0.77%。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794540-20250306.htm)
-
----
-
-# 台股低收約0.7%
-
-![加權指數收報22715點，跌156點，跌幅0.68%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794539_1_20250306143223.jpg&q=80)
-  
-
-台股低收0.68%，加權指數收報22715點，跌156點。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794539-20250306.htm)
-
----
-
-# 遙控泊車功能本月起可使用　運輸署提醒須用獲批遙控泊車系統
-
-![運輸署表示，本月1日起司機可使用遙控泊車功能。（運輸署）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794542_1_20250306145551.jpg&q=75)
-  
-
-運輸署表示，本月1日起司機可使用遙控泊車功能，但提醒要用署方批准的遙控泊車系統，同時司機必須在車外近距離操作，全程監察車輛情況。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794542-20250306.htm)
-
----
-
-# 彭鴻昌倡病人在私人醫療機構接受醫療程序前要求白紙黑字列明收費
-
-![彭鴻昌表示，為減少爭議，建議病人接受醫療程序前，問清楚預算收費，並要求以白紙黑字列明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794538_1_20250306145529.jpg&q=25)
-  
-
-消委會硏究發現不少私營醫療機構價目資料難明及不足，收費差距甚大。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794538-20250306.htm)
-
----
-
-# 全國兩會｜港區政協引述丁薛祥鼓勵創科投資要及早與投長期
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794537_1_20250306143404.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，出席港澳地區全國政協委員聯組會議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794537-20250306.htm)
-
----
-
-# 證監會上季盈餘按年增逾2倍　首3個財季扭虧
-
-![證監會上季錄得盈餘7710.9萬元，按年增長2.4倍；首3個財季盈餘3569.8萬元，扭轉前年同期的虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794535_1_20250306134637.jpg&q=90)
-  
-
-證監會季度報告顯示，截至去年底，上季錄得盈餘7710.9萬元，較去年同期增長2.4倍；收入按年增17.4%至6.51億元，開支增8%至5.74億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794535-20250306.htm)
 
 ---

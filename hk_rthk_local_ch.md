@@ -1,6 +1,58 @@
+# 孫東訪葡萄牙考察當地最大科技園　拜會中國駐葡萄牙特命全權大使
+
+  
+
+創新科技及工業局局長孫東率領的香港創新科技業界代表團，昨日轉往葡萄牙里斯本訪問。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm)
+
+---
+
+# 全國兩會｜丁薛祥參加港區全國人大代表團審議
+
+![丁薛祥參加港區全國人大代表團審議（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=55)
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm)
+
+---
+
 # 全國兩會｜陳帆及陳曉峰提建議　促本港推動碳交易市場發展
 
-![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）02](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
+![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
   
 
 在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
@@ -29,7 +81,7 @@
 
 # 警方擬於觀塘推出智慧交通管理系統　人工智能分辨違泊及交通事故
 
-![警方聯同科大研發推出「智慧交通管理系統」，希望改善觀塘區內交通情況。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794666_1_20250307084607.jpg&q=20)
+![警方聯同科大研發推出「智慧交通管理系統」，希望改善觀塘區內交通情況。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794666_2_20250307091257.jpg&q=20)
   
 
 警方觀塘警區聯同科大研發推出「智慧交通管理系統」，希望改善區內交通情況。為配合系統，警方在觀塘商貿區安裝11組閉路電視，全天候收集交通數據。系統由警方及運輸署共同使用，配合人工智能技術，可以即時分辨塞車、交通事故、違例泊車等情況，除了會發出警示提醒相關部門外，系統亦會提供建議，包括應該調配多少警力到現場處理事故、如何調整交通燈號等。
@@ -1673,63 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794505-20250306.htm)
-
----
-
-# 支聯會拒交資料案終極上訴得直　鄒幸彤等3人獲撤銷定罪
-
-![支聯會拒交資料案，鄒幸彤等3人獲撤銷定罪。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794503_1_20250306104047.jpg&q=10)
-  
-
-已解散的支聯會前副主席鄒幸彤與兩名前常委鄧岳君和徐漢光，2021年沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成，判囚4個半月。3人向終審法院提出終極上訴，終院今日頒下判詞，5名終院法官一致裁定3人上訴得直，撤銷各人的定罪及刑罰。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794503-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794503-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794503-20250306.htm)
-
----
-
-# 鄭泳舜指桌球賽觀眾被要求離場事件影響形象　學者稱外行領導內行
-
-![在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794502_1_20250306101118.jpg&q=85)
-  
-
-在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。浸會大學體育、運動及健康學系教授劉永松認為事件明顯是「外行領導內行」，有關方面對賽事本質不了解。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794502-20250306.htm)
 
 ---

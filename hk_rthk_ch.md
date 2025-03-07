@@ -1,3 +1,133 @@
+# 孫東訪葡萄牙考察當地最大科技園　拜會中國駐葡萄牙特命全權大使
+
+  
+
+創新科技及工業局局長孫東率領的香港創新科技業界代表團，昨日轉往葡萄牙里斯本訪問。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm)
+
+---
+
+# 人民幣兌美元中間價微跌
+
+![人民幣中間價報7.1705兌1美元，較上日中間價跌13點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794673_1_20250307091930.jpg&q=35)
+  
+
+人民幣中間價報7.1705兌1美元，較上日中間價跌13點子。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794673-20250307.htm)
+
+---
+
+# 全國兩會｜有政協稱國家迎來低空經濟黃金機遇期　成增長新引擎
+
+  
+
+全國政協常委、全國婦聯副主席徐曉蘭表示，今年政府工作報告提出加快工業互聯網的創新發展，亦是連續8年對工業互聯網提出具體要求，而經歷8年發展，工業互聯網已經應用到49個國民經濟領域，核心產業規模達到1.53萬億元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm)
+
+---
+
+# 全國兩會｜丁薛祥參加港區全國人大代表團審議
+
+![丁薛祥參加港區全國人大代表團審議（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=55)
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm)
+
+---
+
+# 台股初段偏軟
+
+![台灣加權指數較早時報22680點，跌34點，跌幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794671_1_20250307090932.jpg&q=80)
+  
+
+台灣股市在開市初段偏軟，加權指數較早時報22680點，跌34點，跌幅0.15%。
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794671-20250307.htm)
+
+---
+
 # 美國「星艦」第八次試飛　第二級飛船再次失聯
 
 ![「星艦」當地星期四從得州發射升空，實施第八次試飛。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794669_1_20250307085827.jpg&q=90)
@@ -29,7 +159,7 @@
 
 # 全國兩會｜陳帆及陳曉峰提建議　促本港推動碳交易市場發展
 
-![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）02](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
+![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
   
 
 在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
@@ -58,7 +188,7 @@
 
 # 警方擬於觀塘推出智慧交通管理系統　人工智能分辨違泊及交通事故
 
-![警方聯同科大研發推出「智慧交通管理系統」，希望改善觀塘區內交通情況。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794666_1_20250307084607.jpg&q=20)
+![警方聯同科大研發推出「智慧交通管理系統」，希望改善觀塘區內交通情況。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794666_2_20250307091257.jpg&q=20)
   
 
 警方觀塘警區聯同科大研發推出「智慧交通管理系統」，希望改善區內交通情況。為配合系統，警方在觀塘商貿區安裝11組閉路電視，全天候收集交通數據。系統由警方及運輸署共同使用，配合人工智能技術，可以即時分辨塞車、交通事故、違例泊車等情況，除了會發出警示提醒相關部門外，系統亦會提供建議，包括應該調配多少警力到現場處理事故、如何調整交通燈號等。
@@ -604,7 +734,7 @@
 
 # 美烏官員擬下周於沙特會談　澤連斯基︰烏方將與特朗普合作
 
-![威特科夫表示，美方正在協調在沙特阿拉伯同烏克蘭代表團會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794644_1_20250307052422.jpg&q=80)
+![威特科夫表示，美方正在協調在沙特阿拉伯同烏克蘭代表團會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794644_2_20250307091559.jpg&q=75)
   
 
 美國和烏克蘭官員計劃下星期在沙特阿拉伯舉行會議，討論結束俄烏戰爭。
@@ -1586,146 +1716,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm)
-
----
-
-# 全國兩會｜王文濤：經濟全球化歷史潮流不可逆轉　有信心穩住外貿
-
-![商務部部長王文濤表示，經濟全球化歷史潮流不可逆轉，全球貿易合作不可阻擋，完全有信心、有底氣穩住外貿基本盤。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794606_1_20250306204806.jpg&q=85)
-  
-
-商務部部長王文濤表示，外部環境帶來的不利影響加深，單邊主義和保護主義加劇，個別國家揮舞「關稅大棒」，擾亂國際貿易秩序，衝擊全球產業鏈供應鏈穩定，中國外貿發展面臨嚴峻形勢。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm)
-
----
-
-# 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
-
-![國家發改委主任鄭柵潔預計，「十四五」經濟增量逾30萬億元人民幣，相當於一個發達經濟體全年經濟總量。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794605_1_20250306204857.jpg&q=90)
-  
-
-國家發改委主任鄭柵潔表示，經過「十四五」這幾年發展，對高質量發展的信心和底氣進一步增強。今年將認真做好「十五五」規劃編制相關工作，會作充分調查，通過多種方式聽取各方意見建議，與各方共同編制規劃《綱要草案》，提出一批重大戰略任務、政策舉措和工程項目，並在明年提交全國兩會。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm)
-
----
-
-# 港鐵：未來12個月多個項目有條件推出市場
-
-![港鐵計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794603_1_20250306193654.jpg&q=65)
-  
-
-港鐵物業及國際業務總監鄧智輝，計劃未來12個月左右，為東涌東站第二期項目，及屯門第16區站第一期項目進行招標，合共提供2440個單位。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794603-20250306.htm)
-
----
-
-# 全國兩會｜商務部：將推出更多舉措釋放消費增長潛能
-
-![商務部部長王文濤（左二）表示，將會同有關部門結合促消費及惠民生，推出更多舉措，釋放消費增長潛能。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794602_1_20250306193338.jpg&q=70)
-  
-
-商務部部長王文濤表示，消費仍是經濟增長第一拉動力，但國內需求不足，消費潛力釋放不充分的問題仍較突出，消費意願偏弱，有效需求受制約。政府工作報告對提振消費作出部署，強調以消費提振暢通經濟循環，以消費升級引領產業升級。商務部將會同有關部門結合促消費及惠民生，統籌商品消費及服務消費，推出更多舉措，釋放消費增長潛能。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm)
-
----
-
-# 支聯會拒交資料案終極上訴得直　卓孝業稱將研究判詞
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794588_1_20250306184102.jpg&q=50)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，被裁定沒有遵從通知規定提供資料罪成的案件，獲終審法院裁定三人上訴得直，撤銷定罪及刑罰。保安局副局長卓孝業表示，已經備悉判決，會研究判詞再決定如何處理。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm)
 
 ---
