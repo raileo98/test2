@@ -1,3 +1,32 @@
+# 內地1-2月美元計價出口按年增長2.3%仍遜預期
+
+![中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%；進口按年下跌8.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794702_1_20250307112414.jpg&q=60)
+  
+
+中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%，差過市場預期的5%；進口按年下跌8.4%，市場原先預期會升1%。首兩個月貿易順差1705.2億美元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm)
+
+---
+
 # 全國兩會｜王毅稱中國堅定維護聯合國中心地位　無意另起爐灶
 
 ![王毅說，中方認為，矛盾越是複雜，越要突出聯合國的重要地位。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794700_1_20250307111345.jpg&q=55)
@@ -289,7 +318,7 @@
 
 # 全國兩會｜孫青野：國安法持續完善是正確　是否須修改由人大決定
 
-![孫青野表示，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794684_1_20250307103447.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794684_1_20250307103447.jpg&q=85)
   
 
 支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
@@ -1697,34 +1726,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794428-20250305.htm)
-
----
-
-# 全國兩會｜馬逢國對國家發展有信心　陳勇稱維護憲制秩序長治久安
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794427_2_20250305202656.jpg&q=60)
-  
-
-在北京，港區全國人大代表團團長馬逢國表示，非常印象深刻，今次是多年以來人大會議以來，最精簡的一次總理政府工作報告，用了不足1小時就讀完，
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794427-20250305.htm)
 
 ---

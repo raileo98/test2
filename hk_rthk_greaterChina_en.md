@@ -1,3 +1,32 @@
+# China will 'firmly counter' US amid trade row: Wang Yi
+
+![The foreign minister says the "law of the jungle" could take hold in the world. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794703_1_20250307113148.jpg&q=90)
+  
+
+Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, after Washington imposed new tariffs on Chinese goods.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm)
+
+---
+
 # China wants a lasting peace in Ukraine: FM
 
 ![Foreign Minister Wang Yi speaks at a press conference on the sidelines of the National People's Congress in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
@@ -1707,34 +1736,5 @@ A mainland court has sentenced four people described as key figures in cross-bou
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792932-20250224.htm)
-
----
-
-# Alibaba announces investment in AI, cloud computing
-
-![Alibaba says it plans to invest at least 380 billion yuan over the next three years to advance its cloud computing and AI infrastructure. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792919_1_20250224132805.jpg&q=90)
-  
-
-Chinese tech giant Alibaba said on Monday it will invest more than 380 billion yuan (US$52.4 billion) on artificial intelligence and cloud computing over the next three years.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm)
 
 ---

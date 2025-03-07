@@ -1,3 +1,32 @@
+# 內地1-2月美元計價出口按年增長2.3%仍遜預期
+
+![中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%；進口按年下跌8.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794702_1_20250307112414.jpg&q=60)
+  
+
+中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%，差過市場預期的5%；進口按年下跌8.4%，市場原先預期會升1%。首兩個月貿易順差1705.2億美元。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm)
+
+---
+
 # 全國兩會｜李書福：應支持民營製造業企業加快數字化、綠色化轉型
 
   
@@ -1683,34 +1712,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794568-20250306.htm)
-
----
-
-# 全國兩會｜潘功勝：人行將優化科技創新和技術改造再貸款政策
-
-![潘功勝說，歡迎國際投資者投資中國科技企業，反對將市場化投資行為工具化、政治化。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794572_1_20250306173507.jpg&q=90)
-  
-
-人民銀行行長潘功勝表示，人行將進一步優化科技創新和技術改造再貸款政策，進一步擴大再貸款規模，由現時5000億元人民幣，擴大到8000億元至1萬億元，亦會降低再貸款利率；擴大再貸款支持範圍，大幅提高政策覆蓋面；保持財政貼息力度，進一步減低企業融資成本；優化再貸款政策流程。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794572-20250306.htm)
 
 ---
