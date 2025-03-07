@@ -1,5 +1,34 @@
+# 葉子季將出任規劃署署長　廖嘉俊出任政府飛行服務隊
+
+  
+
+政府高層官員任命，首席政府城市規劃師葉子季將於本月18日出任規劃署署長，接替於同日展開退休前休假的鍾文傑；政府飛行服務隊總機師廖嘉俊於本月13日出任政府飛行服務隊總監，接替同日展開退休前休假的胡偉雄；及副首席律師周麗蓮於本月31日出任破產管理署署長，接替同日開始退休前休假的麥錦羅。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm)
+
+---
+
 # 兩人涉向社區隔離設施地盤工人索賄收賄被廉署起訴　認罪候判
 
+![案件押後至本月26日判刑，兩名被告還押懲教署看管，以等待索取被告的背景報告及社會服務令報告。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794753_1_20250307164800.jpg&q=50)
   
 
 一名工程分判商時任「工頭」及一名時任建築工人，2022年疫情期間興建大嶼山竹篙灣社區隔離設施時，向4名經介紹入職的釘板工人索取及收受賄款共約98000元。兩人於西九龍裁判法院承認控罪，案件押後至本月26日判刑，並將兩名被告還押懲教署看管，以等待索取被告的背景報告及社會服務令報告。
@@ -29,6 +58,11 @@
 # 蔡若蓮稱杭州交流團學生離世事件與交流及考察活動無關
 
 ![蔡若蓮表示，日前在杭州交流團離世的學生，事件與交流及考察活動無關。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794751_1_20250307164024.jpg&q=90)
+  
+
+聖保羅書院一名中五學生早前在內地杭州交流期間死亡。教育局局長蔡若蓮首次開控回應，表示相關調查告已告一段落，明確了解到事件與交流活動及考察無關，為尊重死者家屬意願，不會披露個案內容。她說，對這宗不幸事固感到非常難過，向家人致以深切慰問。
+  
+
   
 
 
@@ -1697,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794566-20250306.htm)
-
----
-
-# 社署提醒長者注意天氣寒冷保重身體
-
-![社署提醒長者注意保重身體，並呼籲其親友和鄰居多關心及慰問體弱長者的身體狀況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794565_1_20250306165005.jpg&q=80)
-  
-
-天文台在下午4時20分發出寒冷天氣警告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794565-20250306.htm)
 
 ---
