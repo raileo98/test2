@@ -1,3 +1,31 @@
+# 港鐵稱考慮業績市場及經濟環境與員工貢獻而調整薪酬
+
+  
+
+港鐵公司表示，按照既定及行之有效的薪酬檢討機制，在審慎考慮業績、市場及經濟環境、員工貢獻等多方面因素後，大部分的非經理級員工獲 1.8%-4.3%的基本薪酬加幅，為確保公司整體薪酬福利持續具市場競爭力，吸引及保留人才，公司亦會按業務表現等考慮發放獎金等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm)
+
+---
+
 # 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
 
   
@@ -1682,34 +1710,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm)
-
----
-
-# 美元連跌4日　資金流入日圓及瑞郎避險
-
-![美元指數一度失守104水平，低見103.75，在紐約尾市報104.2，跌幅近0.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794650_1_20250307061651.jpg&q=75)
-  
-
-美元連跌4日，一度觸及4個月以來最低，貿易戰的不確定性，令避險資金流入日圓及瑞士法郎。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794650-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794650-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794650-20250307.htm)
 
 ---

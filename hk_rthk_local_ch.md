@@ -1,3 +1,31 @@
+# 港鐵稱考慮業績市場及經濟環境與員工貢獻而調整薪酬
+
+  
+
+港鐵公司表示，按照既定及行之有效的薪酬檢討機制，在審慎考慮業績、市場及經濟環境、員工貢獻等多方面因素後，大部分的非經理級員工獲 1.8%-4.3%的基本薪酬加幅，為確保公司整體薪酬福利持續具市場競爭力，吸引及保留人才，公司亦會按業務表現等考慮發放獎金等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm)
+
+---
+
 # 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
 
   
@@ -1697,34 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm)
-
----
-
-# 寒冷天氣警告生效　衞生防護中心提醒市民採取適當措施保障健康
-
-![由於天氣寒冷，市民特別是長者和長期病患者應採取適當措施，保障健康。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794664_1_20250307085603.jpg&q=90)
-  
-
-衞生防護中心表示，由於天氣寒冷，市民特別是長者和長期病患者應採取適當措施，保障健康。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794664-20250307.htm)
 
 ---
