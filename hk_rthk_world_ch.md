@@ -1,3 +1,32 @@
+# 扎哈羅娃：任何挑起俄中關係不和企圖　俄中將堅決回擊
+
+![扎哈羅娃強調，俄中將對挑起兩國關係不和的企圖予以堅決回擊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794755_1_20250307164513.jpg&q=90)
+  
+
+俄羅斯外交部發言人扎哈羅娃表示，俄中關係是國際事務中的重要穩定因素，雙方為建立更加公正的世界秩序作出重大貢獻。她強調，俄中將對任何挑起兩國關係不和的企圖予以堅決回擊。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm)
+
+---
+
 # 南韓法院決定取消拘留尹錫悅　倘檢方不提抗訴將獲釋
 
 ![南韓首爾中央地方法院通過撤銷逮捕尹錫悅的申請，如果檢方不提出抗訴將獲釋。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794749_1_20250307162803.jpg&q=90)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794453-20250305.htm)
-
----
-
-# 南韓指援俄北韓軍人接受俄方無人機操作培訓
-
-![金正恩去年曾視察無人機測試。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794439_1_20250305205300.jpg&q=85)
-  
-
-南韓國家情報院表示，有跡象表明支援俄羅斯的北韓軍人，接受俄羅斯方面有關無人機的操作和戰術運用培訓，正密切關注兩軍展開無人機合作的可能性。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794439-20250305.htm)
 
 ---

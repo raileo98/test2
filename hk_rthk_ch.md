@@ -1,3 +1,60 @@
+# 扎哈羅娃：任何挑起俄中關係不和企圖　俄中將堅決回擊
+
+![扎哈羅娃強調，俄中將對挑起兩國關係不和的企圖予以堅決回擊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794755_1_20250307164513.jpg&q=90)
+  
+
+俄羅斯外交部發言人扎哈羅娃表示，俄中關係是國際事務中的重要穩定因素，雙方為建立更加公正的世界秩序作出重大貢獻。她強調，俄中將對任何挑起兩國關係不和的企圖予以堅決回擊。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm)
+
+---
+
+# 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
+
+  
+
+杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm)
+
+---
+
 # 兩人涉向社區隔離設施地盤工人索賄收賄被廉署起訴　認罪候判
 
   
