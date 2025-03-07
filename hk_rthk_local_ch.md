@@ -1,5 +1,6 @@
 # 被騙到緬甸後獲救港人部分回港　由警方車輛接載到機場警署
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794820_1_20250308000411.jpg&q=90)
   
 
 再多6名被誘騙到緬甸的香港人獲救。除了一人留在泰國，其餘返抵本港。
