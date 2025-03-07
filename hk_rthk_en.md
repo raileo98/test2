@@ -1,3 +1,32 @@
+# 'Govt should seek new revenue streams amid deficit'
+
+![NPC deputies Frank Chan (L) and Nicholas Chan (R) are attending the "Two Sessions" meetings in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=55)
+  
+
+Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
+
+---
+
 # US stocks tumble again on slowdown worries
 
 ![The Dow finished down one percent at 42.579, after spending the entire session in negative territory. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794654_1_20250307064135.jpg&q=85)
@@ -1710,34 +1739,5 @@ China on Wednesday said it will boost support for the application of AI models t
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm)
-
----
-
-# HSI adds 1pc despite losses on Wall Street
-
-![The Hang Seng Index posts gains as China pledges to make domestic demand the "main engine" of its economic growth. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794303_1_20250305094110.jpg&q=15)
-  
-
-Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qiang announced a target GDP growth of "around 5 percent" for 2025 and pledged to make domestic demand the "main engine" of its economic growth.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm)
 
 ---

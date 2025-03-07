@@ -1,5 +1,93 @@
+# 美國「星艦」第八次試飛　第二級飛船再次失聯
+
+![「星艦」當地星期四從得州發射升空，實施第八次試飛。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794669_1_20250307085827.jpg&q=90)
+  
+
+美國太空探索技術公司SpacX新一代重型運載火箭「星艦」當地星期四從得州發射升空，實施第八次試飛。升空後不久，火箭第二級飛船與地面失去聯繫，是連續第二次發生類似情況。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm)
+
+---
+
+# 全國兩會｜陳帆及陳曉峰提建議　促本港推動碳交易市場發展
+
+![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）02](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
+  
+
+在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm)
+
+---
+
+# 警方擬於觀塘推出智慧交通管理系統　人工智能分辨違泊及交通事故
+
+![警方聯同科大研發推出「智慧交通管理系統」，希望改善觀塘區內交通情況。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794666_1_20250307084607.jpg&q=20)
+  
+
+警方觀塘警區聯同科大研發推出「智慧交通管理系統」，希望改善區內交通情況。為配合系統，警方在觀塘商貿區安裝11組閉路電視，全天候收集交通數據。系統由警方及運輸署共同使用，配合人工智能技術，可以即時分辨塞車、交通事故、違例泊車等情況，除了會發出警示提醒相關部門外，系統亦會提供建議，包括應該調配多少警力到現場處理事故、如何調整交通燈號等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794666-20250307.htm)
+
+---
+
 # 寒冷天氣警告生效　衞生防護中心提醒市民採取適當措施保障健康
 
+![由於天氣寒冷，市民特別是長者和長期病患者應採取適當措施，保障健康。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794664_1_20250307085603.jpg&q=80)
   
 
 衞生防護中心表示，由於天氣寒冷，市民特別是長者和長期病患者應採取適當措施，保障健康。
@@ -165,8 +253,8 @@
 
 # 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
 
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_1_20250307080749.jpg&q=75)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_2_20250307080749.jpg&q=80)
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=70)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_4_20250307090212.jpg&q=70)
   
 
 在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
@@ -1639,92 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794588-20250306.htm)
-
----
-
-# 歐盟領導人舉行緊急峰會討論烏克蘭危機及歐洲防禦
-
-![歐盟委員員主席馮德萊恩在會前提出重新武裝歐洲計劃。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794599_1_20250306183832.jpg&q=85)
-  
-
-歐盟領導人在布魯塞爾舉行緊急峰會，討論烏克蘭危機及加強歐洲防禦，烏克蘭總統澤連斯基亦會出席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794599-20250306.htm)
-
----
-
-# 醫衞局探討立法提升私營醫療收費透明度將參考消委會報告
-
-![醫衞局正積極籌備就私營醫療收費透明度立法進行諮詢的工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794600_1_20250306183723.jpg&q=85)
-  
-
-醫務衞生局回應消委會就醫療價格透明度提出的建議時表示，歡迎消委會報告，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界，制訂相關諮詢建議時，亦會參考消委會報告。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794600-20250306.htm)
-
----
-
-# 口岸爆炸案專家證人估計爆炸裝置放不同位置目的為「精密襲擊」
-
-![口岸爆炸案高等法院踏入第65天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794597_1_20250306183254.jpg&q=80)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第65天審訊。控方繼續傳召爆炸品專家證人、警司盧秉善作供，他表示，2020年2月在羅湖站處理兩個設計相同的簡易爆炸裝置，估計兩個裝置原本是要放置不同地點，用作造成多人傷亡或重大物質損害的「精密襲擊」。專家證人提到，雖然其中一個裝置運作時有機會破壞另一個裝置，但如果兩個裝置放在一起可以提高造成破壞或傷亡的成功率。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794597-20250306.htm)
 
 ---

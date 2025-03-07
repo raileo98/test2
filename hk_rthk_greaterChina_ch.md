@@ -1,7 +1,36 @@
+# 全國兩會｜陳帆及陳曉峰提建議　促本港推動碳交易市場發展
+
+![陳帆（左）與劉曉峰聯合提交建議，促本港進一步發展碳交易市場。（劉澤浩攝）02](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794667_1_20250307085511.jpg&q=65)
+  
+
+在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm)
+
+---
+
 # 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
 
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_1_20250307080749.jpg&q=75)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_2_20250307080749.jpg&q=80)
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=70)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_4_20250307090212.jpg&q=70)
   
 
 在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
@@ -1698,30 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794397-20250305.htm)
-
----
-
-# 回應加徵關稅　外交部：美方如執意損害中國利益將奉陪到底
-
-![林劍：中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794395_1_20250305164428.jpg&q=90)
-  
-
-在北京，外交部再回應美國再對華加徵關稅，發言人林劍表示，美方執意以芬太尼問題為藉口，再次對中國輸美的產品加徵關稅。中方多次闡明反對立場，採取正當必要的反制措施。美方如果真想解決芬太尼問題，就應該在平等、尊重、互惠的基礎上，同中方磋商解決各自關切。美方如果別有所圖，執意損害中國的利益，中方必將奉陪到底。中方奉勸美方收起霸淩的嘴臉，趁早回到對話合作的正確軌道。
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794395-20250305.htm)
 
 ---

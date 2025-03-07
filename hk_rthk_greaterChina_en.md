@@ -1,3 +1,32 @@
+# 'Govt should seek new revenue streams amid deficit'
+
+![NPC deputies Frank Chan (L) and Nicholas Chan (R) are attending the "Two Sessions" meetings in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=55)
+  
+
+Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
+
+---
+
 # Xi calls for stronger education role in sci-tech
 
 ![President X Jinping calls for for comprehensive education reforms, including granting schools greater autonomy and improving governance. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794640_1_20250307023617.jpg&q=90)
@@ -1707,34 +1736,5 @@ Beijing has responded to accusations made by Australian authorities, saying it h
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792832-20250223.htm)
-
----
-
-# Two-state solution key to peace in Gaza: FM
-
-![Foreign Minister Wang Yi said any future arrangement must adhere to the principle of "Palestinians governing Palestine". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792785_1_20250223021444.jpg&q=80)
-  
-
-A lasting peace in the Israeli-Palestinian conflict can only be achieved through a two-state solution, Foreign Minister Wang Yi said in a phone call with Egyptian Foreign Minister Badr Abdelatty on Saturday.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792785-20250223.htm)
 
 ---

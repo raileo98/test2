@@ -1,3 +1,32 @@
+# 美國「星艦」第八次試飛　第二級飛船再次失聯
+
+![「星艦」當地星期四從得州發射升空，實施第八次試飛。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794669_1_20250307085827.jpg&q=90)
+  
+
+美國太空探索技術公司SpacX新一代重型運載火箭「星艦」當地星期四從得州發射升空，實施第八次試飛。升空後不久，火箭第二級飛船與地面失去聯繫，是連續第二次發生類似情況。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm)
+
+---
+
 # 歐盟特別峰會結束　同意「重新武裝歐洲」計劃
 
 ![歐洲理事會主席科斯塔（右）與歐盟委員會主席馮德萊恩在會議結束後會見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794663_1_20250307081614.jpg&q=80)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794266-20250305.htm)
-
----
-
-# 白俄羅斯總統簽署法律批准俄白聯盟國家安全保障條約
-
-![盧卡申科簽署法律，批准白俄羅斯和俄羅斯在聯盟國家框架內的安全保障條約。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794260_1_20250305053931.jpg&q=90)
-  
-
-白俄羅斯總統盧卡申科簽署法律，批准白俄羅斯和俄羅斯在聯盟國家框架內的安全保障條約。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794260-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794260-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794260-20250305.htm)
 
 ---

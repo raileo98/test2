@@ -1,3 +1,32 @@
+# 'Govt should seek new revenue streams amid deficit'
+
+![NPC deputies Frank Chan (L) and Nicholas Chan (R) are attending the "Two Sessions" meetings in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=55)
+  
+
+Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
+
+---
+
 # "Home demand is keen": govt rejects oversupply claims
 
 ![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=25)
@@ -1709,34 +1738,5 @@ The government said on Friday that eight residential plots it plans to roll out 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793689-20250228.htm)
-
----
-
-# Govt seeking clarifications over latest US tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793674_1_20250228165109.jpg&q=80)
-  
-
-Secretary for Commerce and Economic Development Algernon Yau on Friday said authorities are seeking clarifications as to whether new additional tariffs on Chinese imports announced by the US also cover goods from Hong Kong.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793674-20250228.htm)
 
 ---
