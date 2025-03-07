@@ -1,3 +1,32 @@
+# 國際油價高收1%或以上　本周累跌近4%
+
+![英美期油價格周五收市升1%或以上，全星期則下跌近4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794843_1_20250308071855.jpg&q=90)
+  
+
+國際期油價格周五收市升1%或以上，全星期則下跌近4%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![ATMXJ的ADR較本港收市下跌，其中京東跌幅逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794841_1_20250308070123.jpg&q=80)
@@ -1703,34 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm)
-
----
-
-# 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
-  
-
-再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
 
 ---

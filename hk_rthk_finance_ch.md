@@ -1,3 +1,32 @@
+# 國際油價高收1%或以上　本周累跌近4%
+
+![英美期油價格周五收市升1%或以上，全星期則下跌近4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794843_1_20250308071855.jpg&q=90)
+  
+
+國際期油價格周五收市升1%或以上，全星期則下跌近4%。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![ATMXJ的ADR較本港收市下跌，其中京東跌幅逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794841_1_20250308070123.jpg&q=80)
@@ -1699,34 +1728,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794680-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794680-20250307.htm)
-
----
-
-# 人行開展1850億元人民幣逆回購操作
-
-![人民銀行公開市場開展1850億元人民幣7日期逆回購操作，單日淨回籠995億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794678_1_20250307092908.jpg&q=65)
-  
-
-人民銀行公開市場開展1850億元人民幣7日期逆回購操作，中標利率維持於1.5厘。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794678-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794678-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794678-20250307.htm)
 
 ---
