@@ -145,7 +145,7 @@
 
 # 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
 
-![王毅說，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794695_1_20250307110551.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794695_1_20250307110551.jpg&q=85)
   
 
 在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
