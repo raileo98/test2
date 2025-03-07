@@ -1,3 +1,31 @@
+# 「打假波」案4人被控串謀詐騙等罪　案件押至7月7日再訊
+
+  
+
+香港乙組足球聯賽球隊虎門體育會班主涉嫌串謀外圍「莊家」及兩名球員「打假波」，提供賄款共逾24萬元。案件在東區法院提堂，4人被控串謀詐騙等罪，暫毋須答辯。控方申請將案件押後至7月7日，獲主任裁判官批准，各人准以10萬元保釋候訊。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm)
+
+---
+
 # 滬股低收0.25%　創業板跌1.3%
 
 ![上證指數收報3372點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794736_1_20250307150918.jpg&q=90)
@@ -29,6 +57,7 @@
 
 # 消息：6名港人被禁錮東南亞獲營救　鄧炳強下午由泰國回港交代
 
+![鄧炳強由泰國返港後，下午約5時在機場會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794735_1_20250307152505.jpg&q=90)
   
 
 保安局局長鄧炳強由泰國返港後，下午約5時在機場會見傳媒。

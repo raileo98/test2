@@ -1,5 +1,34 @@
+# 「打假波」案4人被控串謀詐騙等罪　案件押至7月7日再訊
+
+  
+
+香港乙組足球聯賽球隊虎門體育會班主涉嫌串謀外圍「莊家」及兩名球員「打假波」，提供賄款共逾24萬元。案件在東區法院提堂，4人被控串謀詐騙等罪，暫毋須答辯。控方申請將案件押後至7月7日，獲主任裁判官批准，各人准以10萬元保釋候訊。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm)
+
+---
+
 # 消息：6名港人被禁錮東南亞獲營救　鄧炳強下午由泰國回港交代
 
+![鄧炳強由泰國返港後，下午約5時在機場會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794735_1_20250307152505.jpg&q=90)
   
 
 保安局局長鄧炳強由泰國返港後，下午約5時在機場會見傳媒。
@@ -1702,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794554-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794554-20250306.htm)
-
----
-
-# 全國兩會｜廣東省生產總值連續36年全國首位　聯港澳辦好全運會
-
-![張虎（中）提出，會積極推動廣東經濟高質量發展，從多方面落實工作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794551_1_20250306162126.jpg&q=85)
-  
-
-廣東省全國人大代表團下午舉行全體會議，廣東省委書記黃坤明、廣東省省長王偉中等列席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794551-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794551-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794551-20250306.htm)
 
 ---
