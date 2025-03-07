@@ -1,3 +1,32 @@
+# 巴赫稱正研究革新奧運贊助商權益　堅守賽場純潔同時創造展示機會
+
+![巴赫表示正考慮放寬有關商業展示限制，調整為更靈活的「清潔賽場政策」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794828_1_20250308022818.jpg&q=90)
+  
+
+國際奧委會將於本月20日舉行新主席選舉，現任主席巴赫接受國際通訊社訪問時表示，國際奧委會正研究在贊助商權益方面進行革新，未來奧運贊助商可能會在奧運舞台上獲得更多展示機會；而在世界拳擊聯合會暫時獲得國際奧委會認可後，拳擊重返奧運舞台亦被提上議事日程。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm)
+
+---
+
 # 俄國防部稱打擊確保烏克蘭軍工運作能源基礎設施　摧毀所有目標
 
 ![烏克蘭哈爾科夫遇襲，有建築物受損並冒煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794827_1_20250308021709.jpg&q=70)
@@ -1698,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
-
----
-
-# 內地2月外匯儲備增加約182億美元　連續4個月增持黃金
-
-![人行數據顯示，內地2月外匯儲備規模按月增加約182億美元，連升兩個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794760_1_20250307170721.jpg&q=60)
-  
-
-國家外匯管理局公布，截至上月底，內地外匯儲備規模32272億美元，按月上升約182億美元，升幅逾0.5%，連升兩個月。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm)
 
 ---

@@ -1,3 +1,32 @@
+# 巴赫稱正研究革新奧運贊助商權益　堅守賽場純潔同時創造展示機會
+
+![巴赫表示正考慮放寬有關商業展示限制，調整為更靈活的「清潔賽場政策」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794828_1_20250308022818.jpg&q=90)
+  
+
+國際奧委會將於本月20日舉行新主席選舉，現任主席巴赫接受國際通訊社訪問時表示，國際奧委會正研究在贊助商權益方面進行革新，未來奧運贊助商可能會在奧運舞台上獲得更多展示機會；而在世界拳擊聯合會暫時獲得國際奧委會認可後，拳擊重返奧運舞台亦被提上議事日程。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm)
+
+---
+
 # 俄國防部稱打擊確保烏克蘭軍工運作能源基礎設施　摧毀所有目標
 
 ![烏克蘭哈爾科夫遇襲，有建築物受損並冒煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794827_1_20250308021709.jpg&q=70)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794576-20250306.htm)
-
----
-
-# 日本東北新幹線有列車脫卡無人傷　屬半年內第二宗同類事故
-
-![由綠色「隼」號列車與紅色「小町」號列車連接而成的重聯運行列車脫卡，停在西日暮里站附近。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794571_1_20250306165306.jpg&q=35)
-  
-
-日本東北新幹線一列列車在行駛途中脫卡，無人受傷，是半年內第二宗同類事故。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794571-20250306.htm)
 
 ---

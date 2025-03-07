@@ -1,3 +1,32 @@
+# 巴赫稱正研究革新奧運贊助商權益　堅守賽場純潔同時創造展示機會
+
+![巴赫表示正考慮放寬有關商業展示限制，調整為更靈活的「清潔賽場政策」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794828_1_20250308022818.jpg&q=90)
+  
+
+國際奧委會將於本月20日舉行新主席選舉，現任主席巴赫接受國際通訊社訪問時表示，國際奧委會正研究在贊助商權益方面進行革新，未來奧運贊助商可能會在奧運舞台上獲得更多展示機會；而在世界拳擊聯合會暫時獲得國際奧委會認可後，拳擊重返奧運舞台亦被提上議事日程。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm)
+
+---
+
 # 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
 
 ![啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794810_1_20250307221729.jpg&q=80)
@@ -1717,34 +1746,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793620-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793620-20250228.htm)
-
----
-
-# 啟德體育園明晚開幕禮　運輸署稱確保接連交通配套落實到位
-
-![運輸署表示，在大型活動前，會預先與相關方面妥善部署公共交通配套。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793608_1_20250228102227.jpg&q=85)
-  
-
-啟德體育園明晚舉行開幕禮。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793608-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793608-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793608-20250228.htm)
 
 ---
