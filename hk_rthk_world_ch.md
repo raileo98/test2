@@ -1,3 +1,27 @@
+# 南韓檢察機關放棄上訴　尹錫悅將從拘留所獲釋
+
+![大批尹錫悅支持者在首爾拘留所外聚集，準備歡迎尹錫悅獲釋。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794914_1_20250308165307.jpg&q=45)
+  
+
+南韓檢察機關決定，不就法院批准取消拘留總統尹錫悅提出上訴，法務部已接到檢察機關的相關文件，正進行釋放尹錫悅的程序。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm)
+
+---
+
 # 美國今年以來逾220人感染麻疹　2名患者死亡
 
 ![美國疾控中心公布的數據顯示，全美今年以來共報告222宗麻疹確診病例，2名患者死亡。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794913_1_20250308164746.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794657-20250307.htm)
-
----
-
-# 美私人企業月球登陸器降落月球　公司稱未能直立或影響任務完成
-
-![「雅典娜」月球登陸器上月底發射升空。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794651_1_20250307063009.jpg&q=90)
-  
-
-美國私人公司直覺機器的月球登陸器「雅典娜」登陸月球，公司認為，「雅典娜」未能處於直立狀態，可能會限制任務的完成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm)
 
 ---
