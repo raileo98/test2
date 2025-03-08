@@ -1,3 +1,27 @@
+# 澳洲東部受熱帶氣旋吹襲至少一死　兩輛協助救災軍車相撞36傷
+
+![在黃金海岸，有帆船被大浪沖到岸邊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794925_1_20250308195330.jpg&q=80)
+  
+
+澳洲東部遭受熱帶氣旋吹襲，至少一人死亡，新南威爾士州有兩輛協助救災的軍車相撞，最少36人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm)
+
+---
+
 # 巴黎當局在鐵路附近拆除戰時炸彈　估計60萬人受列車停運影響
 
 ![施工人員在巴黎一條鐵路線上發現一枚二戰時期炸彈。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794924_1_20250308193940.jpg&q=85)
@@ -24,6 +48,7 @@
 
 # 全國兩會｜張軍稱要加強涉外法治建設　依法反制非法制裁
 
+![張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794921_1_20250308195840.jpg&q=35)
   
 
 在北京，最高人民法院院長張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟，亦要加強涉外法治建設，依法反制非法制裁和「長臂管轄」。

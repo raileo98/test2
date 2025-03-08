@@ -1,3 +1,27 @@
+# 澳洲東部受熱帶氣旋吹襲至少一死　兩輛協助救災軍車相撞36傷
+
+![在黃金海岸，有帆船被大浪沖到岸邊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794925_1_20250308195330.jpg&q=80)
+  
+
+澳洲東部遭受熱帶氣旋吹襲，至少一人死亡，新南威爾士州有兩輛協助救災的軍車相撞，最少36人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm)
+
+---
+
 # 巴黎當局在鐵路附近拆除戰時炸彈　估計60萬人受列車停運影響
 
 ![施工人員在巴黎一條鐵路線上發現一枚二戰時期炸彈。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794924_1_20250308193940.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794669-20250307.htm)
-
----
-
-# 歐盟特別峰會結束　同意「重新武裝歐洲」計劃
-
-![歐洲理事會主席科斯塔（右）與歐盟委員會主席馮德萊恩在會議結束後會見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794663_1_20250307081614.jpg&q=90)
-  
-
-歐盟在布魯塞爾召開特別峰會，同意歐盟委員會主席馮德萊恩提出的「重新武裝歐洲」計劃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794663-20250307.htm)
 
 ---
