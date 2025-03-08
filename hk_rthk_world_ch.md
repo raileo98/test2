@@ -1,3 +1,27 @@
+# 金正恩視察北韓造船廠　要求大量建造艦艇並加強海軍戰力
+
+![金正恩視察北韓一間造船廠。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794900_1_20250308154916.jpg&q=50)
+  
+
+北韓領袖金正恩視察當地一間造船廠，要求大量建造艦艇並加強海軍戰力，強調朝方絕不會坐視不管敵人的海上及水下軍事行動，將會實現海軍力量革新，進一步強化實力，捍衛海洋主權，切實保證朝鮮半島與地區的安全。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm)
+
+---
+
 # 加拿大多倫多酒吧槍擊案12傷　槍手在逃
 
 ![加拿大多倫多酒吧槍擊案12傷　槍手在逃](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794895_1_20250308153632.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm)
-
----
-
-# 伊朗首都一個軍事設施發生火警　1死10傷
-
-![伊朗首都一個軍事設施發生火警　1死10傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794642_1_20250307052345.jpg&q=90)
-  
-
-伊朗傳媒報道，伊朗首都德黑蘭東北部一個軍事設施發生火警，造成1人死亡、10人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm)
 
 ---

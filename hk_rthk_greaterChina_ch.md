@@ -1,3 +1,26 @@
+# 全國兩會 | 生態環境部稱藍天成常態　水利部指堅持節水優先
+
+  
+
+國家生態環境部部長黃潤秋表示，近十年全國生態環境發生了根本性、轉折性的變化，去年全國PM2.5平均濃度降至每立方米30微克以下，超越「十四五」規劃定下降低10%的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm)
+
+---
+
 # 雲南三百多個景區對台灣首來族提供減免門票優惠
 
 ![雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794892_1_20250308152101.jpg&q=80)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm)
-
----
-
-# 全國兩會｜孫青野：國安法持續完善是正確　是否須修改由人大決定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794684_1_20250307103447.jpg&q=85)
-  
-
-支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm)
 
 ---

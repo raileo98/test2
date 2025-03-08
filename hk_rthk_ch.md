@@ -1,3 +1,73 @@
+# 金正恩視察北韓造船廠　要求大量建造艦艇並加強海軍戰力
+
+![金正恩視察北韓一間造船廠。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794900_1_20250308154916.jpg&q=50)
+  
+
+北韓領袖金正恩視察當地一間造船廠，要求大量建造艦艇並加強海軍戰力，強調朝方絕不會坐視不管敵人的海上及水下軍事行動，將會實現海軍力量革新，進一步強化實力，捍衛海洋主權，切實保證朝鮮半島與地區的安全。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm)
+
+---
+
+# 全國兩會 | 生態環境部稱藍天成常態　水利部指堅持節水優先
+
+  
+
+國家生態環境部部長黃潤秋表示，近十年全國生態環境發生了根本性、轉折性的變化，去年全國PM2.5平均濃度降至每立方米30微克以下，超越「十四五」規劃定下降低10%的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm)
+
+---
+
+# 大熊貓龍鳳胎命名比賽收3萬多份建議　「家姐」「細佬」留作乳名
+
+  
+
+港產大熊貓龍鳳胎的命名大賽截止，海洋公園表示，共收到超過35700份命名建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794898-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794898-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794898-20250308.htm)
+
+---
+
 # 加拿大多倫多酒吧槍擊案12傷　槍手在逃
 
 ![加拿大多倫多酒吧槍擊案12傷　槍手在逃](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794895_1_20250308153632.jpg&q=90)
@@ -72,6 +142,7 @@
 
 # 14歲少女旺角後樓梯遭掌摑6人施襲被捕　警指因言語態度起爭執
 
+![警方指，被捕人士與事主是朋友關係，均為經常流連油尖旺區的青少年。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794893_1_20250308154826.jpg&q=85)
   
 
 網上流傳片段，一名少女被多名青少年在後樓梯包圍並多次掌摑，警方昨日至今日拘捕1男5女涉案人士，年齡由15至22歲，涉嫌襲擊致造成身體傷害，正被扣留調查。
@@ -1411,29 +1482,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm)
-
----
-
-# 被騙到緬甸後獲救港人部分回港　由警方車輛接載到機場警署
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794820_1_20250308000411.jpg&q=90)
-  
-
-再多6名被誘騙到緬甸的香港人獲救。除了一人留在泰國，其餘返抵本港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm)
 
 ---
