@@ -1,3 +1,27 @@
+# ‘HK, mainland should join hands to tackle scams’
+
+![The vice minister of public security Xu Ganlu, (left), says the joint operation between China and Thailand has achieved success in rescuing victims from Myanmar. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
+  
+
+Mainland authorities on Saturday said Hong Kong and the mainland should work together to tackle cross-border scams, after six more SAR residents were released from scam farms in Myanmar.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm)
+
+---
+
 # Catholics across China praying for Pope's recovery
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_2_20250308145523.jpg&q=90)
@@ -1412,29 +1436,5 @@ China's space station will welcome its first foreign astronaut in the next few y
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm)
-
----
-
-# Beijing slams US tariff threat over fentanyl issue
-
-![China urges the US to preserve the progress in bilateral anti-drug cooperation and return to a path that it says benefits both nations. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793740_1_20250301022431.jpg&q=80)
-  
-
-A spokesperson for the Ministry of Public Security on Friday voiced firm opposition to the US threat of imposing an additional 10 per cent tariff on Chinese exports.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm)
 
 ---

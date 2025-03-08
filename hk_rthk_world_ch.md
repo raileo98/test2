@@ -1,3 +1,27 @@
+# 彭博社：只要最終和平協議有進展　俄方對俄烏臨時停火持開放態度
+
+![俄羅斯和烏克蘭未達成和平協議，俄軍連夜空襲頓涅茨克地區，有建築物起火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794901_1_20250308155514.jpg&q=65)
+  
+
+彭博社引述莫斯科知情人士透露，只要在推動俄烏最終和平協議方面取得進展，俄羅斯對討論俄烏臨時停火持開放態度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm)
+
+---
+
 # 金正恩視察北韓造船廠　要求大量建造艦艇並加強海軍戰力
 
 ![金正恩視察北韓一間造船廠。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794900_1_20250308154916.jpg&q=50)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm)
-
----
-
-# 特朗普簽署修正案　暫緩對符合《美墨加協定》商品徵收關稅
-
-![特朗普簽署關稅修正案，推遲對符合《美墨加協定》的產品徵收關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794643_1_20250307052117.jpg&q=90)
-  
-
-美國總統特朗普簽署對墨西哥和加拿大關稅的修正案，推遲對符合《美墨加協定》的產品徵收關稅，直至下月2日。另外，特朗普說，不會改變對鋼鐵和鋁的關稅措施。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794643-20250307.htm)
 
 ---

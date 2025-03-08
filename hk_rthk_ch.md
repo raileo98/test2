@@ -1,3 +1,73 @@
+# 太空油毒品去年被捕人數升35倍最年輕僅12歲　警籲勿沾染毒品
+
+  
+
+警務處處長蕭澤頤表示，青少年涉及嚴重毒品的被捕人數，由2021年的高峰430人，持續下跌至去年的129人，累積跌幅達七成，創下近年的新低，當中學生的跌幅近八成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm)
+
+---
+
+# 政府第二季推友師計劃　女性領袖為女大學生職涯規劃提供指導
+
+  
+
+民政及青年事務局局長麥美娟表示，將於今年第二季推出「『友』妳啟導」友師計劃，為本地女大學生配對女性領袖作為友師，為學員的職涯規劃提供指導。當局已展開了招募友師的工作，得到了本地傑出女性的熱烈響應，成功招募了約50位友師，超出目標，當中不乏女行政總裁和合夥人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm)
+
+---
+
+# 彭博社：只要最終和平協議有進展　俄方對俄烏臨時停火持開放態度
+
+![俄羅斯和烏克蘭未達成和平協議，俄軍連夜空襲頓涅茨克地區，有建築物起火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794901_1_20250308155514.jpg&q=65)
+  
+
+彭博社引述莫斯科知情人士透露，只要在推動俄烏最終和平協議方面取得進展，俄羅斯對討論俄烏臨時停火持開放態度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm)
+
+---
+
 # 金正恩視察北韓造船廠　要求大量建造艦艇並加強海軍戰力
 
 ![金正恩視察北韓一間造船廠。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794900_1_20250308154916.jpg&q=50)

@@ -1,3 +1,49 @@
+# 太空油毒品去年被捕人數升35倍最年輕僅12歲　警籲勿沾染毒品
+
+  
+
+警務處處長蕭澤頤表示，青少年涉及嚴重毒品的被捕人數，由2021年的高峰430人，持續下跌至去年的129人，累積跌幅達七成，創下近年的新低，當中學生的跌幅近八成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm)
+
+---
+
+# 政府第二季推友師計劃　女性領袖為女大學生職涯規劃提供指導
+
+  
+
+民政及青年事務局局長麥美娟表示，將於今年第二季推出「『友』妳啟導」友師計劃，為本地女大學生配對女性領袖作為友師，為學員的職涯規劃提供指導。當局已展開了招募友師的工作，得到了本地傑出女性的熱烈響應，成功招募了約50位友師，超出目標，當中不乏女行政總裁和合夥人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm)
+
+---
+
 # 大熊貓龍鳳胎命名比賽收3萬多份建議　「家姐」「細佬」留作乳名
 
 ![海洋公園表示，「家姐」「細佬」的暱稱會保留做乳名。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794898_1_20250308155623.jpg&q=20)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794743-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794743-20250307.htm)
-
----
-
-# 唐家成出任行會、立法會及政治委任制度官員薪津獨立委員會主席
-
-![唐家成獲委任為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794742_1_20250307154353.jpg&q=90)
-  
-
-行政長官再度委任唐家成為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席，並再度委任蔡永忠和黃子遜為獨立委員會成員，任期由4月1日起生效，為期1年。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm)
-
----
-
-# 藥店店員以誤導性遺漏營業行為售中藥材判社會服務令及賠償逾萬元
-
-![案中男子被判處120小時社會服務令及向案中受害人賠償1.1萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794739_1_20250307154202.jpg&q=20)
-  
-
-一間藥店的男店員因銷售中藥材期間作出誤導性遺漏的營業行為，違反《商品說明條例》，上月21日在西九龍裁判法院被裁定罪名成立，在還柙14日後，今日被判處120小時社會服務令及向案中受害人賠償1.1萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm)
 
 ---
