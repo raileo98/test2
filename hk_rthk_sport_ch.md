@@ -1,3 +1,28 @@
+# 英超利物浦3:1反勝修咸頓　榜首優勢擴大至16分
+
+![達雲紐尼斯今仗為利物浦追成平手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_1_20250309070507.jpg&q=90)
+![諾定咸森林的赫臣奧杜爾一箭定江山。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_2_20250309070507.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，利物浦主場3:1反勝修咸頓，在踢多兩場下，榜首優勢擴大至16分。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm)
+
+---
+
 # 體育爭議解決先導計劃今年內啟動　政府冀年中物色到合適仲裁機構
 
 ![張國鈞說，會在體育界加強教育及宣傳，令業界明白遇到內部解決不到的問題，可透過爭議解決方式去處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794867_1_20250308112118.jpg&q=75)
@@ -1423,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm)
-
----
-
-# 啟德體育園明晚開幕禮　蔡健斌稱網上炒賣門票平台廣告已下架
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793637_1_20250228125849.jpg&q=80)
-  
-
-啟德體育園明日傍晚6時半在主場館舉行開幕典禮。體育專員蔡健斌說，觀眾下午4時半可以開始入場，一定要持實體門票才能進場，呼籲已購買電子門票換領券的市民，明天下午3時前到啟德體藝館換領實體票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm)
 
 ---

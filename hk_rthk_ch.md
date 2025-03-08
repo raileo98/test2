@@ -1,3 +1,28 @@
+# 英超利物浦3:1反勝修咸頓　榜首優勢擴大至16分
+
+![達雲紐尼斯今仗為利物浦追成平手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_1_20250309070507.jpg&q=90)
+![諾定咸森林的赫臣奧杜爾一箭定江山。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_2_20250309070507.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，利物浦主場3:1反勝修咸頓，在踢多兩場下，榜首優勢擴大至16分。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm)
+
+---
+
 # 以媒指美國向哈馬斯提議放10人換取延長加沙停火兩個月
 
 ![美國據報提議哈馬斯釋放10名在生被扣除人員，換取延長加沙地帶（圖）停火兩個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794947_1_20250309070040.jpg&q=55)
@@ -1412,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
-
----
-
-# 運輸署稱密切監察自動駕駛技術測試表現　標籤識別正測試的自動車
-
-![運輸署說，新標籤須於車身上展示，以助識別正在測試的先導自動車。（運輸署社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794865_1_20250308112432.jpg&q=90)
-  
-
-新的自動駕駛車輛規管框架已經實施，為在香港道路測試和先導使用自動車展開新里程。運輸署在社交專頁說，在香港進行的自動駕駛技術測試，最高能達到國際標準5級別中的第4級別，達致高度自動化駕駛，即在特定設計運行條件下自動駕駛系統可持續執行全部動態駕駛任務，並自動執行最小風險策略，運輸署會密切監察測試表現，又說已設計了全新「先導自動車標籤」，以助識別正在測試的先導自動車。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm)
 
 ---
