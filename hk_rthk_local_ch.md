@@ -1,3 +1,26 @@
+# 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
+
+  
+
+由香港西九龍出發至北京和上海的「夕發朝至」高鐵動卧列車，去年6月開通。全國人大代表、國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車，車程時間壓縮對促進香港與內地人員、經貿和文化往來，推動香港更好融入國家發展大局具有重要作用，鐵路部門將密切關注京港、滬港之間高鐵動卧列車開行情況，根據客流需要和技術條件適時優化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm)
+
+---
+
 # 運物局指女性在不同領域擔當重要角色　陳美寶祝願女性能發揮才能
 
 ![運輸及物流局說，女性在不同領域中均擔當著至關重要的角色。（運輸及物流局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794912_1_20250308170117.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
-
----
-
-# 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
-  
-
-在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
+
+  
+
+由香港西九龍出發至北京和上海的「夕發朝至」高鐵動卧列車，去年6月開通。全國人大代表、國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車，車程時間壓縮對促進香港與內地人員、經貿和文化往來，推動香港更好融入國家發展大局具有重要作用，鐵路部門將密切關注京港、滬港之間高鐵動卧列車開行情況，根據客流需要和技術條件適時優化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm)
+
+---
+
 # 南韓總統尹錫悅離開首爾拘留所　向在場支持者揮手和鞠躬致意
 
 ![尹錫悅在首爾拘留所外向支持者揮手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794916_1_20250308172251.jpg&q=75)

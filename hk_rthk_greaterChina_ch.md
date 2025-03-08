@@ -1,3 +1,26 @@
+# 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
+
+  
+
+由香港西九龍出發至北京和上海的「夕發朝至」高鐵動卧列車，去年6月開通。全國人大代表、國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車，車程時間壓縮對促進香港與內地人員、經貿和文化往來，推動香港更好融入國家發展大局具有重要作用，鐵路部門將密切關注京港、滬港之間高鐵動卧列車開行情況，根據客流需要和技術條件適時優化。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm)
+
+---
+
 # 全國兩會 | 預算案倡研陸路邊境建設費　仇鴻稱可實施後看效果
 
 ![仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794910_1_20250308164843.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱中國反對強權霸權　大國不能唯利是圖恃強凌弱
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794689_1_20250307103633.jpg&q=90)
-  
-
-在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威迫利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm)
 
 ---
