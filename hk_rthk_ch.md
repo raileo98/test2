@@ -1,3 +1,27 @@
+# 德國聯盟黨與社民黨就組建聯合政府達初步協議　提出具體政策設想
+
+![默茨在當地星期六與社會民主黨方面進行探索式會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794940_1_20250309021249.jpg&q=85)
+  
+
+德國聯盟黨與社會民主黨，就組建聯合政府達成初步協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm)
+
+---
+
 # 哈馬斯稱有積極跡象表明協議次階段談判將啟動　以官員指不知情
 
 ![哈馬斯表示願意以滿足巴勒斯坦民眾要求的方式進入談判。圖為加沙地帶被炸成廢墟的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794939_1_20250309015115.jpg&q=15)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
-
----
-
-# 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
-
-![張國鈞形容，有關國家安全的法例是「沒有完成式，只有進行式」。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794855_1_20250308111924.jpg&q=85)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
 
 ---

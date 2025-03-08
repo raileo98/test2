@@ -1,3 +1,27 @@
+# 德國聯盟黨與社民黨就組建聯合政府達初步協議　提出具體政策設想
+
+![默茨在當地星期六與社會民主黨方面進行探索式會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794940_1_20250309021249.jpg&q=85)
+  
+
+德國聯盟黨與社會民主黨，就組建聯合政府達成初步協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm)
+
+---
+
 # 哈馬斯稱有積極跡象表明協議次階段談判將啟動　以官員指不知情
 
 ![哈馬斯表示願意以滿足巴勒斯坦民眾要求的方式進入談判。圖為加沙地帶被炸成廢墟的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794939_1_20250309015115.jpg&q=15)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
-
----
-
-# 特朗普簽署行政命令建立戰略性比特幣儲備
-
-![美國建立的戰略性比特幣儲備將以聯邦政府擁有的比特幣為資本。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794693_1_20250307104107.jpg&q=70)
-  
-
-美國總統特朗普簽署行政命令，建立戰略性比特幣儲備。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm)
 
 ---
