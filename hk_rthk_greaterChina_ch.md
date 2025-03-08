@@ -1,3 +1,26 @@
+# 全國兩會 | 預算案倡研陸路邊境建設費　仇鴻稱可實施後看效果
+
+  
+
+在北京，全國政協委員、中聯辦前副主任仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm)
+
+---
+
 # 全國兩會 | 趙樂際稱今年審議34件法律案　維護特區憲制秩序
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱將以中國確定性穩住不確定世界
-
-![王毅表示，中方將做維護國際公平正義的進步力量，堅持真正的多邊主義，以人類前途為懷，人民福祉為念。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794687_1_20250307103941.jpg&q=25)
-  
-
-在北京，外長王毅表示，當今世界變亂交織，確定性日益成為全球稀缺資源，各國尤其是大國作出何種抉擇，將決定時代方向，影響世界格局。中國外交將堅定不移站在歷史正確的一邊，站在人類進步的一邊，將以中國的確定性穩住不確定的世界。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
 
 ---

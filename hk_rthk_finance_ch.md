@@ -1,3 +1,26 @@
+# 全國兩會 | 預算案倡研陸路邊境建設費　仇鴻稱可實施後看效果
+
+  
+
+在北京，全國政協委員、中聯辦前副主任仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm)
+
+---
+
 # 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
 
 ![何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794890_1_20250308155802.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm)
-
----
-
-# 全國兩會｜李書福：應支持民營製造業企業加快數字化、綠色化轉型
-
-![李書福認為，要支持企業數字化轉型，鞏固產業升級好勢頭。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794699_1_20250307123521.jpg&q=90)
-  
-
-全國政協委員、吉利控股集團董事長李書福表示，在新舊動能轉換過程中，應支持民營製造業企業加快數字化、綠色化轉型，為推動傳統產業高質量發展發揮關鍵作用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm)
 
 ---
