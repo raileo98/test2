@@ -1,3 +1,31 @@
+# 張國鈞：國安法如何執行得更好　由香港機關處理
+
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm)
+
+---
+
 # 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
 
   
@@ -1696,34 +1724,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm)
-
----
-
-# 消委會接投訴有病人膝蓋手術「報錯價」　女童割傷手指手術十萬元
-
-![黃鳳嫺說，消委會研究發現不少私院及日間醫療中心只是給予口頭預算，當中醫療中心情況較普遍。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794690_1_20250307103710.jpg&q=90)
-  
-
-消委會過去4年共接獲191宗有關私家醫院及日間醫療中心的投訴，當中約半數關乎收費爭議。總幹事黃鳳嫺出席本台節目《千禧年代》表示，醫療投訴不容易調解，現時成功調解比率為35%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm)
 
 ---
