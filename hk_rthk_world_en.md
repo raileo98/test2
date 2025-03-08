@@ -1,3 +1,27 @@
+# Muslim nations adopt Arab idea over Trump's Gaza plan
+
+![The OIC's decision came at an emergency meeting in Jeddah, Saudi Arabia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794923_1_20250308192050.jpg&q=75)
+  
+
+The Organisation of Islamic Cooperation formally adopted early on Saturday an Arab League counter-proposal to US President Donald Trump's plan to take over Gaza and displace its residents, calling on the international community to support the regional initiative.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm)
+
+---
+
 # S Korea's impeached President Yoon released
 
 ![Impeached South Korean President Yoon Suk Yeol bows to his supporters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794922_1_20250308181642.jpg&q=75)
@@ -1416,29 +1440,5 @@ The latest round of talks on the second phase of the ceasefire between Israel an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793821-20250301.htm)
-
----
-
-# PKK declares ceasefire with Turkey after 40 years
-
-![Turkish president Recep Tayyip Erdogan has described PKK leader Abdullah Ocalan's appeal as an "historic opportunity." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793814_1_20250301193855.jpg&q=90)
-  
-
-Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey following a landmark call by jailed PKK leader Abdullah Ocalan asking the group to disband.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm)
 
 ---

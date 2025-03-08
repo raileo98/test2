@@ -1,3 +1,27 @@
+# Muslim nations adopt Arab idea over Trump's Gaza plan
+
+![The OIC's decision came at an emergency meeting in Jeddah, Saudi Arabia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794923_1_20250308192050.jpg&q=75)
+  
+
+The Organisation of Islamic Cooperation formally adopted early on Saturday an Arab League counter-proposal to US President Donald Trump's plan to take over Gaza and displace its residents, calling on the international community to support the regional initiative.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm)
+
+---
+
 # Three-way tie after Day 2 of LIV Golf Hong Kong event
 
 ![Three players finished on top after the second round of the LIV Golf Hong Kong tournament. Image courtesy of LIV Golf.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794917_1_20250308173011.jpg&q=85)
@@ -1413,29 +1437,5 @@ Net profit at the MTR Corporation more than doubled last year, thanks largely to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
-
----
-
-# Four charged with fixing HK football matches
-
-![The ICAC said the case centred on 11 league and cup matches between 2021 and 2022. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794578_1_20250306172359.jpg&q=80)
-  
-
-The ICAC on Thursday charged four people on suspicion of fixing matches in the Hong Kong football league.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm)
 
 ---
