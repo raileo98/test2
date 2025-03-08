@@ -1,6 +1,11 @@
-# 南韓總統尹錫悅離開首爾拘留所
+# 南韓總統尹錫悅離開首爾拘留所　向在場支持者揮手和鞠躬致意
 
+![尹錫悅在首爾拘留所外向支持者揮手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794916_1_20250308172251.jpg&q=75)
+![尹錫悅在首爾拘留所外向支持者鞠躬致意。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794916_2_20250308172251.jpg&q=90)
   
+
+南韓檢察機關決定，不就法院批准取消拘留總統尹錫悅提出上訴，尹錫悅其後離開首爾拘留所。他在今年1月15日被捕至今日上午，已滿52天。
+
   
 
 
