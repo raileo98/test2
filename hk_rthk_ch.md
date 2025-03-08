@@ -1,3 +1,72 @@
+# 屯門男子踏單車被的士撞倒搶救不治　73歲的士司機被捕
+
+  
+
+屯門早上發生致命交通意外，一名騎單車的68歲男子死亡。73歲的士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm)
+
+---
+
+# 財政預算案2025 | 孫玉菡：削資導致數千人手流失說法誤導
+
+  
+
+預算案提出節省政府經常開支，2027至28年度的累計減幅為7%。勞工及福利局局長孫玉菡在一個電視節目表示，日前與170多間社福機構代表見面，交代要在資源效率優化計劃下削減開支，他認為會面氣氛友善，大家都基本明白政府的狀況，想辦法應對。他說，在僅有資源下，當局會盡量協助中小型的社福機構，但他們仍要承擔3%的削減。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm)
+
+---
+
+# 全國兩會 | 海南省省長：確保封關運作取得明顯成效
+
+  
+
+海南自貿港預計今年年底前實現全島封關運作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm)
+
+---
+
 # 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
 
 ![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
@@ -1365,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm)
-
----
-
-# 房委會建議公屋入息及資產限額平均上調1.7%
-
-![房委會建議2025/26年度公屋入息和資產限額均平均上調1.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794815_1_20250307224750.jpg&q=90)
-  
-
-房委會完成公屋入息及資產限額檢討，建議2025/26年度公屋入息和資產限額均平均上調1.7%。下星期五諮詢立法會房屋事務委員會意見，之後房委會資助房屋小組將於本月21日的會議上討論。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
-
----
-
-# 華潤飲料、毛戈平、小菜園等納入港股通名單
-
-![上海證券交易所表示，滬港通下的港股通標的名單加入多隻股份，包括華潤飲料、毛戈平、小菜園等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794808_1_20250307215320.jpg&q=85)
-  
-
-上海證券交易所表示，因應恒生綜合大型股指數等實施成份股調整，滬港通下的港股通標的名單加入多隻股份，包括貝殼、華潤飲料、迅飛醫療科技、英諾賽科、中信金融資產、毛戈平、小菜園等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm)
-
----
-
-# 全國兩會｜鄭新聰籲講好澳門特色一國兩制成功實踐故事
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794814_1_20250307224630.jpg&q=90)
-  
-
-在北京，全國人大代表、澳門中聯辦主任鄭新聰表示，國家主席習近平去年12月到澳門視察，為澳門未來發展指明方向，激勵澳門各界打開發展新天地，不斷創造鬥志，希望媒體繼續講好一國兩制成功實踐的澳門故事，廣泛傳播正能量。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm)
 
 ---

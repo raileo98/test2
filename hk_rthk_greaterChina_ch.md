@@ -1,3 +1,26 @@
+# 全國兩會 | 海南省省長：確保封關運作取得明顯成效
+
+  
+
+海南自貿港預計今年年底前實現全島封關運作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm)
+
+---
+
 # 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
 
 ![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm)
-
----
-
-# 全國兩會｜丁薛祥參加港區全國人大代表團審議
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794672_1_20250307092612.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm)
 
 ---

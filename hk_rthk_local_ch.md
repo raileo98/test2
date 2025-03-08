@@ -1,3 +1,49 @@
+# 屯門男子踏單車被的士撞倒搶救不治　73歲的士司機被捕
+
+  
+
+屯門早上發生致命交通意外，一名騎單車的68歲男子死亡。73歲的士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm)
+
+---
+
+# 財政預算案2025 | 孫玉菡：削資導致數千人手流失說法誤導
+
+  
+
+預算案提出節省政府經常開支，2027至28年度的累計減幅為7%。勞工及福利局局長孫玉菡在一個電視節目表示，日前與170多間社福機構代表見面，交代要在資源效率優化計劃下削減開支，他認為會面氣氛友善，大家都基本明白政府的狀況，想辦法應對。他說，在僅有資源下，當局會盡量協助中小型的社福機構，但他們仍要承擔3%的削減。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm)
+
+---
+
 # 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
 
 ![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm)
-
----
-
-# 黎智英案控辯雙方完成舉證　暫定7月28日結案陳詞
-
-![案件暫定於7月28日結案陳詞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794732_1_20250307150114.jpg&q=85)
-  
-
-壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方完成舉證，案件暫定於7月28日結案陳詞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm)
-
----
-
-# 葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕
-
-![葵涌致命車禍　巴士司機涉危險駕駛引致他人死亡被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794731_1_20250307143143.jpg&q=80)
-  
-
-葵涌發生致命交通意外，一名女子被一輛九巴撞倒重傷，送院後不治。巴士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm)
 
 ---
