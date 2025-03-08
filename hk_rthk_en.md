@@ -1,6 +1,6 @@
 # Catholics across China praying for Pope's recovery
 
-![John Fang says Catholics across China are praying for Pope Francis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_1_20250308122417.jpg&q=90)
+![John Fang says Catholics across China are praying for Pope Francis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_2_20250308145523.jpg&q=90)
   
 
 A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Saturday expressed hope for the speedy recovery of Pope Francis.
