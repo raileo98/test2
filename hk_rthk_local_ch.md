@@ -1,3 +1,26 @@
+# 全國兩會｜鄭雁雄要求香港充分發揮一國兩制制度優勢
+
+  
+
+在北京，中聯辦主任鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段，抓住發揮制度優勢、堅持改革創新、推動高質量發展、強化內聯外通、完善特區治理、高度警惕風險等六方面的重點工作，把握好香港與內地的異同點，做到充分發揮一國兩制的制度優勢，更有力有效推動香港加快實現由治及興。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm)
+
+---
+
 # 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794930_1_20250308210834.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm)
-
----
-
-# 新增一宗外地傳入登革熱感染　病人潛伏期內曾到印尼
-
-![衞生防護中心說，病人於潛伏期內曾到印尼。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794763_1_20250307173010.jpg&q=90)
-  
-
-衞生防護中心過去一星期錄得1宗外地傳入的登革熱感染個案。病人於潛伏期內曾到印尼。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 全國兩會｜鄭雁雄要求香港充分發揮一國兩制制度優勢
+
+  
+
+在北京，中聯辦主任鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段，抓住發揮制度優勢、堅持改革創新、推動高質量發展、強化內聯外通、完善特區治理、高度警惕風險等六方面的重點工作，把握好香港與內地的異同點，做到充分發揮一國兩制的制度優勢，更有力有效推動香港加快實現由治及興。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm)
+
+---
+
 # 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794930_1_20250308210834.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm)
-
----
-
-# 全國兩會｜王毅指任何人支持中國統一堅持一個中國就應反對台獨
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794698_1_20250307111909.jpg&q=90)
-  
-
-在北京，外長王毅表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。他強調，鼓吹台獨就是分裂國家，支持台獨就是干涉中國內政，縱容台獨就是破壞台海穩定，主權原則是聯合國憲章的基石，任何國家和任何人都不應搞雙重標準，
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm)
 
 ---

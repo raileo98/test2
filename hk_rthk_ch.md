@@ -1,3 +1,26 @@
+# 全國兩會｜鄭雁雄要求香港充分發揮一國兩制制度優勢
+
+  
+
+在北京，中聯辦主任鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段，抓住發揮制度優勢、堅持改革創新、推動高質量發展、強化內聯外通、完善特區治理、高度警惕風險等六方面的重點工作，把握好香港與內地的異同點，做到充分發揮一國兩制的制度優勢，更有力有效推動香港加快實現由治及興。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm)
+
+---
+
 # 阿根廷布蘭卡港暴雨成災至少10人死亡
 
 ![布蘭卡港暴雨成災，部分地區變成澤國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794931_1_20250308213245.jpg&q=90)
