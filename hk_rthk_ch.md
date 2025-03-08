@@ -1,3 +1,51 @@
+# 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
+
+![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
+  
+
+民政及青年事務局局長麥美娟說，會帶領民青團隊深入學習貫徹國家主席習近平重要講話精神以及兩會精神，全面配合行政長官施政，提升政策目標、工具、時機、力度、節奏的匹配度，特別在地區治理工作上不斷創新和完善，連同區議員和關愛隊，堅持和發展新時代「楓橋經驗」，加強矛盾糾紛排查化解，將矛盾糾紛化解在基層、化解在萌芽狀態。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm)
+
+---
+
+# 全國兩會 | 羅淑佩稱通過多元化交流活動提升香港文化影響力
+
+![羅淑佩說，作為局長，深感使命重大，責任在肩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794884_1_20250308132910.jpg&q=90)
+  
+
+文化體育及旅遊局局長羅淑佩在社交網站發帖文，指國務院總理李強在政府工作報告中，為香港在文化，體育及旅遊領域提供了重要指引，她說，作為局長，深感使命重大，責任在肩。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm)
+
+---
+
 # 全國兩會 | 醫衞局稱利用一國兩制優勢建設國際醫療創新樞紐
 
 ![醫務衞生局說，《施政報告》提出深化醫療體系改革亦必須「三醫聯動」，才能持續提升醫療質量及效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794883_1_20250308132556.jpg&q=85)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm)
-
----
-
-# 港鐵稱考慮業績市場及經濟環境與員工貢獻而調整薪酬
-
-![港鐵表示，一直有聆聽員工代表、工會及員工就薪酬調整幅度的意見及訴求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794812_1_20250307223155.jpg&q=45)
-  
-
-港鐵公司表示，按照既定及行之有效的薪酬檢討機制，在審慎考慮業績、市場及經濟環境、員工貢獻等多方面因素後，大部分的非經理級員工獲 1.8%-4.3%的基本薪酬加幅，為確保公司整體薪酬福利持續具市場競爭力，吸引及保留人才，公司亦會按業務表現等考慮發放獎金等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm)
-
----
-
-# 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
-
-![啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794810_1_20250307221729.jpg&q=80)
-  
-
-啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。截至傍晚6時，有397名會員使用跑步徑，11名會員使用乒乓球設施，整體運作大致順暢。預訂設施方面，累計共1733人成功預訂跑步徑設施，127人預約乒乓球設施，園方形容訂場情況理想。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
 
 ---

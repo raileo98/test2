@@ -1,3 +1,51 @@
+# 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
+
+![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
+  
+
+民政及青年事務局局長麥美娟說，會帶領民青團隊深入學習貫徹國家主席習近平重要講話精神以及兩會精神，全面配合行政長官施政，提升政策目標、工具、時機、力度、節奏的匹配度，特別在地區治理工作上不斷創新和完善，連同區議員和關愛隊，堅持和發展新時代「楓橋經驗」，加強矛盾糾紛排查化解，將矛盾糾紛化解在基層、化解在萌芽狀態。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm)
+
+---
+
+# 全國兩會 | 羅淑佩稱通過多元化交流活動提升香港文化影響力
+
+![羅淑佩說，作為局長，深感使命重大，責任在肩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794884_1_20250308132910.jpg&q=90)
+  
+
+文化體育及旅遊局局長羅淑佩在社交網站發帖文，指國務院總理李強在政府工作報告中，為香港在文化，體育及旅遊領域提供了重要指引，她說，作為局長，深感使命重大，責任在肩。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm)
+
+---
+
 # 全國兩會 | 醫衞局稱利用一國兩制優勢建設國際醫療創新樞紐
 
 ![醫務衞生局說，《施政報告》提出深化醫療體系改革亦必須「三醫聯動」，才能持續提升醫療質量及效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794883_1_20250308132556.jpg&q=85)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm)
-
----
-
-# 保安局局長鄧炳強由泰國返港　下午在機場會見傳媒
-
-![鄧炳強由泰國返港後， 於下午約5時在機場會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794728_1_20250307141124.jpg&q=90)
-  
-
-保安局局長鄧炳強由泰國返港後， 於下午約5時在機場會見傳媒。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm)
-
----
-
-# 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
 
 ---
