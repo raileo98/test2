@@ -1,5 +1,35 @@
+# 張國鈞稱香港國安法如須修改須經人大　如修改並非輸打贏要
+
+![張國鈞說，今次案例對促進香港有關國家安全的發展有很重要作用。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm)
+
+---
+
 # 全國兩會 | 趙樂際：過去一年加強憲法在特別行政區宣傳教育
 
+![十四屆全國人大三次會議在北京人民大會堂舉行第二次全體會議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794860_1_20250308110041.jpg&q=80)
   
 
 在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際表示，過去一年已加強憲法實施和監督，完善和落實憲法相關法律制度，更好保障各級人大常委會依法行事監督職權，同時亦加強憲法在特別行政區的宣傳教育，組織五次憲法宣誓儀式。
@@ -57,7 +87,7 @@
 
 # 全國兩會 | 最高法工作報告：促推法治經濟、信用經濟建設
 
-![十四屆全國人大三次會議在北京人民大會堂舉行第二次全體會議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794858_1_20250308104431.jpg&q=80)
+![十四屆全國人大三次會議舉行第二次全體會議。最高人民法院院長張軍作最高人民法院工作報告。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794858_2_20250308105935.jpg&q=90)
   
 
 在北京，最高人民法院院長張軍發表工作報告，提到今年的工作安排，包括要依法平等保護國有、民營，外資等各種所有制企業產權和自主經營權，促推法治經濟、信用經濟建設，依法保障創新創造，助力發展新質生產力，亦要加強涉外法治建議，提升涉外司法效能，依法反制非法制裁和「長臂管轄」，堅定維護國家主權、安全、發展利益。
@@ -1708,34 +1738,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm)
-
----
-
-# 全國兩會｜吳清：加快健全科企支持機制　加力培育長期和耐心資本
-
-![中證監主席吳清（左）表示，很多引領性科技企業的崛起，離不開長期耐心資本投入，形容是「十年磨一劍」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794607_1_20250306204406.jpg&q=90)
-  
-
-中證監主席吳清表示，中國新質生產力發揮越來越大作用，人工智能大模型DeepSeek，讓世界對中國科技創新能力有新認識，帶動中國資產價值重估，亦帶動春節後A股、港股及其他市場的中國資產，特別是科技股。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm)
 
 ---
