@@ -1,3 +1,27 @@
+# 美烏外長通電話　魯比奧：特朗普決心盡快結束俄烏戰事
+
+![魯比奧強調，各方必須採取措施確保持久和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794868_1_20250308112237.jpg&q=90)
+  
+
+美國國務卿魯比奧與烏克蘭外長瑟比加通電話。美國國務院在聲明中表示，魯比奧向瑟比加強調，總統特朗普決心盡快結束俄烏戰事，各方必須採取措施確保持久和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm)
+
+---
+
 # 甯漢豪：視乎市場意向調查結果　北都片區招標條款或會更進取
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm)
-
----
-
-# 歐爾班：歐洲增自身防務開支又支持烏克蘭　此舉將毀掉歐洲
-
-![歐爾班重申，匈牙利將繼續推動和平談判，而不是為戰爭提供資金。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794801_1_20250307211337.jpg&q=90)
-  
-
-由於匈牙利反對，歐盟就軍事援助烏克蘭未能達成一致意見。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美烏外長通電話　魯比奧：特朗普決心盡快結束俄烏戰事
+
+![魯比奧強調，各方必須採取措施確保持久和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794868_1_20250308112237.jpg&q=90)
+  
+
+美國國務卿魯比奧與烏克蘭外長瑟比加通電話。美國國務院在聲明中表示，魯比奧向瑟比加強調，總統特朗普決心盡快結束俄烏戰事，各方必須採取措施確保持久和平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm)
+
+---
+
 # 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
 
 ![許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_3_20250308114839.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm)
-
----
-
-# 普京稱俄羅斯需要能確保國家長期和平的烏克蘭方案
-
-![普京說俄羅斯無意撤軍。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794636_1_20250307012830.jpg&q=90)
-  
-
-俄羅斯總統普京表示，俄羅斯需要的是一種能夠確保俄羅斯長期安全及可持續發展的烏克蘭和平方案，並強調在烏克蘭問題上，俄羅斯不會向任何人屈服。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794636-20250307.htm)
 
 ---
