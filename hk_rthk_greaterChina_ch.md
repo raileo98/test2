@@ -1,3 +1,26 @@
+# 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
+
+  
+
+在北京，全國人大代表、小鵬汽車集團董事長何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm)
+
+---
+
 # 全國兩會 | 海南省省長：確保封關運作取得明顯成效
 
 ![劉小明表示，平穩有序和萬無一失地確保封關運作能取得明顯的成效。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794886_1_20250308140026.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm)
-
----
-
-# 全國兩會｜有政協稱國家迎來低空經濟黃金機遇期　成增長新引擎
-
-![羊毅認為，國家已迎來低空經濟的黃金機遇期，將成為經濟增長的新引擎，形容「空中之城」不再是夢想。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794674_1_20250307103341.jpg&q=90)
-  
-
-全國政協常委、全國婦聯副主席徐曉蘭表示，今年政府工作報告提出加快工業互聯網的創新發展，亦是連續8年對工業互聯網提出具體要求，而經歷8年發展，工業互聯網已經應用到49個國民經濟領域，核心產業規模達到1.53萬億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm)
 
 ---

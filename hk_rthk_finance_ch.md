@@ -1,3 +1,26 @@
+# 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
+
+  
+
+在北京，全國人大代表、小鵬汽車集團董事長何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm)
+
+---
+
 # 全國兩會 | 格力電器稱以舊換新政策增強消費者對家電認識
 
 ![董明珠表示，國家長期支持民營企業，作為民企，要加大技術投入，不斷創新，企業才能活得更好。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794871_1_20250308114223.jpg&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm)
-
----
-
-# 日股半日跌近2%
-
-![日經指數半日跌696點，報37008點，跌幅1.85%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794696_1_20250307104956.jpg&q=90)
-  
-
-東京股市下跌。日經指數半日跌696點，報37008點，跌幅1.85%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794696-20250307.htm)
 
 ---

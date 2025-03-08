@@ -1,3 +1,27 @@
+# 'Govt will consider how to improve NSL enforcement'
+
+![Deputy Secretary for Justice Horace Cheung says the government will study the Court of Final Appeal's judgement. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=85)
+  
+
+Deputy Secretary for Justice Horace Cheung on Saturday said the government will think about how to enforce the national security law better.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm)
+
+---
+
 # Catholics across China praying for Pope's recovery
 
 ![John Fang says Catholics across China are praying for Pope Francis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_2_20250308145523.jpg&q=90)
@@ -1413,29 +1437,5 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm)
-
----
-
-# SKorea military jet misdrops bombs, injuring civilians
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=50)
-  
-
-South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm)
 
 ---

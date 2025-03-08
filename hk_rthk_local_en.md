@@ -1,3 +1,27 @@
+# 'Govt will consider how to improve NSL enforcement'
+
+![Deputy Secretary for Justice Horace Cheung says the government will study the Court of Final Appeal's judgement. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=85)
+  
+
+Deputy Secretary for Justice Horace Cheung on Saturday said the government will think about how to enforce the national security law better.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm)
+
+---
+
 # CE pledges to promote women's rights
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
@@ -1413,29 +1437,5 @@ Technology and innovation chief Sun Dong on Sunday said policies related to arti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm)
-
----
-
-# Man hospitalised with measles after Vietnam trip
-
-![The 38-year-old man is now stable in Queen Elizabeth Hospital. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793847_1_20250302054528.jpg&q=65)
-  
-
-The Centre for Health Protection (CHP) says people should make sure they are fully vaccinated against measles before travelling, after a man was hospitalised with the disease following a trip to Vietnam. The 38-year-old, who travelled to the country in early February, is now stable at Queen Elizabeth Hospital.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793847-20250302.htm)
 
 ---

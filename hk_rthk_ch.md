@@ -1,3 +1,26 @@
+# 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
+
+  
+
+在北京，全國人大代表、小鵬汽車集團董事長何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm)
+
+---
+
 # 屯門男子踏單車被的士撞倒搶救不治　73歲的士司機被捕
 
 ![73歲的士司機涉嫌危險駕駛引致他人死亡被捕，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794888_1_20250308140304.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm)
-
----
-
-# 龍湖料去年核心盈利按年跌約35%至40%
-
-![龍湖預料，去年剔除投資物業及其他衍生金融工具公平值變動影響後，核心盈利按年跌約35%至40%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794811_1_20250307221051.jpg&q=90)
-  
-
-龍湖發盈利警告，預料去年剔除投資物業及其他衍生金融工具公平值變動影響後，核心盈利按年跌約35%至40%，主要受房地產行業下行影響，地產開發業務結算收入及結算毛利率都跌。前年核心盈利為113.5億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794811-20250307.htm)
 
 ---
