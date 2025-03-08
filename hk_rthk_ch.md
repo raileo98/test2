@@ -1,3 +1,72 @@
+# 基金會稱每22名婦女1人有機會患入侵性乳癌　倡實施全民篩查
+
+  
+
+香港乳癌基金會歡迎政府延續乳癌篩查先導計劃，同時建議政府分三個階段實施全民乳癌篩查，首先是高危女性組別，其次是低收入地區女性，最終落實全民乳癌篩查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm)
+
+---
+
+# 九巴稱女車長5年間增三成　今年增9個女員工優先使用休息室
+
+  
+
+目前有大約1萬名車長的九巴表示，女車長數目有上升趨勢，比例由2020年的6%升至2024年近8%，5年之間增長近三成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm)
+
+---
+
+# 全國兩會 | 趙樂際稱今年審議34件法律案　維護特區憲制秩序
+
+  
+
+十四屆全國人大三次會議上午在北京人民大會堂舉行第二次全體會議，習近平等黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm)
+
+---
+
 # 日本多宗進食污染食物染諾如病毒　衞生防護中心籲外遊時提高警覺
 
 ![衞生防護中心表示，諾如病毒可透過進食受污染的食物、接觸受感染人士的嘔吐物或排泄物，及接觸受污染的物件等不同途徑傳播。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794906_1_20250308162902.jpg&q=90)

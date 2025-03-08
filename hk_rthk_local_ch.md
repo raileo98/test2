@@ -1,3 +1,72 @@
+# 基金會稱每22名婦女1人有機會患入侵性乳癌　倡實施全民篩查
+
+  
+
+香港乳癌基金會歡迎政府延續乳癌篩查先導計劃，同時建議政府分三個階段實施全民乳癌篩查，首先是高危女性組別，其次是低收入地區女性，最終落實全民乳癌篩查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm)
+
+---
+
+# 九巴稱女車長5年間增三成　今年增9個女員工優先使用休息室
+
+  
+
+目前有大約1萬名車長的九巴表示，女車長數目有上升趨勢，比例由2020年的6%升至2024年近8%，5年之間增長近三成。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm)
+
+---
+
+# 全國兩會 | 趙樂際稱今年審議34件法律案　維護特區憲制秩序
+
+  
+
+十四屆全國人大三次會議上午在北京人民大會堂舉行第二次全體會議，習近平等黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm)
+
+---
+
 # 日本多宗進食污染食物染諾如病毒　衞生防護中心籲外遊時提高警覺
 
 ![衞生防護中心表示，諾如病毒可透過進食受污染的食物、接觸受感染人士的嘔吐物或排泄物，及接觸受污染的物件等不同途徑傳播。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794906_1_20250308162902.jpg&q=90)
@@ -1366,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm)
-
----
-
-# 兩人涉向社區隔離設施地盤工人索賄收賄被廉署起訴　認罪候判
-
-![案件押後至本月26日判刑，兩名被告還押懲教署看管，以等待索取被告的背景報告及社會服務令報告。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794753_1_20250307164800.jpg&q=50)
-  
-
-一名工程分判商時任「工頭」及一名時任建築工人，2022年疫情期間興建大嶼山竹篙灣社區隔離設施時，向4名經介紹入職的釘板工人索取及收受賄款共約98000元。兩人於西九龍裁判法院承認控罪，案件押後至本月26日判刑，並將兩名被告還押懲教署看管，以等待索取被告的背景報告及社會服務令報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794753-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794753-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794753-20250307.htm)
-
----
-
-# 蔡若蓮稱杭州交流團學生離世事件與交流及考察活動無關
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794751_1_20250307164024.jpg&q=90)
-  
-
-聖保羅書院一名中五學生早前在杭州交流期間死亡。教育局局長蔡若蓮首次開腔回應，表示相關調查已告一段落，明確了解到事件與交流活動及考察無關，為尊重死者家屬意願，不會披露個案內容。她說，對這宗不幸事故感到非常難過，向家人致以深切慰問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm)
-
----
-
-# 17名「劏房」業主因違反相關法例規定被定罪及罰款共逾4萬元
-
-![17名「劏房」業主承認有關控罪，判處罰款共44400元。（陳裕行攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794750_1_20250307163949.jpg&q=90)
-  
-
-17名「劏房」業主因違反《業主與租客（綜合）條例》的相關規定，今日在東區裁判法院承認有關控罪，被判處罰款共44400元。自條例生效以來，差餉物業估價署已成功檢控610宗個案，共涉及522名「劏房」業主，罰款介乎400元至34800元，合計總罰款共逾143萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm)
 
 ---

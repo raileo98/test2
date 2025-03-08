@@ -1,3 +1,26 @@
+# 全國兩會 | 趙樂際稱今年審議34件法律案　維護特區憲制秩序
+
+  
+
+十四屆全國人大三次會議上午在北京人民大會堂舉行第二次全體會議，習近平等黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm)
+
+---
+
 # 全國兩會 | 生態環境部稱藍天成常態　水利部指堅持節水優先
 
 ![黃潤秋表示，近十年全國生態環境發生了根本性、轉折性的變化。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794899_1_20250308155735.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱習近平以全球視野引領中國外交守互創新
-
-![王毅說，「元首外交」將書寫中國與世界雙向奔赴、雙互成就的新篇章。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794686_1_20250307110445.jpg&q=90)
-  
-
-在北京，中共中央政治局委員、外長王毅召開中外記者會，他表示去年是國際格局深刻演變一年，中國外交取得良好進展，為變亂交織的世界帶來寶貴的穩定性。他說，今年國際形勢仍然充滿挑戰，但中國會繼續把握時代潮流，捍衛國際公平正義，維護世界和平穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm)
 
 ---
