@@ -1,3 +1,27 @@
+# 阿根廷布蘭卡港暴雨成災至少10人死亡
+
+![布蘭卡港暴雨成災，部分地區變成澤國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794931_1_20250308213245.jpg&q=90)
+  
+
+阿根廷港口城市布蘭卡港暴雨成災，至少10人死亡，超過1千人疏散，當局又將一間醫院內的人員撤離。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm)
+
+---
+
 # 法德意英支持阿拉伯國家提出的加沙重建計劃
 
 ![由埃及提出的加沙重建計劃，將會分幾個階段實施，預計重建費用為530億美元。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794928_1_20250308204951.jpg&q=20)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱將以中國確定性穩住不確定世界
-
-![王毅表示，中方將做維護國際公平正義的進步力量，堅持真正的多邊主義，以人類前途為懷，人民福祉為念。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794687_1_20250307103941.jpg&q=25)
-  
-
-在北京，外長王毅表示，當今世界變亂交織，確定性日益成為全球稀缺資源，各國尤其是大國作出何種抉擇，將決定時代方向，影響世界格局。中國外交將堅定不移站在歷史正確的一邊，站在人類進步的一邊，將以中國的確定性穩住不確定的世界。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 阿根廷布蘭卡港暴雨成災至少10人死亡
+
+![布蘭卡港暴雨成災，部分地區變成澤國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794931_1_20250308213245.jpg&q=90)
+  
+
+阿根廷港口城市布蘭卡港暴雨成災，至少10人死亡，超過1千人疏散，當局又將一間醫院內的人員撤離。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm)
+
+---
+
 # 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
 
 ![陳勇表示，可見國家立法工作密鑼緊鼓，很多法律配合經濟發展，體現憲法權威。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794930_1_20250308210834.jpg&q=85)
