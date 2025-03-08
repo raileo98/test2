@@ -1,3 +1,59 @@
+# 全國兩會 | 趙樂際 ：今年將制定民營經濟促進法等法律
+
+  
+
+在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際 表示，今年要高質量推進立法工作，落實深化立法領域改革要求，預安排審議34件法律案，包括制定民營經濟促進法、民族團結進步促進法、對外貿易法、國家賠償法等；亦要啟動法律清理工作、圍繞大局做好監督工作等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
+
+---
+
+# 全國兩會 | 最高法工作報告：促推法治經濟、信用經濟建設
+
+  
+
+在北京，最高人民法院院長張軍發表工作報告，提到今年的工作安排，包括要依法平等保護國有、民營，外資等各種所有制企業產權和自主經營權，促推法治經濟、信用經濟建設，依法保障創新創造，助力發展新質生產力，亦要加強涉外法治建議，提升涉外司法效能，依法反制非法制裁和「長臂管轄」，堅定維護國家主權、安全、發展利益。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm)
+
+---
+
 # 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
 
   
@@ -1680,63 +1736,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm)
-
----
-
-# 全國兩會｜鄭柵潔：認真做好「十五五」編制工作　聽取各方意見
-
-![國家發改委主任鄭柵潔預計，「十四五」經濟增量逾30萬億元人民幣，相當於一個發達經濟體全年經濟總量。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794605_1_20250306204857.jpg&q=90)
-  
-
-國家發改委主任鄭柵潔表示，經過「十四五」這幾年發展，對高質量發展的信心和底氣進一步增強。今年將認真做好「十五五」規劃編制相關工作，會作充分調查，通過多種方式聽取各方意見建議，與各方共同編制規劃《綱要草案》，提出一批重大戰略任務、政策舉措和工程項目，並在明年提交全國兩會。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794605-20250306.htm)
-
----
-
-# 全國兩會｜商務部：將推出更多舉措釋放消費增長潛能
-
-![商務部部長王文濤（左二）表示，將會同有關部門結合促消費及惠民生，推出更多舉措，釋放消費增長潛能。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794602_1_20250306193338.jpg&q=90)
-  
-
-商務部部長王文濤表示，消費仍是經濟增長第一拉動力，但國內需求不足，消費潛力釋放不充分的問題仍較突出，消費意願偏弱，有效需求受制約。政府工作報告對提振消費作出部署，強調以消費提振暢通經濟循環，以消費升級引領產業升級。商務部將會同有關部門結合促消費及惠民生，統籌商品消費及服務消費，推出更多舉措，釋放消費增長潛能。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794602-20250306.htm)
 
 ---

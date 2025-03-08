@@ -1,3 +1,59 @@
+# 全國兩會 | 趙樂際 ：今年將制定民營經濟促進法等法律
+
+  
+
+在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際 表示，今年要高質量推進立法工作，落實深化立法領域改革要求，預安排審議34件法律案，包括制定民營經濟促進法、民族團結進步促進法、對外貿易法、國家賠償法等；亦要啟動法律清理工作、圍繞大局做好監督工作等。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
+
+---
+
+# 全國兩會 | 最高法工作報告：促推法治經濟、信用經濟建設
+
+  
+
+在北京，最高人民法院院長張軍發表工作報告，提到今年的工作安排，包括要依法平等保護國有、民營，外資等各種所有制企業產權和自主經營權，促推法治經濟、信用經濟建設，依法保障創新創造，助力發展新質生產力，亦要加強涉外法治建議，提升涉外司法效能，依法反制非法制裁和「長臂管轄」，堅定維護國家主權、安全、發展利益。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm)
+
+---
+
 # 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
 
   
@@ -1674,63 +1730,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm)
-
----
-
-# 全國兩會｜有人大引述丁薛祥稱香港在由治及興路上越走越穩
-
-![丁薛祥參加港區全國人大代表團審議，並聽取代表的意見。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794789_1_20250307191857.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港區全國人大代表團審議，並聽取代表的意見。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
-
----
-
-# 全國兩會｜王毅：「以台制華」無異於螳臂擋車　中國最終必將統一
-
-![王毅強調，「以台制華」無異於螳臂擋車，中國最終必將統一。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794788_1_20250307191045.jpg&q=90)
-  
-
-外長王毅在記者會回應烏克蘭危機時強調，談判桌是衝突的終點，也是和平的起點，中方歡迎並支持一切致力於和平的努力。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm)
 
 ---
