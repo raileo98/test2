@@ -1,3 +1,27 @@
+# 法德意英支持阿拉伯國家提出的加沙重建計劃
+
+![由埃及提出的加沙重建計劃，將會分幾個階段實施，預計重建費用為530億美元。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794928_1_20250308204951.jpg&q=20)
+  
+
+法國、德國、意大利和英國的外長發表聯合聲明，支持阿拉伯國家提出的加沙重建計劃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm)
+
+---
+
 # 白宮舉行加密貨幣峰會　特朗普重申支持比特幣為代表的加密貨幣
 
 ![特朗普早前簽署行政命令，設立戰略比特幣儲備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794927_1_20250308202343.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱習近平以全球視野引領中國外交守互創新
-
-![王毅說，「元首外交」將書寫中國與世界雙向奔赴、雙互成就的新篇章。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794686_1_20250307110445.jpg&q=90)
-  
-
-在北京，中共中央政治局委員、外長王毅召開中外記者會，他表示去年是國際格局深刻演變一年，中國外交取得良好進展，為變亂交織的世界帶來寶貴的穩定性。他說，今年國際形勢仍然充滿挑戰，但中國會繼續把握時代潮流，捍衛國際公平正義，維護世界和平穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm)
 
 ---
