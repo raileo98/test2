@@ -49,7 +49,7 @@ Hong Kong officials on Saturday said they will learn from the spirit of "Two Ses
 
 # ‘HK, mainland should join hands to tackle scams’
 
-![The vice minister of public security Xu Ganlu, (left), says the joint operation between China and Thailand has achieved success in rescuing victims from Myanmar. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
   
 
 Mainland authorities on Saturday said Hong Kong and the mainland should work together to tackle cross-border scams, after six more SAR residents were released from scam farms in Myanmar.
@@ -121,7 +121,7 @@ A cyclist died in a traffic accident in Tuen Mun on Saturday morning.
 
 # 'Govt will consider how to improve NSL enforcement'
 
-![Deputy Secretary for Justice Horace Cheung says the government will study the Court of Final Appeal's judgement. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=85)
   
 
 Deputy Secretary for Justice Horace Cheung on Saturday said the government will think about how to enforce the national security law better.

@@ -49,7 +49,7 @@ Hong Kong officials on Saturday said they will learn from the spirit of "Two Ses
 
 # ‘HK, mainland should join hands to tackle scams’
 
-![The vice minister of public security Xu Ganlu, (left), says the joint operation between China and Thailand has achieved success in rescuing victims from Myanmar. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
   
 
 Mainland authorities on Saturday said Hong Kong and the mainland should work together to tackle cross-border scams, after six more SAR residents were released from scam farms in Myanmar.
