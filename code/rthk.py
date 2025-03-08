@@ -185,7 +185,7 @@ async def optimize_image_quality(imgUrl):
     latestAvailableQ = None
     content_length_q99 = None
     has_matched_condition = False
-	
+    
     while True:
         imgUrlWithQ = modify_image_url(imgUrl, q)
         try:
@@ -475,8 +475,12 @@ async def process_category(category, url):
         tasks.append(asyncio.create_task(process_article(fg, category, article)))
     
     results = await asyncio.gather(*tasks)
+
+    print( f'results: { results }' )
+
     for item in results:
         if item:
+            print( f'item: { item }' )
             md_articles.append(item)
     
     # 產生 RSS XML
@@ -516,6 +520,9 @@ async def process_category(category, url):
     # 產生 Markdown 文件：將所有文章 Markdown 內容統整後輸出
     md_filename = f'{category}.md'
     md_lines = []
+    
+    print( f'md_articles: { md_articles }')
+    
     for article in md_articles:
         md_lines.append(f"# {article['title']}")
         md_lines.append("\n" + article['markdown'] + "\n")
