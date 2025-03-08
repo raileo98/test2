@@ -1,3 +1,26 @@
+# 甯漢豪：視乎市場意向調查結果　北都片區招標條款或會更進取
+
+  
+
+政府正就北部都會區三個片區開發試點做市場意向調查，本月底完結。發展局局長甯漢豪說，有內地開發商提出平整片區產業地後，興建並營運園區，政府會檢視是否屬主流意見，日後招標條款或會更加進取。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm)
+
+---
+
 # 愛秩序灣遊樂場有銅喉被偷走　警列盜竊及刑毀案跟進
 
 ![警方到場調查，暫時未有人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794878_1_20250308122756.jpg&q=30)
@@ -288,7 +311,7 @@
 
 # 全國兩會 | 最高法報告：促推法治經濟、信用經濟建設
 
-![十四屆全國人大三次會議舉行第二次全體會議。最高人民法院院長張軍作最高人民法院工作報告。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794858_2_20250308105935.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794858_2_20250308105935.jpg&q=90)
   
 
 在北京，最高人民法院院長張軍發表工作報告，提到今年的工作安排，包括要依法平等保護國有、民營，外資等各種所有制企業產權和自主經營權，促推法治經濟、信用經濟建設，依法保障創新創造，助力發展新質生產力，亦要加強涉外法治建議，提升涉外司法效能，依法反制非法制裁和「長臂管轄」，堅定維護國家主權、安全、發展利益。
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm)
-
----
-
-# 恒大物業料去年盈利至少跌28%　但財務狀況持續改善
-
-![恒大物業預料，去年盈利按年跌逾28%至逾37%，受稅收滯納金等非經營支出影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794805_1_20250307212617.jpg&q=90)
-  
-
-恒大物業發盈利警告，預料去年盈利介乎9.8億至11.2億元人民幣，按年跌逾28%至逾37%，由於稅收滯納金等非經營支出，及採用更謹慎的收入確認方式所致。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm)
 
 ---
