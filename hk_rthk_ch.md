@@ -1,3 +1,27 @@
+# 法德意英支持阿拉伯國家提出的加沙重建計劃
+
+![由埃及提出的加沙重建計劃，將會分幾個階段實施，預計重建費用為530億美元。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794928_1_20250308204951.jpg&q=20)
+  
+
+法國、德國、意大利和英國的外長發表聯合聲明，支持阿拉伯國家提出的加沙重建計劃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm)
+
+---
+
 # 白宮舉行加密貨幣峰會　特朗普重申支持比特幣為代表的加密貨幣
 
 ![特朗普早前簽署行政命令，設立戰略比特幣儲備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794927_1_20250308202343.jpg&q=90)
