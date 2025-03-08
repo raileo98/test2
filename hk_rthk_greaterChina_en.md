@@ -1,3 +1,32 @@
+# Private sector law on parliament agenda: Zhao Leji
+
+![The chairman of the National People's Congress Standing Committee, Zhao Leji, says the top lawmaking body has to further improve the quality of its legislative work.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794861_1_20250308104551.jpg&q=90)
+  
+
+The nation’s top legislators on Saturday pledged to formulate and amend a slew of laws in the coming year, including one on backing private enterprises.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm)
+
+---
+
 # Beijing to impose additional tariffs on Canada
 
 ![The Commerce Ministry said the additional tariffs are to take effect March 20. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794864_1_20250308110510.jpg&q=65)
@@ -1707,34 +1736,5 @@ The Commerce Ministry on Friday said it opposed US President Donald Trump's late
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
-
----
-
-# 'Private sector growth high on Two Sessions agenda'
-
-!['Private sector growth high on Two Sessions agenda'](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793553_2_20250228075850.jpg&q=85)
-  
-
-Support for private businesses is a very important area that will be addressed during the upcoming "Two Sessions" meetings in Beijing, according to Hong Kong's sole delegate to the country's top legislature.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793553-20250228.htm)
 
 ---
