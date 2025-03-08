@@ -1,3 +1,26 @@
+# 美眾議長公布政府資金臨時法案盼避免停擺　消息指爭取周二表決
+
+  
+
+美國國會眾議院議長約翰遜正式公布一項希望可持續至9月30日的政府資金臨時法案，避免聯邦政府可能於本月14日停擺。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm)
+
+---
+
 # 以軍針對式突襲敘利亞境內目標　稱已處理大批彈藥及軍事裝備
 
 ![以色列之前以自衞為由，出兵佔領戈蘭高地東側的以敘軍事緩衝區。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794942_1_20250309034534.jpg&q=20)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm)
-
----
-
-# 全國兩會 | 趙樂際 ：今年將制定民營經濟促進法等法律
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794859_1_20250308104828.jpg&q=45)
-  
-
-在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際表示，今年要高質量推進立法工作，落實深化立法領域改革要求，預安排審議34件法律案，包括制定民營經濟促進法、民族團結進步促進法、對外貿易法、國家賠償法等；亦要啟動法律清理工作、圍繞大局做好監督工作等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
 
 ---

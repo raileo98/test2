@@ -1,3 +1,26 @@
+# 美眾議長公布政府資金臨時法案盼避免停擺　消息指爭取周二表決
+
+  
+
+美國國會眾議院議長約翰遜正式公布一項希望可持續至9月30日的政府資金臨時法案，避免聯邦政府可能於本月14日停擺。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm)
+
+---
+
 # 以軍針對式突襲敘利亞境內目標　稱已處理大批彈藥及軍事裝備
 
 ![以色列之前以自衞為由，出兵佔領戈蘭高地東側的以敘軍事緩衝區。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794942_1_20250309034534.jpg&q=20)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
-
----
-
-# 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
-
-![王毅說，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。（新華社）07](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794706_1_20250307123443.jpg&q=90)
-  
-
-中國今年出任上海合作組織輪任主席國，外長王毅宣布，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
 
 ---
