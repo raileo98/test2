@@ -1,15 +1,36 @@
+# 控煙酒辦打擊禁煙區非法吸食水煙　巡查中區酒吧發3罰款通知書
+
+![控煙酒辦人員發現有人在酒吧非法吸食水煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794872_1_20250308113356.jpg&q=90)
+  
+
+衞生署控煙酒辦昨晚派員到中區，打擊禁煙區非法吸食水煙違法活動，共發出3張定額罰款通知書。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm)
+
+---
+
 # 體育爭議解決先導計劃今年內啟動　政府冀年中物色到合適仲裁機構
 
 ![張國鈞說，會在體育界加強教育及宣傳，令業界明白遇到內部解決不到的問題，可透過爭議解決方式去處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794867_1_20250308112118.jpg&q=75)
   
 
 律政司副司長張國鈞表示，期望今年內啟動體育爭議解決先導計劃，在年中物色到合適的仲裁機構，在本港開展體育爭議的相關服務，如果遇到需要調解的問題，可以向這個機構求助。
-  
 
   
 
-
-  
 
 ---
 
@@ -21,8 +42,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm)
 
 ---
@@ -33,12 +52,9 @@
   
 
 全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
-  
 
   
 
-
-  
 
 ---
 
@@ -50,8 +66,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
 
 ---
@@ -62,12 +76,9 @@
   
 
 新的自動駕駛車輛規管框架已經實施，為在香港道路測試和先導使用自動車展開新里程。運輸署在社交專頁說，在香港進行的自動駕駛技術測試，最高能達到國際標準5級別中的第4級別，達致高度自動化駕駛，即在特定設計運行條件下自動駕駛系統可持續執行全部動態駕駛任務，並自動執行最小風險策略，運輸署會密切監察測試表現，又說已設計了全新「先導自動車標籤」，以助識別正在測試的先導自動車。
-  
 
   
 
-
-  
 
 ---
 
@@ -79,8 +90,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm)
 
 ---
@@ -91,12 +100,9 @@
   
 
 政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
-  
 
   
 
-
-  
 
 ---
 
@@ -108,8 +114,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
 
 ---
@@ -120,12 +124,9 @@
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
-  
 
   
 
-
-  
 
 ---
 
@@ -137,8 +138,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm)
 
 ---
@@ -149,12 +148,9 @@
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
-  
 
   
 
-
-  
 
 ---
 
@@ -166,8 +162,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
 
 ---
@@ -178,12 +172,9 @@
   
 
 民政及青年事務局局長麥美娟出席一個電台節目時提到，《施政報告》提出的「聯廈聯管計劃」是協助不同大廈的小業主共同聘用物業管理公司，管理好自己的資產，目標除了「三無大廈」，亦有其他樓宇，尤其是舊區的樓齡高、單幢一梯兩伙大廈。她說，今個月會諮詢率先試行計劃的區議會，包括油尖旺、深水埗、九龍城及荃灣，關愛隊會協助宣傳和接觸小業主，之後會邀請團體提交建議書，期望今年年中啟動計劃。
-  
 
   
 
-
-  
 
 ---
 
@@ -195,8 +186,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm)
 
 ---
@@ -207,12 +196,9 @@
   
 
 新一份《財政預算案》表明，政府下一年度不會推商業用地。對於有聲音希望政府暫停賣地，發展局局長甯漢豪說，政府銳意發展產業，因此不能停推工業地；至於住宅地同樣不會停售，因為有相關科學根據，無論公營或私營房屋土地，政府有10年推算，不能不跟隨，至於每季推多少土地，就要視乎市場情況作出平衡。
-  
 
   
 
-
-  
 
 ---
 
@@ -224,8 +210,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm)
 
 ---
@@ -236,12 +220,9 @@
   
 
 被誘騙到緬甸園區從事非法工作的其中6名港人獲救，5人昨日返港，餘下一人亦已於今早在保安局專責小組成員陪同下抵達香港。
-  
 
   
 
-
-  
 
 ---
 
@@ -253,8 +234,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm)
 
 ---
@@ -265,12 +244,9 @@
   
 
 再多6名被誘騙到緬甸的香港人獲救。除了一人留在泰國，其餘返抵本港。
-  
 
   
 
-
-  
 
 ---
 
@@ -282,8 +258,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm)
 
 ---
@@ -294,12 +268,9 @@
   
 
 海關過去兩星期於香港國際機場偵破多宗航空旅客走私香煙案件，並於昨日在元朗搗破一個懷疑私煙貯存倉庫，共檢獲約670萬支懷疑私煙及約57萬支懷疑另類吸煙產品，市值共約3300萬元，私煙應課稅值共約2200萬元。
-  
 
   
 
-
-  
 
 ---
 
@@ -311,8 +282,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm)
 
 ---
@@ -323,12 +292,9 @@
   
 
 房委會完成公屋入息及資產限額檢討，建議2025/26年度公屋入息和資產限額均平均上調1.7%。下星期五諮詢立法會房屋事務委員會意見，之後房委會資助房屋小組將於本月21日的會議上討論。
-  
 
   
 
-
-  
 
 ---
 
@@ -340,8 +306,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
 
 ---
@@ -352,12 +316,9 @@
   
 
 港鐵公司表示，按照既定及行之有效的薪酬檢討機制，在審慎考慮業績、市場及經濟環境、員工貢獻等多方面因素後，大部分的非經理級員工獲 1.8%-4.3%的基本薪酬加幅，為確保公司整體薪酬福利持續具市場競爭力，吸引及保留人才，公司亦會按業務表現等考慮發放獎金等。
-  
 
   
 
-
-  
 
 ---
 
@@ -369,8 +330,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm)
 
 ---
@@ -381,12 +340,9 @@
   
 
 啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。截至傍晚6時，有397名會員使用跑步徑，11名會員使用乒乓球設施，整體運作大致順暢。預訂設施方面，累計共1733人成功預訂跑步徑設施，127人預約乒乓球設施，園方形容訂場情況理想。
-  
 
   
 
-
-  
 
 ---
 
@@ -398,8 +354,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
 
 ---
@@ -410,12 +364,9 @@
   
 
 全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
-  
 
   
 
-
-  
 
 ---
 
@@ -427,8 +378,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
 
 ---
@@ -439,12 +388,9 @@
   
 
 再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救，保安局局長鄧炳強說，6人是在緬甸的園區內獲救，身體狀況良好，營救行動不牽涉交贖金，至今仍有3名被誘騙的港人未回港，特區政府將繼續全力營救。
-  
 
   
 
-
-  
 
 ---
 
@@ -456,8 +402,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm)
 
 ---
@@ -468,12 +412,9 @@
   
 
 聯合醫院一個精神科女病房自上月25日起，先後有病人出現輕微呼吸道感染徵狀，其中3名病人對人類偏肺病毒呈陽性反應，正接受隔離治療，情況穩定。
-  
 
   
 
-
-  
 
 ---
 
@@ -485,8 +426,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm)
 
 ---
@@ -497,12 +436,9 @@
   
 
 去年被呈報的整體吸毒人數較前年下降9%，有5068人，最常被吸食的三類毒品分別為海洛英、可卡因及「冰毒」。但21歲以下青少年吸毒人數則上升8%達到720人，當中226人吸食太空油毒品。在這個群組中，最常被吸食的毒品依次為大麻、可卡因及太空油毒品，太空油毒品自去年上半年起，已成為此群組第三位最常被吸食的毒品。
-  
 
   
 
-
-  
 
 ---
 
@@ -514,8 +450,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm)
 
 ---
@@ -526,12 +460,9 @@
   
 
 一批建築工人懷疑因勞資糾紛早上在機場南交匯處附近聚集，現場交通一度受阻，機管局表示，十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜，確保相關工人獲應得報酬，機管局會繼續密切監察承建商的跟進工作。
-  
 
   
 
-
-  
 
 ---
 
@@ -543,8 +474,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm)
 
 ---
@@ -555,12 +484,9 @@
   
 
 中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
-  
 
   
 
-
-  
 
 ---
 
@@ -572,8 +498,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
 
 ---
@@ -584,12 +508,9 @@
   
 
 再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。立法會議員陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動，而非如以往般，身處幕後角色，主要依靠當地政府及執法部門，或國家駐當地的使領館。他估計是與早前保安局副局長率領專責小組前往泰國協調有關，令雙方建立了合作機制，令今次特區政府的參與更實質和具體。
-  
 
   
 
-
-  
 
 ---
 
@@ -601,8 +522,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
 
 ---
@@ -613,12 +532,9 @@
   
 
 全國政協常委、信德集團行政主席何超瓊建議，聯合民航局、港澳交通部門，開通「港澳—珠海橫琴」、「港澳—廣州南沙」跨境低空觀光及接駁航線、試點直升機等，進一步拓展「多式聯運」網絡。
-  
 
   
 
-
-  
 
 ---
 
@@ -630,8 +546,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm)
 
 ---
@@ -642,12 +556,9 @@
   
 
 入境處由本周一至昨日，一連四日在全港多區進行反非法勞工行動，又聯同警務處展開行動，拘捕16名懷疑非法勞工及4名涉嫌聘用非法勞工的僱主。
-  
 
   
 
-
-  
 
 ---
 
@@ -659,8 +570,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm)
 
 ---
@@ -671,12 +580,9 @@
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港區全國人大代表團審議，並聽取代表的意見。
-  
 
   
 
-
-  
 
 ---
 
@@ -688,8 +594,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
 
 ---
@@ -700,12 +604,9 @@
   
 
 民政事務總署在各區開放共十八間臨時避寒中心，供有需要的市民避寒，中心會於寒冷天氣警告持續生效期間繼續開放，期間會免費提供潔淨的墊褥及毛氈或棉被、熱食及熱水予入住人士使用。
-  
 
   
 
-
-  
 
 ---
 
@@ -717,8 +618,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm)
 
 ---
@@ -729,12 +628,9 @@
   
 
 保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。
-  
 
   
 
-
-  
 
 ---
 
@@ -746,8 +642,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm)
 
 ---
@@ -758,12 +652,9 @@
   
 
 在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
-  
 
   
 
-
-  
 
 ---
 
@@ -775,8 +666,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
 
 ---
@@ -787,12 +676,9 @@
   
 
 中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
-  
 
   
 
-
-  
 
 ---
 
@@ -804,8 +690,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
 
 ---
@@ -816,12 +700,9 @@
   
 
 中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
-  
 
   
 
-
-  
 
 ---
 
@@ -832,8 +713,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
 
@@ -848,6 +727,7 @@
 
   
 
+
 ---
 
 原始網址 Original URL：
@@ -857,8 +737,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm)
 
@@ -870,12 +748,9 @@
   
 
 領華旅遊社「清遠佛山旅行團」再多兩名分別71歲男子和69歲女子感染退伍軍人病，兩人分別參加上月20至22日和21至23日的旅行團，他們與日前公布一個涉及4人的群組個案有流行病學關連。
-  
 
   
 
-
-  
 
 ---
 
@@ -887,8 +762,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm)
 
 ---
@@ -899,12 +772,9 @@
   
 
 再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
-  
 
   
 
-
-  
 
 ---
 
@@ -916,8 +786,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
 
 ---
@@ -928,12 +796,9 @@
   
 
 一名女佛教徒前年因拍拖遭逐出師門後與師父交惡，涉嫌在手機通訊創立群組，公開任職護士的師母個人資料，女徒弟被控一項未獲當事人同意下披露其個人資料罪，在西九龍裁判法院被裁定罪名成立，法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。
-  
 
   
 
-
-  
 
 ---
 
@@ -945,8 +810,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm)
 
 ---
@@ -957,12 +820,9 @@
   
 
 警方推出智慧交通管理系統，在觀塘安裝11組閉路電視，涵蓋9條主要街道，實時監測車流狀況，透過人工智能，即時分辨塞車與違泊等情況，預計系統下半年投入服務，若成效良好考慮推展至全港其他地區。
-  
 
   
 
-
-  
 
 ---
 
@@ -974,8 +834,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm)
 
 ---
@@ -986,12 +844,9 @@
   
 
 食物安全中心就食物碘含量展開風險評估研究，發現碘含量最高食品是乾海帶，每100克達18萬微克，其次是乾紫菜、蟹乾小食及海苔小食。
-  
 
   
 
-
-  
 
 ---
 
@@ -1003,8 +858,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm)
 
 ---
@@ -1015,12 +868,9 @@
   
 
 衞生防護中心過去一星期錄得1宗外地傳入的登革熱感染個案。病人於潛伏期內曾到印尼。
-  
 
   
 
-
-  
 
 ---
 
@@ -1031,8 +881,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm)
 
@@ -1047,6 +895,7 @@
 
   
 
+
 ---
 
 原始網址 Original URL：
@@ -1056,8 +905,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm)
 
@@ -1069,12 +916,9 @@
   
 
 反映本港二手樓價走勢的中原城市領先指數（CCL）最新報137.46，按星期升0.32%，結束兩星期跌勢，但仍處於近8年半低位，今年累計跌0.13%。
-  
 
   
 
-
-  
 
 ---
 
@@ -1086,8 +930,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
 
 ---
@@ -1098,12 +940,9 @@
   
 
 在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
-  
 
   
 
-
-  
 
 ---
 
@@ -1115,8 +954,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
 
 ---
@@ -1127,12 +964,9 @@
   
 
 香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。
-  
 
   
 
-
-  
 
 ---
 
@@ -1143,8 +977,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm)
 
@@ -1158,12 +990,9 @@
   
 
 政府高層官員任命，首席政府城市規劃師葉子季將於本月18日出任規劃署署長，接替於同日展開退休前休假的鍾文傑；政府飛行服務隊總機師廖嘉俊於本月13日出任政府飛行服務隊總監，接替同日展開退休前休假的胡偉雄；及副首席律師周麗蓮於本月31日出任破產管理署署長，接替同日開始退休前休假的麥錦羅。
-  
 
   
 
-
-  
 
 ---
 
@@ -1175,8 +1004,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794756-20250307.htm)
 
 ---
@@ -1187,12 +1014,9 @@
   
 
 一名工程分判商時任「工頭」及一名時任建築工人，2022年疫情期間興建大嶼山竹篙灣社區隔離設施時，向4名經介紹入職的釘板工人索取及收受賄款共約98000元。兩人於西九龍裁判法院承認控罪，案件押後至本月26日判刑，並將兩名被告還押懲教署看管，以等待索取被告的背景報告及社會服務令報告。
-  
 
   
 
-
-  
 
 ---
 
@@ -1204,8 +1028,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794753-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794753-20250307.htm)
 
 ---
@@ -1216,12 +1038,9 @@
   
 
 聖保羅書院一名中五學生早前在杭州交流期間死亡。教育局局長蔡若蓮首次開腔回應，表示相關調查已告一段落，明確了解到事件與交流活動及考察無關，為尊重死者家屬意願，不會披露個案內容。她說，對這宗不幸事故感到非常難過，向家人致以深切慰問。
-  
 
   
 
-
-  
 
 ---
 
@@ -1233,8 +1052,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794751-20250307.htm)
 
 ---
@@ -1245,12 +1062,9 @@
   
 
 17名「劏房」業主因違反《業主與租客（綜合）條例》的相關規定，今日在東區裁判法院承認有關控罪，被判處罰款共44400元。自條例生效以來，差餉物業估價署已成功檢控610宗個案，共涉及522名「劏房」業主，罰款介乎400元至34800元，合計總罰款共逾143萬元。
-  
 
   
 
-
-  
 
 ---
 
@@ -1262,8 +1076,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794750-20250307.htm)
 
 ---
@@ -1274,12 +1086,9 @@
   
 
 8名男女涉2020年初口岸爆炸案，高等法院踏入第66天審訊，控方傳召化學專家證人、政府化驗師作供。證人表示，當年2月至3月期間化驗警方檢獲的多項證物，包括警方在明愛醫院爆炸案和港鐵羅湖站爆炸案中檢取的證物，驗出硝酸鉀及糖等爆炸品常見成分。
-  
 
   
 
-
-  
 
 ---
 
@@ -1291,8 +1100,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794743-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794743-20250307.htm)
 
 ---
@@ -1303,12 +1110,9 @@
   
 
 行政長官再度委任唐家成為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席，並再度委任蔡永忠和黃子遜為獨立委員會成員，任期由4月1日起生效，為期1年。
-  
 
   
 
-
-  
 
 ---
 
@@ -1320,8 +1124,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm)
 
 ---
@@ -1332,12 +1134,9 @@
   
 
 一間藥店的男店員因銷售中藥材期間作出誤導性遺漏的營業行為，違反《商品說明條例》，上月21日在西九龍裁判法院被裁定罪名成立，在還柙14日後，今日被判處120小時社會服務令及向案中受害人賠償1.1萬元。
-  
 
   
 
-
-  
 
 ---
 
@@ -1349,8 +1148,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794739-20250307.htm)
 
 ---
@@ -1361,12 +1158,9 @@
   
 
 香港乙組足球聯賽球隊虎門體育會班主涉嫌串謀外圍「莊家」及兩名球員「打假波」，提供賄款共逾24萬元。案件在東區法院提堂，4人被控串謀詐騙等罪，暫毋須答辯。控方申請將案件押後至7月7日，獲主任裁判官批准，各人准以10萬元保釋候訊。
-  
 
   
 
-
-  
 
 ---
 
@@ -1378,8 +1172,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm)
 
 ---
@@ -1390,12 +1182,9 @@
   
 
 保安局局長鄧炳強由泰國返港後，下午約5時在機場會見傳媒。
-  
 
   
 
-
-  
 
 ---
 
@@ -1407,8 +1196,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm)
 
 ---
@@ -1419,12 +1206,9 @@
   
 
 壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方完成舉證，案件暫定於7月28日結案陳詞。
-  
 
   
 
-
-  
 
 ---
 
@@ -1436,8 +1220,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794732-20250307.htm)
 
 ---
@@ -1448,12 +1230,9 @@
   
 
 葵涌發生致命交通意外，一名女子被一輛九巴撞倒重傷，送院後不治。巴士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
-  
 
   
 
-
-  
 
 ---
 
@@ -1465,8 +1244,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794731-20250307.htm)
 
 ---
@@ -1477,12 +1254,9 @@
   
 
 保安局局長鄧炳強由泰國返港後， 於下午約5時在機場會見傳媒。
-  
 
   
 
-
-  
 
 ---
 
@@ -1494,8 +1268,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794728-20250307.htm)
 
 ---
@@ -1506,12 +1278,9 @@
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-  
 
   
 
-
-  
 
 ---
 
@@ -1523,8 +1292,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
 
 ---
@@ -1535,12 +1302,9 @@
   
 
 港股上升。恒生指數較早時報24494點，升125點，升幅0.51%。
-  
 
   
 
-
-  
 
 ---
 
@@ -1551,8 +1315,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm)
 
@@ -1567,6 +1329,7 @@
 
   
 
+
 ---
 
 原始網址 Original URL：
@@ -1576,8 +1339,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm)
 
@@ -1589,12 +1350,9 @@
   
 
 在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
-  
 
   
 
-
-  
 
 ---
 
@@ -1605,8 +1363,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
 
@@ -1619,12 +1375,9 @@
   
 
 在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
-  
 
   
 
-
-  
 
 ---
 
@@ -1635,8 +1388,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
 
@@ -1649,12 +1400,9 @@
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。特區政府表示，會研究如何進一步完善香港特區維護國家安全的法律制度及執行機制。
-  
 
   
 
-
-  
 
 ---
 
@@ -1666,8 +1414,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
 
 ---
@@ -1678,12 +1424,9 @@
   
 
 支聯會拒交資料案，3名上訴人鄒幸彤、鄧岳君及徐漢光終極上訴得直。特區政府表示，會積極審視香港特區維護國家安全的執法經驗，研究如何進一步完善香港特區相關的法律制度及執行機制。
-  
 
   
 
-
-  
 
 ---
 
@@ -1695,37 +1438,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm)
-
----
-
-# 港股半日升135點　科技股支撐大市
-
-![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
-  
-
-港股今早先跌後升，恒生指數跌逾300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點，主板半日成交約1830億元。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm)
 
 ---

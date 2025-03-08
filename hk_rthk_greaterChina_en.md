@@ -4,12 +4,9 @@
   
 
 The nation’s top legislators on Saturday pledged to formulate and amend a slew of laws in the coming year, including one on backing private enterprises.
-  
 
   
 
-
-  
 
 ---
 
@@ -21,8 +18,6 @@ The nation’s top legislators on Saturday pledged to formulate and amend a slew
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm)
 
 ---
@@ -33,12 +28,9 @@ The nation’s top legislators on Saturday pledged to formulate and amend a slew
   
 
 The Commerce Ministry on Saturday announced that it will impose additional tariffs on some products imported from Canada based on the ruling of an anti-discrimination probe.
-  
 
   
 
-
-  
 
 ---
 
@@ -50,8 +42,6 @@ The Commerce Ministry on Saturday announced that it will impose additional tarif
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm)
 
 ---
@@ -62,12 +52,9 @@ The Commerce Ministry on Saturday announced that it will impose additional tarif
   
 
 China's export growth grew slower than expected in the first two months of this year while imports fell sharply, amid escalating trade tensions between the world's two biggest economies.
-  
 
   
 
-
-  
 
 ---
 
@@ -79,8 +66,6 @@ China's export growth grew slower than expected in the first two months of this 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
 
 ---
@@ -91,12 +76,9 @@ China's export growth grew slower than expected in the first two months of this 
   
 
 Chinese People's Political Consultative Conference (CPPCC) Standing Committee member Henry Tang on Friday said Hong Kong should leverage its advantages and further promote internationalisation.
-  
 
   
 
-
-  
 
 ---
 
@@ -108,8 +90,6 @@ Chinese People's Political Consultative Conference (CPPCC) Standing Committee me
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm)
 
 ---
@@ -120,12 +100,9 @@ Chinese People's Political Consultative Conference (CPPCC) Standing Committee me
   
 
 Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguarding national security while recognising the city's effort in implementing Article 23 legislation, according to attendees at a meeting with the top official in Beijing on Friday.
-  
 
   
 
-
-  
 
 ---
 
@@ -137,8 +114,6 @@ Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguardin
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm)
 
 ---
@@ -149,12 +124,9 @@ Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguardin
   
 
 A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
-  
 
   
 
-
-  
 
 ---
 
@@ -166,8 +138,6 @@ A Beijing official on Friday said that it'll be the right thing to do to keep im
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
 
 ---
@@ -178,12 +148,9 @@ A Beijing official on Friday said that it'll be the right thing to do to keep im
   
 
 Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
-  
 
   
 
-
-  
 
 ---
 
@@ -195,8 +162,6 @@ Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed s
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
 
 ---
@@ -207,12 +172,9 @@ Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed s
   
 
 China has ushered in a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
-  
 
   
 
-
-  
 
 ---
 
@@ -224,8 +186,6 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
 
 ---
@@ -236,12 +196,9 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
   
 
 Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, after Washington imposed new tariffs on Chinese goods.
-  
 
   
 
-
-  
 
 ---
 
@@ -253,8 +210,6 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm)
 
 ---
@@ -265,12 +220,9 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
   
 
 China wants to achieve a "fair, lasting and binding peace agreement" acceptable to all parties on the Ukraine war, Foreign Minister Wang Yi said on Friday.
-  
 
   
 
-
-  
 
 ---
 
@@ -282,8 +234,6 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm)
 
 ---
@@ -294,12 +244,9 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
   
 
 Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
-  
 
   
 
-
-  
 
 ---
 
@@ -311,8 +258,6 @@ Former transport secretary Frank Chan says it is appropriate for the government 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
 
 ---
@@ -323,12 +268,9 @@ Former transport secretary Frank Chan says it is appropriate for the government 
   
 
 President Xi Jinping on Thursday underscored the role of education in advancing science, technology, and talent development, calling for deeper alignment with the country's modernisation needs.
-  
 
   
 
-
-  
 
 ---
 
@@ -340,8 +282,6 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm)
 
 ---
@@ -352,12 +292,9 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
   
 
 A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
-  
 
   
 
-
-  
 
 ---
 
@@ -369,8 +306,6 @@ A senior Guangdong official on Thursday said the province will work closely with
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
 
 ---
@@ -381,12 +316,9 @@ A senior Guangdong official on Thursday said the province will work closely with
   
 
 The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set by China for 2025 can be met, despite external headwinds and weak domestic demand.
-  
 
   
 
-
-  
 
 ---
 
@@ -398,8 +330,6 @@ The head of the National Development and Reform Commission said he's confident t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
 
 ---
@@ -410,12 +340,9 @@ The head of the National Development and Reform Commission said he's confident t
   
 
 Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantages and to continue to safeguard national security, according to SAR delegates of the nation’s top political advisory body.
-  
 
   
 
-
-  
 
 ---
 
@@ -427,8 +354,6 @@ Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantage
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm)
 
 ---
@@ -439,12 +364,9 @@ Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantage
   
 
 A PhD student from China was found guilty on Wednesday in a London court of drugging and raping 10 women in China and the UK, as British police warned there could be more than 50 other victims.
-  
 
   
 
-
-  
 
 ---
 
@@ -456,8 +378,6 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
 
 ---
@@ -468,12 +388,9 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
   
 
 The chairman of the people's government of the Tibet Autonomous Region on Thursday said classes have resumed in Dingri County following the massive earthquake earlier this year.
-  
 
   
 
-
-  
 
 ---
 
@@ -485,8 +402,6 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm)
 
 ---
@@ -497,12 +412,9 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
   
 
 Premier Li Qiang’s work report has offered “important guidance” on implementing the One Country, Two Systems policy, Chief Executive John Lee said on Thursday, as he pledged to further align Hong Kong with national development strategies.
-  
 
   
 
-
-  
 
 ---
 
@@ -514,8 +426,6 @@ Premier Li Qiang’s work report has offered “important guidance” on impleme
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm)
 
 ---
@@ -526,12 +436,9 @@ Premier Li Qiang’s work report has offered “important guidance” on impleme
   
 
 An analyst on Thursday said the advent of artificial intelligence startups such as DeepSeek has been a boon to the nation’s technological development.
-  
 
   
 
-
-  
 
 ---
 
@@ -542,8 +449,6 @@ An analyst on Thursday said the advent of artificial intelligence startups such 
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm)
 
@@ -556,12 +461,9 @@ An analyst on Thursday said the advent of artificial intelligence startups such 
   
 
 Hong Kong and Macau have the full backing of the central government in integrating into the country’s development, a senior Beijing official said on Wednesday.
-  
 
   
 
-
-  
 
 ---
 
@@ -573,8 +475,6 @@ Hong Kong and Macau have the full backing of the central government in integrati
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
 
 ---
@@ -585,12 +485,9 @@ Hong Kong and Macau have the full backing of the central government in integrati
   
 
 Economists have struck a cautious note on China's plan to lower the nation's inflation target from three to two percent in the coming year, citing prolonged deflationary pressure.
-  
 
   
 
-
-  
 
 ---
 
@@ -602,8 +499,6 @@ Economists have struck a cautious note on China's plan to lower the nation's inf
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm)
 
 ---
@@ -614,12 +509,9 @@ Economists have struck a cautious note on China's plan to lower the nation's inf
   
 
 Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on Wednesday slammed the US move to slap additional tariffs on Chinese exports because of the fentanyl crisis.
-  
 
   
 
-
-  
 
 ---
 
@@ -631,8 +523,6 @@ Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm)
 
 ---
@@ -643,12 +533,9 @@ Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on 
   
 
 Hong Kong and Macau will always have the central government's backing in terms of developing the economy and improving people's livelihood, a senior official in charge of the SARs' affairs pledged on Wednesday.
-  
 
   
 
-
-  
 
 ---
 
@@ -660,8 +547,6 @@ Hong Kong and Macau will always have the central government's backing in terms o
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm)
 
 ---
@@ -672,12 +557,9 @@ Hong Kong and Macau will always have the central government's backing in terms o
   
 
 The head of China's market regulator has pledged to tighten oversight of the rapidly growing e-commerce sector, and promote the healthy development of the so-called platform economy.
-  
 
   
 
-
-  
 
 ---
 
@@ -689,8 +571,6 @@ The head of China's market regulator has pledged to tighten oversight of the rap
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm)
 
 ---
@@ -701,12 +581,9 @@ The head of China's market regulator has pledged to tighten oversight of the rap
   
 
 Hong Kong's deputies to the National People's Congress (NPC) and the Chinese People's Political Consultative Conference (CPPCC) have given their backing to the country's economic growth target of around five percent target this year, saying it was no easy feat but achievable.
-  
 
   
 
-
-  
 
 ---
 
@@ -718,8 +595,6 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794347-20250305.htm)
 
 ---
@@ -730,12 +605,9 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
   
 
 Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
-  
 
   
 
-
-  
 
 ---
 
@@ -747,8 +619,6 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm)
 
 ---
@@ -759,12 +629,9 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
   
 
 Chinese companies are doubling down on innovation as part of efforts to contribute to the national drive of developing "new quality productive forces", with leaders convening in Beijing for the annual Two Sessions meetings.
-  
 
   
 
-
-  
 
 ---
 
@@ -776,8 +643,6 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
 
 ---
@@ -788,12 +653,9 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
   
 
 Experts on Wednesday said China's economic goals announced at the opening session of this year's National People's Congress are reasonable and attainable.
-  
 
   
 
-
-  
 
 ---
 
@@ -805,8 +667,6 @@ Experts on Wednesday said China's economic goals announced at the opening sessio
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794337-20250305.htm)
 
 ---
@@ -817,12 +677,9 @@ Experts on Wednesday said China's economic goals announced at the opening sessio
   
 
 Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in his government work report.
-  
 
   
 
-
-  
 
 ---
 
@@ -834,8 +691,6 @@ Premier Li Qiang on Wednesday said the nation will vigorously boost consumption 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
 
 ---
@@ -846,12 +701,9 @@ Premier Li Qiang on Wednesday said the nation will vigorously boost consumption 
   
 
 China said its military spending will rise by 7.2 percent in 2025, the same increase as a year ago.
-  
 
   
 
-
-  
 
 ---
 
@@ -863,8 +715,6 @@ China said its military spending will rise by 7.2 percent in 2025, the same incr
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794329-20250305.htm)
 
 ---
@@ -875,12 +725,9 @@ China said its military spending will rise by 7.2 percent in 2025, the same incr
   
 
 Premier Li Qiang on Wednesday said Beijing would continue to fully implement the One Country, Two Systems policy and have the two SARs administered by patriots.
-  
 
   
 
-
-  
 
 ---
 
@@ -892,8 +739,6 @@ Premier Li Qiang on Wednesday said Beijing would continue to fully implement the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm)
 
 ---
@@ -904,12 +749,9 @@ Premier Li Qiang on Wednesday said Beijing would continue to fully implement the
   
 
 China on Wednesday said it will boost support for the application of AI models to foster more breakthroughs in technology.
-  
 
   
 
-
-  
 
 ---
 
@@ -921,8 +763,6 @@ China on Wednesday said it will boost support for the application of AI models t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm)
 
 ---
@@ -933,12 +773,9 @@ China on Wednesday said it will boost support for the application of AI models t
   
 
 China on Wednesday said it will aim for economic growth of around 5 percent in 2025.
-  
 
   
 
-
-  
 
 ---
 
@@ -950,8 +787,6 @@ China on Wednesday said it will aim for economic growth of around 5 percent in 2
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm)
 
 ---
@@ -962,12 +797,9 @@ China on Wednesday said it will aim for economic growth of around 5 percent in 2
   
 
 The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday to China's Liu Jiakun, for designs that celebrate "everyday lives".
-  
 
   
 
-
-  
 
 ---
 
@@ -979,8 +811,6 @@ The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm)
 
 ---
@@ -991,12 +821,9 @@ The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday 
   
 
 An economist on Wednesday said that the latest round of US tariffs on Chinese imports could gradually reduce China's gross domestic product by some 0.3 to 0.4 percent over a 12-month period.
-  
 
   
 
-
-  
 
 ---
 
@@ -1008,8 +835,6 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
 
 ---
@@ -1020,12 +845,9 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
   
 
 Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
-  
 
   
 
-
-  
 
 ---
 
@@ -1037,8 +859,6 @@ Beijing said on Tuesday it had filed a complaint with the World Trade Organizati
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm)
 
 ---
@@ -1049,12 +869,9 @@ Beijing said on Tuesday it had filed a complaint with the World Trade Organizati
   
 
 China's ambassador to the United States says while China needs to firmly defend its interests, it will continue to handle Sino-US relations based on mutual respect, peaceful coexistence, and win-win cooperation.
-  
 
   
 
-
-  
 
 ---
 
@@ -1066,8 +883,6 @@ China's ambassador to the United States says while China needs to firmly defend 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm)
 
 ---
@@ -1078,12 +893,9 @@ China's ambassador to the United States says while China needs to firmly defend 
   
 
 China vowed on Tuesday to fight to the "bitter end" if the United States pushes a trade war, after Washington and Beijing exchanged a salvo of tariffs.
-  
 
   
 
-
-  
 
 ---
 
@@ -1095,8 +907,6 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
 
 ---
@@ -1107,12 +917,9 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
   
 
 The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.
-  
 
   
 
-
-  
 
 ---
 
@@ -1124,8 +931,6 @@ The chairman of the Chinese People's Political Consultative Conference (CPPCC) o
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm)
 
 ---
@@ -1136,12 +941,9 @@ The chairman of the Chinese People's Political Consultative Conference (CPPCC) o
   
 
 Entrepreneurs and leaders of mainland private enterprises have expressed hope that Beijing will roll out more supportive measures to assist with the nation's industrial upgrade, while balancing the development of various industries.
-  
 
   
 
-
-  
 
 ---
 
@@ -1153,8 +955,6 @@ Entrepreneurs and leaders of mainland private enterprises have expressed hope th
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794147-20250304.htm)
 
 ---
@@ -1165,12 +965,9 @@ Entrepreneurs and leaders of mainland private enterprises have expressed hope th
   
 
 China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.
-  
 
   
 
-
-  
 
 ---
 
@@ -1182,8 +979,6 @@ China’s economy has a solid foundation with new growth drivers despite facing 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
 
 ---
@@ -1194,12 +989,9 @@ China’s economy has a solid foundation with new growth drivers despite facing 
   
 
 The president of the Peking Union Medical College Hospital on Tuesday said she hopes the Hong Kong University of Science and Technology (HKUST) will fully consider its plan to set up the SAR's third medical school.
-  
 
   
 
-
-  
 
 ---
 
@@ -1211,8 +1003,6 @@ The president of the Peking Union Medical College Hospital on Tuesday said she h
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm)
 
 ---
@@ -1223,12 +1013,9 @@ The president of the Peking Union Medical College Hospital on Tuesday said she h
   
 
 The secretary of the Qingdao Municipal Party Committee, and also a delegate to the National People's Congress, on Tuesday said the expansion of the Individual Visit Scheme to Qingdao provided great convenience for exchanges between Qingdao and the two SARs.
-  
 
   
 
-
-  
 
 ---
 
@@ -1240,8 +1027,6 @@ The secretary of the Qingdao Municipal Party Committee, and also a delegate to t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm)
 
 ---
@@ -1252,12 +1037,9 @@ The secretary of the Qingdao Municipal Party Committee, and also a delegate to t
   
 
 China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range of between 10 and 15 percent hikes to import levies covering a basket of American agricultural and food products, while placing 25 US firms under export and investment restrictions.
-  
 
   
 
-
-  
 
 ---
 
@@ -1269,8 +1051,6 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
 
 ---
@@ -1281,12 +1061,9 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
   
 
 Authorities in the capital have stepped up security ahead of the annual “Two Sessions” meetings.
-  
 
   
 
-
-  
 
 ---
 
@@ -1298,8 +1075,6 @@ Authorities in the capital have stepped up security ahead of the annual “Two S
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm)
 
 ---
@@ -1310,12 +1085,9 @@ Authorities in the capital have stepped up security ahead of the annual “Two S
   
 
 The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tariffs set to take effect later in the day, reiterating its stance that the Trump administration was trying to "shift the blame" and "bully" Beijing over fentanyl flows.
-  
 
   
 
-
-  
 
 ---
 
@@ -1327,8 +1099,6 @@ The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tari
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm)
 
 ---
@@ -1339,12 +1109,9 @@ The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tari
   
 
 A local economics academic said he does not expect major policy shifts in the "Two Sessions" meetings in Beijing, saying it's important for the central government to focus on stabilising sentiment and continuing with high-quality growth.
-  
 
   
 
-
-  
 
 ---
 
@@ -1356,8 +1123,6 @@ A local economics academic said he does not expect major policy shifts in the "T
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
 
 ---
@@ -1368,12 +1133,9 @@ A local economics academic said he does not expect major policy shifts in the "T
   
 
 US President Donald Trump has signed an order to hike tariffs on Chinese imports further, the White House said Monday, citing what it called Beijing's failure to tackle the illicit fentanyl trade.
-  
 
   
 
-
-  
 
 ---
 
@@ -1385,8 +1147,6 @@ US President Donald Trump has signed an order to hike tariffs on Chinese imports
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
 
 ---
@@ -1397,12 +1157,9 @@ US President Donald Trump has signed an order to hike tariffs on Chinese imports
   
 
 Hong Kong delegates to the nation's top political advisory body who met with senior mainland official Xia Baolong in Beijing on Monday evening quoted him as saying the city should unite in supporting Chief Executive John Lee's administration.
-  
 
   
 
-
-  
 
 ---
 
@@ -1414,8 +1171,6 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
 
 ---
@@ -1426,12 +1181,9 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
   
 
 The annual session of China's top political advisory body will run from Tuesday to March 10, authorities announced on Monday.
-  
 
   
 
-
-  
 
 ---
 
@@ -1443,8 +1195,6 @@ The annual session of China's top political advisory body will run from Tuesday 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm)
 
 ---
@@ -1455,12 +1205,9 @@ The annual session of China's top political advisory body will run from Tuesday 
   
 
 China's factory activity grew at a faster pace in February, driven by stronger supply and demand, a private-sector survey showed on Monday, partly due to seasonal factors related to the holiday period.
-  
 
   
 
-
-  
 
 ---
 
@@ -1472,8 +1219,6 @@ China's factory activity grew at a faster pace in February, driven by stronger s
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm)
 
 ---
@@ -1484,12 +1229,9 @@ China's factory activity grew at a faster pace in February, driven by stronger s
   
 
 Chief Executive John Lee will head to Beijing on Tuesday to attend the annual opening meeting of the National People’s Congress (NPC).
-  
 
   
 
-
-  
 
 ---
 
@@ -1501,8 +1243,6 @@ Chief Executive John Lee will head to Beijing on Tuesday to attend the annual op
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm)
 
 ---
@@ -1513,12 +1253,9 @@ Chief Executive John Lee will head to Beijing on Tuesday to attend the annual op
   
 
 Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – from the development of artificial intelligence to a low-altitude economy – as the SAR seeks to further integrate into the nation's development.
-  
 
   
 
-
-  
 
 ---
 
@@ -1530,8 +1267,6 @@ Hong Kong delegates attending the "Two Sessions" meetings this year said they're
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
 
 ---
@@ -1542,12 +1277,9 @@ Hong Kong delegates attending the "Two Sessions" meetings this year said they're
   
 
 A local delegate to the country’s top advisory body plans to ask for measures on facilitating people flow within the Greater Bay Area, during the upcoming “Two Sessions” meetings in Beijing.
-  
 
   
 
-
-  
 
 ---
 
@@ -1559,8 +1291,6 @@ A local delegate to the country’s top advisory body plans to ask for measures 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
 
 ---
@@ -1571,12 +1301,9 @@ A local delegate to the country’s top advisory body plans to ask for measures 
   
 
 China's manufacturing activity grew in February after a dip the previous month, official figures showed on Saturday, as the United States targets the country's exports with increased tariffs.
-  
 
   
 
-
-  
 
 ---
 
@@ -1588,8 +1315,6 @@ China's manufacturing activity grew in February after a dip the previous month, 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
 
 ---
@@ -1600,12 +1325,9 @@ China's manufacturing activity grew in February after a dip the previous month, 
   
 
 US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matching US tariffs on China in a move that he described as "very interesting" and one that Canada should match.
-  
 
   
 
-
-  
 
 ---
 
@@ -1617,8 +1339,6 @@ US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matc
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm)
 
 ---
@@ -1629,12 +1349,9 @@ US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matc
   
 
 China's space station will welcome its first foreign astronaut in the next few years, after China and Pakistan on Friday signed a cooperation agreement on the selection and training of astronauts.
-  
 
   
 
-
-  
 
 ---
 
@@ -1646,8 +1363,6 @@ China's space station will welcome its first foreign astronaut in the next few y
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm)
 
 ---
@@ -1658,12 +1373,9 @@ China's space station will welcome its first foreign astronaut in the next few y
   
 
 A spokesperson for the Ministry of Public Security on Friday voiced firm opposition to the US threat of imposing an additional 10 per cent tariff on Chinese exports.
-  
 
   
 
-
-  
 
 ---
 
@@ -1675,8 +1387,6 @@ A spokesperson for the Ministry of Public Security on Friday voiced firm opposit
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm)
 
 ---
@@ -1687,12 +1397,9 @@ A spokesperson for the Ministry of Public Security on Friday voiced firm opposit
   
 
 President Xi Jinping said China's economic fundamentals remain solid despite the difficulties and challenges facing the world's second-largest economy.
-  
 
   
 
-
-  
 
 ---
 
@@ -1704,8 +1411,6 @@ President Xi Jinping said China's economic fundamentals remain solid despite the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm)
 
 ---
@@ -1716,12 +1421,9 @@ President Xi Jinping said China's economic fundamentals remain solid despite the
   
 
 The Commerce Ministry on Friday said it opposed US President Donald Trump's latest threat to impose an additional 10 percent tariff on Chinese imports and vowed to take "all necessary countermeasures" if Chinese entities got caught up in the levies.
-  
 
   
 
-
-  
 
 ---
 
@@ -1732,8 +1434,6 @@ The Commerce Ministry on Friday said it opposed US President Donald Trump's late
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
 

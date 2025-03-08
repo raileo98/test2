@@ -4,12 +4,9 @@
   
 
 World number two and top seed Alexander Zverev was sent crashing out of Indian Wells on Friday as he was beaten 4-6, 7-6 (7/5), 7-6 (7/4) by 43rd-ranked Tallon Griekspoor.
-  
 
   
 
-
-  
 
 ---
 
@@ -21,8 +18,6 @@ World number two and top seed Alexander Zverev was sent crashing out of Indian W
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm)
 
 ---
@@ -33,12 +28,9 @@ World number two and top seed Alexander Zverev was sent crashing out of Indian W
   
 
 The Kai Tak Sports Park will promote sports development and exchanges between Hong Kong and the mainland, according to senior Chinese sports officials attending the "Two Sessions" in Beijing.
-  
 
   
 
-
-  
 
 ---
 
@@ -49,8 +41,6 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
 
@@ -63,12 +53,9 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
   
 
 Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europa League last-16 tie, while Tottenham suffered a 1-0 loss away to Dutch side AZ Alkmaar.
-  
 
   
 
-
-  
 
 ---
 
@@ -80,8 +67,6 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm)
 
 ---
@@ -92,12 +77,9 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
   
 
 Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
-  
 
   
 
-
-  
 
 ---
 
@@ -109,8 +91,6 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
 
 ---
@@ -121,12 +101,9 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
   
 
 A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
-  
 
   
 
-
-  
 
 ---
 
@@ -137,8 +114,6 @@ A senior Guangdong official on Thursday said the province will work closely with
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
 
@@ -151,12 +126,9 @@ A senior Guangdong official on Thursday said the province will work closely with
   
 
 Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticket to the NBA playoffs with a hard-fought 112-107 victory over the Miami Heat.
-  
 
   
 
-
-  
 
 ---
 
@@ -167,8 +139,6 @@ Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticke
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm)
 
@@ -181,12 +151,9 @@ Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticke
   
 
 Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the first leg of their heavyweight Champions League last-16 tie, as Barcelona claimed a 1-0 win at Benfica despite the Catalan giants playing most of the game with 10 men.
-  
 
   
 
-
-  
 
 ---
 
@@ -198,8 +165,6 @@ Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the fir
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
 
 ---
@@ -210,12 +175,9 @@ Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the fir
   
 
 Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50-run win over South Africa in Lahore to set up a rematch with India in the Champions Trophy final.
-  
 
   
 
-
-  
 
 ---
 
@@ -227,8 +189,6 @@ Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm)
 
 ---
@@ -239,12 +199,9 @@ Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50
   
 
 LeBron James became the first player in NBA history to score 50,000 career points on Tuesday, extending his lead as the league's all-time record scorer by reaching a milestone tally that may never be surpassed.
-  
 
   
 
-
-  
 
 ---
 
@@ -256,8 +213,6 @@ LeBron James became the first player in NBA history to score 50,000 career point
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm)
 
 ---
@@ -268,12 +223,9 @@ LeBron James became the first player in NBA history to score 50,000 career point
   
 
 Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
-  
 
   
 
-
-  
 
 ---
 
@@ -285,8 +237,6 @@ Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm)
 
 ---
@@ -297,12 +247,9 @@ Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects 
   
 
 Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
-  
 
   
 
-
-  
 
 ---
 
@@ -313,8 +260,6 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
 
@@ -327,12 +272,9 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
   
 
 Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-1 Champions League last 16 first-leg win.
-  
 
   
 
-
-  
 
 ---
 
@@ -344,8 +286,6 @@ Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm)
 
 ---
@@ -356,12 +296,9 @@ Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-
   
 
 Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA season after suffering a torn anterior cruciate ligament (ACL) in his left knee, according to media reports.
-  
 
   
 
-
-  
 
 ---
 
@@ -373,8 +310,6 @@ Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA seaso
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm)
 
 ---
@@ -385,12 +320,9 @@ Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA seaso
   
 
 Virat Kohli produced a trademark innings with a polished 84 as India pulled off a tense chase to beat Australia by four wickets in the first semi-final of the Champions Trophy.
-  
 
   
 
-
-  
 
 ---
 
@@ -401,8 +333,6 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm)
 
@@ -415,12 +345,9 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
   
 
 World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
-  
 
   
 
-
-  
 
 ---
 
@@ -432,8 +359,6 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
 
 ---
@@ -444,12 +369,9 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
   
 
 Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Kong on Tuesday as a newly minted SAR resident.
-  
 
   
 
-
-  
 
 ---
 
@@ -461,8 +383,6 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
 
 ---
@@ -473,12 +393,9 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
   
 
 Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cup quarter-finals after a 1-1 draw at the City Ground.
-  
 
   
 
-
-  
 
 ---
 
@@ -489,8 +406,6 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
 
@@ -503,12 +418,9 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
   
 
 The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Blazers 133-129 in an NBA overtime thriller, boosting their league-best record with a 10th straight victory as Boston beat Denver in a clash of the past two champions.
-  
 
   
 
-
-  
 
 ---
 
@@ -520,8 +432,6 @@ The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Bl
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm)
 
 ---
@@ -532,12 +442,9 @@ The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Bl
   
 
 Manchester United's dismal season hit a new low as the FA Cup holders crashed out after a 4-3 penalty shoot-out defeat against Fulham in the fifth round.
-  
 
   
 
-
-  
 
 ---
 
@@ -548,8 +455,6 @@ Manchester United's dismal season hit a new low as the FA Cup holders crashed ou
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
 
@@ -562,12 +467,9 @@ Manchester United's dismal season hit a new low as the FA Cup holders crashed ou
   
 
 Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both the men's and women's categories.
-  
 
   
 
-
-  
 
 ---
 
@@ -579,8 +481,6 @@ Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm)
 
 ---
@@ -591,12 +491,9 @@ Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both
   
 
 Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress to the FA Cup quarter-finals on Saturday, after Crystal Palace striker Jean Philippe-Mateta was hospitalised in the Eagles' 3-1 win over Millwall.
-  
 
   
 
-
-  
 
 ---
 
@@ -608,8 +505,6 @@ Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm)
 
 ---
@@ -620,12 +515,9 @@ Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress
   
 
 Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
-  
 
   
 
-
-  
 
 ---
 
@@ -637,8 +529,6 @@ Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
 
 ---
@@ -649,12 +539,9 @@ Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled
   
 
 World number one Aryna Sabalenka praised on Friday the WTA's mission to highlight the personalities of its athletes and called Saudi Arabia's investment in the women's tennis tour an important part of growing the game.
-  
 
   
 
-
-  
 
 ---
 
@@ -666,8 +553,6 @@ World number one Aryna Sabalenka praised on Friday the WTA's mission to highligh
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm)
 
 ---
@@ -678,12 +563,9 @@ World number one Aryna Sabalenka praised on Friday the WTA's mission to highligh
   
 
 Jos Buttler resigned as England white-ball captain on Friday after his team made an early exit from the Champions Trophy with back-to-back defeats against Australia and Afghanistan.
-  
 
   
 
-
-  
 
 ---
 
@@ -695,8 +577,6 @@ Jos Buttler resigned as England white-ball captain on Friday after his team made
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
 
 ---
@@ -707,12 +587,9 @@ Jos Buttler resigned as England white-ball captain on Friday after his team made
   
 
 Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirement from gymnastics.
-  
 
   
 
-
-  
 
 ---
 
@@ -724,8 +601,6 @@ Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirem
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
 
 ---
@@ -736,12 +611,9 @@ Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirem
   
 
 Hall of Fame coach Gregg Popovich said Thursday he won't return this season as coach of the San Antonio Spurs as he continues to recover from a stroke he suffered in November.
-  
 
   
 
-
-  
 
 ---
 
@@ -753,8 +625,6 @@ Hall of Fame coach Gregg Popovich said Thursday he won't return this season as c
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm)
 
 ---
@@ -765,12 +635,9 @@ Hall of Fame coach Gregg Popovich said Thursday he won't return this season as c
   
 
 Leicester sank closer to an immediate return to the Championship after West Ham pulled clear of the bottom three with a convincing 2-0 win.
-  
 
   
 
-
-  
 
 ---
 
@@ -782,8 +649,6 @@ Leicester sank closer to an immediate return to the Championship after West Ham 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
 
 ---
@@ -794,12 +659,9 @@ Leicester sank closer to an immediate return to the Championship after West Ham 
   
 
 Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-called match of the century at the height of the Cold War, has died aged 88, the Chess Federation of Russia said.
-  
 
   
 
-
-  
 
 ---
 
@@ -811,8 +673,6 @@ Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-call
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm)
 
 ---
@@ -823,12 +683,9 @@ Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-call
   
 
 Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six Nations title-winning skipper Peter O'Mahony and fellow Test centurion Conor Murray will retire from international rugby at the end of the Six Nations, they announced on Thursday.
-  
 
   
 
-
-  
 
 ---
 
@@ -839,8 +696,6 @@ Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six N
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm)
 
@@ -853,12 +708,9 @@ Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six N
   
 
 Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, eager to relive the unforgettable moments from last year’s tournament.
-  
 
   
 
-
-  
 
 ---
 
@@ -870,8 +722,6 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
 
 ---
@@ -882,12 +732,9 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
   
 
 Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghanistan knock England out of the Champions Trophy with a thrilling eight-run victory.
-  
 
   
 
-
-  
 
 ---
 
@@ -898,8 +745,6 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm)
 
@@ -912,12 +757,9 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
   
 
 Liverpool moved a giant step closer to the Premier League title with a ruthless 2-0 win against Newcastle, while Arsenal's challenge was left in tatters after a 0-0 draw against Nottingham Forest.
-  
 
   
 
-
-  
 
 ---
 
@@ -929,8 +771,6 @@ Liverpool moved a giant step closer to the Premier League title with a ruthless 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm)
 
 ---
@@ -941,12 +781,9 @@ Liverpool moved a giant step closer to the Premier League title with a ruthless 
   
 
 Liverpool manager Arne Slot will not be on the touchline for Wednesday's home match against Newcastle after he was handed a two-match ban and given a hefty fine for his behaviour in the Merseyside derby.
-  
 
   
 
-
-  
 
 ---
 
@@ -958,8 +795,6 @@ Liverpool manager Arne Slot will not be on the touchline for Wednesday's home ma
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm)
 
 ---
@@ -970,12 +805,9 @@ Liverpool manager Arne Slot will not be on the touchline for Wednesday's home ma
   
 
 Atlético Madrid conceded a two-goal lead then fought back from two down in a wild 4-4 draw with Barcelona in a Copa del Rey semi-final first leg thriller.
-  
 
   
 
-
-  
 
 ---
 
@@ -987,8 +819,6 @@ Atlético Madrid conceded a two-goal lead then fought back from two down in a wi
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm)
 
 ---
@@ -999,12 +829,9 @@ Atlético Madrid conceded a two-goal lead then fought back from two down in a wi
   
 
 Chelsea moved into the Premier League's top four with a 4-0 demolition of hapless Southampton, but Aston Villa's hopes of Champions League football next season diminished after a 4-1 defeat at Crystal Palace.
-  
 
   
 
-
-  
 
 ---
 
@@ -1016,8 +843,6 @@ Chelsea moved into the Premier League's top four with a 4-0 demolition of haples
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm)
 
 ---
@@ -1028,12 +853,9 @@ Chelsea moved into the Premier League's top four with a 4-0 demolition of haples
   
 
 Rain washed out the Champions Trophy game between South Africa and two-time winner Australia on Tuesday without a ball being bowled.
-  
 
   
 
-
-  
 
 ---
 
@@ -1045,8 +867,6 @@ Rain washed out the Champions Trophy game between South Africa and two-time winn
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm)
 
 ---
@@ -1057,12 +877,9 @@ Rain washed out the Champions Trophy game between South Africa and two-time winn
   
 
 Galatasaray have accused Fenerbahce manager Jose Mourinho of making "racist statements" following a 0-0 draw between the bitter Istanbul rivals.
-  
 
   
 
-
-  
 
 ---
 
@@ -1074,8 +891,6 @@ Galatasaray have accused Fenerbahce manager Jose Mourinho of making "racist stat
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm)
 
 ---
@@ -1086,12 +901,9 @@ Galatasaray have accused Fenerbahce manager Jose Mourinho of making "racist stat
   
 
 World MotoGP champion Jorge Martin will miss the first race of the season this weekend in Thailand after sustaining several fractures in a fall, his Aprilia team announced.
-  
 
   
 
-
-  
 
 ---
 
@@ -1103,8 +915,6 @@ World MotoGP champion Jorge Martin will miss the first race of the season this w
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm)
 
 ---
@@ -1115,12 +925,9 @@ World MotoGP champion Jorge Martin will miss the first race of the season this w
   
 
 Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Trophy semi-finals with a five-wicket win over Bangladesh, as hosts Pakistan were sent crashing out of the tournament.
-  
 
   
 
-
-  
 
 ---
 
@@ -1132,8 +939,6 @@ Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Troph
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm)
 
 ---
@@ -1144,12 +949,9 @@ Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Troph
   
 
 Drivers are urged to steer clear of certain roads in Central and Wan Chai because of an upcoming triathlon test event.
-  
 
   
 
-
-  
 
 ---
 
@@ -1161,8 +963,6 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
 
 ---
@@ -1173,12 +973,9 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
   
 
 Liverpool took a giant stride towards the Premier League title as a 2-0 win over Manchester City opened up an 11-point lead over Arsenal at the top of the table.
-  
 
   
 
-
-  
 
 ---
 
@@ -1190,8 +987,6 @@ Liverpool took a giant stride towards the Premier League title as a 2-0 win over
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm)
 
 ---
@@ -1202,12 +997,9 @@ Liverpool took a giant stride towards the Premier League title as a 2-0 win over
   
 
 Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as they missed out on gold at a men's handball tournament at Kai Tak Arena.
-  
 
   
 
-
-  
 
 ---
 
@@ -1219,8 +1011,6 @@ Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm)
 
 ---
@@ -1231,12 +1021,9 @@ Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as t
   
 
 Hong Kong racing royalty Romantic Warrior has come up just short in the world's most lucrative race, galloping to second in an epic finish against Japan's Forever Young in the US$20 million Saudi Cup in Riyadh.
-  
 
   
 
-
-  
 
 ---
 
@@ -1248,8 +1035,6 @@ Hong Kong racing royalty Romantic Warrior has come up just short in the world's 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm)
 
 ---
@@ -1260,12 +1045,9 @@ Hong Kong racing royalty Romantic Warrior has come up just short in the world's 
   
 
 Luka Doncic delivered a dominant 32-point performance as the Los Angeles Lakers snapped the Denver Nuggets' nine-game winning streak on Saturday with an impressive 123-100 victory on the road in Colorado.
-  
 
   
 
-
-  
 
 ---
 
@@ -1277,8 +1059,6 @@ Luka Doncic delivered a dominant 32-point performance as the Los Angeles Lakers 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm)
 
 ---
@@ -1289,12 +1069,9 @@ Luka Doncic delivered a dominant 32-point performance as the Los Angeles Lakers 
   
 
 Athletes participating in a handball test event for the National Games on Saturday said they were happy with the atmosphere and facilities at the Kai Tak Sports Park.
-  
 
   
 
-
-  
 
 ---
 
@@ -1305,8 +1082,6 @@ Athletes participating in a handball test event for the National Games on Saturd
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm)
 
@@ -1319,12 +1094,9 @@ Athletes participating in a handball test event for the National Games on Saturd
   
 
 The Cleveland Cavaliers boosted their NBA-best record with a 142-105 romp past the New York Knicks on Friday, tightening their grip on the Eastern Conference lead with an all-around dominant display.
-  
 
   
 
-
-  
 
 ---
 
@@ -1336,8 +1108,6 @@ The Cleveland Cavaliers boosted their NBA-best record with a 142-105 romp past t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm)
 
 ---
@@ -1348,12 +1118,9 @@ The Cleveland Cavaliers boosted their NBA-best record with a 142-105 romp past t
   
 
 Liverpool will take on Paris Saint-Germain in one of the standout ties in the last 16 of this season's Champions League after the teams were paired together in Friday's draw.
-  
 
   
 
-
-  
 
 ---
 
@@ -1365,8 +1132,6 @@ Liverpool will take on Paris Saint-Germain in one of the standout ties in the la
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm)
 
 ---
@@ -1377,12 +1142,9 @@ Liverpool will take on Paris Saint-Germain in one of the standout ties in the la
   
 
 In an ice hockey grudge match of border rivals fuelled by political tensions, "51st state" Canada defeated the United States 3-2 in overtime on Thursday to win the Four Nations Face-Off final.
-  
 
   
 
-
-  
 
 ---
 
@@ -1393,8 +1155,6 @@ In an ice hockey grudge match of border rivals fuelled by political tensions, "5
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm)
 
@@ -1407,12 +1167,9 @@ In an ice hockey grudge match of border rivals fuelled by political tensions, "5
   
 
 Paulo Dybala scored twice as Roma beat Porto to clinch a place in the last 16 of the Europa League, as Ajax clawed through in extra time despite playing a man down for 95 minutes.
-  
 
   
 
-
-  
 
 ---
 
@@ -1424,8 +1181,6 @@ Paulo Dybala scored twice as Roma beat Porto to clinch a place in the last 16 of
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792560-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792560-20250221.htm)
 
 ---
@@ -1436,12 +1191,9 @@ Paulo Dybala scored twice as Roma beat Porto to clinch a place in the last 16 of
   
 
 World number three Carlos Alcaraz was sent crashing out of the Qatar Open in the quarter-finals after losing to Jiri Lehecka, as the Spaniard headed for the exit along with second seed Alex de Minaur.
-  
 
   
 
-
-  
 
 ---
 
@@ -1453,8 +1205,6 @@ World number three Carlos Alcaraz was sent crashing out of the Qatar Open in the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792554-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792554-20250221.htm)
 
 ---
@@ -1465,12 +1215,9 @@ World number three Carlos Alcaraz was sent crashing out of the Qatar Open in the
   
 
 San Antonio Spurs star Victor Wembanyama is expected to miss the rest of the NBA season after being diagnosed with deep vein thrombosis in his right shoulder, the team announced.
-  
 
   
 
-
-  
 
 ---
 
@@ -1482,8 +1229,6 @@ San Antonio Spurs star Victor Wembanyama is expected to miss the rest of the NBA
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm)
 
 ---
@@ -1494,12 +1239,9 @@ San Antonio Spurs star Victor Wembanyama is expected to miss the rest of the NBA
   
 
 Spain's High Court has found former soccer federation boss Luis Rubiales guilty of sexual assault for kissing player Jenni Hermoso without her consent and fined him over 10,000 euros (US$10,434), the court said on Thursday.
-  
 
   
 
-
-  
 
 ---
 
@@ -1511,8 +1253,6 @@ Spain's High Court has found former soccer federation boss Luis Rubiales guilty 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm)
 
 ---
@@ -1523,12 +1263,9 @@ Spain's High Court has found former soccer federation boss Luis Rubiales guilty 
   
 
 The Hong Kong official who heads an office coordinating the upcoming National Games, Yeung Tak-keung, said he expects around 1,000 spectators to attend a handball tournament serving as a test event for the Games this weekend.
-  
 
   
 
-
-  
 
 ---
 
@@ -1540,8 +1277,6 @@ The Hong Kong official who heads an office coordinating the upcoming National Ga
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792464-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792464-20250220.htm)
 
 ---
@@ -1552,12 +1287,9 @@ The Hong Kong official who heads an office coordinating the upcoming National Ga
   
 
 Kylian Mbappé struck a brilliant hat-trick for Champions League holders Real Madrid in a 3-1 win over Manchester City, helping Los Blancos reach the last 16 with a 6-3 aggregate victory.
-  
 
   
 
-
-  
 
 ---
 
@@ -1569,8 +1301,6 @@ Kylian Mbappé struck a brilliant hat-trick for Champions League holders Real Ma
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792384-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792384-20250220.htm)
 
 ---
@@ -1581,12 +1311,9 @@ Kylian Mbappé struck a brilliant hat-trick for Champions League holders Real Ma
   
 
 Liverpool's Premier League title charge was slowed by Aston Villa after a pulsating 2-2 draw left neither side satisfied.
-  
 
   
 
-
-  
 
 ---
 
@@ -1598,8 +1325,6 @@ Liverpool's Premier League title charge was slowed by Aston Villa after a pulsat
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm)
 
 ---
@@ -1610,12 +1335,9 @@ Liverpool's Premier League title charge was slowed by Aston Villa after a pulsat
   
 
 Manchester United paid a total of £14.5 million (US$18.3 million) to sack manager Erik ten Hag, sporting director Dan Ashworth and other members of their football staff, according to the fallen English giants' latest accounts published on Wednesday.
-  
 
   
 
-
-  
 
 ---
 
@@ -1627,8 +1349,6 @@ Manchester United paid a total of £14.5 million (US$18.3 million) to sack manag
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm)
 
 ---
@@ -1639,12 +1359,9 @@ Manchester United paid a total of £14.5 million (US$18.3 million) to sack manag
   
 
 Emma Raducanu was targeted by "a man who exhibited fixated behaviour" during the WTA 1000 tournament in Dubai, tennis officials said on Wednesday, after the former US Open champion was reduced to tears on court.
-  
 
   
 
-
-  
 
 ---
 
@@ -1656,8 +1373,6 @@ Emma Raducanu was targeted by "a man who exhibited fixated behaviour" during the
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm)
 
 ---
@@ -1668,12 +1383,9 @@ Emma Raducanu was targeted by "a man who exhibited fixated behaviour" during the
   
 
 Bayern Munich secured their place in the last 16 of the Champions League with a 94th minute strike by Alphonso Davies to secure a 1-1 draw on the night and a 3-2 aggregate win.
-  
 
   
 
-
-  
 
 ---
 
@@ -1685,8 +1397,6 @@ Bayern Munich secured their place in the last 16 of the Champions League with a 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm)
 
 ---
@@ -1697,12 +1407,9 @@ Bayern Munich secured their place in the last 16 of the Champions League with a 
   
 
 Novak Djokovic's comeback came to a crashing halt as he lost 7-6 (7/4), 6-2 to Matteo Berrettini in the second round of the Qatar Open.
-  
 
   
 
-
-  
 
 ---
 
@@ -1714,8 +1421,6 @@ Novak Djokovic's comeback came to a crashing halt as he lost 7-6 (7/4), 6-2 to M
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792193-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792193-20250219.htm)
 
 ---
@@ -1726,12 +1431,9 @@ Novak Djokovic's comeback came to a crashing halt as he lost 7-6 (7/4), 6-2 to M
   
 
 Snooker legends Judd Trump and Ronnie O'Sullivan said they are very excited to play in their first tournament in Hong Kong since becoming SAR residents.
-  
 
   
 
-
-  
 
 ---
 
@@ -1742,8 +1444,6 @@ Snooker legends Judd Trump and Ronnie O'Sullivan said they are very excited to p
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm)
 

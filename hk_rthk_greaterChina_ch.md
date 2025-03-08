@@ -1,15 +1,58 @@
+# 全國兩會 | 格力電器稱以舊換新政策增強消費者對家電認識
+
+  
+
+在北京，全國人大代表、格力電器董事長董明珠表示，國家長期支持民營企業，有各種各樣的幫助，特別是各地政府。作為民企，要加大技術投入，不斷創新，企業才能活得更好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm)
+
+---
+
+# 全國兩會 | 最高人民檢察院稱依法嚴懲危害國家安全犯罪
+
+  
+
+全國兩會正在北京舉行，最高人民檢察院檢察長應勇發表工作報告，提到今年要堅決維護國家安全和社會穩定，依法嚴懲危害國家安全犯罪、嚴重暴力犯罪、極端惡性犯罪，全力服務經濟社會高質量發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm)
+
+---
+
 # 全國兩會 | 楊何蓓茵稱要發揮一國兩制優勢公務員須貢獻力量
 
 ![楊何蓓茵說，公務員要進一步善用科技，加快探索應用人工智能在日常工作上，提升工作成效和效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794866_1_20250308111731.jpg&q=85)
   
 
 全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
-  
 
   
 
-
-  
 
 ---
 
@@ -21,8 +64,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
 
 ---
@@ -33,12 +74,9 @@
   
 
 政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
-  
 
   
 
-
-  
 
 ---
 
@@ -50,8 +88,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
 
 ---
@@ -62,12 +98,9 @@
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
-  
 
   
 
-
-  
 
 ---
 
@@ -79,8 +112,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm)
 
 ---
@@ -91,12 +122,9 @@
   
 
 在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際表示，過去一年已加強憲法實施和監督，完善和落實憲法相關法律制度，更好保障各級人大常委會依法行事監督職權，同時亦加強憲法在特別行政區的宣傳教育，組織五次憲法宣誓儀式。
-  
 
   
 
-
-  
 
 ---
 
@@ -108,8 +136,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm)
 
 ---
@@ -120,12 +146,9 @@
   
 
 在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際 表示，今年要高質量推進立法工作，落實深化立法領域改革要求，預安排審議34件法律案，包括制定民營經濟促進法、民族團結進步促進法、對外貿易法、國家賠償法等；亦要啟動法律清理工作、圍繞大局做好監督工作等。
-  
 
   
 
-
-  
 
 ---
 
@@ -137,24 +160,19 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
 
 ---
 
-# 全國兩會 | 最高法工作報告：促推法治經濟、信用經濟建設
+# 全國兩會 | 最高法報告：促推法治經濟、信用經濟建設
 
 ![十四屆全國人大三次會議舉行第二次全體會議。最高人民法院院長張軍作最高人民法院工作報告。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794858_2_20250308105935.jpg&q=90)
   
 
 在北京，最高人民法院院長張軍發表工作報告，提到今年的工作安排，包括要依法平等保護國有、民營，外資等各種所有制企業產權和自主經營權，促推法治經濟、信用經濟建設，依法保障創新創造，助力發展新質生產力，亦要加強涉外法治建議，提升涉外司法效能，依法反制非法制裁和「長臂管轄」，堅定維護國家主權、安全、發展利益。
-  
 
   
 
-
-  
 
 ---
 
@@ -166,23 +184,19 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm)
 
 ---
 
 # 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
 
+![羅照輝說，電訊詐騙令人神共憤，中國政府有很多工作堅決打擊。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_1_20250308113510.jpg&q=90)
   
 
 再有6名被誘騙到緬甸的香港人獲救。在北京，全國人大代表、公安部副部長許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功，通過開展國際合作狠狠打擊，希望更多被詐騙到當地的受困人士趕快回到家人身邊，中國公安機關會與外國警方密切合作，盡快解救更多受害人。
-  
 
   
 
-
-  
 
 ---
 
@@ -194,8 +208,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
 
 ---
@@ -206,12 +218,9 @@
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
-  
 
   
 
-
-  
 
 ---
 
@@ -223,8 +232,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
 
 ---
@@ -235,12 +242,9 @@
   
 
 國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
-  
 
   
 
-
-  
 
 ---
 
@@ -252,8 +256,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
 
 ---
@@ -264,12 +266,9 @@
   
 
 教宗方濟各因肺炎住院。在北京，全國政協常委、中國天主教主教團副主席房興耀表示，期盼教宗早日健康，全國教友都為他祈禱。
-  
 
   
 
-
-  
 
 ---
 
@@ -281,8 +280,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm)
 
 ---
@@ -293,12 +290,9 @@
   
 
 在北京，全國人大代表、澳門中聯辦主任鄭新聰表示，國家主席習近平去年12月到澳門視察，為澳門未來發展指明方向，激勵澳門各界打開發展新天地，不斷創造鬥志，希望媒體繼續講好一國兩制成功實踐的澳門故事，廣泛傳播正能量。
-  
 
   
 
-
-  
 
 ---
 
@@ -310,8 +304,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm)
 
 ---
@@ -322,12 +314,9 @@
   
 
 全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
-  
 
   
 
-
-  
 
 ---
 
@@ -339,8 +328,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
 
 ---
@@ -351,12 +338,9 @@
   
 
 在北京，商務部發言人說，國務院新聞辦公室近日發布《中國的芬太尼類物質管控》白皮書，充分說明美方以芬太尼為由對中國產品加徵20%關稅是毫無根據，是典型的保護主義、單邊主義和霸凌主義行徑。中方敦促美方糾正錯誤做法，客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。
-  
 
   
 
-
-  
 
 ---
 
@@ -368,8 +352,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm)
 
 ---
@@ -380,12 +362,9 @@
   
 
 中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
-  
 
   
 
-
-  
 
 ---
 
@@ -397,8 +376,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
 
 ---
@@ -409,12 +386,9 @@
   
 
 中共中央總書記、國家主席、中央軍委主席習近平強調，要落實高質量發展要求，實現軍隊建設「十四五」規劃圓滿收官。
-  
 
   
 
-
-  
 
 ---
 
@@ -426,8 +400,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm)
 
 ---
@@ -438,12 +410,9 @@
   
 
 全國政協常委、信德集團行政主席何超瓊建議，聯合民航局、港澳交通部門，開通「港澳—珠海橫琴」、「港澳—廣州南沙」跨境低空觀光及接駁航線、試點直升機等，進一步拓展「多式聯運」網絡。
-  
 
   
 
-
-  
 
 ---
 
@@ -455,8 +424,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm)
 
 ---
@@ -467,12 +434,9 @@
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港區全國人大代表團審議，並聽取代表的意見。
-  
 
   
 
-
-  
 
 ---
 
@@ -484,8 +448,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
 
 ---
@@ -496,12 +458,9 @@
   
 
 外長王毅在記者會回應烏克蘭危機時強調，談判桌是衝突的終點，也是和平的起點，中方歡迎並支持一切致力於和平的努力。
-  
 
   
 
-
-  
 
 ---
 
@@ -513,8 +472,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm)
 
 ---
@@ -525,12 +482,9 @@
   
 
 中共中央政治局委員、外長王毅，在全國人大會議期間舉行中外記者會。他說，相互尊重是中美關係的重要前提，任何一個國家都不能幻想一邊打壓中國，一邊又與中國發展良好關係，這種「兩面人」的做法，不利雙邊關係穩定，亦無法建立彼此互信。
-  
 
   
 
-
-  
 
 ---
 
@@ -542,8 +496,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm)
 
 ---
@@ -554,12 +506,9 @@
   
 
 澳門第八屆立法會選舉將在今年9月14日舉行。身兼澳門立法會主席的全國人大代表高開賢表示，立法會選舉是澳門政治生活一件大事，相信澳門特區政府與社會各界，一定會依法依規選出符合愛國者治澳要求，符合澳門居民期望的議員。
-  
 
   
 
-
-  
 
 ---
 
@@ -571,8 +520,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm)
 
 ---
@@ -583,12 +530,9 @@
   
 
 在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
-  
 
   
 
-
-  
 
 ---
 
@@ -600,8 +544,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
 
 ---
@@ -612,12 +554,9 @@
   
 
 中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
-  
 
   
 
-
-  
 
 ---
 
@@ -629,8 +568,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
 
 ---
@@ -641,12 +578,9 @@
   
 
 十四屆全國人大三次會議，舉行關於「中國外交政策和對外關係」的記者會，中共中央政治局委員、外長王毅說，相互尊重是國與國交往的基本準則，也是中美關係的重要前提。任何一個國家都不能幻想一邊對華打壓遏制，一邊與中國發展良好關係。他又反問美國，從關稅戰、貿易戰中得到甚麼，強調中美經貿關係是相互的、對等的。如果選擇合作，將實現互利共贏，如果一味施壓，中國必將堅決反制。
-  
 
   
 
-
-  
 
 ---
 
@@ -658,8 +592,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm)
 
 ---
@@ -670,12 +602,9 @@
   
 
 中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
-  
 
   
 
-
-  
 
 ---
 
@@ -687,8 +616,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
 
 ---
@@ -699,12 +626,9 @@
   
 
 中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
-  
 
   
 
-
-  
 
 ---
 
@@ -716,8 +640,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
 
 ---
@@ -728,12 +650,9 @@
   
 
 在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
-  
 
   
 
-
-  
 
 ---
 
@@ -745,8 +664,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
 
 ---
@@ -757,12 +674,9 @@
   
 
 國家主席習近平上月出席民營企業座談會並發表重要講活。
-  
 
   
 
-
-  
 
 ---
 
@@ -773,8 +687,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm)
 
@@ -787,12 +699,9 @@
   
 
 杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
-  
 
   
 
-
-  
 
 ---
 
@@ -804,8 +713,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm)
 
 ---
@@ -816,12 +723,9 @@
   
 
 中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%，差過市場預期的5%；進口按年下跌8.4%，市場原先預期會升1%。首兩個月貿易順差1705.2億美元。
-  
 
   
 
-
-  
 
 ---
 
@@ -833,8 +737,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794738-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794738-20250307.htm)
 
 ---
@@ -845,12 +747,9 @@
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-  
 
   
 
-
-  
 
 ---
 
@@ -862,8 +761,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
 
 ---
@@ -874,12 +771,9 @@
   
 
 美國總統特朗普較早時宣稱將「接管」和「擁有」加沙地帶。在北京，外交部部長王毅表示，若大國真正關心加沙人民，應推動加沙全面、持久停火，加大人道主義援助，保持「巴人治巴」原則，為加沙重建做出貢獻。
-  
 
   
 
-
-  
 
 ---
 
@@ -891,8 +785,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm)
 
 ---
@@ -903,12 +795,9 @@
   
 
 在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
-  
 
   
 
-
-  
 
 ---
 
@@ -919,8 +808,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
 
@@ -933,12 +820,9 @@
   
 
 在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
-  
 
   
 
-
-  
 
 ---
 
@@ -949,8 +833,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
 
@@ -963,12 +845,9 @@
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。特區政府表示，會研究如何進一步完善香港特區維護國家安全的法律制度及執行機制。
-  
 
   
 
-
-  
 
 ---
 
@@ -980,8 +859,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
 
 ---
@@ -992,12 +869,9 @@
   
 
 支聯會拒交資料案，3名上訴人鄒幸彤、鄧岳君及徐漢光終極上訴得直。特區政府表示，會積極審視香港特區維護國家安全的執法經驗，研究如何進一步完善香港特區相關的法律制度及執行機制。
-  
 
   
 
-
-  
 
 ---
 
@@ -1009,8 +883,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm)
 
 ---
@@ -1021,12 +893,9 @@
   
 
 在北京，外長王毅回應中歐面臨長期緊張的經貿關係，如何看待中歐關係發展時表示，今年是中歐建交50周年，50年來，中歐合作獲得長足發展，貿易額從當年的24億美元增長到7800億美元，投資額從幾乎為零增長到近2600億美元。中歐班列累計開行突破10萬列，成為聯接亞歐的黃金通道。
-  
 
   
 
-
-  
 
 ---
 
@@ -1038,8 +907,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
 
 ---
@@ -1050,12 +917,9 @@
   
 
 在北京，外長王毅表示，去年中國經濟實現了5%的增長，在主要大國中仍然一枝獨秀，這一成績是在大力推進綠色轉型中取得，是在全球增長低迷背景下實現，更是在克服美國等單邊制裁打壓下拼來，展現出中國經濟迎難而上、奮發有為的鮮明特徵。
-  
 
   
 
-
-  
 
 ---
 
@@ -1067,8 +931,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
 
 ---
@@ -1079,12 +941,9 @@
   
 
 在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網絡電詐這顆毒瘤。
-  
 
   
 
-
-  
 
 ---
 
@@ -1096,8 +955,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
 
 ---
@@ -1108,12 +965,9 @@
   
 
 中國今年出任上海合作組織輪任主席國，外長王毅宣布，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。
-  
 
   
 
-
-  
 
 ---
 
@@ -1125,8 +979,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
 
 ---
@@ -1137,12 +989,9 @@
   
 
 中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%，差過市場預期的5%；進口按年下跌8.4%，市場原先預期會升1%。首兩個月貿易順差1705.2億美元。
-  
 
   
 
-
-  
 
 ---
 
@@ -1154,8 +1003,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm)
 
 ---
@@ -1166,12 +1013,9 @@
   
 
 在北京，外長王毅表示，今年是聯合國成立80周年，事實證明，聯合國經受了考驗，發揮了作用。現在形勢發生了很大變化，單邊主義抬頭，強權政治氾濫，有的國家對聯合國提出了這樣那樣的質疑，但中方認為，矛盾越是複雜，越要突出聯合國的重要地位；挑戰越是緊迫，越要維護聯合國的應有權威。
-  
 
   
 
-
-  
 
 ---
 
@@ -1183,8 +1027,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm)
 
 ---
@@ -1195,12 +1037,9 @@
   
 
 全國政協委員、吉利控股集團董事長李書福表示，在新舊動能轉換過程中，應支持民營製造業企業加快數字化、綠色化轉型，為推動傳統產業高質量發展發揮關鍵作用。
-  
 
   
 
-
-  
 
 ---
 
@@ -1212,8 +1051,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794699-20250307.htm)
 
 ---
@@ -1224,12 +1061,9 @@
   
 
 在北京，外長王毅表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。他強調，鼓吹台獨就是分裂國家，支持台獨就是干涉中國內政，縱容台獨就是破壞台海穩定，主權原則是聯合國憲章的基石，任何國家和任何人都不應搞雙重標準，
-  
 
   
 
-
-  
 
 ---
 
@@ -1241,8 +1075,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm)
 
 ---
@@ -1253,12 +1085,9 @@
   
 
 在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
-  
 
   
 
-
-  
 
 ---
 
@@ -1270,8 +1099,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
 
 ---
@@ -1282,12 +1109,9 @@
   
 
 行政長官李家超於上月在禮賓府與澳門行政長官岑浩輝會面，就進一步加強港澳合作和推動大灣區高質量發展交流意見。為落實促進兩地合作，投資推廣署昨日與澳門招商投資促進局於澳門合辦的推介會，向約90名澳門製造、品牌、零售、餐飲、出入口貿易企業及商會和協會代表，介紹香港營商現況及發展新機遇，尤其在零售、餐飲和貿易行業的新商機，鼓勵澳門企業利用香港的獨特優勢，拓展海外市場。
-  
 
   
 
-
-  
 
 ---
 
@@ -1299,8 +1123,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm)
 
 ---
@@ -1311,12 +1133,9 @@
   
 
 外交部長王毅回應中美關係時說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題，任何一個國家都不能幻想一邊對華打壓遏制，一邊又與中國發展良好關係，形容這種「兩面人」的做法，不僅不利於雙邊關係的穩定，亦無法建立彼此的互信。
-  
 
   
 
-
-  
 
 ---
 
@@ -1328,8 +1147,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm)
 
 ---
@@ -1340,12 +1157,9 @@
   
 
 外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
-  
 
   
 
-
-  
 
 ---
 
@@ -1357,8 +1171,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm)
 
 ---
@@ -1369,12 +1181,9 @@
   
 
 在北京，中共中央政治局委員、外長王毅召開中外記者會，被問到美國總統特朗普重返白宮後，奉行美國優先政策，退出多個國際組織和協議，並對美國傳統盟友「威迫利誘」，中國是否可從中「坐享其成」，在全球事務中扮演更關鍵角色。
-  
 
   
 
-
-  
 
 ---
 
@@ -1386,8 +1195,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794689-20250307.htm)
 
 ---
@@ -1398,12 +1205,9 @@
   
 
 在北京，外長王毅表示，當今世界變亂交織，確定性日益成為全球稀缺資源，各國尤其是大國作出何種抉擇，將決定時代方向，影響世界格局。中國外交將堅定不移站在歷史正確的一邊，站在人類進步的一邊，將以中國的確定性穩住不確定的世界。
-  
 
   
 
-
-  
 
 ---
 
@@ -1415,8 +1219,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794687-20250307.htm)
 
 ---
@@ -1427,12 +1229,9 @@
   
 
 在北京，中共中央政治局委員、外長王毅召開中外記者會，他表示去年是國際格局深刻演變一年，中國外交取得良好進展，為變亂交織的世界帶來寶貴的穩定性。他說，今年國際形勢仍然充滿挑戰，但中國會繼續把握時代潮流，捍衛國際公平正義，維護世界和平穩定。
-  
 
   
 
-
-  
 
 ---
 
@@ -1444,8 +1243,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794686-20250307.htm)
 
 ---
@@ -1456,12 +1253,9 @@
   
 
 支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
-  
 
   
 
-
-  
 
 ---
 
@@ -1473,8 +1267,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm)
 
 ---
@@ -1485,12 +1277,9 @@
   
 
 在北京，全國政協委員、中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭，接受本台訪問時說，中國走出了一個符合中國國情，也符合世界潮流的人權道路，中國人權取得巨大成就。
-  
 
   
 
-
-  
 
 ---
 
@@ -1502,8 +1291,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm)
 
 ---
@@ -1514,12 +1301,9 @@
   
 
 全國政協常委、全國婦聯副主席徐曉蘭表示，今年政府工作報告提出加快工業互聯網的創新發展，亦是連續8年對工業互聯網提出具體要求，而經歷8年發展，工業互聯網已經應用到49個國民經濟領域，核心產業規模達到1.53萬億元。
-  
 
   
 
-
-  
 
 ---
 
@@ -1531,8 +1315,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794674-20250307.htm)
 
 ---
@@ -1543,12 +1325,9 @@
   
 
 在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-  
 
   
 
-
-  
 
 ---
 
@@ -1560,8 +1339,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794672-20250307.htm)
 
 ---
@@ -1572,12 +1349,9 @@
   
 
 在北京，港區全國人大代表陳帆及陳曉峰，聯合提出關於推動香港碳交易體系建設的建議。
-  
 
   
 
-
-  
 
 ---
 
@@ -1588,8 +1362,6 @@
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794667-20250307.htm)
 
@@ -1602,12 +1374,9 @@
   
 
 在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
-  
 
   
 
-
-  
 
 ---
 
@@ -1619,8 +1388,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
 
 ---
@@ -1631,12 +1398,9 @@
   
 
 出席十四屆全國人大三次會議的解放軍和武警部隊代表團繼續分組審議政府工作報告。中央軍委委員、軍委聯合參謀部參謀長劉振立說，過去一年，面對外部壓力加大、內部困難增多的複雜嚴峻形勢，黨中央、習近平主席統攬全局、沉著應變、綜合施策，團結帶領全黨全軍全國各族人民順利完成經濟社會發展主要目標任務，推動中國式現代化邁出堅實步伐。
-  
 
   
 
-
-  
 
 ---
 
@@ -1648,8 +1412,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794631-20250306.htm)
 
 ---
@@ -1660,12 +1422,9 @@
   
 
 港區全國人大代表團繼續審議政府工作報告及相關報告。副團長陳勇說，各代表在會上積極建言獻策，提供過去一年累積整理的真知灼見。
-  
 
   
 
-
-  
 
 ---
 
@@ -1677,66 +1436,6 @@
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794620-20250306.htm)
-
----
-
-# 全國兩會｜習近平強調須強化教育對科技和人才支撐作用
-
-![習近平強調，必須強化教育對科技和人才的支撐作用。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794617_1_20250306211708.jpg&q=90)
-  
-
-中共總書記、國家主席、中央軍委主席習近平強調，必須深刻把握中國式現代化對教育、科技、人才的需求，強化教育對科技和人才的支撐作用，進一步形成人才輩出、人盡其才、才盡其用的生動局面。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794617-20250306.htm)
-
----
-
-# 全國兩會｜習近平向全國各族各界婦女致以節日祝福
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794613_1_20250306215244.jpg&q=80)
-  
-
-中共總書記、國家主席、中央軍委主席習近平下午看望參加全國政協十四屆三次會議的民盟、民進、教育界委員，並參加聯組會，聽取意見和建議。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm)
 
 ---

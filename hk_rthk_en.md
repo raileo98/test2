@@ -4,12 +4,9 @@
   
 
 The nation’s top legislators on Saturday pledged to formulate and amend a slew of laws in the coming year, including one on backing private enterprises.
-  
 
   
 
-
-  
 
 ---
 
@@ -21,8 +18,6 @@ The nation’s top legislators on Saturday pledged to formulate and amend a slew
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm)
 
 ---
@@ -33,12 +28,9 @@ The nation’s top legislators on Saturday pledged to formulate and amend a slew
   
 
 The Commerce Ministry on Saturday announced that it will impose additional tariffs on some products imported from Canada based on the ruling of an anti-discrimination probe.
-  
 
   
 
-
-  
 
 ---
 
@@ -50,8 +42,6 @@ The Commerce Ministry on Saturday announced that it will impose additional tarif
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm)
 
 ---
@@ -62,12 +52,9 @@ The Commerce Ministry on Saturday announced that it will impose additional tarif
   
 
 The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not in a position to stop selling residential and industrial land.
-  
 
   
 
-
-  
 
 ---
 
@@ -79,8 +66,6 @@ The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm)
 
 ---
@@ -91,12 +76,9 @@ The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not 
   
 
 World number two and top seed Alexander Zverev was sent crashing out of Indian Wells on Friday as he was beaten 4-6, 7-6 (7/5), 7-6 (7/4) by 43rd-ranked Tallon Griekspoor.
-  
 
   
 
-
-  
 
 ---
 
@@ -108,24 +90,19 @@ World number two and top seed Alexander Zverev was sent crashing out of Indian W
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm)
 
 ---
 
-# Six dead, hundreds evacuated in Argentina floods
+# Ten dead, hundreds evacuated in Argentina floods
 
 ![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=80)
   
 
-Six people died and hundreds were evacuated in the Argentine port city of Bahia Blanca on Friday as torrential rains flooded homes and hospitals, destroyed roads and forced authorities to cut the power.
-  
+Ten people died and hundreds were evacuated in the Argentine port city of Bahia Blanca on Friday as torrential rains flooded homes and hospitals, destroyed roads and forced authorities to cut the power.
 
   
 
-
-  
 
 ---
 
@@ -137,8 +114,6 @@ Six people died and hundreds were evacuated in the Argentine port city of Bahia 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm)
 
 ---
@@ -149,12 +124,9 @@ Six people died and hundreds were evacuated in the Argentine port city of Bahia 
   
 
 Wall Street stocks finished higher on Friday after a roller-coaster session following mixed labor market data, concluding a losing week on a positive note.
-  
 
   
 
-
-  
 
 ---
 
@@ -166,8 +138,6 @@ Wall Street stocks finished higher on Friday after a roller-coaster session foll
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm)
 
 ---
@@ -178,12 +148,9 @@ Wall Street stocks finished higher on Friday after a roller-coaster session foll
   
 
 Hong Kong Customs intensified enforcement at the international airport and uncovered multiple cases of illicit cigarette smuggling involving air passengers.
-  
 
   
 
-
-  
 
 ---
 
@@ -195,8 +162,6 @@ Hong Kong Customs intensified enforcement at the international airport and uncov
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm)
 
 ---
@@ -207,12 +172,9 @@ Hong Kong Customs intensified enforcement at the international airport and uncov
   
 
 President Donald Trump on Friday threatened new sanctions and tariffs on Russia over its bombardments of Ukraine, after previously suspending US aid to Kyiv in a stated bid to encourage diplomacy.
-  
 
   
 
-
-  
 
 ---
 
@@ -224,8 +186,6 @@ President Donald Trump on Friday threatened new sanctions and tariffs on Russia 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm)
 
 ---
@@ -236,12 +196,9 @@ President Donald Trump on Friday threatened new sanctions and tariffs on Russia 
   
 
 A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolong a fragile ceasefire in Gaza, which has largely paused hostilities with Israel, two senior Hamas officials said.
-  
 
   
 
-
-  
 
 ---
 
@@ -253,8 +210,6 @@ A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolo
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm)
 
 ---
@@ -265,12 +220,9 @@ A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolo
   
 
 Thousands of passengers in Paris and London were stranded on Friday, after the discovery of a World War II bomb on tracks leading to the Gare du Nord station halted traffic at France's busiest railway terminus.
-  
 
   
 
-
-  
 
 ---
 
@@ -282,8 +234,6 @@ Thousands of passengers in Paris and London were stranded on Friday, after the d
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm)
 
 ---
@@ -294,12 +244,9 @@ Thousands of passengers in Paris and London were stranded on Friday, after the d
   
 
 Security minister Chris Tang said on Friday that six more Hongkongers trapped in scam farms in Myanmar have been rescued in a joint operation by the Security Bureau and authorities from the mainland, Thailand and Myanmar.
-  
 
   
 
-
-  
 
 ---
 
@@ -311,8 +258,6 @@ Security minister Chris Tang said on Friday that six more Hongkongers trapped in
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm)
 
 ---
@@ -323,12 +268,9 @@ Security minister Chris Tang said on Friday that six more Hongkongers trapped in
   
 
 Hong Kong's stock market ended lower on Friday with the benchmark Hang Seng Index down 0.57 percent to close at 24,231.
-  
 
   
 
-
-  
 
 ---
 
@@ -340,8 +282,6 @@ Hong Kong's stock market ended lower on Friday with the benchmark Hang Seng Inde
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm)
 
 ---
@@ -352,12 +292,9 @@ Hong Kong's stock market ended lower on Friday with the benchmark Hang Seng Inde
   
 
 China's export growth grew slower than expected in the first two months of this year while imports fell sharply, amid escalating trade tensions between the world's two biggest economies.
-  
 
   
 
-
-  
 
 ---
 
@@ -369,8 +306,6 @@ China's export growth grew slower than expected in the first two months of this 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
 
 ---
@@ -381,12 +316,9 @@ China's export growth grew slower than expected in the first two months of this 
   
 
 Legal scholar and Chinese People's Political Consultative Conference (CPPCC) member Albert Chen on Friday said the National Security Law can be amended, and that won't have retroactive effect.
-  
 
   
 
-
-  
 
 ---
 
@@ -398,8 +330,6 @@ Legal scholar and Chinese People's Political Consultative Conference (CPPCC) mem
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm)
 
 ---
@@ -410,12 +340,9 @@ Legal scholar and Chinese People's Political Consultative Conference (CPPCC) mem
   
 
 A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warrant on Friday, paving the way for his release from jail following his arrest in mid-January on insurrection charges over a brief imposition of martial law.
-  
 
   
 
-
-  
 
 ---
 
@@ -427,8 +354,6 @@ A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warran
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm)
 
 ---
@@ -439,12 +364,9 @@ A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warran
   
 
 Chinese People's Political Consultative Conference (CPPCC) Standing Committee member Henry Tang on Friday said Hong Kong should leverage its advantages and further promote internationalisation.
-  
 
   
 
-
-  
 
 ---
 
@@ -456,8 +378,6 @@ Chinese People's Political Consultative Conference (CPPCC) Standing Committee me
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm)
 
 ---
@@ -468,12 +388,9 @@ Chinese People's Political Consultative Conference (CPPCC) Standing Committee me
   
 
 Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguarding national security while recognising the city's effort in implementing Article 23 legislation, according to attendees at a meeting with the top official in Beijing on Friday.
-  
 
   
 
-
-  
 
 ---
 
@@ -485,8 +402,6 @@ Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguardin
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm)
 
 ---
@@ -497,12 +412,9 @@ Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguardin
   
 
 A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
-  
 
   
 
-
-  
 
 ---
 
@@ -514,8 +426,6 @@ A Beijing official on Friday said that it'll be the right thing to do to keep im
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
 
 ---
@@ -526,12 +436,9 @@ A Beijing official on Friday said that it'll be the right thing to do to keep im
   
 
 The Kai Tak Sports Park will promote sports development and exchanges between Hong Kong and the mainland, according to senior Chinese sports officials attending the "Two Sessions" in Beijing.
-  
 
   
 
-
-  
 
 ---
 
@@ -543,8 +450,6 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
 
 ---
@@ -555,12 +460,9 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
   
 
 Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
-  
 
   
 
-
-  
 
 ---
 
@@ -572,8 +474,6 @@ Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed s
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
 
 ---
@@ -584,12 +484,9 @@ Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed s
   
 
 A weak and breathless Pope Francis thanked people for their prayers for his recovery in a remarkable audio message broadcast on Thursday, the first public sign of life from the 88-year-old pope since he was hospitalized three weeks ago with double pneumonia.
-  
 
   
 
-
-  
 
 ---
 
@@ -601,8 +498,6 @@ A weak and breathless Pope Francis thanked people for their prayers for his reco
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm)
 
 ---
@@ -613,12 +508,9 @@ A weak and breathless Pope Francis thanked people for their prayers for his reco
   
 
 Police on Friday said they hope traffic congestion in Kwun Tong would be eased following the implementation of a new smart traffic management system in the area.
-  
 
   
 
-
-  
 
 ---
 
@@ -630,8 +522,6 @@ Police on Friday said they hope traffic congestion in Kwun Tong would be eased f
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm)
 
 ---
@@ -642,12 +532,9 @@ Police on Friday said they hope traffic congestion in Kwun Tong would be eased f
   
 
 China has ushered in a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
-  
 
   
 
-
-  
 
 ---
 
@@ -659,8 +546,6 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
 
 ---
@@ -671,12 +556,9 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
   
 
 Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, after Washington imposed new tariffs on Chinese goods.
-  
 
   
 
-
-  
 
 ---
 
@@ -688,8 +570,6 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm)
 
 ---
@@ -700,12 +580,9 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
   
 
 China wants to achieve a "fair, lasting and binding peace agreement" acceptable to all parties on the Ukraine war, Foreign Minister Wang Yi said on Friday.
-  
 
   
 
-
-  
 
 ---
 
@@ -717,8 +594,6 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm)
 
 ---
@@ -729,12 +604,9 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
   
 
 A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morning.
-  
 
   
 
-
-  
 
 ---
 
@@ -746,8 +618,6 @@ A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morn
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm)
 
 ---
@@ -758,12 +628,9 @@ A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morn
   
 
 A New Mexico resident who has died, tested positive for measles, the state health department said on Thursday, marking the second measles-related death in the United States in more than a decade.
-  
 
   
 
-
-  
 
 ---
 
@@ -775,8 +642,6 @@ A New Mexico resident who has died, tested positive for measles, the state healt
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm)
 
 ---
@@ -787,12 +652,9 @@ A New Mexico resident who has died, tested positive for measles, the state healt
   
 
 Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street over US President Donald Trump's shifting trade policy, while European bourses advanced following an ECB interest rate cut.
-  
 
   
 
-
-  
 
 ---
 
@@ -804,8 +666,6 @@ Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street ov
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
 
 ---
@@ -816,12 +676,9 @@ Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street ov
   
 
 US President Donald Trump on Thursday said French-based shipping firm CMA CGM would invest US$20 billion in the United States to build out shipping logistics and terminals.
-  
 
   
 
-
-  
 
 ---
 
@@ -833,8 +690,6 @@ US President Donald Trump on Thursday said French-based shipping firm CMA CGM wo
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm)
 
 ---
@@ -845,12 +700,9 @@ US President Donald Trump on Thursday said French-based shipping firm CMA CGM wo
   
 
 Violent winds toppled power lines on Friday as a tropical cyclone inched towards Australia's eastern coast, sparking evacuation orders and leaving more than 50,000 homes without electricity.
-  
 
   
 
-
-  
 
 ---
 
@@ -862,8 +714,6 @@ Violent winds toppled power lines on Friday as a tropical cyclone inched towards
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm)
 
 ---
@@ -874,12 +724,9 @@ Violent winds toppled power lines on Friday as a tropical cyclone inched towards
   
 
 Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship mega-rocket on Thursday, successfully catching the massive booster but with the upper stage failing for the second consecutive time.
-  
 
   
 
-
-  
 
 ---
 
@@ -891,8 +738,6 @@ Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship m
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm)
 
 ---
@@ -903,12 +748,9 @@ Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship m
   
 
 Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
-  
 
   
 
-
-  
 
 ---
 
@@ -920,8 +762,6 @@ Former transport secretary Frank Chan says it is appropriate for the government 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
 
 ---
@@ -932,12 +772,9 @@ Former transport secretary Frank Chan says it is appropriate for the government 
   
 
 Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key US jobs data as markets shrugged off President Trump's latest moves to soften tariff actions.
-  
 
   
 
-
-  
 
 ---
 
@@ -948,8 +785,6 @@ Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key 
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm)
 
@@ -962,12 +797,9 @@ Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key 
   
 
 Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europa League last-16 tie, while Tottenham suffered a 1-0 loss away to Dutch side AZ Alkmaar.
-  
 
   
 
-
-  
 
 ---
 
@@ -979,8 +811,6 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm)
 
 ---
@@ -991,12 +821,9 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
   
 
 President Xi Jinping on Thursday underscored the role of education in advancing science, technology, and talent development, calling for deeper alignment with the country's modernisation needs.
-  
 
   
 
-
-  
 
 ---
 
@@ -1008,8 +835,6 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm)
 
 ---
@@ -1020,12 +845,9 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
   
 
 US President Donald Trump on Thursday unveiled a temporary rollback to steep tariffs targeting Canada and Mexico, providing some reprieve to companies and consumers after blowback on financial markets.
-  
 
   
 
-
-  
 
 ---
 
@@ -1037,8 +859,6 @@ US President Donald Trump on Thursday unveiled a temporary rollback to steep tar
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm)
 
 ---
@@ -1049,12 +869,9 @@ US President Donald Trump on Thursday unveiled a temporary rollback to steep tar
   
 
 Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
-  
 
   
 
-
-  
 
 ---
 
@@ -1066,8 +883,6 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
 
 ---
@@ -1078,12 +893,9 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
   
 
 Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
-  
 
   
 
-
-  
 
 ---
 
@@ -1095,8 +907,6 @@ Authorities insist there is still keen demand for housing, citing a low vacancy 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
 
 ---
@@ -1107,12 +917,9 @@ Authorities insist there is still keen demand for housing, citing a low vacancy 
   
 
 Global sea ice cover fell to a historic low in February when the world continued to experience exceptional heat, and temperatures reached 11 degrees Celsius above average near the North Pole, Europe's climate monitor said on Thursday.
-  
 
   
 
-
-  
 
 ---
 
@@ -1124,8 +931,6 @@ Global sea ice cover fell to a historic low in February when the world continued
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm)
 
 ---
@@ -1136,12 +941,9 @@ Global sea ice cover fell to a historic low in February when the world continued
   
 
 EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in Brussels in search of unity on bolstering Ukraine and Europe's defences, after US President Donald Trump upended traditional US alliances and retracted wartime backing for Kyiv.
-  
 
   
 
-
-  
 
 ---
 
@@ -1153,8 +955,6 @@ EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in B
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm)
 
 ---
@@ -1165,12 +965,9 @@ EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in B
   
 
 Hamas said on Thursday that Donald Trump's threats would encourage Israel to disregard the fragile ceasefire, after the US president said that unless hostages are freed, the people of Gaza would be "DEAD".
-  
 
   
 
-
-  
 
 ---
 
@@ -1182,8 +979,6 @@ Hamas said on Thursday that Donald Trump's threats would encourage Israel to dis
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm)
 
 ---
@@ -1194,12 +989,9 @@ Hamas said on Thursday that Donald Trump's threats would encourage Israel to dis
   
 
 A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
-  
 
   
 
-
-  
 
 ---
 
@@ -1211,8 +1003,6 @@ A senior Guangdong official on Thursday said the province will work closely with
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
 
 ---
@@ -1223,12 +1013,9 @@ A senior Guangdong official on Thursday said the province will work closely with
   
 
 Net profit at the MTR Corporation more than doubled last year, thanks largely to strong gains in local property development.
-  
 
   
 
-
-  
 
 ---
 
@@ -1240,8 +1027,6 @@ Net profit at the MTR Corporation more than doubled last year, thanks largely to
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
 
 ---
@@ -1252,12 +1037,9 @@ Net profit at the MTR Corporation more than doubled last year, thanks largely to
   
 
 The ICAC on Thursday charged four people on suspicion of fixing matches in the Hong Kong football league.
-  
 
   
 
-
-  
 
 ---
 
@@ -1269,8 +1051,6 @@ The ICAC on Thursday charged four people on suspicion of fixing matches in the H
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm)
 
 ---
@@ -1281,12 +1061,9 @@ The ICAC on Thursday charged four people on suspicion of fixing matches in the H
   
 
 The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set by China for 2025 can be met, despite external headwinds and weak domestic demand.
-  
 
   
 
-
-  
 
 ---
 
@@ -1298,8 +1075,6 @@ The head of the National Development and Reform Commission said he's confident t
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
 
 ---
@@ -1310,12 +1085,9 @@ The head of the National Development and Reform Commission said he's confident t
   
 
 Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soaring over three percent, as tech shares led the gains.
-  
 
   
 
-
-  
 
 ---
 
@@ -1327,8 +1099,6 @@ Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soari
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm)
 
 ---
@@ -1339,12 +1109,9 @@ Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soari
   
 
 Hong Kong's top court on Thursday upheld the sedition convictions of former activist Tam Tak-chi over a string of incitement incidents in public in 2020.
-  
 
   
 
-
-  
 
 ---
 
@@ -1356,8 +1123,6 @@ Hong Kong's top court on Thursday upheld the sedition convictions of former acti
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm)
 
 ---
@@ -1368,12 +1133,9 @@ Hong Kong's top court on Thursday upheld the sedition convictions of former acti
   
 
 Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantages and to continue to safeguard national security, according to SAR delegates of the nation’s top political advisory body.
-  
 
   
 
-
-  
 
 ---
 
@@ -1385,8 +1147,6 @@ Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantage
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm)
 
 ---
@@ -1397,12 +1157,9 @@ Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantage
   
 
 The city's consumer watchdog on Thursday called on various private healthcare service providers, including hospitals and clinics, to be more transparent when they disclose their fees, given complaints over unexpectedly higher medical costs.
-  
 
   
 
-
-  
 
 ---
 
@@ -1414,8 +1171,6 @@ The city's consumer watchdog on Thursday called on various private healthcare se
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm)
 
 ---
@@ -1426,12 +1181,9 @@ The city's consumer watchdog on Thursday called on various private healthcare se
   
 
 A PhD student from China was found guilty on Wednesday in a London court of drugging and raping 10 women in China and the UK, as British police warned there could be more than 50 other victims.
-  
 
   
 
-
-  
 
 ---
 
@@ -1443,8 +1195,6 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
 
 ---
@@ -1455,12 +1205,9 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
   
 
 Hong Kong’s top court on Thursday overturned the convictions of three people for refusing to hand information to the police in a national security investigation.
-  
 
   
 
-
-  
 
 ---
 
@@ -1472,8 +1219,6 @@ Hong Kong’s top court on Thursday overturned the convictions of three people f
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794515-20250306.htm)
 
 ---
@@ -1484,12 +1229,9 @@ Hong Kong’s top court on Thursday overturned the convictions of three people f
   
 
 Early wind and rain from a rare tropical cyclone began lashing part of eastern Australia on Thursday as schools were closed, public transport was stopped and desperate residents got around shortages of sandbags by buying potting mix.
-  
 
   
 
-
-  
 
 ---
 
@@ -1500,8 +1242,6 @@ Early wind and rain from a rare tropical cyclone began lashing part of eastern A
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794517-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794517-20250306.htm)
 
@@ -1514,12 +1254,9 @@ Early wind and rain from a rare tropical cyclone began lashing part of eastern A
   
 
 Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticket to the NBA playoffs with a hard-fought 112-107 victory over the Miami Heat.
-  
 
   
 
-
-  
 
 ---
 
@@ -1531,8 +1268,6 @@ Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticke
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm)
 
 ---
@@ -1543,12 +1278,9 @@ Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticke
   
 
 The chairman of the people's government of the Tibet Autonomous Region on Thursday said classes have resumed in Dingri County following the massive earthquake earlier this year.
-  
 
   
 
-
-  
 
 ---
 
@@ -1560,8 +1292,6 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm)
 
 ---
@@ -1572,12 +1302,9 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
   
 
 South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
-  
 
   
 
-
-  
 
 ---
 
@@ -1589,8 +1316,6 @@ South Korea's Air Force on Thursday said one of its fighter jets had accidentall
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm)
 
 ---
@@ -1601,12 +1326,9 @@ South Korea's Air Force on Thursday said one of its fighter jets had accidentall
   
 
 Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Trump administration delayed auto tariffs on Canada and Mexico.
-  
 
   
 
-
-  
 
 ---
 
@@ -1618,8 +1340,6 @@ Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Tru
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
 
 ---
@@ -1630,12 +1350,9 @@ Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Tru
   
 
 Britain strongly condemned on Wednesday the sentencing of UK national James Anderson to 19 years in prison by a Russian court, which accused him of having fought for the Ukrainian army.
-  
 
   
 
-
-  
 
 ---
 
@@ -1647,8 +1364,6 @@ Britain strongly condemned on Wednesday the sentencing of UK national James Ande
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm)
 
 ---
@@ -1659,12 +1374,9 @@ Britain strongly condemned on Wednesday the sentencing of UK national James Ande
   
 
 Premier Li Qiang’s work report has offered “important guidance” on implementing the One Country, Two Systems policy, Chief Executive John Lee said on Thursday, as he pledged to further align Hong Kong with national development strategies.
-  
 
   
 
-
-  
 
 ---
 
@@ -1676,8 +1388,6 @@ Premier Li Qiang’s work report has offered “important guidance” on impleme
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm)
 
 ---
@@ -1688,12 +1398,9 @@ Premier Li Qiang’s work report has offered “important guidance” on impleme
   
 
 US President Donald Trump on Wednesday issued what he called a “last warning” to Hamas to release all remaining hostages held in Gaza, directing a sharply-worded message after the White House confirmed he had recently dispatched an envoy for unprecedented direct talks with the militant group.
-  
 
   
 
-
-  
 
 ---
 
@@ -1705,8 +1412,6 @@ US President Donald Trump on Wednesday issued what he called a “last warning�
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-
-
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm)
 
 ---
@@ -1717,12 +1422,9 @@ US President Donald Trump on Wednesday issued what he called a “last warning�
   
 
 US stocks climbed on Wednesday after US President Donald Trump pulled back on some of his tariffs temporarily.
-  
 
   
 
-
-  
 
 ---
 
@@ -1733,8 +1435,6 @@ US stocks climbed on Wednesday after US President Donald Trump pulled back on so
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
 
