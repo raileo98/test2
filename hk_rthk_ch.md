@@ -1,3 +1,27 @@
+# 以軍針對式突襲敘利亞境內目標　稱已處理大批彈藥及軍事裝備
+
+![以色列之前以自衞為由，出兵佔領戈蘭高地東側的以敘軍事緩衝區。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794942_1_20250309034534.jpg&q=20)
+  
+
+以色列國防軍發聲明指出，過去一星期傘兵旅、裝甲兵團及特種部隊，對敘利亞境內目標進行針對式突襲，並部署在敘利亞境內一些戰略要地。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm)
+
+---
+
 # 南非東部上月極端天氣最少22死　國家災難狀態助實施跨部門援助
 
 ![誇祖盧納塔爾省在二月下半月持續落雨，出現洪水等自然災害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794941_1_20250309022803.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
-
----
-
-# 全國兩會 | 最高法報告：促推法治經濟、信用經濟建設
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794858_2_20250308105935.jpg&q=90)
-  
-
-在北京，最高人民法院院長張軍發表工作報告，提到今年的工作安排，包括要依法平等保護國有、民營，外資等各種所有制企業產權和自主經營權，促推法治經濟、信用經濟建設，依法保障創新創造，助力發展新質生產力，亦要加強涉外法治建議，提升涉外司法效能，依法反制非法制裁和「長臂管轄」，堅定維護國家主權、安全、發展利益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm)
 
 ---

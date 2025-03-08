@@ -1,3 +1,27 @@
+# 以軍針對式突襲敘利亞境內目標　稱已處理大批彈藥及軍事裝備
+
+![以色列之前以自衞為由，出兵佔領戈蘭高地東側的以敘軍事緩衝區。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794942_1_20250309034534.jpg&q=20)
+  
+
+以色列國防軍發聲明指出，過去一星期傘兵旅、裝甲兵團及特種部隊，對敘利亞境內目標進行針對式突襲，並部署在敘利亞境內一些戰略要地。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm)
+
+---
+
 # 南非東部上月極端天氣最少22死　國家災難狀態助實施跨部門援助
 
 ![誇祖盧納塔爾省在二月下半月持續落雨，出現洪水等自然災害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794941_1_20250309022803.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱中國堅定維護聯合國中心地位　無意另起爐灶
-
-![王毅說，中方認為，矛盾越是複雜，越要突出聯合國的重要地位。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794700_1_20250307111345.jpg&q=55)
-  
-
-在北京，外長王毅表示，今年是聯合國成立80周年，事實證明，聯合國經受了考驗，發揮了作用。現在形勢發生了很大變化，單邊主義抬頭，強權政治氾濫，有的國家對聯合國提出了這樣那樣的質疑，但中方認為，矛盾越是複雜，越要突出聯合國的重要地位；挑戰越是緊迫，越要維護聯合國的應有權威。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm)
 
 ---
