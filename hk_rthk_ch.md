@@ -1,3 +1,27 @@
+# 往來峻巒至元朗站小巴獲批「紅轉綠」　明日投入服務
+
+![運輸署表示，由相關專線小巴路線轉乘港鐵或由港鐵轉乘相關路線，可享有5毫轉乘優惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794936_1_20250308225949.jpg&q=90)
+  
+
+兩條紅色小巴路線的營辦商按「特選紅轉綠」計劃，轉為綠色專線小巴路線模式營運，其中往來元朗峻巒至元朗站朗明街的循環線，將於明日投入服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm)
+
+---
+
 # 澤連斯基：烏方致力與美方在沙特建設性對話
 
 ![澤連斯基說，烏克蘭從戰爭爆發的第一秒就尋求和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794935_1_20250308224541.jpg&q=90)

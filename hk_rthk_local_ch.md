@@ -1,3 +1,27 @@
+# 往來峻巒至元朗站小巴獲批「紅轉綠」　明日投入服務
+
+![運輸署表示，由相關專線小巴路線轉乘港鐵或由港鐵轉乘相關路線，可享有5毫轉乘優惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794936_1_20250308225949.jpg&q=90)
+  
+
+兩條紅色小巴路線的營辦商按「特選紅轉綠」計劃，轉為綠色專線小巴路線模式營運，其中往來元朗峻巒至元朗站朗明街的循環線，將於明日投入服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm)
+
+---
+
 # 全國兩會｜鄭雁雄要求香港充分發揮一國兩制制度優勢
 
 ![鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段。（中聯辦微信公眾號）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794934_1_20250308224742.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm)
-
----
-
-# 食安中心倡市民膳食中加入碘含量豐富食物包括藻類及海鮮等
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794765_1_20250307173041.jpg&q=85)
-  
-
-食物安全中心就食物碘含量展開風險評估研究，發現碘含量最高食品是乾海帶，每100克達18萬微克，其次是乾紫菜、蟹乾小食及海苔小食。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794765-20250307.htm)
 
 ---
