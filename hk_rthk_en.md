@@ -1,3 +1,51 @@
+# Robertson reaches final of World Snooker Grand Prix
+
+![Shaun Murphy, (left), congratulates Neil Robertson after a thrilling battle on the baize. Photo courtesy of the World Snooker Tour's Facebook page.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794915_1_20250308173327.jpg&q=90)
+  
+
+Two former world champions, Shaun Murphy of England and Neil Robertson of Australia, put on a show for fans at the Kai Tak Arena on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
+
+---
+
+# Cavs survive Hornets scare, Jokic makes history
+
+![Three-time NBA MVP Nikola Jokic has become the first player ever to score more than 30 points, 20 rebounds and 20 assists in a single game. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794896_1_20250308153519.jpg&q=85)
+  
+
+The Cleveland Cavaliers staged a dramatic late rally to stretch their unbeaten streak to 13 games with a nail-biting 118-117 over the lowly Charlotte Hornets in the NBA on Friday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm)
+
+---
+
 # 'Private enterprises need innovation to thrive'
 
 ![Dong Mingzhu says private enterprises need continuous innovation and technological investment to thrive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_1_20250308164432.jpg&q=85)
@@ -1389,53 +1437,5 @@ Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soari
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm)
-
----
-
-# Top court upholds sedition convictions of Tam Tak-chi
-
-![Court of Final Appeal judges dismissed arguments from Tam Tak-chi's lawyers and upheld his sedition convictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794531_1_20250306130910.jpg&q=40)
-  
-
-Hong Kong's top court on Thursday upheld the sedition convictions of former activist Tam Tak-chi over a string of incitement incidents in public in 2020.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm)
-
----
-
-# Capitalise on your strengths, vice premier tells HK
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=80)
-  
-
-Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantages and to continue to safeguard national security, according to SAR delegates of the nation’s top political advisory body.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm)
 
 ---

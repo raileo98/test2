@@ -1,3 +1,27 @@
+# Robertson reaches final of World Snooker Grand Prix
+
+![Shaun Murphy, (left), congratulates Neil Robertson after a thrilling battle on the baize. Photo courtesy of the World Snooker Tour's Facebook page.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794915_1_20250308173327.jpg&q=90)
+  
+
+Two former world champions, Shaun Murphy of England and Neil Robertson of Australia, put on a show for fans at the Kai Tak Arena on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
+
+---
+
 # 'Private enterprises need innovation to thrive'
 
 ![Dong Mingzhu says private enterprises need continuous innovation and technological investment to thrive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_1_20250308164432.jpg&q=85)
@@ -1414,29 +1438,5 @@ Chief Executive John Lee will head to Beijing on Tuesday to attend the annual op
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm)
-
----
-
-# HK to push for greater integration at Two Sessions
-
-![Closewise from top right, Starry Lee, Ronick Chan, William Wong and Johnny Ng are among the delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=85)
-  
-
-Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – from the development of artificial intelligence to a low-altitude economy – as the SAR seeks to further integrate into the nation's development.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
 
 ---

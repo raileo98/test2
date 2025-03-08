@@ -1,3 +1,51 @@
+# Robertson reaches final of World Snooker Grand Prix
+
+![Shaun Murphy, (left), congratulates Neil Robertson after a thrilling battle on the baize. Photo courtesy of the World Snooker Tour's Facebook page.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794915_1_20250308173327.jpg&q=90)
+  
+
+Two former world champions, Shaun Murphy of England and Neil Robertson of Australia, put on a show for fans at the Kai Tak Arena on Saturday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
+
+---
+
+# Cavs survive Hornets scare, Jokic makes history
+
+![Three-time NBA MVP Nikola Jokic has become the first player ever to score more than 30 points, 20 rebounds and 20 assists in a single game. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794896_1_20250308153519.jpg&q=85)
+  
+
+The Cleveland Cavaliers staged a dramatic late rally to stretch their unbeaten streak to 13 games with a nail-biting 118-117 over the lowly Charlotte Hornets in the NBA on Friday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm)
+
+---
+
 # Top-seeded Zverev crashes out in Indian Wells opener
 
 ![German Alexander Zverev in-between points during his match against Tallon Griekspoor. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794847_1_20250308081214.jpg&q=90)
@@ -1398,53 +1446,5 @@ Bayern Munich secured their place in the last 16 of the Champions League with a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm)
-
----
-
-# Berrettini ends Djokovic comeback at Qatar Open
-
-![Berrettini, right, and Djokovic after their second round match at the Qatar Open in Doha. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792193_1_20250219054122.jpg&q=80)
-  
-
-Novak Djokovic's comeback came to a crashing halt as he lost 7-6 (7/4), 6-2 to Matteo Berrettini in the second round of the Qatar Open.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792193-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792193-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792193-20250219.htm)
-
----
-
-# Trump, O'Sullivan ready for HK Grand Prix
-
-![Judd Trump says he hopes to make Hong Kong proud. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792148_1_20250218181010.jpg&q=75)
-  
-
-Snooker legends Judd Trump and Ronnie O'Sullivan said they are very excited to play in their first tournament in Hong Kong since becoming SAR residents.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm)
 
 ---
