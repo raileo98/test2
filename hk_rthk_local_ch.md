@@ -1,3 +1,31 @@
+# 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
+
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
+
+---
+
 # 麥美娟期望今年年中啟動聯廈聯管計劃
 
   
@@ -1695,35 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794690-20250307.htm)
-
----
-
-# 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
-
-![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
-![啟德青年運動場現階段有2個室内乒乓球場開放。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_2_20250307105549.jpg&q=90)
-  
-
-啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm)
 
 ---

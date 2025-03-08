@@ -1,3 +1,31 @@
+# 中國對加拿大菜子油、油渣餅、豌豆加徵100%關稅
+
+  
+
+國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
+
+---
+
 # 全國兩會 | 中國天主教主教團副主席：全國教友為教宗祈禱
 
   
@@ -1703,34 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm)
-
----
-
-# 特朗普：暫緩對符合《美墨加協定》商品徵收關稅
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794773_1_20250307181453.jpg&q=80)
-  
-
-美國總統特朗普簽署行政命令，對符合《美墨加協定》的產品，暫緩加徵關稅，直至下月2日。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm)
 
 ---
