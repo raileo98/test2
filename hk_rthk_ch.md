@@ -1,3 +1,27 @@
+# 巴黎當局在鐵路附近拆除戰時炸彈　估計60萬人受列車停運影響
+
+![施工人員在巴黎一條鐵路線上發現一枚二戰時期炸彈。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794924_1_20250308193940.jpg&q=85)
+  
+
+法國巴黎北站附近路軌在施工過程中發現一枚未引爆的二戰時期炸彈，導致進出巴黎北站的列車全面暫停，巴黎往返倫敦的歐洲之星列車亦全部停運。當局其後將炸彈拆除，受影響路線逐步恢復運作。事件導致鐵路服務癱瘓大約14小時，官員估計，大約500班列車和60萬人受到影響。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm)
+
+---
+
 # 全國兩會｜張軍稱要加強涉外法治建設　依法反制非法制裁
 
   
