@@ -1,3 +1,51 @@
+# 哈馬斯稱有積極跡象表明協議次階段談判將啟動　以官員指不知情
+
+![哈馬斯表示願意以滿足巴勒斯坦民眾要求的方式進入談判。圖為加沙地帶被炸成廢墟的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794939_1_20250309015115.jpg&q=15)
+  
+
+巴勒斯坦武裝組織哈馬斯發言人形容，有「積極跡象」表明加沙地帶停火協議第二階段談判，將會啟動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm)
+
+---
+
+# 哈梅內伊批評有霸凌國家政府堅持談判只為將自身期望強加於伊朗
+
+![哈梅內伊反問歐洲國家是否有履行自身在伊核協議中的義務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794938_1_20250309014649.jpg&q=90)
+  
+
+伊朗最高領袖哈梅內伊表示，伊朗在政治及經濟等各種範疇方面，不能照搬西方物質文明的基礎，批評西方國家的雙重標準是西方文明的恥辱。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm)
+
+---
+
 # 往來峻巒至元朗站小巴獲批「紅轉綠」　明日投入服務
 
 ![運輸署表示，由相關專線小巴路線轉乘港鐵或由港鐵轉乘相關路線，可享有5毫轉乘優惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794936_1_20250308225949.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
-
----
-
-# 中國對加拿大菜子油、油渣餅及豌豆加徵100%關稅
-
-![國務院關稅稅則委員會發公布，向加拿大部分農產品及食品加徵關稅。（相關公告網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794854_1_20250308095726.jpg&q=90)
-  
-
-國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
-
----
-
-# 全國兩會 | 中國天主教主教團副主席：全國教友為教宗祈禱
-
-![房興耀透露，多次努力向中央領導提出中梵建交的意見和建議。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794853_1_20250308095612.jpg&q=90)
-  
-
-教宗方濟各因肺炎住院。在北京，全國政協常委、中國天主教主教團副主席房興耀表示，期盼教宗早日健康，全國教友都為他祈禱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm)
 
 ---

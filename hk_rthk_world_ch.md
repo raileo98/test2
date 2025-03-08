@@ -1,3 +1,51 @@
+# 哈馬斯稱有積極跡象表明協議次階段談判將啟動　以官員指不知情
+
+![哈馬斯表示願意以滿足巴勒斯坦民眾要求的方式進入談判。圖為加沙地帶被炸成廢墟的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794939_1_20250309015115.jpg&q=15)
+  
+
+巴勒斯坦武裝組織哈馬斯發言人形容，有「積極跡象」表明加沙地帶停火協議第二階段談判，將會啟動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm)
+
+---
+
+# 哈梅內伊批評有霸凌國家政府堅持談判只為將自身期望強加於伊朗
+
+![哈梅內伊反問歐洲國家是否有履行自身在伊核協議中的義務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794938_1_20250309014649.jpg&q=90)
+  
+
+伊朗最高領袖哈梅內伊表示，伊朗在政治及經濟等各種範疇方面，不能照搬西方物質文明的基礎，批評西方國家的雙重標準是西方文明的恥辱。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm)
+
+---
+
 # 澤連斯基：烏方致力與美方在沙特建設性對話
 
 ![澤連斯基說，烏克蘭從戰爭爆發的第一秒就尋求和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794935_1_20250308224541.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱中方本著人道助打擊毒品　美國不應以怨報德
-
-![王毅說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794692_1_20250307111310.jpg&q=90)
-  
-
-外交部長王毅回應中美關係時說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題，任何一個國家都不能幻想一邊對華打壓遏制，一邊又與中國發展良好關係，形容這種「兩面人」的做法，不僅不利於雙邊關係的穩定，亦無法建立彼此的互信。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
-  
-
-外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm)
 
 ---
