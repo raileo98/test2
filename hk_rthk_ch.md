@@ -1,3 +1,23 @@
+# 南韓總統尹錫悅離開首爾拘留所
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm)
+
+---
+
 # 南韓檢察機關放棄上訴　尹錫悅將從拘留所獲釋
 
 ![大批尹錫悅支持者在首爾拘留所外聚集，準備歡迎尹錫悅獲釋。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794914_1_20250308165307.jpg&q=45)
