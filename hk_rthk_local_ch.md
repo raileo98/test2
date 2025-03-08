@@ -1,3 +1,26 @@
+# 全國兩會｜趙樂際指去年工作有新進展和成效　但仍有差距和不足
+
+  
+
+在北京，全國人大委員長趙樂際發表工作報告，指去年工作取得新進展和成效，包括兩次審議民營經濟促進法草案，宣介一國兩制主張和成功實踐等，但工作仍存在一些差距和不足。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm)
+
+---
+
 # 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
 
 ![國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794918_1_20250308180346.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm)
-
----
-
-# 本港二手樓價按星期升0.32%　結束兩周跌勢
-
-![中原城市領先指數最新報137.46，按星期升0.32%，結束兩星期跌勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794752_1_20250307163426.jpg&q=80)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報137.46，按星期升0.32%，結束兩星期跌勢，但仍處於近8年半低位，今年累計跌0.13%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
 
 ---

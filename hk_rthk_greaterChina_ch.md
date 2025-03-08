@@ -1,3 +1,49 @@
+# 全國兩會｜趙樂際指去年工作有新進展和成效　但仍有差距和不足
+
+  
+
+在北京，全國人大委員長趙樂際發表工作報告，指去年工作取得新進展和成效，包括兩次審議民營經濟促進法草案，宣介一國兩制主張和成功實踐等，但工作仍存在一些差距和不足。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm)
+
+---
+
+# 全國兩會｜最高人民法院：以嚴格公正司法維護國家安全和社會穩定
+
+  
+
+最高人民法院院長張軍發表工作報告，提到過去一年嚴厲打擊嚴重危害社會秩序犯罪，包括嚴懲涉及緬甸北部等跨境電信網絡詐騙犯罪，審結電信網絡詐騙案件4萬宗，涉及超過8萬多人，按年增長26.7%，以嚴格公正司法維護國家安全和社會穩定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm)
+
+---
+
 # 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
 
 ![國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794918_1_20250308180346.jpg&q=90)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱中方本著人道助打擊毒品　美國不應以怨報德
-
-![王毅說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794692_1_20250307111310.jpg&q=90)
-  
-
-外交部長王毅回應中美關係時說，相互尊重是國與國交往的基本準則，亦是中美關係的重要前題，任何一個國家都不能幻想一邊對華打壓遏制，一邊又與中國發展良好關係，形容這種「兩面人」的做法，不僅不利於雙邊關係的穩定，亦無法建立彼此的互信。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794692-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱中俄友好歷史邏輯不變　合作共贏符兩國人民利益
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794691_1_20250307104852.jpg&q=90)
-  
-
-外交部長王毅表示，無論國際環境如何變化，中俄友好的歷史邏輯不變，內生動力不減。雙方深刻總結歷史經驗，決定永久睦鄰友好，開展全面戰略協作，尋求互利合作共贏，最符合兩國人民的根本利益，也符合時代發展進步的方向。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794691-20250307.htm)
 
 ---

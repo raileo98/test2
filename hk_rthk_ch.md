@@ -1,3 +1,49 @@
+# 全國兩會｜趙樂際指去年工作有新進展和成效　但仍有差距和不足
+
+  
+
+在北京，全國人大委員長趙樂際發表工作報告，指去年工作取得新進展和成效，包括兩次審議民營經濟促進法草案，宣介一國兩制主張和成功實踐等，但工作仍存在一些差距和不足。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm)
+
+---
+
+# 全國兩會｜最高人民法院：以嚴格公正司法維護國家安全和社會穩定
+
+  
+
+最高人民法院院長張軍發表工作報告，提到過去一年嚴厲打擊嚴重危害社會秩序犯罪，包括嚴懲涉及緬甸北部等跨境電信網絡詐騙犯罪，審結電信網絡詐騙案件4萬宗，涉及超過8萬多人，按年增長26.7%，以嚴格公正司法維護國家安全和社會穩定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm)
+
+---
+
 # 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
 
 ![國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794918_1_20250308180346.jpg&q=90)
