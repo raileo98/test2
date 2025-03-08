@@ -1,3 +1,27 @@
+# 澤連斯基：烏方致力與美方在沙特建設性對話
+
+![澤連斯基說，烏克蘭從戰爭爆發的第一秒就尋求和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794935_1_20250308224541.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，烏方完全致力於下星期在沙特阿拉伯與美國代表進行建設性對話，探討如何結束與俄羅斯的戰爭。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm)
+
+---
+
 # 全國兩會｜鄭雁雄要求香港充分發揮一國兩制制度優勢
 
 ![鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段。（中聯辦微信公眾號）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794934_1_20250308224742.jpg&q=90)
