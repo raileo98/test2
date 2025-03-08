@@ -1,3 +1,32 @@
+# 'HK can't stop residential and industrial land sale'
+
+![The government is not putting up any commercial sites for sale in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
+  
+
+The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not in a position to stop selling residential and industrial land.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm)
+
+---
+
 # Top-seeded Zverev crashes out in Indian Wells opener
 
 ![German Alexander Zverev in-between points during his match against Tallon Griekspoor. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794847_1_20250308081214.jpg&q=90)
@@ -1708,34 +1737,5 @@ An analyst on Thursday said the advent of artificial intelligence startups such 
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm)
-
----
-
-# Greenlanders shrug off Trump's takeover bid
-
-![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=80)
-  
-
-Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take over the Arctic island, seeing it merely as an opportunity to advance their own independence bid.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm)
 
 ---

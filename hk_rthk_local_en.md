@@ -1,3 +1,32 @@
+# 'HK can't stop residential and industrial land sale'
+
+![The government is not putting up any commercial sites for sale in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
+  
+
+The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not in a position to stop selling residential and industrial land.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm)
+
+---
+
 # Customs cracks down on illicit cigarette smuggling
 
 ![Over the past two weeks, Customs intercepted 20 illicit cigarette smuggling cases at the airport, arresting 13 men and eight women. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794825_1_20250308014937.jpg&q=65)
@@ -1708,34 +1737,5 @@ A fencing duel between movie star Donnie Yen and Olympic gold medallist Vivian K
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793827-20250301.htm)
-
----
-
-# HK to soar to new heights with Kai Tak Sports Park: CE
-
-![The chief executive thanked all those who were involved in the planning, construction and operation of the sports park. Photo courtesy: John Lee Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793817_5_20250301203401.jpg&q=75)
-  
-
-The brand new Kai Tak Sports Park will help Hong Kong soar to new heights, the chief executive told the crowd during the opening ceremony on Saturday night.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793817-20250301.htm)
 
 ---
