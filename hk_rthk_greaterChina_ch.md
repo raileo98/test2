@@ -1,3 +1,59 @@
+# 中國對加拿大菜子油、油渣餅、豌豆加徵100%關稅
+
+  
+
+國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
+
+---
+
+# 全國兩會 | 中國天主教主教團副主席：全國教友為教宗祈禱
+
+  
+
+教宗方濟各因肺炎住院。在北京，全國政協常委、中國天主教主教團副主席房興耀表示，期盼教宗早日健康，全國教友都為他祈禱。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm)
+
+---
+
 # 全國兩會｜鄭新聰籲講好澳門特色一國兩制成功實踐故事
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794814_1_20250307224630.jpg&q=90)
@@ -1681,63 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794590-20250306.htm)
-
----
-
-# 全國兩會｜丁薛祥：香港有背靠祖國聯通世界的獨特地位
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794591_1_20250306181859.jpg&q=85)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥，列席港澳全國政協委員聯組會議。丁薛祥發言時提及，香港有背靠祖國、聯通世界的獨特地位。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794591-20250306.htm)
-
----
-
-# 全國兩會｜黃坤明稱廣東要打頭陣推進科技產業創新融合發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794595_1_20250306195450.jpg&q=90)
-  
-
-廣東省全國人大代表團下午審議政府工作報告，廣東省委書記黃坤明被問到廣東未來的經濟發展方向，他表示，廣東有使命、有機遇、有基礎，亦有行動，廣東要打頭陣、當先鋒、下苦工，推進科技、產業創新融合發展，更好更長遠擔當起經濟大省責任，必定會緊緊抓住科技浪潮引領產業發展的重大機遇，爭取百尺竿頭再邁大步。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794595-20250306.htm)
 
 ---

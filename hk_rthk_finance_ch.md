@@ -1,3 +1,59 @@
+# 中國對加拿大菜子油、油渣餅、豌豆加徵100%關稅
+
+  
+
+國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
+
+---
+
+# 財政預算案2025｜甯漢豪稱不能停止推售工業地住宅地
+
+  
+
+新一份《財政預算案》表明，政府下一年度不會推商業用地。對於有聲音希望政府暫停賣地，發展局局長甯漢豪說，政府銳意發展產業，因此不能停推工業地；至於住宅地同樣不會停售，因為有相關科學根據，無論公營或私營房屋土地，政府有10年推算，不能不跟隨，至於每季推多少土地，就要視乎市場情況作出平衡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm)
+
+---
+
 # 國際油價高收1%或以上　本周累跌近4%
 
 ![英美期油價格周五收市升1%或以上，全星期則下跌近4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794843_1_20250308071855.jpg&q=90)
@@ -1669,64 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794693-20250307.htm)
-
----
-
-# 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
-
-![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
-![啟德青年運動場現階段有2個室内乒乓球場開放。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_2_20250307105549.jpg&q=90)
-  
-
-啟德體育園啟德青年運動場跑步徑及乒乓球設施首日開放。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm)
-
----
-
-# 內地股市初段偏軟
-
-![上證綜合指數較早時報3371點，跌9點，跌幅0.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794680_1_20250307093425.jpg&q=90)
-  
-
-滬深股市在開市初段偏軟。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794680-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794680-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794680-20250307.htm)
 
 ---

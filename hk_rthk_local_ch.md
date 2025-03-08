@@ -1,3 +1,59 @@
+# 麥美娟期望今年年中啟動聯廈聯管計劃
+
+  
+
+民政及青年事務局局長麥美娟出席一個電台節目時提到，《施政報告》提出的「聯廈聯管計劃」是協助不同大廈的小業主共同聘用物業管理公司，管理好自己的資產，目標除了「三無大廈」，亦有其他樓宇，尤其是舊區的樓齡高、單幢一梯兩伙大廈。她說，今個月會諮詢率先試行計劃的區議會，包括油尖旺、深水埗、九龍城及荃灣，關愛隊會協助宣傳和接觸小業主，之後會邀請團體提交建議書，期望今年年中啟動計劃。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm)
+
+---
+
+# 財政預算案2025｜甯漢豪稱不能停止推售工業地住宅地
+
+  
+
+新一份《財政預算案》表明，政府下一年度不會推商業用地。對於有聲音希望政府暫停賣地，發展局局長甯漢豪說，政府銳意發展產業，因此不能停推工業地；至於住宅地同樣不會停售，因為有相關科學根據，無論公營或私營房屋土地，政府有10年推算，不能不跟隨，至於每季推多少土地，就要視乎市場情況作出平衡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm)
+
+---
+
 # 6名港人從緬甸園區獲救　繼5人後餘下一人今早返港
 
   
@@ -1669,63 +1725,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794685-20250307.htm)
-
----
-
-# 全國兩會｜孫青野：國安法持續完善是正確　是否須修改由人大決定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794684_1_20250307103447.jpg&q=85)
-  
-
-支聯會拒交資料案終極上訴得直。在北京，中央駐港國安公署副署長孫青野表示，相信法官依法公正審判。被問到《香港國安法》是否有需要修改的空間，他說，實施過程中持續完善是正確，特區政府實施得好，是否需要修改要交由全國人大決定。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm)
-
----
-
-# 葵涌有女途人被巴士撞倒　送院後不治
-
-![葵涌有女途人被巴士撞倒　送院後不治](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794683_1_20250307103242.jpg&q=75)
-  
-
-葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm)
 
 ---

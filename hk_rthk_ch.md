@@ -1,3 +1,116 @@
+# 全國兩會 | 中國天主教主教團副主席：全國教友為教宗祈禱
+
+  
+
+教宗方濟各因肺炎住院。在北京，全國政協常委、中國天主教主教團副主席房興耀表示，期盼教宗早日健康，全國教友都為他祈禱。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm)
+
+---
+
+# 麥美娟期望今年年中啟動聯廈聯管計劃
+
+  
+
+民政及青年事務局局長麥美娟出席一個電台節目時提到，《施政報告》提出的「聯廈聯管計劃」是協助不同大廈的小業主共同聘用物業管理公司，管理好自己的資產，目標除了「三無大廈」，亦有其他樓宇，尤其是舊區的樓齡高、單幢一梯兩伙大廈。她說，今個月會諮詢率先試行計劃的區議會，包括油尖旺、深水埗、九龍城及荃灣，關愛隊會協助宣傳和接觸小業主，之後會邀請團體提交建議書，期望今年年中啟動計劃。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm)
+
+---
+
+# 敘利亞過渡總統敦促前政權「殘餘勢力」放下武器
+
+![沙拉就西部地區的衝突發表電視講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794850_1_20250308090126.jpg&q=90)
+  
+
+敘利亞過渡時期總統沙拉敦促前政權「殘餘勢力」放下武器。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm)
+
+---
+
+# 財政預算案2025｜甯漢豪稱不能停止推售工業地住宅地
+
+  
+
+新一份《財政預算案》表明，政府下一年度不會推商業用地。對於有聲音希望政府暫停賣地，發展局局長甯漢豪說，政府銳意發展產業，因此不能停推工業地；至於住宅地同樣不會停售，因為有相關科學根據，無論公營或私營房屋土地，政府有10年推算，不能不跟隨，至於每季推多少土地，就要視乎市場情況作出平衡。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm)
+
+---
+
 # 美國據報考慮禁止政府設備使用DeepSeek
 
 ![美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794848_1_20250308083439.jpg&q=90)
@@ -1619,121 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm)
-
----
-
-# 全國兩會｜澳門立法會主席稱會依法選出合居民期望議員
-
-![高開賢相信澳門一定會依法依規選出符合愛國者治澳要求及澳門居民期望的議員。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794783_1_20250307184231.jpg&q=90)
-  
-
-澳門第八屆立法會選舉將在今年9月14日舉行。身兼澳門立法會主席的全國人大代表高開賢表示，立法會選舉是澳門政治生活一件大事，相信澳門特區政府與社會各界，一定會依法依規選出符合愛國者治澳要求，符合澳門居民期望的議員。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm)
-
----
-
-# 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794782_1_20250307184122.jpg&q=90)
-  
-
-保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm)
-
----
-
-# 全國兩會｜胡曉明倡完善保障勞動者權益　葉玉如指港有國際化優勢
-
-![朱葉玉如在會後表示，本月17日將向當局提交籌辦本港第三間醫學院的建議書。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794781_1_20250307184049.jpg&q=80)
-  
-
-在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
-
----
-
-# 全國兩會｜王毅︰談判桌是烏克蘭危機終點　和平不會有輸家
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794780_1_20250307183452.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
 
 ---
