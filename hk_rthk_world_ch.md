@@ -1,3 +1,26 @@
+# 以媒指美國向哈馬斯提議放10人換取延長加沙停火兩個月
+
+  
+
+以色列傳媒引述消息人士報道，美國近日向巴勒斯坦武裝組織哈馬斯提供一項協議，希望哈馬斯釋放10名活著的以方被扣押人員，換取延長加沙地帶停火兩個月。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm)
+
+---
+
 # 多倫多酒吧槍擊案槍手仍在逃　傷者無生命危險
 
 ![鄒至惠說對案件深感不安。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794945_1_20250309063427.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm)
-
----
-
-# 全國兩會｜回應中歐關係　王毅稱中國對歐洲有信心可成信任夥伴
-
-![王毅指，50年後的今天，中歐經濟總量超過世界三分之一，中歐合作更具戰略意義和世界影響。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794712_1_20250307123400.jpg&q=10)
-  
-
-在北京，外長王毅回應中歐面臨長期緊張的經貿關係，如何看待中歐關係發展時表示，今年是中歐建交50周年，50年來，中歐合作獲得長足發展，貿易額從當年的24億美元增長到7800億美元，投資額從幾乎為零增長到近2600億美元。中歐班列累計開行突破10萬列，成為聯接亞歐的黃金通道。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
 
 ---

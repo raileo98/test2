@@ -1,3 +1,26 @@
+# 以媒指美國向哈馬斯提議放10人換取延長加沙停火兩個月
+
+  
+
+以色列傳媒引述消息人士報道，美國近日向巴勒斯坦武裝組織哈馬斯提供一項協議，希望哈馬斯釋放10名活著的以方被扣押人員，換取延長加沙地帶停火兩個月。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm)
+
+---
+
 # 多倫多酒吧槍擊案槍手仍在逃　傷者無生命危險
 
 ![鄒至惠說對案件深感不安。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794945_1_20250309063427.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm)
-
----
-
-# 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
-
-![曾國衞認為，工作報告有關香港的部分，凸顯中央考慮香港的事情從來都是站在國家的戰略高度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794863_1_20250308111540.jpg&q=75)
-  
-
-政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
 
 ---
