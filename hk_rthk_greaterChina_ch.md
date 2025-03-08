@@ -1,5 +1,6 @@
 # 全國兩會 | 海南省省長：確保封關運作取得明顯成效
 
+![劉小明表示，平穩有序和萬無一失地確保封關運作能取得明顯的成效。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794886_1_20250308140026.jpg&q=90)
   
 
 海南自貿港預計今年年底前實現全島封關運作。
