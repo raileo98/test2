@@ -1,5 +1,6 @@
 # 全國兩會 | 楊何蓓茵稱要發揮一國兩制優勢公務員須貢獻力量
 
+![楊何蓓茵說，公務員要進一步善用科技，加快探索應用人工智能在日常工作上，提升工作成效和效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794866_1_20250308111731.jpg&q=85)
   
 
 全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
@@ -196,6 +197,35 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
+
+---
+
+# 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
+
+![張國鈞形容，有關國家安全的法例是「沒有完成式，只有進行式」。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794855_1_20250308111924.jpg&q=85)
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
 
 ---
 
@@ -1708,34 +1738,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794613-20250306.htm)
-
----
-
-# 全國兩會｜浙江省創新環境吸引青年　民企稱省內條件有利發展
-
-![全國人大浙江代表團舉行全體會議，開放予傳媒採訪。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794614_1_20250306202320.jpg&q=85)
-  
-
-全國人大浙江代表團下午舉行全體會議，開放予傳媒採訪。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
 
 ---
