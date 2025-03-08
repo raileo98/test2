@@ -1,3 +1,31 @@
+# 全國兩會 | 趙樂際：過去一年加強憲法在特別行政區宣傳教育
+
+  
+
+在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際表示，過去一年已加強憲法實施和監督，完善和落實憲法相關法律制度，更好保障各級人大常委會依法行事監督職權，同時亦加強憲法在特別行政區的宣傳教育，組織五次憲法宣誓儀式。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm)
+
+---
+
 # 全國兩會 | 趙樂際 ：今年將制定民營經濟促進法等法律
 
   
@@ -1701,34 +1729,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm)
-
----
-
-# 入境處拘捕16名懷疑黑工及4名僱主
-
-![入境處一連四日在全港多區進行反非法勞工行動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794790_1_20250307184018.jpg&q=70)
-  
-
-入境處由本周一至昨日，一連四日在全港多區進行反非法勞工行動，又聯同警務處展開行動，拘捕16名懷疑非法勞工及4名涉嫌聘用非法勞工的僱主。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm)
 
 ---

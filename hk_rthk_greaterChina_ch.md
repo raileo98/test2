@@ -1,3 +1,31 @@
+# 全國兩會 | 趙樂際：過去一年加強憲法在特別行政區宣傳教育
+
+  
+
+在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際表示，過去一年已加強憲法實施和監督，完善和落實憲法相關法律制度，更好保障各級人大常委會依法行事監督職權，同時亦加強憲法在特別行政區的宣傳教育，組織五次憲法宣誓儀式。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm)
+
+---
+
 # 全國兩會 | 趙樂際 ：今年將制定民營經濟促進法等法律
 
   
@@ -1707,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794607-20250306.htm)
-
----
-
-# 全國兩會｜王文濤：經濟全球化歷史潮流不可逆轉　有信心穩住外貿
-
-![商務部部長王文濤表示，經濟全球化歷史潮流不可逆轉，全球貿易合作不可阻擋，完全有信心、有底氣穩住外貿基本盤。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794606_1_20250306204806.jpg&q=90)
-  
-
-商務部部長王文濤表示，外部環境帶來的不利影響加深，單邊主義和保護主義加劇，個別國家揮舞「關稅大棒」，擾亂國際貿易秩序，衝擊全球產業鏈供應鏈穩定，中國外貿發展面臨嚴峻形勢。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794606-20250306.htm)
 
 ---
