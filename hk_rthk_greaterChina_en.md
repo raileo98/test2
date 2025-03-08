@@ -1,3 +1,27 @@
+# China's top judge vows sanction countermeasures
+
+![Top judge Zhang Jun says courts across the country have cracked down on crimes that seriously endanger social order in the past year. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
+  
+
+The country’s most senior judge has promised to take steps to counter unlawful sanctions and long-arm jurisdiction to safeguard national security.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm)
+
+---
+
 # Private sector law on parliament agenda: Zhao Leji
 
 ![The chairman of the National People's Congress Standing Committee, Zhao Leji, says the top lawmaking body has to further improve the quality of its legislative work.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794861_1_20250308104551.jpg&q=90)
@@ -1412,29 +1436,5 @@ President Xi Jinping said China's economic fundamentals remain solid despite the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm)
-
----
-
-# China vows response to latest US tariffs
-
-![China vowed to take "all necessary countermeasures" after US President Donald Trump said he would impose an additional 10 percent tariff on Chinese imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793657_1_20250228151408.jpg&q=75)
-  
-
-The Commerce Ministry on Friday said it opposed US President Donald Trump's latest threat to impose an additional 10 percent tariff on Chinese imports and vowed to take "all necessary countermeasures" if Chinese entities got caught up in the levies.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
 
 ---

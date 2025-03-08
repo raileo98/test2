@@ -1,3 +1,27 @@
+# China's top judge vows sanction countermeasures
+
+![Top judge Zhang Jun says courts across the country have cracked down on crimes that seriously endanger social order in the past year. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
+  
+
+The country’s most senior judge has promised to take steps to counter unlawful sanctions and long-arm jurisdiction to safeguard national security.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm)
+
+---
+
 # CE pledges to promote women's rights
 
 ![The chief executive (centre) and his wife posed for a photo with seven female ministers and the Director of the Chief Executive's Office ahead of the reception. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Tru
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
-
----
-
-# Briton jailed for 19 years for fighting for Ukraine
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794494_1_20250306091939.jpg&q=90)
-  
-
-Britain strongly condemned on Wednesday the sentencing of UK national James Anderson to 19 years in prison by a Russian court, which accused him of having fought for the Ukrainian army.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm)
 
 ---
