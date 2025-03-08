@@ -1,3 +1,32 @@
+# 美國據報考慮禁止政府設備使用DeepSeek
+
+![美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794848_1_20250308083439.jpg&q=90)
+  
+
+路透社引述消息人士報道，美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm)
+
+---
+
 # 哈馬斯代表團抵達開羅討論推進停火協議第二階段談判
 
 ![加沙地帶大量房屋在以軍行動中被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794846_1_20250308075132.jpg&q=65)
@@ -1706,34 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
-
----
-
-# 美國起訴12名中國公民涉發動網攻　中方反對美方無理指責中國
-
-![林劍表示，中方堅決反對美方無理指責中國，要求美方立即停止濫施制裁的錯誤做法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794553_1_20250306161426.jpg&q=90)
-  
-
-美國司法部起訴12名中國公民，指他們涉嫌向美國政府等機構發動網絡攻擊。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794553-20250306.htm)
 
 ---

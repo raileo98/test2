@@ -1,3 +1,60 @@
+# 美國據報考慮禁止政府設備使用DeepSeek
+
+![美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794848_1_20250308083439.jpg&q=90)
+  
+
+路透社引述消息人士報道，美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm)
+
+---
+
+# 6名港人從緬甸園區獲救　繼5人後餘下一人今早返港
+
+  
+
+被誘騙到緬甸園區從事非法工作的其中6名港人獲救，5人昨日返港，餘下一人亦已於今早在保安局專責小組成員陪同下抵達香港。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm)
+
+---
+
 # 哈馬斯代表團抵達開羅討論推進停火協議第二階段談判
 
 ![加沙地帶大量房屋在以軍行動中被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794846_1_20250308075132.jpg&q=65)
@@ -1678,63 +1735,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
-
----
-
-# 全國兩會｜王毅︰不能幻想一邊打壓一邊與中國發展良好關係
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794779_1_20250307183402.jpg&q=90)
-  
-
-十四屆全國人大三次會議，舉行關於「中國外交政策和對外關係」的記者會，中共中央政治局委員、外長王毅說，相互尊重是國與國交往的基本準則，也是中美關係的重要前提。任何一個國家都不能幻想一邊對華打壓遏制，一邊與中國發展良好關係。他又反問美國，從關稅戰、貿易戰中得到甚麼，強調中美經貿關係是相互的、對等的。如果選擇合作，將實現互利共贏，如果一味施壓，中國必將堅決反制。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm)
-
----
-
-# 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794778_1_20250307183034.jpg&q=80)
-  
-
-中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
 
 ---

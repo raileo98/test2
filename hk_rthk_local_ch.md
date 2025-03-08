@@ -1,3 +1,31 @@
+# 6名港人從緬甸園區獲救　繼5人後餘下一人今早返港
+
+  
+
+被誘騙到緬甸園區從事非法工作的其中6名港人獲救，5人昨日返港，餘下一人亦已於今早在保安局專責小組成員陪同下抵達香港。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm)
+
+---
+
 # 被騙到緬甸後獲救港人部分回港　由警方車輛接載到機場警署
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794820_1_20250308000411.jpg&q=90)
@@ -1699,34 +1727,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794683-20250307.htm)
-
----
-
-# 孫東訪葡萄牙考察當地最大科技園　拜會中國駐葡萄牙特命全權大使
-
-![孫東在葡萄牙與奧艾拉什市投資促進局代表會面，並與當地的企業交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794677_1_20250307093736.jpg&q=80)
-  
-
-創新科技及工業局局長孫東率領的香港創新科技業界代表團，昨日轉往葡萄牙里斯本訪問。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794677-20250307.htm)
 
 ---
