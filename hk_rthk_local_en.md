@@ -1,6 +1,6 @@
 # CE pledges to promote women's rights
 
-![The chief executive (centre) and his wife posed for a photo with seven female ministers and the Director of the Chief Executive's Office ahead of the reception. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
   
 
 Chief Executive John Lee praised the contribution of women to society and pledged that the government is committed to promoting women's rights.
@@ -24,7 +24,7 @@ Chief Executive John Lee praised the contribution of women to society and pledge
 
 # New scheme aims to remove poorly managed buildings
 
-![Alice Mak (middle) said the government has set aside HK$7 million for the joint building management scheme.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794870_1_20250308113054.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794870_1_20250308113054.jpg&q=85)
   
 
 There's hope that a new scheme can help eliminate poorly managed, so-called "three-nil buildings" - which are blocks that lack owners’ corporations, property management services, or resident organizations.
@@ -48,7 +48,7 @@ There's hope that a new scheme can help eliminate poorly managed, so-called "thr
 
 # 'HK can't stop residential and industrial land sale'
 
-![The government is not putting up any commercial sites for sale in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
   
 
 The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not in a position to stop selling residential and industrial land.

@@ -1,3 +1,27 @@
+# Catholics across China praying for Pope's recovery
+
+![John Fang says Catholics across China are praying for Pope Francis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_1_20250308122417.jpg&q=90)
+  
+
+A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Saturday expressed hope for the speedy recovery of Pope Francis.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm)
+
+---
+
 # China's top judge vows sanction countermeasures
 
 ![Top judge Zhang Jun says courts across the country have cracked down on crimes that seriously endanger social order in the past year. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
@@ -24,7 +48,7 @@ The country’s most senior judge has promised to take steps to counter unlawful
 
 # Private sector law on parliament agenda: Zhao Leji
 
-![The chairman of the National People's Congress Standing Committee, Zhao Leji, says the top lawmaking body has to further improve the quality of its legislative work.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794861_1_20250308104551.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794861_1_20250308104551.jpg&q=90)
   
 
 The nation’s top legislators on Saturday pledged to formulate and amend a slew of laws in the coming year, including one on backing private enterprises.
@@ -1412,29 +1436,5 @@ A spokesperson for the Ministry of Public Security on Friday voiced firm opposit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793740-20250301.htm)
-
----
-
-# China's economic fundamentals remain solid: Xi
-
-![President Xi Jinping says the conditions supporting long-term economic growth in China, and the overall positive trajectory, have not changed. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793680_1_20250228171442.jpg&q=90)
-  
-
-President Xi Jinping said China's economic fundamentals remain solid despite the difficulties and challenges facing the world's second-largest economy.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793680-20250228.htm)
 
 ---

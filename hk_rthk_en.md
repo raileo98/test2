@@ -1,3 +1,27 @@
+# Catholics across China praying for Pope's recovery
+
+![John Fang says Catholics across China are praying for Pope Francis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_1_20250308122417.jpg&q=90)
+  
+
+A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Saturday expressed hope for the speedy recovery of Pope Francis.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm)
+
+---
+
 # China's top judge vows sanction countermeasures
 
 ![Top judge Zhang Jun says courts across the country have cracked down on crimes that seriously endanger social order in the past year. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
@@ -24,7 +48,7 @@ The country’s most senior judge has promised to take steps to counter unlawful
 
 # CE pledges to promote women's rights
 
-![The chief executive (centre) and his wife posed for a photo with seven female ministers and the Director of the Chief Executive's Office ahead of the reception. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
   
 
 Chief Executive John Lee praised the contribution of women to society and pledged that the government is committed to promoting women's rights.
@@ -48,7 +72,7 @@ Chief Executive John Lee praised the contribution of women to society and pledge
 
 # New scheme aims to remove poorly managed buildings
 
-![Alice Mak (middle) said the government has set aside HK$7 million for the joint building management scheme.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794870_1_20250308113054.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794870_1_20250308113054.jpg&q=85)
   
 
 There's hope that a new scheme can help eliminate poorly managed, so-called "three-nil buildings" - which are blocks that lack owners’ corporations, property management services, or resident organizations.
@@ -96,7 +120,7 @@ Oscar-winning actor Gene Hackman and his wife died of natural causes about a wee
 
 # Private sector law on parliament agenda: Zhao Leji
 
-![The chairman of the National People's Congress Standing Committee, Zhao Leji, says the top lawmaking body has to further improve the quality of its legislative work.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794861_1_20250308104551.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794861_1_20250308104551.jpg&q=90)
   
 
 The nation’s top legislators on Saturday pledged to formulate and amend a slew of laws in the coming year, including one on backing private enterprises.
@@ -144,7 +168,7 @@ The Commerce Ministry on Saturday announced that it will impose additional tarif
 
 # 'HK can't stop residential and industrial land sale'
 
-![The government is not putting up any commercial sites for sale in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
   
 
 The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not in a position to stop selling residential and industrial land.
@@ -1413,29 +1437,5 @@ South Korea's Air Force on Thursday said one of its fighter jets had accidentall
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm)
-
----
-
-# Tech stocks push HSI over 24,000 points
-
-![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=90)
-  
-
-Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Trump administration delayed auto tariffs on Canada and Mexico.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
 
 ---
