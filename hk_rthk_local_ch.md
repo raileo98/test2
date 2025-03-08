@@ -1,3 +1,50 @@
+# 甯漢豪：視乎市場意向調查結果　北都片區招標條款或會更進取
+
+  
+
+政府正就北部都會區三個片區開發試點做市場意向調查，本月底完結。發展局局長甯漢豪說，有內地開發商提出平整片區產業地後，興建並營運園區，政府會檢視是否屬主流意見，日後招標條款或會更加進取。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm)
+
+---
+
+# 愛秩序灣遊樂場有銅喉被偷走　警列盜竊及刑毀案跟進
+
+![警方到場調查，暫時未有人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794878_1_20250308122756.jpg&q=30)
+  
+
+筲箕灣南安街的愛秩序灣遊樂場有銅喉被偷走。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm)
+
+---
+
 # 李家超稱政府重視女性權益和福祉　不論男女均有平等發展機會
 
 ![李家超與夫人在酒會前與7名女局長及特首辦主任合照。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794876_1_20250308121922.jpg&q=90)
@@ -1391,54 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm)
-
----
-
-# 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794718_1_20250307125013.jpg&q=85)
-  
-
-在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
-
----
-
-# 全國兩會｜周進強：全運會籌備工作順利　劉國梁：將帶來重大突破
-
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_1_20250307124807.jpg&q=85)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_2_20250307124807.jpg&q=85)
-  
-
-在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
 
 ---

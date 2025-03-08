@@ -1,3 +1,27 @@
+# 愛秩序灣遊樂場有銅喉被偷走　警列盜竊及刑毀案跟進
+
+![警方到場調查，暫時未有人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794878_1_20250308122756.jpg&q=30)
+  
+
+筲箕灣南安街的愛秩序灣遊樂場有銅喉被偷走。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm)
+
+---
+
 # 李家超稱政府重視女性權益和福祉　不論男女均有平等發展機會
 
 ![李家超與夫人在酒會前與7名女局長及特首辦主任合照。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794876_1_20250308121922.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm)
-
----
-
-# 商務部：中方促美方理性處理芬太尼問題　不要一味甩鍋推責
-
-![商務部稱，中方敦促美方客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794804_1_20250307212107.jpg&q=45)
-  
-
-在北京，商務部發言人說，國務院新聞辦公室近日發布《中國的芬太尼類物質管控》白皮書，充分說明美方以芬太尼為由對中國產品加徵20%關稅是毫無根據，是典型的保護主義、單邊主義和霸凌主義行徑。中方敦促美方糾正錯誤做法，客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm)
 
 ---
