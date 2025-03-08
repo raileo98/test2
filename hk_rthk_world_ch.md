@@ -1,3 +1,27 @@
+# 加拿大多倫多酒吧槍擊案12傷　槍手在逃
+
+![加拿大多倫多酒吧槍擊案12傷　槍手在逃](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794895_1_20250308153632.jpg&q=90)
+  
+
+加拿大多倫多一間酒吧發生槍擊案，至少12人受傷，槍手在逃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm)
+
+---
+
 # 緬甸軍方領導人稱計劃今年12月或明年1月舉行大選
 
 ![敏昂萊說，軍方計劃盡快舉行一場自由和公正的選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794894_1_20250308152207.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794642-20250307.htm)
-
----
-
-# 澤連斯基與馬克龍會晤　就下周各國軍事代表會議協調立場
-
-![澤連斯基與馬克龍會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794639_1_20250307052210.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基出席在比利時布魯塞爾舉行的歐洲理事會會議期間，與法國總統馬克龍會晤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm)
 
 ---

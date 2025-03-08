@@ -1,3 +1,27 @@
+# 雲南三百多個景區對台灣首來族提供減免門票優惠
+
+![雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794892_1_20250308152101.jpg&q=80)
+  
+
+雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm)
+
+---
+
 # 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794684-20250307.htm)
-
----
-
-# 全國兩會｜陳旭：中國走出符合國情也符合世界潮流的人權道路
-
-![陳旭說，中國走出了一個符合中國國情，也符合世界潮流的人權道路，中國人權取得巨大成就。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794682_1_20250307103424.jpg&q=85)
-  
-
-在北京，全國政協委員、中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭，接受本台訪問時說，中國走出了一個符合中國國情，也符合世界潮流的人權道路，中國人權取得巨大成就。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794682-20250307.htm)
 
 ---

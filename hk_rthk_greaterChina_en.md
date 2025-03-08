@@ -1,6 +1,6 @@
 # Catholics across China praying for Pope's recovery
 
-![John Fang says Catholics across China are praying for Pope Francis. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_2_20250308145523.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_2_20250308145523.jpg&q=90)
   
 
 A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Saturday expressed hope for the speedy recovery of Pope Francis.
@@ -24,7 +24,7 @@ A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Sa
 
 # China's top judge vows sanction countermeasures
 
-![Top judge Zhang Jun says courts across the country have cracked down on crimes that seriously endanger social order in the past year. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
   
 
 The country’s most senior judge has promised to take steps to counter unlawful sanctions and long-arm jurisdiction to safeguard national security.

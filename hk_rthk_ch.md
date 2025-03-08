@@ -1,3 +1,51 @@
+# 加拿大多倫多酒吧槍擊案12傷　槍手在逃
+
+![加拿大多倫多酒吧槍擊案12傷　槍手在逃](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794895_1_20250308153632.jpg&q=90)
+  
+
+加拿大多倫多一間酒吧發生槍擊案，至少12人受傷，槍手在逃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm)
+
+---
+
+# 雲南三百多個景區對台灣首來族提供減免門票優惠
+
+![雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794892_1_20250308152101.jpg&q=80)
+  
+
+雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm)
+
+---
+
 # 緬甸軍方領導人稱計劃今年12月或明年1月舉行大選
 
 ![敏昂萊說，軍方計劃盡快舉行一場自由和公正的選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794894_1_20250308152207.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm)
-
----
-
-# 海關於機場及元朗檢約670萬支私煙及57萬支另類吸煙產品
-
-![海關展示檢獲私煙。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794819_1_20250307232108.jpg&q=30)
-  
-
-海關過去兩星期於香港國際機場偵破多宗航空旅客走私香煙案件，並於昨日在元朗搗破一個懷疑私煙貯存倉庫，共檢獲約670萬支懷疑私煙及約57萬支懷疑另類吸煙產品，市值共約3300萬元，私煙應課稅值共約2200萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm)
-
----
-
-# 國泰君安吸收合併海通證券　料下周完成A、H股換股
-
-![國泰君安換股吸收合併海通證券，預計下星期四完成A股換股，下星期五完成H股換股。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794818_1_20250307225534.jpg&q=85)
-  
-
-國泰君安換股吸收合併海通證券，國泰君安發公告指，預計下星期四完成A股換股；下星期五註銷所有海通證券H股、完成H股換股、發行國泰君安H股。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm)
 
 ---
