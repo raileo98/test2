@@ -1,3 +1,27 @@
+# 美國今年以來逾220人感染麻疹　2名患者死亡
+
+![美國疾控中心公布的數據顯示，全美今年以來共報告222宗麻疹確診病例，2名患者死亡。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794913_1_20250308164746.jpg&q=85)
+  
+
+美國疾病控制和預防中心公布的數據顯示，截至本月6日，全美今年以來共報告222宗麻疹確診病例，2名患者死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm)
+
+---
+
 # 彭博社：只要最終和平協議有進展　俄方對俄烏臨時停火持開放態度
 
 ![俄羅斯和烏克蘭未達成和平協議，俄軍連夜空襲頓涅茨克地區，有建築物起火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794901_1_20250308155514.jpg&q=65)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794651-20250307.htm)
-
----
-
-# 美烏官員擬下周於沙特會談　澤連斯基︰烏方將與特朗普合作
-
-![威特科夫表示，美方正在協調在沙特阿拉伯同烏克蘭代表團會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794644_2_20250307091559.jpg&q=90)
-  
-
-美國和烏克蘭官員計劃下星期在沙特阿拉伯舉行會議，討論結束俄烏戰爭。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794644-20250307.htm)
 
 ---
