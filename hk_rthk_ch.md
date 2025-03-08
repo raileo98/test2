@@ -1,5 +1,62 @@
-# 中國對加拿大菜子油、油渣餅、豌豆加徵100%關稅
+# 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
 
+  
+
+再有6名被誘騙到緬甸的香港人獲救。在北京，全國人大代表、公安部副部長許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功，通過開展國際合作狠狠打擊，希望更多被詐騙到當地的受困人士趕快回到家人身邊，中國公安機關會與外國警方密切合作，盡快解救更多受害人。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
+
+---
+
+# 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
+
+  
+
+已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
+
+---
+
+# 中國對加拿大菜子油、油渣餅及豌豆加徵100%關稅
+
+![國務院關稅稅則委員會發公布，向加拿大部分農產品及食品加徵關稅。（相關公告網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794854_1_20250308095726.jpg&q=90)
   
 
 國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
@@ -28,6 +85,7 @@
 
 # 全國兩會 | 中國天主教主教團副主席：全國教友為教宗祈禱
 
+![房興耀透露，多次努力向中央領導提出中梵建交的意見和建議。(仇志榮攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794853_1_20250308095612.jpg&q=90)
   
 
 教宗方濟各因肺炎住院。在北京，全國政協常委、中國天主教主教團副主席房興耀表示，期盼教宗早日健康，全國教友都為他祈禱。
@@ -113,6 +171,7 @@
 
 # 財政預算案2025｜甯漢豪稱不能停止推售工業地住宅地
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794851_1_20250308100405.jpg&q=85)
   
 
 新一份《財政預算案》表明，政府下一年度不會推商業用地。對於有聲音希望政府暫停賣地，發展局局長甯漢豪說，政府銳意發展產業，因此不能停推工業地；至於住宅地同樣不會停售，因為有相關科學根據，無論公營或私營房屋土地，政府有10年推算，不能不跟隨，至於每季推多少土地，就要視乎市場情況作出平衡。
@@ -1673,63 +1732,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm)
-
----
-
-# 民政事務總署於各區開放十八間臨時避寒中心
-
-![臨時避寒中心於寒冷天氣警告持續生效期間繼續開放，期間免費提供潔淨的墊褥及毛氈或棉被、熱食及熱水予入住人士使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794787_1_20250307183527.jpg&q=90)
-  
-
-民政事務總署在各區開放共十八間臨時避寒中心，供有需要的市民避寒，中心會於寒冷天氣警告持續生效期間繼續開放，期間會免費提供潔淨的墊褥及毛氈或棉被、熱食及熱水予入住人士使用。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm)
-
----
-
-# 全國兩會｜王毅：在芬太尼問題上美國不能以怨報德，無端加稅
-
-![王毅說，相互尊重是中美關係的重要前提。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794786_1_20250307190950.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅，在全國人大會議期間舉行中外記者會。他說，相互尊重是中美關係的重要前提，任何一個國家都不能幻想一邊打壓中國，一邊又與中國發展良好關係，這種「兩面人」的做法，不利雙邊關係穩定，亦無法建立彼此互信。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm)
 
 ---
