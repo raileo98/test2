@@ -1,3 +1,27 @@
+# 'Hackman died of natural causes, a week after wife'
+
+![Gene Hackman poses during the 60th annual Golden Globe Awards in Beverly Hills, California, U.S. January 19, 2003. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794873_1_20250308114632.jpg&q=90)
+  
+
+Oscar-winning actor Gene Hackman and his wife died of natural causes about a week apart, a medical examiner said on Friday, ending more than a week of mystery surrounding the death of one of Hollywood's most beloved stars.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm)
+
+---
+
 # Ten dead, hundreds evacuated in Argentina floods
 
 ![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=80)
@@ -1416,29 +1440,5 @@ At least four people died from their injuries in India after an avalanche hit a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm)
-
----
-
-# Search continues for 22 missing from India avalanche
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793776_1_20250301121615.jpg&q=90)
-  
-
-Search teams in northern India on Saturday attempted to rescue 22 workers believed to be trapped after an avalanche hit a remote border area, officials and local media said.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793776-20250301.htm)
 
 ---

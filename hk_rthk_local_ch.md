@@ -142,6 +142,31 @@
 
 ---
 
+# 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
+
+![許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_3_20250308114839.jpg&q=90)
+![羅照輝說，電訊詐騙令人神共憤，中國政府有很多工作堅決打擊。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_2_20250308114839.jpg&q=90)
+  
+
+再有6名被誘騙到緬甸的香港人獲救。在北京，全國人大代表、公安部副部長許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功，通過開展國際合作狠狠打擊，希望更多被詐騙到當地的受困人士趕快回到家人身邊，中國公安機關會與外國警方密切合作，盡快解救更多受害人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
+
+---
+
 # 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
 
 ![張國鈞形容，有關國家安全的法例是「沒有完成式，只有進行式」。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794855_1_20250308111924.jpg&q=85)
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
-
----
-
-# 全國兩會｜陳弘毅稱國安法實施細則由國安委決定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794717_1_20250307125009.jpg&q=90)
-  
-
-支聯會拒交資料案，3名上訴人鄒幸彤、鄧岳君及徐漢光終極上訴得直。特區政府表示，會積極審視香港特區維護國家安全的執法經驗，研究如何進一步完善香港特區相關的法律制度及執行機制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm)
 
 ---
