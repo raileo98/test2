@@ -1,3 +1,32 @@
+# Top-seeded Zverev crashes out in Indian Wells opener
+
+![German Alexander Zverev in-between points during his match against Tallon Griekspoor. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794847_1_20250308081214.jpg&q=90)
+  
+
+World number two and top seed Alexander Zverev was sent crashing out of Indian Wells on Friday as he was beaten 4-6, 7-6 (7/5), 7-6 (7/4) by 43rd-ranked Tallon Griekspoor.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm)
+
+---
+
 # 'Let's bring key international events to Kai Tak'
 
 ![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=85)
@@ -1717,34 +1746,5 @@ Snooker legends Judd Trump and Ronnie O'Sullivan said they are very excited to p
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792148-20250218.htm)
-
----
-
-# Djokovic calls for revamp of tennis anti-doping system
-
-![Djokovic speaks to reporters ahead of the ATP Qatar ExxonMobil Open 2025 men's tournament. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792046_1_20250218080329.jpg&q=90)
-  
-
-Novak Djokovic has urged tennis authorities to overhaul the sport's anti-doping system, pointing to "inconsistencies" in cases involving top stars Jannik Sinner and Iga Swiatek and those of lower-ranked players.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792046-20250218.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792046-20250218.htm](https://news.rthk.hk/rthk/en/component/k2/1792046-20250218.htm)
 
 ---

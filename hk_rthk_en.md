@@ -1,3 +1,32 @@
+# Top-seeded Zverev crashes out in Indian Wells opener
+
+![German Alexander Zverev in-between points during his match against Tallon Griekspoor. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794847_1_20250308081214.jpg&q=90)
+  
+
+World number two and top seed Alexander Zverev was sent crashing out of Indian Wells on Friday as he was beaten 4-6, 7-6 (7/5), 7-6 (7/4) by 43rd-ranked Tallon Griekspoor.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm)
+
+---
+
 # Six dead, hundreds evacuated in Argentina floods
 
 ![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=80)
@@ -1708,35 +1737,5 @@ Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take o
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm)
-
----
-
-# Liverpool stun PSG in Champions League; Barca cruise
-
-![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=90)
-![Raphinha's goal in the 61st minute proved to be the winner for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_2_20250306071920.jpg&q=90)
-  
-
-Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the first leg of their heavyweight Champions League last-16 tie, as Barcelona claimed a 1-0 win at Benfica despite the Catalan giants playing most of the game with 10 men.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
 
 ---
