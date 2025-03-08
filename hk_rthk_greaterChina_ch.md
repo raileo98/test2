@@ -1,3 +1,26 @@
+# 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
+
+  
+
+十四屆全國人大三次會議早上舉行第二次全體會議，聽取和審議全國人大常委會工作報告、最高人民法院和最高人民檢察院工作報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm)
+
+---
+
 # 全國兩會｜張軍稱要加強涉外法治建設　依法反制非法制裁
 
 ![張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794921_1_20250308195840.jpg&q=35)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794698-20250307.htm)
-
----
-
-# 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794695_1_20250307110551.jpg&q=85)
-  
-
-在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
 
 ---

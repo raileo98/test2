@@ -1,3 +1,26 @@
+# 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
+
+  
+
+十四屆全國人大三次會議早上舉行第二次全體會議，聽取和審議全國人大常委會工作報告、最高人民法院和最高人民檢察院工作報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm)
+
+---
+
 # 全國兩會｜趙樂際稱今年工作任務包括制定民營經濟促進法
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794920_1_20250308183137.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794763-20250307.htm)
-
----
-
-# 公立醫院前年10月至去年9月通報109宗風險警示事件
-
-![公立醫院通報29宗醫療風險警示事件，以及呈報的80宗重要風險事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794762_1_20250307172916.jpg&q=80)
-  
-
-醫管局發布醫療風險警示事件及重要風險事件周年報告，涵蓋2023年10月1日至去年9月30日期間公立醫院通報的29宗醫療風險警示事件，以及呈報的80宗重要風險事件。在重要風險事件中，有74宗涉及藥物錯誤及6宗錯誤識別病人身分或資料。有關報告已獲醫管局大會通過。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794762-20250307.htm)
 
 ---

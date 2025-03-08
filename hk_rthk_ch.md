@@ -1,3 +1,26 @@
+# 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
+
+  
+
+十四屆全國人大三次會議早上舉行第二次全體會議，聽取和審議全國人大常委會工作報告、最高人民法院和最高人民檢察院工作報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm)
+
+---
+
 # 法德意英支持阿拉伯國家提出的加沙重建計劃
 
 ![由埃及提出的加沙重建計劃，將會分幾個階段實施，預計重建費用為530億美元。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794928_1_20250308204951.jpg&q=20)
