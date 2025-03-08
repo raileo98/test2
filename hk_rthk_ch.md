@@ -1,3 +1,27 @@
+# 李家超稱政府重視女性權益和福祉　不論男女均有平等發展機會
+
+![李家超與夫人在酒會前與7名女局長及特首辦主任合照。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794876_1_20250308121922.jpg&q=90)
+  
+
+行政長官李家超及夫人李林麗嬋，在政府總部主持民政及青年事務局與婦女事務委員會舉辦的2025年國際婦女節酒會。李家超致辭時說，婦女是香港發展的重要力量，他向全港女士致敬。他提到，香港是國際大都會，不論男女均有平等發展機會，女性佔香港的人口54%，多年來女性不但擔當家庭支柱，亦是社會進步的重要推動者，在各領域展現觸目的風采。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm)
+
+---
+
 # 控煙酒辦打擊禁煙區非法吸食水煙　巡查中區酒吧發3罰款通知書
 
 ![控煙酒辦人員發現有人在酒吧非法吸食水煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794872_1_20250308113356.jpg&q=90)
@@ -1413,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm)
-
----
-
-# 緬甸獲救6港人中1人暫留泰國以證人身分助查　料明日才返港
-
-![鄧炳強透過視像與六名港人見面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794802_2_20250308121537.jpg&q=80)
-![鄧炳強（左）早前在泰國期間與中國駐泰國特命全權大使韓志強（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794802_3_20250308121537.jpg&q=75)
-  
-
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救，保安局局長鄧炳強說，6人是在緬甸的園區內獲救，身體狀況良好，營救行動不牽涉交贖金，至今仍有3名被誘騙的港人未回港，特區政府將繼續全力營救。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm)
 
 ---

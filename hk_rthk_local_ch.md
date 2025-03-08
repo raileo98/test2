@@ -1,3 +1,27 @@
+# 李家超稱政府重視女性權益和福祉　不論男女均有平等發展機會
+
+![李家超與夫人在酒會前與7名女局長及特首辦主任合照。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794876_1_20250308121922.jpg&q=90)
+  
+
+行政長官李家超及夫人李林麗嬋，在政府總部主持民政及青年事務局與婦女事務委員會舉辦的2025年國際婦女節酒會。李家超致辭時說，婦女是香港發展的重要力量，他向全港女士致敬。他提到，香港是國際大都會，不論男女均有平等發展機會，女性佔香港的人口54%，多年來女性不但擔當家庭支柱，亦是社會進步的重要推動者，在各領域展現觸目的風采。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm)
+
+---
+
 # 控煙酒辦打擊禁煙區非法吸食水煙　巡查中區酒吧發3罰款通知書
 
 ![控煙酒辦人員發現有人在酒吧非法吸食水煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794872_1_20250308113356.jpg&q=90)
@@ -1416,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
-
----
-
-# 全國兩會｜孫青野：修改國安法由人大決定　陳弘毅：不涉輸打贏要
-
-![孫青野認為《國安法》實施得好，是否應該修改由人大決定。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794714_1_20250307124735.jpg&q=85)
-![陳弘毅說，現有法例隨時可以修改，不涉及輸打贏要。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794714_2_20250307124735.jpg&q=90)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。特區政府表示，會研究如何進一步完善香港特區維護國家安全的法律制度及執行機制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
 
 ---
