@@ -1,3 +1,27 @@
+# 南非東部上月極端天氣最少22死　國家災難狀態助實施跨部門援助
+
+![誇祖盧納塔爾省在二月下半月持續落雨，出現洪水等自然災害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794941_1_20250309022803.jpg&q=75)
+  
+
+南非東部誇祖盧納塔爾省近期遭遇極端天氣，省政府說最少22人死亡，南非災難管理中心已宣布該省進入國家災難狀態。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm)
+
+---
+
 # 德國聯盟黨與社民黨就組建聯合政府達初步協議　提出具體政策設想
 
 ![默茨在當地星期六與社會民主黨方面進行探索式會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794940_1_20250309021249.jpg&q=85)
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm)
-
----
-
-# 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
-
-![許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_3_20250308114839.jpg&q=90)
-![羅照輝說，電訊詐騙令人神共憤，中國政府有很多工作堅決打擊。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_2_20250308114839.jpg&q=90)
-  
-
-再有6名被誘騙到緬甸的香港人獲救。在北京，全國人大代表、公安部副部長許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功，通過開展國際合作狠狠打擊，希望更多被詐騙到當地的受困人士趕快回到家人身邊，中國公安機關會與外國警方密切合作，盡快解救更多受害人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
 
 ---

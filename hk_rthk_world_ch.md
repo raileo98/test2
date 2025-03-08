@@ -1,3 +1,27 @@
+# 南非東部上月極端天氣最少22死　國家災難狀態助實施跨部門援助
+
+![誇祖盧納塔爾省在二月下半月持續落雨，出現洪水等自然災害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794941_1_20250309022803.jpg&q=75)
+  
+
+南非東部誇祖盧納塔爾省近期遭遇極端天氣，省政府說最少22人死亡，南非災難管理中心已宣布該省進入國家災難狀態。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm)
+
+---
+
 # 德國聯盟黨與社民黨就組建聯合政府達初步協議　提出具體政策設想
 
 ![默茨在當地星期六與社會民主黨方面進行探索式會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794940_1_20250309021249.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm)
-
----
-
-# 全國兩會｜回應烏克蘭危機　王毅稱中方為和平奔走為促談努力
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794695_1_20250307110551.jpg&q=85)
-  
-
-在北京，外長王毅回應烏克蘭危機，中方在甚麼情況下考慮派遣維和部隊時表示，中方從危機爆發第一天起就主張對話談判，尋求政治解決，就在為和平奔走，為促談努力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
 
 ---
