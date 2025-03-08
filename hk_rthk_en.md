@@ -1,3 +1,27 @@
+# Big Ben shut as man with Palestinian flag scales tower
+
+![An emergency team using a fire truck lift tried to speak with the man. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794929_1_20250308205432.jpg&q=80)
+  
+
+UK police closed the area around Big Ben in London on Saturday after a man holding a Palestinian flag climbed up the tower housing the famous clock and bell.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm)
+
+---
+
 # Pope doing physiotherapy in hospital after quiet night
 
 ![Italian Cardinal Pietro Parolin reads aloud a message on the pope's behalf during a mass in St Peter's Basilica on Saturday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794926_1_20250308200342.jpg&q=70)
@@ -1413,29 +1437,5 @@ Hamas said on Thursday that Donald Trump's threats would encourage Israel to dis
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm)
-
----
-
-# Visit GBA for National Games: Guangdong governor
-
-![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=80)
-  
-
-A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
 
 ---
