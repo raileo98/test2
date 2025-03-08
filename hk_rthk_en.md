@@ -1,3 +1,51 @@
+# Cyclist killed in Tuen Mun traffic accident
+
+![Police say a cyclist was killed in a traffic accident in Tuen Mun. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794889_1_20250308150057.jpg&q=85)
+  
+
+A cyclist died in a traffic accident in Tuen Mun on Saturday morning.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm)
+
+---
+
+# Ex-Cyclone Alfred sparks flood warnings in Australia
+
+![Alfred has battered the coastline with gale-force winds that toppled trees. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794891_1_20250308152018.jpg&q=55)
+  
+
+Ex-Cyclone Alfred stalled off the rain- and wind-lashed coast of eastern Australia on Saturday, threatening to unleash floods after blacking out more than a quarter of a million homes and businesses.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm)
+
+---
+
 # 'Govt will consider how to improve NSL enforcement'
 
 ![Deputy Secretary for Justice Horace Cheung says the government will study the Court of Final Appeal's judgement. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=85)
@@ -1388,54 +1436,5 @@ Early wind and rain from a rare tropical cyclone began lashing part of eastern A
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794517-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794517-20250306.htm)
-
----
-
-# Cavs hold off Heat to clinch NBA playoff berth
-
-![Donovan Mitchell poured in 26 points to lead the Cavs to their 12th straight victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_1_20250306120255.jpg&q=90)
-![Payton Pritchard knocked down 10 three-pointers in the Celtics' win over the Blazers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_2_20250306120515.jpg&q=80)
-  
-
-Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticket to the NBA playoffs with a hard-fought 112-107 victory over the Miami Heat.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm)
-
----
-
-# Tibet official says classes resume after deadly quake
-
-![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=45)
-  
-
-The chairman of the people's government of the Tibet Autonomous Region on Thursday said classes have resumed in Dingri County following the massive earthquake earlier this year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm)
 
 ---

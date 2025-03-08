@@ -1,3 +1,27 @@
+# Cyclist killed in Tuen Mun traffic accident
+
+![Police say a cyclist was killed in a traffic accident in Tuen Mun. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794889_1_20250308150057.jpg&q=85)
+  
+
+A cyclist died in a traffic accident in Tuen Mun on Saturday morning.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm)
+
+---
+
 # 'Govt will consider how to improve NSL enforcement'
 
 ![Deputy Secretary for Justice Horace Cheung says the government will study the Court of Final Appeal's judgement. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=85)
@@ -1413,29 +1437,5 @@ Financial Secretary Paul Chan on Sunday said officials plan to go ahead with a p
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793870-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793870-20250302.htm)
-
----
-
-# Technology chief pledges to foster AI development
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793867_1_20250302115400.jpg&q=90)
-  
-
-Technology and innovation chief Sun Dong on Sunday said policies related to artificial intelligence (AI) mentioned in last month's budget show the government’s commitment to high-quality development.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793867-20250302.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 緬甸軍方領導人稱計劃今年12月或明年1月舉行大選
+
+![敏昂萊說，軍方計劃盡快舉行一場自由和公正的選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794894_1_20250308152207.jpg&q=90)
+  
+
+緬甸國營傳媒引述軍方領袖敏昂萊表示，軍政府計劃在今年12月或明年1月舉行大選。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm)
+
+---
+
+# 14歲少女旺角後樓梯遭掌摑6人施襲被捕　警指因言語態度起爭執
+
+  
+
+網上流傳片段，一名少女被多名青少年在後樓梯包圍並多次掌摑，警方昨日至今日拘捕1男5女涉案人士，年齡由15至22歲，涉嫌襲擊致造成身體傷害，正被扣留調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm)
+
+---
+
 # 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794818-20250307.htm)
-
----
-
-# 美股初段個別發展　道指跌逾百點　納指升0.2%
-
-![美股初段個別發展，道瓊斯指數較早時報42472點，跌106點，跌幅0.25%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794816_1_20250307224154.jpg&q=80)
-  
-
-美股初段個別發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm)
-
----
-
-# 越秀地產料去年盈利至少跌約65%　核心盈利至少減半
-
-![越秀地產預計，去年盈利按年跌約65%至70%，核心盈利按年跌約50%至55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794813_1_20250307221702.jpg&q=80)
-  
-
-越秀地產發盈利警告，預計去年盈利按年跌約65%至70%；撇除淨匯兌收益或虧損、投資物業公允值變動及相關稅項影響等之後，核心盈利按年跌約50%至55%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm)
 
 ---

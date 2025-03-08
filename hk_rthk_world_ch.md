@@ -1,3 +1,27 @@
+# 緬甸軍方領導人稱計劃今年12月或明年1月舉行大選
+
+![敏昂萊說，軍方計劃盡快舉行一場自由和公正的選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794894_1_20250308152207.jpg&q=90)
+  
+
+緬甸國營傳媒引述軍方領袖敏昂萊表示，軍政府計劃在今年12月或明年1月舉行大選。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm)
+
+---
+
 # 特朗普稱「強烈考慮」對俄實施大規模制裁
 
 ![特朗普認為在結束戰事的努力中，他與俄羅斯打交道「更容易」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794881_2_20250308132504.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794639-20250307.htm)
-
----
-
-# 美烏官員據報下周舉行會談
-
-![澤連斯基表示，烏克蘭和美國團隊已恢復工作，預計下星期將舉行一次有意義的會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794638_1_20250307052256.jpg&q=90)
-  
-
-美國傳媒報道，美國政府高級官員將於下星期前往沙特阿拉伯同烏克蘭官員會面。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm)
 
 ---

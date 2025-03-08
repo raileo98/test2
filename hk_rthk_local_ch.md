@@ -1,3 +1,26 @@
+# 14歲少女旺角後樓梯遭掌摑6人施襲被捕　警指因言語態度起爭執
+
+  
+
+網上流傳片段，一名少女被多名青少年在後樓梯包圍並多次掌摑，警方昨日至今日拘捕1男5女涉案人士，年齡由15至22歲，涉嫌襲擊致造成身體傷害，正被扣留調查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm)
+
+---
+
 # 屯門男子踏單車被的士撞倒搶救不治　73歲的士司機被捕
 
 ![73歲的士司機涉嫌危險駕駛引致他人死亡被捕，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794888_1_20250308140304.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794737-20250307.htm)
-
----
-
-# 消息：6名港人被禁錮東南亞獲營救　鄧炳強下午由泰國回港交代
-
-![鄧炳強由泰國返港後，下午約5時在機場會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794735_1_20250307152505.jpg&q=90)
-  
-
-保安局局長鄧炳強由泰國返港後，下午約5時在機場會見傳媒。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794735-20250307.htm)
 
 ---

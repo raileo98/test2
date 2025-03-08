@@ -1,3 +1,27 @@
+# Ex-Cyclone Alfred sparks flood warnings in Australia
+
+![Alfred has battered the coastline with gale-force winds that toppled trees. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794891_1_20250308152018.jpg&q=55)
+  
+
+Ex-Cyclone Alfred stalled off the rain- and wind-lashed coast of eastern Australia on Saturday, threatening to unleash floods after blacking out more than a quarter of a million homes and businesses.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm)
+
+---
+
 # 'Hackman died of natural causes, a week after wife'
 
 ![Gene Hackman poses during the 60th annual Golden Globe Awards in Beverly Hills, California, U.S. January 19, 2003. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794873_1_20250308114632.jpg&q=90)
@@ -1416,29 +1440,5 @@ Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a p
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm)
-
----
-
-# Four dead from India avalanche, five still missing
-
-![The Indian army says that of the 50 people initially rescued, four had succumbed to their injuries. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793804_1_20250301180434.jpg&q=80)
-  
-
-At least four people died from their injuries in India after an avalanche hit a remote border area, officials said on Saturday, as rescuers deployed helicopters to search for the remaining five missing.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793804-20250301.htm)
 
 ---
