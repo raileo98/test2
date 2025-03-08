@@ -1,3 +1,27 @@
+# 白宮舉行加密貨幣峰會　特朗普重申支持比特幣為代表的加密貨幣
+
+![特朗普早前簽署行政命令，設立戰略比特幣儲備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794927_1_20250308202343.jpg&q=90)
+  
+
+美國白宮舉行加密貨幣峰會，總統特朗普表示，聯邦政府將支持以比特幣為代表的加密貨幣，以及數字資產市場的發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm)
+
+---
+
 # 澳洲東部受熱帶氣旋吹襲至少一死　兩輛協助救災軍車相撞36傷
 
 ![在黃金海岸，有帆船被大浪沖到岸邊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794925_1_20250308195330.jpg&q=80)
