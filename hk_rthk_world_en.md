@@ -1,3 +1,27 @@
+# S Korea's impeached President Yoon released
+
+![Impeached South Korean President Yoon Suk Yeol bows to his supporters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794922_1_20250308181642.jpg&q=75)
+  
+
+Impeached South Korean President Yoon Suk Yeol was released from detention on Saturday after a court voided his arrest on procedural grounds – but he remains under investigation over his declaration of martial law.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm)
+
+---
+
 # Ex-Cyclone Alfred sparks flood warnings in Australia
 
 ![Alfred has battered the coastline with gale-force winds that toppled trees. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794891_1_20250308152018.jpg&q=55)
@@ -1416,29 +1440,5 @@ Outlawed Kurdish militants on Saturday declared a ceasefire with Turkey followin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793814-20250301.htm)
-
----
-
-# Pope spends 'peaceful night' after breathing crisis
-
-![Well-wishers send their greetings to the pope at the Gemelli University Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793810_1_20250301183956.jpg&q=85)
-  
-
-Pope Francis, hospitalised for two weeks with pneumonia in both lungs, spent a peaceful night after suffering a breathing crisis, the Vatican said on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793810-20250301.htm)
 
 ---

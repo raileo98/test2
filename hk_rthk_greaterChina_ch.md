@@ -1,8 +1,31 @@
-# 全國兩會｜趙樂際指去年工作有新進展和成效　但仍有差距和不足
+# 全國兩會｜張軍稱要加強涉外法治建設　依法反制非法制裁
 
   
 
-在北京，全國人大委員長趙樂際發表工作報告，指去年工作取得新進展和成效，包括兩次審議民營經濟促進法草案，宣介一國兩制主張和成功實踐等，但工作仍存在一些差距和不足。
+在北京，最高人民法院院長張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟，亦要加強涉外法治建設，依法反制非法制裁和「長臂管轄」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm)
+
+---
+
+# 全國兩會｜趙樂際稱今年工作任務包括制定民營經濟促進法
+
+  
+
+在北京，全國人大委員長趙樂際發表工作報告，指去年工作取得新進展和成效，包括兩次審議民營經濟促進法草案，宣介「一國兩制」主張和成功實踐等，但工作仍存在一些差距和不足。
 
   
 
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794695-20250307.htm)
-
----
-
-# 香港與澳門合辦投資推介會　鼓勵澳門企業藉香港優勢拓展海外業務
-
-![投資推廣署與澳門特別行政區招商投資促進局於澳門合辦的推介會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794694_1_20250307104813.jpg&q=45)
-  
-
-行政長官李家超於上月在禮賓府與澳門行政長官岑浩輝會面，就進一步加強港澳合作和推動大灣區高質量發展交流意見。為落實促進兩地合作，投資推廣署昨日與澳門招商投資促進局於澳門合辦的推介會，向約90名澳門製造、品牌、零售、餐飲、出入口貿易企業及商會和協會代表，介紹香港營商現況及發展新機遇，尤其在零售、餐飲和貿易行業的新商機，鼓勵澳門企業利用香港的獨特優勢，拓展海外市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm)
 
 ---

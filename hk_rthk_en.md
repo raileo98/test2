@@ -1,3 +1,27 @@
+# S Korea's impeached President Yoon released
+
+![Impeached South Korean President Yoon Suk Yeol bows to his supporters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794922_1_20250308181642.jpg&q=75)
+  
+
+Impeached South Korean President Yoon Suk Yeol was released from detention on Saturday after a court voided his arrest on procedural grounds – but he remains under investigation over his declaration of martial law.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm)
+
+---
+
 # Robertson reaches final of World Snooker Grand Prix
 
 ![Shaun Murphy, (left), congratulates Neil Robertson after a thrilling battle on the baize. Photo courtesy of the World Snooker Tour's Facebook page.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794915_1_20250308173327.jpg&q=90)
@@ -1413,29 +1437,5 @@ The head of the National Development and Reform Commission said he's confident t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
-
----
-
-# Tech gains see HK stocks close higher
-
-![Shares in tech firms helped the Hang Seng Index close higher. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794569_1_20250306165157.jpg&q=60)
-  
-
-Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soaring over three percent, as tech shares led the gains.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm)
 
 ---
