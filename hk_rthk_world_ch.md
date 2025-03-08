@@ -1,3 +1,26 @@
+# 多倫多酒吧槍擊案槍手仍在逃　傷者無生命危險
+
+  
+
+加拿大多倫多市酒吧導致12人受傷的槍擊案，警方在交代案情的記者會上表示，事發時3名男子向酒吧內的民眾隨機開槍，其中6名傷者所受的是槍傷，無生命危險，槍手仍然在逃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm)
+
+---
+
 # 以色列接受斡旋方邀請將派代表團赴多哈尋求談判取得進展
 
 ![以色列總理內塔尼亞胡辦公室表示，以色列於星期一派遣代表團前往多哈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794944_1_20250309061454.jpg&q=85)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
-
----
-
-# 全國兩會｜中國經濟增長5%　王毅稱展現迎難而上奮發有為特徵
-
-![王毅說，中國的信心，來源於超大市場和國內需求，來源於強大產業和創新動能，更來源於制度優勢和改革開放。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794709_1_20250307123330.jpg&q=35)
-  
-
-在北京，外長王毅表示，去年中國經濟實現了5%的增長，在主要大國中仍然一枝獨秀，這一成績是在大力推進綠色轉型中取得，是在全球增長低迷背景下實現，更是在克服美國等單邊制裁打壓下拼來，展現出中國經濟迎難而上、奮發有為的鮮明特徵。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
 
 ---
