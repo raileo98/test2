@@ -1,3 +1,52 @@
+# 'Private enterprises need innovation to thrive'
+
+![Dong Mingzhu says private enterprises need continuous innovation and technological investment to thrive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_1_20250308164432.jpg&q=85)
+![Xiang Wenbo says it's a good timing to list in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_2_20250308164432.jpg&q=85)
+  
+
+The chairwoman of Gree Electrics on Saturday said private enterprises need continuous innovation and technological investment to thrive.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm)
+
+---
+
+# HK officials pledge to implement Two Sessions spirit
+
+![Hong Kong officials pledge to implement the spirit of "Two Sessions". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794903_1_20250308160513.jpg&q=70)
+  
+
+Hong Kong officials on Saturday said they will learn from the spirit of "Two Sessions" and stressed the importance of unity in advancing the SAR's development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm)
+
+---
+
 # ‘HK, mainland should join hands to tackle scams’
 
 ![The vice minister of public security Xu Ganlu, (left), says the joint operation between China and Thailand has achieved success in rescuing victims from Myanmar. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
@@ -1389,53 +1438,5 @@ Hong Kong delegates attending the "Two Sessions" meetings this year said they're
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
-
----
-
-# 'Kai Tak Stadium makes Hong Kong a hot destination'
-
-![Lawmaker Adrian Ho says Saturday's opening ceremony for the Kai Tak Sports Park went smoothly. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793928_1_20250303081026.jpg&q=55)
-  
-
-A lawmaker on Monday said the Kai Tak Stadium places Hong Kong on the map as a "hot destination" for major concerts and events, after the Kai Tak Sports Park officially opened over the weekend.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793928-20250303.htm)
-
----
-
-# Local delegate proposes plans to connect with GBA
-
-![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=90)
-  
-
-A local delegate to the country’s top advisory body plans to ask for measures on facilitating people flow within the Greater Bay Area, during the upcoming “Two Sessions” meetings in Beijing.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
 
 ---

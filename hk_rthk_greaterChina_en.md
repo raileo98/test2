@@ -1,3 +1,52 @@
+# 'Private enterprises need innovation to thrive'
+
+![Dong Mingzhu says private enterprises need continuous innovation and technological investment to thrive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_1_20250308164432.jpg&q=85)
+![Xiang Wenbo says it's a good timing to list in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_2_20250308164432.jpg&q=85)
+  
+
+The chairwoman of Gree Electrics on Saturday said private enterprises need continuous innovation and technological investment to thrive.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm)
+
+---
+
+# HK officials pledge to implement Two Sessions spirit
+
+![Hong Kong officials pledge to implement the spirit of "Two Sessions". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794903_1_20250308160513.jpg&q=70)
+  
+
+Hong Kong officials on Saturday said they will learn from the spirit of "Two Sessions" and stressed the importance of unity in advancing the SAR's development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm)
+
+---
+
 # ‘HK, mainland should join hands to tackle scams’
 
 ![The vice minister of public security Xu Ganlu, (left), says the joint operation between China and Thailand has achieved success in rescuing victims from Myanmar. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
@@ -1388,53 +1437,5 @@ China's manufacturing activity grew in February after a dip the previous month, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
-
----
-
-# Chinese embassy warns against coercion in tariff hikes
-
-![The Chinese embassy in Washington said unilateral tariff hikes by the US severely violate World Trade Organization rules and harm interests for China, the US and the world. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793757_1_20250301083308.jpg&q=90)
-  
-
-US Treasury Secretary Scott Bessent said on Friday that Mexico has proposed matching US tariffs on China in a move that he described as "very interesting" and one that Canada should match.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793757-20250301.htm)
-
----
-
-# China pledges to train Pakistani astronauts
-
-![There are plans for a Pakistani astronaut to eventually take part in missions to the Tiangong space station. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793755_1_20250301082605.jpg&q=90)
-  
-
-China's space station will welcome its first foreign astronaut in the next few years, after China and Pakistan on Friday signed a cooperation agreement on the selection and training of astronauts.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793755-20250301.htm)
 
 ---
