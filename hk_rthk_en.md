@@ -1,3 +1,32 @@
+# Beijing to impose additional tariffs on Canada
+
+![The Commerce Ministry said the additional tariffs are to take effect March 20. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794864_1_20250308110510.jpg&q=65)
+  
+
+The Commerce Ministry on Saturday announced that it will impose additional tariffs on some products imported from Canada based on the ruling of an anti-discrimination probe.
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm)
+
+---
+
 # 'HK can't stop residential and industrial land sale'
 
 ![The government is not putting up any commercial sites for sale in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
@@ -1708,34 +1737,5 @@ Israel's new military chief Eyal Zamir said his country's mission to defeat Hama
 
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm)
-
----
-
-# 'AI startups boosting nation's development'
-
-![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=85)
-  
-
-An analyst on Thursday said the advent of artificial intelligence startups such as DeepSeek has been a boon to the nation’s technological development.
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm)
 
 ---

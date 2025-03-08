@@ -1,6 +1,34 @@
+# 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
+
+  
+
+政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
+
+---
+
 # 張國鈞稱香港國安法如須修改須經人大　如修改並非輸打贏要
 
-![張國鈞說，今次案例對促進香港有關國家安全的發展有很重要作用。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
@@ -1709,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm)
-
----
-
-# 全國兩會｜財政部：中央財政已預留空間　人行：今年擇機降準減息
-
-![中證監主席吳清（左二）表示，將加快健全針對科技企業資本市場機制，加大力度培育長期和耐心資本。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794608_1_20250306194446.jpg&q=90)
-  
-
-全國人大會議正在北京召開，多個部委官員出席經濟主題記者會。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794608-20250306.htm)
 
 ---

@@ -1,6 +1,62 @@
+# 運輸署稱密切監察自動駕駛技術測試表現　標籤識別正測試的自動車
+
+  
+
+新的自動駕駛車輛規管框架已經實施，為在香港道路測試和先導使用自動車展開新里程。運輸署在社交專頁說，在香港進行的自動駕駛技術測試，最高能達到國際標準5級別中的第4級別，達致高度自動化駕駛，即在特定設計運行條件下自動駕駛系統可持續執行全部動態駕駛任務，並自動執行最小風險策略，運輸署會密切監察測試表現，又說已設計了全新「先導自動車標籤」，以助識別正在測試的先導自動車。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm)
+
+---
+
+# 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
+
+  
+
+政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
+
+---
+
 # 張國鈞稱香港國安法如須修改須經人大　如修改並非輸打贏要
 
-![張國鈞說，今次案例對促進香港有關國家安全的發展有很重要作用。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
@@ -1668,63 +1724,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
-
-![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
-  
-
-在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網絡電詐這顆毒瘤。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
-
----
-
-# 香港與澳門合辦投資推介會　鼓勵澳門企業藉香港優勢拓展海外業務
-
-![投資推廣署與澳門特別行政區招商投資促進局於澳門合辦的推介會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794694_1_20250307104813.jpg&q=45)
-  
-
-行政長官李家超於上月在禮賓府與澳門行政長官岑浩輝會面，就進一步加強港澳合作和推動大灣區高質量發展交流意見。為落實促進兩地合作，投資推廣署昨日與澳門招商投資促進局於澳門合辦的推介會，向約90名澳門製造、品牌、零售、餐飲、出入口貿易企業及商會和協會代表，介紹香港營商現況及發展新機遇，尤其在零售、餐飲和貿易行業的新商機，鼓勵澳門企業利用香港的獨特優勢，拓展海外市場。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794694-20250307.htm)
 
 ---

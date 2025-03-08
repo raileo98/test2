@@ -1,6 +1,90 @@
+# 全國兩會 | 楊何蓓茵稱要發揮一國兩制優勢公務員須貢獻力量
+
+  
+
+全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
+
+---
+
+# 運輸署稱密切監察自動駕駛技術測試表現　標籤識別正測試的自動車
+
+  
+
+新的自動駕駛車輛規管框架已經實施，為在香港道路測試和先導使用自動車展開新里程。運輸署在社交專頁說，在香港進行的自動駕駛技術測試，最高能達到國際標準5級別中的第4級別，達致高度自動化駕駛，即在特定設計運行條件下自動駕駛系統可持續執行全部動態駕駛任務，並自動執行最小風險策略，運輸署會密切監察測試表現，又說已設計了全新「先導自動車標籤」，以助識別正在測試的先導自動車。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm)
+
+---
+
+# 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
+
+  
+
+政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
+
+---
+
 # 張國鈞稱香港國安法如須修改須經人大　如修改並非輸打贏要
 
-![張國鈞說，今次案例對促進香港有關國家安全的發展有很重要作用。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
   
 
 已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
@@ -1647,92 +1731,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
-
----
-
-# 全國兩會｜習近平：要實現軍隊建設「十四五」規劃圓滿收官
-
-![習近平出席十四屆全國人大三次會議解放軍和武警部隊代表團全體會議並發表重要講話。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794796_1_20250307195511.jpg&q=90)
-  
-
-中共中央總書記、國家主席、中央軍委主席習近平強調，要落實高質量發展要求，實現軍隊建設「十四五」規劃圓滿收官。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm)
-
----
-
-# 歐元區上季經濟按季增長減慢至0.2%　但高過初值
-
-![歐元區去年第4季經濟按季增長減慢至0.2%，但好過初值的0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794794_1_20250307190232.jpg&q=75)
-  
-
-歐元區去年第4季經濟按季增長0.2%，增速慢過第3季的0.4%，但好過初值的0.1%，由於愛爾蘭經濟表現由初值估計的跌1.3%，大幅向上修訂至增長3.6%。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm)
-
----
-
-# 陳克勤料本港與泰國建立機制　致參與營救行動更實質及具體
-
-![陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794793_1_20250307191947.jpg&q=90)
-  
-
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。立法會議員陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動，而非如以往般，身處幕後角色，主要依靠當地政府及執法部門，或國家駐當地的使領館。他估計是與早前保安局副局長率領專責小組前往泰國協調有關，令雙方建立了合作機制，令今次特區政府的參與更實質和具體。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
 
 ---
