@@ -1,3 +1,27 @@
+# 德甲拜仁十人應戰下　2:3不敵波琴
+
+![拜仁慕尼黑主場落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794949_1_20250309071718.jpg&q=90)
+  
+
+德國甲組足球聯賽，榜首的拜仁慕尼黑主場2:3不敵波琴。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm)
+
+---
+
 # 英超利物浦3:1反勝修咸頓　榜首優勢擴大至16分
 
 ![達雲紐尼斯今仗為利物浦追成平手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_1_20250309070507.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm)
-
----
-
-# 全國兩會 | 楊何蓓茵稱要發揮一國兩制優勢公務員須貢獻力量
-
-![楊何蓓茵說，公務員要進一步善用科技，加快探索應用人工智能在日常工作上，提升工作成效和效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794866_1_20250308111731.jpg&q=85)
-  
-
-全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
 
 ---

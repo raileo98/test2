@@ -1,3 +1,27 @@
+# 德甲拜仁十人應戰下　2:3不敵波琴
+
+![拜仁慕尼黑主場落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794949_1_20250309071718.jpg&q=90)
+  
+
+德國甲組足球聯賽，榜首的拜仁慕尼黑主場2:3不敵波琴。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm)
+
+---
+
 # 英超利物浦3:1反勝修咸頓　榜首優勢擴大至16分
 
 ![達雲紐尼斯今仗為利物浦追成平手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_1_20250309070507.jpg&q=90)
@@ -1424,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm)
-
----
-
-# 羅淑佩：啟德體育園開幕禮將為「盛匯超級三月」打響頭炮
-
-![啟德體育園開幕典禮明日傍晚6時半在啟德主場館舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793656_1_20250228161946.jpg&q=80)
-  
-
-文化體育及旅遊局局長羅淑佩表示，去年本港旅遊業繼續復蘇，訪港旅客人次穩步增長，中央政府推出多項惠港措施，亦令本港自從去年年底開始，整體市面人流暢旺，在剛過去的聖誕新年和農曆新年期間，零售、餐飲等行業都反映生意額是錄得增長。她期望今年可以迎來4900萬人次訪港旅客，相比去年增加約一成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793656-20250228.htm)
 
 ---
