@@ -1,3 +1,75 @@
+# 全國兩會 | 醫衞局稱利用一國兩制優勢建設國際醫療創新樞紐
+
+![醫務衞生局說，《施政報告》提出深化醫療體系改革亦必須「三醫聯動」，才能持續提升醫療質量及效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794883_1_20250308132556.jpg&q=85)
+  
+
+醫務衞生局在社交平台提到，中央政府依二十屆三中全會的《決定》作出部署，深化醫藥衞生體制改革，實施健康優先發展戰略，促進醫療、醫藥、醫保「三醫聯動」，協同發展和治理，對香港帶來重要啟示。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
+
+---
+
+# 全國兩會 | 甯漢豪稱全力將北都有關土地建設及基建工程做好
+
+![甯漢豪說，會採用多元發展模式，以創新思維更靈活善用市場力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794882_1_20250308132219.jpg&q=70)
+  
+
+發展局局長甯漢豪表示，會與團隊全力以赴，讓香港得以充分發揮「一國兩制」下的獨特地位和優勢，全力拼經濟、謀發展、搞建設。其中，北部都會區對香港社會和經濟發展至為關鍵，有助香港突破長久以來土地不足的瓶頸，發展局會全力將北都有關土地建設及基建工程做好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm)
+
+---
+
+# 特朗普稱「強烈考慮」對俄實施大規模制裁
+
+![特朗普認為在結束戰事的努力中，他與俄羅斯打交道「更容易」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794881_2_20250308132504.jpg&q=90)
+  
+
+俄羅斯星期五對烏克蘭能源設施發動大規模的無人機和導彈攻擊後，美國總統特朗普在旗下社交平台發文說，考慮對俄羅斯實施大規模制裁。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm)
+
+---
+
 # 美烏外長通電話　魯比奧：特朗普決心盡快結束俄烏戰事
 
 ![魯比奧強調，各方必須採取措施確保持久和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794868_1_20250308112237.jpg&q=90)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
-
----
-
-# 全國兩會｜陳茂波：兩會精神落實到各工作　陳國基：盡快開創新局
-
-![陳茂波（左）說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向；陳國基（右）說，特區政府在推動創新發展上，認識不斷提升、思維持續更新、行動更加得力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794809_2_20250308125431.jpg&q=85)
-  
-
-全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
-
----
-
-# 美國2月非農業新增職位15.1萬個遜預期　失業率升至4.1%
-
-![美國2月非農業新增職位15.1萬個，少過市場預期，失業率出乎意料升至4.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794806_1_20250307214245.jpg&q=75)
-  
-
-美國2月非農業新增職位15.1萬個，少過市場預期的16萬個，但多過1月向下修訂後的12.5萬個。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm)
-
----
-
-# 日本岩手縣山火火勢減弱　當局解除部分地區疏散指示
-
-![大船渡市有房屋被山火燒毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794807_1_20250307214310.jpg&q=75)
-  
-
-日本岩手縣消防部門及自衛隊的大型直升機繼續撲救大船渡市的山火。由於降雨使火勢有所減弱，當局解除對不再有蔓延隱患的赤崎町6個地區、超過950名居民的疏散指示，是山火發生以來首次。至於對三陸町綾里全境等3600多名居民的疏散指示繼續有效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm)
 
 ---

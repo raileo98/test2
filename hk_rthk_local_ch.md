@@ -1,3 +1,51 @@
+# 全國兩會 | 醫衞局稱利用一國兩制優勢建設國際醫療創新樞紐
+
+![醫務衞生局說，《施政報告》提出深化醫療體系改革亦必須「三醫聯動」，才能持續提升醫療質量及效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794883_1_20250308132556.jpg&q=85)
+  
+
+醫務衞生局在社交平台提到，中央政府依二十屆三中全會的《決定》作出部署，深化醫藥衞生體制改革，實施健康優先發展戰略，促進醫療、醫藥、醫保「三醫聯動」，協同發展和治理，對香港帶來重要啟示。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
+
+---
+
+# 全國兩會 | 甯漢豪稱全力將北都有關土地建設及基建工程做好
+
+![甯漢豪說，會採用多元發展模式，以創新思維更靈活善用市場力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794882_1_20250308132219.jpg&q=70)
+  
+
+發展局局長甯漢豪表示，會與團隊全力以赴，讓香港得以充分發揮「一國兩制」下的獨特地位和優勢，全力拼經濟、謀發展、搞建設。其中，北部都會區對香港社會和經濟發展至為關鍵，有助香港突破長久以來土地不足的瓶頸，發展局會全力將北都有關土地建設及基建工程做好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm)
+
+---
+
 # 甯漢豪：視乎市場意向調查結果　北都片區招標條款或會更進取
 
 ![甯漢豪說，有內地開發商提出平整片區產業地後，興建並營運園區，政府會檢視是否屬主流意見，日後招標條款或會更加進取。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794880_1_20250308130001.jpg&q=75)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
-
----
-
-# 港股下午開市後上升
-
-![恒生指數較早時報24494點，升125點，升幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794722_1_20250307130532.jpg&q=75)
-  
-
-港股上升。恒生指數較早時報24494點，升125點，升幅0.51%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm)
-
----
-
-# 機場南交匯處約80名工人疑因欠薪阻擋地盤入口　其後散去
-
-![警方將案件列作糾紛案處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794719_1_20250307125326.jpg&q=20)
-  
-
-機場南交匯處早上近10時，有約80名工人阻擋其中一個地盤入口，懷疑被欠薪，工人其後在大約11時許散去。警方列作糾紛案處理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794719-20250307.htm)
 
 ---

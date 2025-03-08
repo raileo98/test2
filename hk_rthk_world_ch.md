@@ -1,3 +1,27 @@
+# 特朗普稱「強烈考慮」對俄實施大規模制裁
+
+![特朗普認為在結束戰事的努力中，他與俄羅斯打交道「更容易」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794881_2_20250308132504.jpg&q=90)
+  
+
+俄羅斯星期五對烏克蘭能源設施發動大規模的無人機和導彈攻擊後，美國總統特朗普在旗下社交平台發文說，考慮對俄羅斯實施大規模制裁。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm)
+
+---
+
 # 美烏外長通電話　魯比奧：特朗普決心盡快結束俄烏戰事
 
 ![魯比奧強調，各方必須採取措施確保持久和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794868_1_20250308112237.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794638-20250307.htm)
-
----
-
-# 特朗普：對符合美墨加協定的墨西哥商品豁免徵收關稅至4月2日
-
-![特朗普表示，所有符合《美墨加協定》的墨西哥商品獲豁免徵收關稅一個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794637_1_20250307012746.jpg&q=85)
-  
-
-美國總統特朗普表示，對墨西哥所有符合《美墨加協定》的商品豁免徵收關稅，直至下月2日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794637-20250307.htm)
 
 ---
