@@ -24,7 +24,7 @@
 
 # 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
 
-![陳勇表示，可見國家立法工作密鑼緊鼓，很多法律配合經濟發展，體現憲法權威。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794930_1_20250308210834.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794930_1_20250308210834.jpg&q=85)
   
 
 十四屆全國人大三次會議早上舉行第二次全體會議，聽取和審議全國人大常委會工作報告、最高人民法院和最高人民檢察院工作報告。
