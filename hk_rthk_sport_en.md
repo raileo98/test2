@@ -1,3 +1,27 @@
+# Hudson-Odoi strikes late as Forest edge City
+
+![Callum Hudson-Odoi, (far right), beats Ederson at his near post from a very tight angle. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794933_1_20250308223542.jpg&q=60)
+  
+
+Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win over Manchester City in the Premier League on Saturday and keep them on track for a top-four finish and prized place in next year's Champions League.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm)
+
+---
+
 # Three-way tie after Day 2 of LIV Golf Hong Kong event
 
 ![Three players finished on top after the second round of the LIV Golf Hong Kong tournament. Image courtesy of LIV Golf.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794917_1_20250308173011.jpg&q=85)
@@ -1422,29 +1446,5 @@ Manchester United paid a total of £14.5 million (US$18.3 million) to sack manag
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm)
-
----
-
-# WTA to ban man after Raducanu 'security incident'
-
-![The 22-year-old Briton was so disturbed by the man's "fixated behaviour" that she sought refuge behind the umpire's chair. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792356_1_20250219215523.jpg&q=90)
-  
-
-Emma Raducanu was targeted by "a man who exhibited fixated behaviour" during the WTA 1000 tournament in Dubai, tennis officials said on Wednesday, after the former US Open champion was reduced to tears on court.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm)
 
 ---

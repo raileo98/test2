@@ -1,3 +1,27 @@
+# Hudson-Odoi strikes late as Forest edge City
+
+![Callum Hudson-Odoi, (far right), beats Ederson at his near post from a very tight angle. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794933_1_20250308223542.jpg&q=60)
+  
+
+Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win over Manchester City in the Premier League on Saturday and keep them on track for a top-four finish and prized place in next year's Champions League.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm)
+
+---
+
 # ‘HK should take One Country, Two Systems to new level'
 
 ![Zheng Yanxiong says Hong Kong should speed up the process of advancing to prosperity. Photo courtesy of the Liaison Office.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794932_1_20250308214630.jpg&q=90)
@@ -1413,29 +1437,5 @@ Global sea ice cover fell to a historic low in February when the world continued
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm)
-
----
-
-# EU leaders, Zelensky, gather for crisis Ukraine talks
-
-![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=85)
-  
-
-EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in Brussels in search of unity on bolstering Ukraine and Europe's defences, after US President Donald Trump upended traditional US alliances and retracted wartime backing for Kyiv.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm)
 
 ---
