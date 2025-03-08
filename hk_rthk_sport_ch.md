@@ -1,3 +1,31 @@
+# 體育爭議解決先導計劃今年內啟動　政府冀年中物色到合適仲裁機構
+
+  
+
+律政司副司長張國鈞表示，期望今年內啟動體育爭議解決先導計劃，在年中物色到合適的仲裁機構，在本港開展體育爭議的相關服務，如果遇到需要調解的問題，可以向這個機構求助。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm)
+
+---
+
 # 因傷接受手術　荷蘭兩名後衛尼敦艾基及博文將休戰多個星期
 
 ![尼敦艾基因傷接受手術，要養傷至少10個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_1_20250308071112.jpg&q=85)
@@ -1718,34 +1746,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793637-20250228.htm)
-
----
-
-# 啟德體育園明晚開幕禮　九巴多條路線前往會場另設散場特別線
-
-![九巴預計將有超過3萬人次到啟德主場館觀看開幕禮。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793626_1_20250228123721.jpg&q=60)
-  
-
-啟德體育園明晚舉行開幕典禮，九巴表示有多條路線可前往會場，另設6條散場特別線，方便市民出行。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793626-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793626-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793626-20250228.htm)
 
 ---

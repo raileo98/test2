@@ -1,3 +1,59 @@
+# 體育爭議解決先導計劃今年內啟動　政府冀年中物色到合適仲裁機構
+
+  
+
+律政司副司長張國鈞表示，期望今年內啟動體育爭議解決先導計劃，在年中物色到合適的仲裁機構，在本港開展體育爭議的相關服務，如果遇到需要調解的問題，可以向這個機構求助。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm)
+
+---
+
+# 全國兩會 | 楊何蓓茵稱要發揮一國兩制優勢公務員須貢獻力量
+
+  
+
+全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
+
+---
+
 # 運輸署稱密切監察自動駕駛技術測試表現　標籤識別正測試的自動車
 
   
@@ -28,6 +84,7 @@
 
 # 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
 
+![曾國衞認為，工作報告有關香港的部分，凸顯中央考慮香港的事情從來都是站在國家的戰略高度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794863_1_20250308111540.jpg&q=75)
   
 
 政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
@@ -1666,63 +1723,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm)
-
----
-
-# 34歲男子離開秀茂坪住所後失蹤　今日凌晨在旺角被尋回
-
-![該名男子今日凌晨在旺角通菜街被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794710_1_20250307125834.jpg&q=90)
-  
-
-一名在秀茂坪失蹤男子已被尋回。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794710-20250307.htm)
-
----
-
-# 葵涌致命車禍　九巴稱車長駕駛表現良好入職後未曾發生交通意外
-
-![九巴對事件感到難過，對死者致深切哀悼，已派員慰問家屬，並會配合警方調查起因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794708_1_20250307121715.jpg&q=75)
-  
-
-葵涌發生致命交通意外，一名女途人被巴士撞倒，送院後死亡。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794708-20250307.htm)
 
 ---

@@ -1,5 +1,34 @@
+# 全國兩會 | 楊何蓓茵稱要發揮一國兩制優勢公務員須貢獻力量
+
+  
+
+全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
+  
+
+  
+
+
+  
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
+
+---
+
 # 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
 
+![曾國衞認為，工作報告有關香港的部分，凸顯中央考慮香港的事情從來都是站在國家的戰略高度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794863_1_20250308111540.jpg&q=75)
   
 
 政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
@@ -1708,34 +1737,5 @@
 
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794614-20250306.htm)
-
----
-
-# 全國兩會｜藍佛安：置換政策令地方政府債務風險有效緩釋
-
-![財政部部長藍佛安表示，將加快落實落細債務置換政策，指導地方盡早發行使用今年2萬億元人民幣置換債券額度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794609_1_20250306204715.jpg&q=90)
-  
-
-人大常委會去年第4季批准增加6萬億元人民幣地方政府債務限額置換存量隱性債務。
-  
-
-  
-
-
-  
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794609-20250306.htm)
 
 ---
