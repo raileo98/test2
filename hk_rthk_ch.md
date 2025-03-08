@@ -1,3 +1,26 @@
+# 以色列接受斡旋方邀請將派代表團赴多哈尋求談判取得進展
+
+  
+
+以色列總理辦公室發聲明表示，以色列接受斡旋方邀請，將於星期一派遣一個代表團前往卡塔爾首都多哈，尋求談判取得進展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm)
+
+---
+
 # 美眾議長公布政府資金臨時法案盼避免停擺　消息指爭取周二表決
 
 ![約翰遜日前指法案是一項持續決議，將繼續以目前的水平為政府提供資金。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794943_1_20250309045615.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm)
-
----
-
-# 全國兩會 | 趙樂際：過去一年加強憲法在特別行政區宣傳教育
-
-![十四屆全國人大三次會議在北京人民大會堂舉行第二次全體會議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794860_1_20250308110041.jpg&q=80)
-  
-
-在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際表示，過去一年已加強憲法實施和監督，完善和落實憲法相關法律制度，更好保障各級人大常委會依法行事監督職權，同時亦加強憲法在特別行政區的宣傳教育，組織五次憲法宣誓儀式。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm)
 
 ---

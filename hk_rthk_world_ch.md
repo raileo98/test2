@@ -1,3 +1,26 @@
+# 以色列接受斡旋方邀請將派代表團赴多哈尋求談判取得進展
+
+  
+
+以色列總理辦公室發聲明表示，以色列接受斡旋方邀請，將於星期一派遣一個代表團前往卡塔爾首都多哈，尋求談判取得進展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm)
+
+---
+
 # 美眾議長公布政府資金臨時法案盼避免停擺　消息指爭取周二表決
 
 ![約翰遜日前指法案是一項持續決議，將繼續以目前的水平為政府提供資金。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794943_1_20250309045615.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
-
-![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
-  
-
-在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網絡電詐這顆毒瘤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
 
 ---
