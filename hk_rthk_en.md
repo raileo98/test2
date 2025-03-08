@@ -1,3 +1,27 @@
+# ‘HK should take One Country, Two Systems to new level'
+
+![Zheng Yanxiong says Hong Kong should speed up the process of advancing to prosperity. Photo courtesy of the Liaison Office.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794932_1_20250308214630.jpg&q=90)
+  
+
+The director of the central government's liaison office, Zheng Yanxiong, on Saturday said Hong Kong should take the “One Country, Two Systems” principle to a new level, and strive for better development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm)
+
+---
+
 # Big Ben shut as man with Palestinian flag scales tower
 
 ![An emergency team using a fire truck lift tried to speak with the man. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794929_1_20250308205432.jpg&q=80)
@@ -1413,29 +1437,5 @@ EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in B
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm)
-
----
-
-# Trump sends new warning to Hamas over Gaza hostages
-
-![The US President's warning came hours after his administration revealed it held unprecedented direct talks with Hamas, focused on American hostages. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794601_1_20250306185235.jpg&q=90)
-  
-
-Hamas said on Thursday that Donald Trump's threats would encourage Israel to disregard the fragile ceasefire, after the US president said that unless hostages are freed, the people of Gaza would be "DEAD".
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm)
 
 ---
