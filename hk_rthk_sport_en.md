@@ -1,3 +1,27 @@
+# Three-way tie after Day 2 of LIV Golf Hong Kong event
+
+![Three players finished on top after the second round of the LIV Golf Hong Kong tournament. Image courtesy of LIV Golf.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794917_1_20250308173011.jpg&q=85)
+  
+
+It’s a three-way tie at the top of the leaderboard of the LIV Golf Hong Kong tournament in Fanling going into the final round on Sunday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm)
+
+---
+
 # Robertson reaches final of World Snooker Grand Prix
 
 ![Shaun Murphy, (left), congratulates Neil Robertson after a thrilling battle on the baize. Photo courtesy of the World Snooker Tour's Facebook page.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794915_1_20250308173327.jpg&q=90)
@@ -1422,29 +1446,5 @@ Emma Raducanu was targeted by "a man who exhibited fixated behaviour" during the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792356-20250219.htm)
-
----
-
-# Bayern score late, see off Celtic in Champions League
-
-![Bayern Munich's Alphonso Davies celebrates his goal against Celtic. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792203_1_20250219071515.jpg&q=85)
-  
-
-Bayern Munich secured their place in the last 16 of the Champions League with a 94th minute strike by Alphonso Davies to secure a 1-1 draw on the night and a 3-2 aggregate win.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792203-20250219.htm)
 
 ---

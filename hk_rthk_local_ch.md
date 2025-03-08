@@ -263,7 +263,7 @@
 
 # 14歲少女旺角後樓梯遭掌摑6人施襲被捕　警指因言語態度起爭執
 
-![警方指，被捕人士與事主是朋友關係，均為經常流連油尖旺區的青少年。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794893_1_20250308154826.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794893_1_20250308154826.jpg&q=85)
   
 
 網上流傳片段，一名少女被多名青少年在後樓梯包圍並多次掌摑，警方昨日至今日拘捕1男5女涉案人士，年齡由15至22歲，涉嫌襲擊致造成身體傷害，正被扣留調查。
