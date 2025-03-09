@@ -1,3 +1,28 @@
+# Spain's Garcia claims LIV Golf HK crown
+
+![The victory is Garcia's second on the LIV Golf tour. Photo courtesy of LIV Golf Official](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_1_20250309194714.jpg&q=90)
+![Fireballs GC came out on top in the team standings. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_2_20250309194714.jpg&q=75)
+  
+
+Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Golf Hong Kong tournament crown in Fanling, as the 45-year-old claimed his second career individual title on the men's golf tour.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
+
+---
+
 # Liverpool ease past Southampton to go 16 points clear
 
 ![Liverpool's Egyptian striker #11 Mohamed Salah celebrates scoring the team's third goal from the penalty spot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794946_1_20250309085129.jpg&q=90)
@@ -1422,29 +1447,5 @@ Kylian Mbappé struck a brilliant hat-trick for Champions League holders Real Ma
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792384-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792384-20250220.htm)
-
----
-
-# Liverpool's title charge dented by Aston Villa draw
-
-![Liverpool striker Mohamed Salah in action against Aston Villa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792375_1_20250220055144.jpg&q=90)
-  
-
-Liverpool's Premier League title charge was slowed by Aston Villa after a pulsating 2-2 draw left neither side satisfied.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm)
 
 ---

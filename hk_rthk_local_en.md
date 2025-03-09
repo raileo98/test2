@@ -1,3 +1,28 @@
+# Spain's Garcia claims LIV Golf HK crown
+
+![The victory is Garcia's second on the LIV Golf tour. Photo courtesy of LIV Golf Official](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_1_20250309194714.jpg&q=90)
+![Fireballs GC came out on top in the team standings. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_2_20250309194714.jpg&q=75)
+  
+
+Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Golf Hong Kong tournament crown in Fanling, as the 45-year-old claimed his second career individual title on the men's golf tour.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
+
+---
+
 # 'Reduce waste by allowing water bottles into venues'
 
 ![A number of spectators were seen with bottled water next to their seats during Sunday's World Snooker Grand Prix final at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794990_1_20250309170511.jpg&q=85)
@@ -1414,29 +1439,5 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
-
----
-
-# HK govt still in the dark over new US tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794132_1_20250304123411.jpg&q=85)
-  
-
-Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't know whether new US tariffs on Chinese goods will also cover Hong Kong products, but in any case transit trade could be hit in the short term.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm)
 
 ---

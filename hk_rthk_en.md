@@ -1,3 +1,28 @@
+# Spain's Garcia claims LIV Golf HK crown
+
+![The victory is Garcia's second on the LIV Golf tour. Photo courtesy of LIV Golf Official](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_1_20250309194714.jpg&q=90)
+![Fireballs GC came out on top in the team standings. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_2_20250309194714.jpg&q=75)
+  
+
+Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Golf Hong Kong tournament crown in Fanling, as the 45-year-old claimed his second career individual title on the men's golf tour.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
+
+---
+
 # 'Reduce waste by allowing water bottles into venues'
 
 ![A number of spectators were seen with bottled water next to their seats during Sunday's World Snooker Grand Prix final at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794990_1_20250309170511.jpg&q=85)
@@ -1412,29 +1437,5 @@ A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm)
-
----
-
-# Second measles-related death in US in a decade
-
-![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=35)
-  
-
-A New Mexico resident who has died, tested positive for measles, the state health department said on Thursday, marking the second measles-related death in the United States in more than a decade.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm)
 
 ---
