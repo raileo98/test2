@@ -142,12 +142,12 @@ Pope Francis was doing physiotherapy on Saturday after passing a quiet night, th
 
 ---
 
-# Muslim nations adopt Arab idea over Trump's Gaza plan
+# OIC adopts Gaza counter-proposal by Arab League
 
 ![The OIC's decision came at an emergency meeting in Jeddah, Saudi Arabia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794923_1_20250308192050.jpg&q=75)
   
 
-The Organisation of Islamic Cooperation formally adopted early on Saturday an Arab League counter-proposal to US President Donald Trump's plan to take over Gaza and displace its residents, calling on the international community to support the regional initiative.
+The Organisation of Islamic Cooperation (OIC) formally adopted early on Saturday an Arab League counter-proposal to US President Donald Trump's plan to take over Gaza and displace its residents, calling on the international community to support the regional initiative.
 
   
 
