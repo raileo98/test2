@@ -240,7 +240,7 @@
 
 # 陳美寶︰的士車隊可按咪錶收費或以「包車」形式定收費
 
-![陳美寶認為的士車隊最重要是服務質素，能追上時代。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794957_1_20250309100814.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794957_1_20250309100814.jpg&q=70)
   
 
 運輸及物流局局長陳美寶表示，新成立的5支的士車隊有三大特色，包括由專業的管理人管理、擁抱科技，而且司機經過專業培訓，首支車隊將於3月底投入服務。
