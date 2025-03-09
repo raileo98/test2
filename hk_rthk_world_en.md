@@ -22,30 +22,6 @@ A man who climbed Big Ben's Elizabeth Tower at London's Palace of Westminster wa
 
 ---
 
-# Big Ben shut as man with Palestinian flag scales tower
-
-![An emergency team using a fire truck lift tried to speak with the man. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794929_1_20250308205432.jpg&q=80)
-  
-
-UK police closed the area around Big Ben in London on Saturday after a man holding a Palestinian flag climbed up the tower housing the famous clock and bell.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm)
-
----
-
 # Pope doing physiotherapy in hospital after quiet night
 
 ![Italian Cardinal Pietro Parolin reads aloud a message on the pope's behalf during a mass in St Peter's Basilica on Saturday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794926_1_20250308200342.jpg&q=70)
@@ -1440,5 +1416,29 @@ American singer Angie Stone, who was nominated for three Grammy Awards, died at 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm)
+
+---
+
+# Zelensky gets warm welcome in UK after Trump clash
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793850_1_20250302074020.jpg&q=90)
+  
+
+British Prime Minister Keir Starmer on Saturday gave Volodymyr Zelensky a warm welcome in London, a day after the Ukrainian leader's clash with US President Donald Trump.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793850-20250302.htm)
 
 ---

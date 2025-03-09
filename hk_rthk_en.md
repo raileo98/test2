@@ -1,3 +1,27 @@
+# Mainland sees large year-on-year drop in inflation
+
+![Customers buy vegetables at a supermarket in Handan in Hebei province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
+  
+
+China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm)
+
+---
+
 # Man with Palestinian flag scales Big Ben
 
 ![Police said they had been alerted to a man climbing up the Elizabeth Tower at the Houses of Parliament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794937_1_20250309005211.jpg&q=85)
@@ -91,30 +115,6 @@ The director of the central government's liaison office, Zheng Yanxiong, on Satu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm)
-
----
-
-# Big Ben shut as man with Palestinian flag scales tower
-
-![An emergency team using a fire truck lift tried to speak with the man. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794929_1_20250308205432.jpg&q=80)
-  
-
-UK police closed the area around Big Ben in London on Saturday after a man holding a Palestinian flag climbed up the tower housing the famous clock and bell.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794929-20250308.htm)
 
 ---
 

@@ -1,5 +1,30 @@
+# 全國兩會｜政協屠海鳴稱要深化一國兩制認識　提升社會責任感
+
+![政協屠海鳴稱近年香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794958_1_20250309101721.jpg&q=85)
+  
+
+在北京，全國政協港澳台僑委員會副主任屠海鳴表示，近年來，香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。有人認為一國兩制只是解決歷史遺留問題的權宣之計；有人認為一國兩制事關香港，與內地發展、強國建設、民族復興關聯不大；還有人對一國兩制的價值理念認識不深。他認為，要深化一國兩制實踐教育，提升文化自信和國家認同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm)
+
+---
+
 # 陳美寶︰的士車隊可按咪錶收費或以「包車」形式定收費
 
+![陳美寶認為的士車隊最重要是服務質素，能追上時代。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794957_1_20250309100814.jpg&q=70)
   
 
 運輸及物流局局長陳美寶表示，新成立的5支的士車隊有三大特色，包括由專業的管理人管理、擁抱科技，而且司機經過專業培訓，首支車隊將於3月底投入服務。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm)
-
----
-
-# 美烏外長通電話　魯比奧：特朗普決心盡快結束俄烏戰事
-
-![魯比奧強調，各方必須採取措施確保持久和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794868_1_20250308112237.jpg&q=90)
-  
-
-美國國務卿魯比奧與烏克蘭外長瑟比加通電話。美國國務院在聲明中表示，魯比奧向瑟比加強調，總統特朗普決心盡快結束俄烏戰事，各方必須採取措施確保持久和平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm)
 
 ---

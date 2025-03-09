@@ -1,3 +1,27 @@
+# 全國兩會｜政協屠海鳴稱要深化一國兩制認識　提升社會責任感
+
+![政協屠海鳴稱近年香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794958_1_20250309101721.jpg&q=85)
+  
+
+在北京，全國政協港澳台僑委員會副主任屠海鳴表示，近年來，香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。有人認為一國兩制只是解決歷史遺留問題的權宣之計；有人認為一國兩制事關香港，與內地發展、強國建設、民族復興關聯不大；還有人對一國兩制的價值理念認識不深。他認為，要深化一國兩制實踐教育，提升文化自信和國家認同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm)
+
+---
+
 # 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
 
 ![王瑞軍回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱執法及外交部門通力協作　切除網路電詐毒瘤
-
-![王毅指，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794707_1_20250307121058.jpg&q=90)
-  
-
-在北京，外長王毅表示，網賭電詐是老百姓憂心的大事，也是中方抓住不放的要事。一段時間以來，在中國和周邊國家領導人共同關心下，執法和外交部門通力協作，有效開展跨境合作，全力解救受困中國公民。臨近邊境的緬北電詐園區已經全部清除，中國、泰國、緬甸、老撾四個國家正合力對泰緬邊境地區的電詐進行集中打擊。任務是斬斷伸向人民群眾的黑手，切除網絡電詐這顆毒瘤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
 
 ---

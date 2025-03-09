@@ -1,3 +1,27 @@
+# Mainland sees large year-on-year drop in inflation
+
+![Customers buy vegetables at a supermarket in Handan in Hebei province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
+  
+
+China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm)
+
+---
+
 # US stocks end higher after Powell remarks
 
 ![The broad-based S&P 500 finished at 5,770, up 0.6 percent for the day but down 3.1 percent for the week. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794835_1_20250308054159.jpg&q=85)
@@ -1411,29 +1435,5 @@ Chinese tech giant Alibaba said on Monday it will invest more than 380 billion y
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm)
-
----
-
-# HK stocks open marginally lower
-
-![Asian stocks were set to open lower following a poor showing on Wall Street on Friday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792891_1_20250224100257.jpg&q=90)
-  
-
-Hong Kong's Hang Seng Index fell 5.78 points, or 0.02 percent, to open at 23,472 points on Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792891-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792891-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792891-20250224.htm)
 
 ---
