@@ -1,3 +1,27 @@
+# 陳翊庭︰港股今年平均每日成交額暫破2千億　「遺址論」不攻自破
+
+![陳翊庭說，「遺址論」已不攻自破，不管新股市場、交易量均可見完全推翻有關說法。（本台節目《舊日的足跡》）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794960_1_20250309102619.jpg&q=80)
+  
+
+港交所行政總裁陳翊庭表示，去年本港共有71間公司新上市，融資額達880億元，較2023年增加約9成。而由年初至3月，已有11宗新股上市，同時有百多間公司排隊上市。她又說，港股成交額在過去一年亦有很大進步，由23年平均每日成交金額大約1000億元，升至去年的1320億元，而在今年暫時已突破2000億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm)
+
+---
+
 # 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
 
 ![發改委鄭備稱已有力有序推動「兩新」工作，帶動重點消費品銷售明顯增長，包括汽車。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_2_20250309094932.jpg&q=60)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
-
----
-
-# 滬深股市半日個別發展　創業板指數半日跌約1%
-
-![內地股市今早個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794705_1_20250307114822.jpg&q=85)
-  
-
-內地股市今早個別發展。有色、軍工及鋼鐵股向好；金融、地產及光伏設備股份表現較弱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794705-20250307.htm)
 
 ---

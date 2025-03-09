@@ -1,3 +1,51 @@
+# 美國民主黨反對共和黨提出臨時撥款法案
+
+![共和黨籍的眾議院議長約翰遜希望星期二就法案投票。民主黨反對法案削減非國防支出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794961_1_20250309103550.jpg&q=80)
+  
+
+美國眾議院共和黨公布一項為期6個月的臨時政府撥款法案，避免本月14日聯邦政府停擺。民主黨反對法案削減非國防支出、賦予行政部門過大權力，以及缺乏對社保、醫保等民生項目的保障。眾議院少數黨領袖傑弗里斯表示，共和黨此舉等同放棄通過全年撥款法案協助中產階層和保障國家安全的談判機會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm)
+
+---
+
+# 陳翊庭︰港股今年平均每日成交額暫破2千億　「遺址論」不攻自破
+
+![陳翊庭說，「遺址論」已不攻自破，不管新股市場、交易量均可見完全推翻有關說法。（本台節目《舊日的足跡》）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794960_1_20250309102619.jpg&q=80)
+  
+
+港交所行政總裁陳翊庭表示，去年本港共有71間公司新上市，融資額達880億元，較2023年增加約9成。而由年初至3月，已有11宗新股上市，同時有百多間公司排隊上市。她又說，港股成交額在過去一年亦有很大進步，由23年平均每日成交金額大約1000億元，升至去年的1320億元，而在今年暫時已突破2000億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm)
+
+---
+
 # 全國兩會｜政協屠海鳴稱要深化一國兩制認識　提升社會責任感
 
 ![政協屠海鳴稱近年香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794958_1_20250309101721.jpg&q=85)
@@ -48,7 +96,7 @@
 
 # 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
 
-![王瑞軍回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
   
 
 在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
-
----
-
-# 全國兩會 | 甯漢豪稱全力將北都有關土地建設及基建工程做好
-
-![甯漢豪說，會採用多元發展模式，以創新思維更靈活善用市場力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794882_1_20250308132219.jpg&q=70)
-  
-
-發展局局長甯漢豪表示，會與團隊全力以赴，讓香港得以充分發揮「一國兩制」下的獨特地位和優勢，全力拼經濟、謀發展、搞建設。其中，北部都會區對香港社會和經濟發展至為關鍵，有助香港突破長久以來土地不足的瓶頸，發展局會全力將北都有關土地建設及基建工程做好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm)
-
----
-
-# 特朗普稱「強烈考慮」對俄實施大規模制裁
-
-![特朗普認為在結束戰事的努力中，他與俄羅斯打交道「更容易」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794881_2_20250308132504.jpg&q=90)
-  
-
-俄羅斯星期五對烏克蘭能源設施發動大規模的無人機和導彈攻擊後，美國總統特朗普在旗下社交平台發文說，考慮對俄羅斯實施大規模制裁。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm)
 
 ---

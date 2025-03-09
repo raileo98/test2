@@ -1,3 +1,27 @@
+# 美國民主黨反對共和黨提出臨時撥款法案
+
+![共和黨籍的眾議院議長約翰遜希望星期二就法案投票。民主黨反對法案削減非國防支出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794961_1_20250309103550.jpg&q=80)
+  
+
+美國眾議院共和黨公布一項為期6個月的臨時政府撥款法案，避免本月14日聯邦政府停擺。民主黨反對法案削減非國防支出、賦予行政部門過大權力，以及缺乏對社保、醫保等民生項目的保障。眾議院少數黨領袖傑弗里斯表示，共和黨此舉等同放棄通過全年撥款法案協助中產階層和保障國家安全的談判機會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm)
+
+---
+
 # 聯合國官員敦促敘利亞衝突各方立即停止敵對行動
 
 ![敘利亞軍方人員坐車前往拉塔基亞，加入對付效忠前政權武裝人員的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794954_1_20250309092001.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm)
-
----
-
-# 特朗普：可能延長TikTok賣盤截止期限
-
-![特朗普說，對TikTok有很大興趣。如果需要，他可能會延長TikTok賣盤的截止期限。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794730_1_20250307142757.jpg&q=90)
-  
-
-美國總統特朗普表示，如果限期屆滿時仍未達成交易，他可能延長短片分享平台TikTok賣盤的截止期限。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm)
 
 ---

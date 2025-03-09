@@ -1,3 +1,27 @@
+# 陳翊庭︰港股今年平均每日成交額暫破2千億　「遺址論」不攻自破
+
+![陳翊庭說，「遺址論」已不攻自破，不管新股市場、交易量均可見完全推翻有關說法。（本台節目《舊日的足跡》）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794960_1_20250309102619.jpg&q=80)
+  
+
+港交所行政總裁陳翊庭表示，去年本港共有71間公司新上市，融資額達880億元，較2023年增加約9成。而由年初至3月，已有11宗新股上市，同時有百多間公司排隊上市。她又說，港股成交額在過去一年亦有很大進步，由23年平均每日成交金額大約1000億元，升至去年的1320億元，而在今年暫時已突破2000億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm)
+
+---
+
 # 全國兩會｜政協屠海鳴稱要深化一國兩制認識　提升社會責任感
 
 ![政協屠海鳴稱近年香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794958_1_20250309101721.jpg&q=85)
@@ -48,7 +72,7 @@
 
 # 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
 
-![王瑞軍回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
   
 
 在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
-
----
-
-# 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794778_1_20250307183034.jpg&q=80)
-  
-
-中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
 
 ---

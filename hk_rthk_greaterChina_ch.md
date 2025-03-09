@@ -24,7 +24,7 @@
 
 # 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
 
-![王瑞軍回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
   
 
 在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
