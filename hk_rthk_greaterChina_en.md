@@ -48,7 +48,7 @@ Each Legislative Council election should be better than the previous one, accord
 
 # 'Capitalise on One Country, Two Systems'
 
-![Tu Haiming says the One Country, Two Systems principle helps Hong Kong and Macau maintain their long-term prosperity and stability. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_2_20250309115720.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_2_20250309115720.jpg&q=75)
   
 
 Hong Kong and Macau delegates to the country's top political advisory body said the two SARs should make good use of their advantages under the One Country, Two Systems principle.
