@@ -1,3 +1,26 @@
+# 麥美娟︰本屆政府上任後青年宿舍宿位增至3千個
+
+  
+
+民政及青年事務局局長麥美娟表示，今屆政府上任後，青年宿舍宿位由80個，增加至3千個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm)
+
+---
+
 # 全國兩會｜王曉萍形容穩定和擴大就業任務繁重　總體態勢向好
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm)
-
----
-
-# 全國兩會 | 趙樂際稱今年審議34件法律案　維護特區憲制秩序
-
-![趙樂際在工作報告指，過去一年各項工作取得新的進展和成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794907_1_20250308164711.jpg&q=90)
-  
-
-十四屆全國人大三次會議上午在北京人民大會堂舉行第二次全體會議，習近平等黨和國家領導人出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm)
 
 ---

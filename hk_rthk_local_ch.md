@@ -1,3 +1,26 @@
+# 麥美娟︰本屆政府上任後青年宿舍宿位增至3千個
+
+  
+
+民政及青年事務局局長麥美娟表示，今屆政府上任後，青年宿舍宿位由80個，增加至3千個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm)
+
+---
+
 # 孫玉菡料「高才通」續簽高峰期第二季出現
 
 ![孫玉菡相信，「高才通」續簽高峰期第二季開始出現。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794983_1_20250309152855.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm)
-
----
-
-# 21歲以下吸毒人數上升　禁常會籲針對太空油毒品加強禁毒宣傳
-
-![李國棟建議政府繼續全方位加強禁毒宣傳。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794799_1_20250307210439.jpg&q=55)
-  
-
-去年被呈報的整體吸毒人數較前年下降9%，有5068人，最常被吸食的三類毒品分別為海洛英、可卡因及「冰毒」。但21歲以下青少年吸毒人數則上升8%達到720人，當中226人吸食太空油毒品。在這個群組中，最常被吸食的毒品依次為大麻、可卡因及太空油毒品，太空油毒品自去年上半年起，已成為此群組第三位最常被吸食的毒品。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm)
 
 ---
