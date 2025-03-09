@@ -1,5 +1,30 @@
+# 關注病人組織調查　多受訪者冀新醫學院培育仁醫及具科研實力
+
+![調查訪問500多名市民，逾七成受訪者指第三間醫學院最重要是培育具醫德的醫生。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794978_1_20250309141058.jpg&q=75)
+  
+
+政府提出支持本地大學籌建第三所醫學院，關注病人權益的團體就此措施經網上問卷，訪問了500多名市民意見。其中，在課程內容方面，超過七成受訪者認為最重要是培育具醫德、仁心仁術的醫生，另外亦較多受訪者期望第三間醫學院，能透過醫療創科培育出學生創新精神、能力和態度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm)
+
+---
+
 # 財政預算案2025 | 孫玉菡：社福恆常開支看不到空間再調整
 
+![孫玉菡指出，服務兒童或長者的社福機構，一般需於地面及低層提供設施，但涉及開支較高。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794977_1_20250309141657.jpg&q=90)
   
 
 新一份財政預算案提出，於2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，就社福恆常開支，已看不到再有空間可作額外調整。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm)
-
----
-
-# 大熊貓龍鳳胎命名比賽收3萬多份建議　「家姐」「細佬」留作乳名
-
-![海洋公園表示，「家姐」「細佬」的暱稱會保留做乳名。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794898_1_20250308155623.jpg&q=20)
-  
-
-港產大熊貓龍鳳胎的命名大賽截止，海洋公園表示，共收到超過35700份命名建議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794898-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794898-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794898-20250308.htm)
 
 ---

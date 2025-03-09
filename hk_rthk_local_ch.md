@@ -1,5 +1,30 @@
+# 關注病人組織調查　多受訪者冀新醫學院培育仁醫及具科研實力
+
+![調查訪問500多名市民，逾七成受訪者指第三間醫學院最重要是培育具醫德的醫生。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794978_1_20250309141058.jpg&q=75)
+  
+
+政府提出支持本地大學籌建第三所醫學院，關注病人權益的團體就此措施經網上問卷，訪問了500多名市民意見。其中，在課程內容方面，超過七成受訪者認為最重要是培育具醫德、仁心仁術的醫生，另外亦較多受訪者期望第三間醫學院，能透過醫療創科培育出學生創新精神、能力和態度。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm)
+
+---
+
 # 財政預算案2025 | 孫玉菡：社福恆常開支看不到空間再調整
 
+![孫玉菡指出，服務兒童或長者的社福機構，一般需於地面及低層提供設施，但涉及開支較高。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794977_1_20250309141657.jpg&q=90)
   
 
 新一份財政預算案提出，於2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，就社福恆常開支，已看不到再有空間可作額外調整。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
-
----
-
-# 全國兩會｜何超瓊建議構建跨境低空觀光及接駁航線
-
-![何超瓊建議，推動大灣區智慧交通系統普及化，完善共享機制，推動航線創新。（信德集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794792_1_20250307185447.jpg&q=85)
-  
-
-全國政協常委、信德集團行政主席何超瓊建議，聯合民航局、港澳交通部門，開通「港澳—珠海橫琴」、「港澳—廣州南沙」跨境低空觀光及接駁航線、試點直升機等，進一步拓展「多式聯運」網絡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm)
 
 ---
