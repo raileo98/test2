@@ -1,3 +1,26 @@
+# LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
+
+  
+
+LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm)
+
+---
+
 # 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
 
 ![羅淑佩說，正與LIV Golf主辦方密切聯繫，目標雙方能建立長期合作關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794993_1_20250309172626.jpg&q=60)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793752-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793752-20250301.htm)
-
----
-
-# 世界格蘭披治桌球大獎賽下周在港舉行　4千張表演賽門票免費派發
-
-![世界格蘭披治桌球大獎賽首次在香港舉行，賽事在3月4日、下周二起一連6日在啟德體育園啟德體藝館舉行。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793726_1_20250228225747.jpg&q=90)
-  
-
-世界格蘭披治桌球大獎賽首次在香港舉行，賽事在3月4日、下周二起一連6日在啟德體育園啟德體藝館舉行。全球排名前32名的桌球選手將會參與。3月8日及9日早上11時將舉行表演賽，大會免費派發共4000張表演賽門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm)
 
 ---

@@ -1,3 +1,26 @@
+# LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
+
+  
+
+LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm)
+
+---
+
 # 美國特勤局人員在白宮附近開槍擊中一名持槍男子
 
 ![特勤局人員在白宮附近，開槍擊中一名持槍男子。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795010_1_20250309204036.jpg&q=75)
@@ -1412,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm)
-
----
-
-# 往來峻巒至元朗站小巴獲批「紅轉綠」　明日投入服務
-
-![運輸署表示，由相關專線小巴路線轉乘港鐵或由港鐵轉乘相關路線，可享有5毫轉乘優惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794936_1_20250308225949.jpg&q=90)
-  
-
-兩條紅色小巴路線的營辦商按「特選紅轉綠」計劃，轉為綠色專線小巴路線模式營運，其中往來元朗峻巒至元朗站朗明街的循環線，將於明日投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm)
 
 ---
