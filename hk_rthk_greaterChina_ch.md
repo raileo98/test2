@@ -1,3 +1,27 @@
+# 全國兩會｜台聯陳雲英批台灣當局禁學生與三大陸學府交流或招不滿
+
+![在北京，台灣人大代表團舉行全體會議。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794970_1_20250309120720.jpg&q=75)
+  
+
+在北京，台灣人大代表團舉行全體會議，並接受傳媒提問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm)
+
+---
+
 # 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
 
 ![陳茂波說，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794967_1_20250309115602.jpg&q=90)
@@ -1416,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
-
----
-
-# 全國兩會｜孫青野：修改國安法由人大決定　陳弘毅：不涉輸打贏要
-
-![孫青野認為《國安法》實施得好，是否應該修改由人大決定。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794714_1_20250307124735.jpg&q=85)
-![陳弘毅說，現有法例隨時可以修改，不涉及輸打贏要。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794714_2_20250307124735.jpg&q=90)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。特區政府表示，會研究如何進一步完善香港特區維護國家安全的法律制度及執行機制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 全國兩會｜台聯陳雲英批台灣當局禁學生與三大陸學府交流或招不滿
+
+![在北京，台灣人大代表團舉行全體會議。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794970_1_20250309120720.jpg&q=75)
+  
+
+在北京，台灣人大代表團舉行全體會議，並接受傳媒提問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm)
+
+---
+
 # 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
 
 ![陳茂波說，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794967_1_20250309115602.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm)
-
----
-
-# 財政預算案2025 | 孫玉菡：削資導致數千人手流失說法誤導
-
-![孫玉菡說，大多數社福機構都很珍惜員工，預期多數的機構都會想辦法留低員工。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794887_1_20250308140200.jpg&q=90)
-  
-
-預算案提出節省政府經常開支，2027至28年度的累計減幅為7%。勞工及福利局局長孫玉菡在一個電視節目表示，日前與170多間社福機構代表見面，交代要在資源效率優化計劃下削減開支，他認為會面氣氛友善，大家都基本明白政府的狀況，想辦法應對。他說，在僅有資源下，當局會盡量協助中小型的社福機構，但他們仍要承擔3%的削減。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm)
 
 ---
