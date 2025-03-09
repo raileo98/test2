@@ -1,3 +1,26 @@
+# 哈馬斯稱切斷加沙供電證實以方堅持用饑餓政策完成種族滅絕
+
+  
+
+巴勒斯坦武裝組織哈馬斯表示，以色列宣布切斷電力供應的行為，證實以方堅持透過使用饑餓政策來完成對加沙的種族滅絕，明顯無視所有國際法準則。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm)
+
+---
+
 # 伊朗稱企圖廢除伊朗和平核計劃的談判將永遠不會發生
 
 ![伊朗說，如果談判的目的是廢除伊朗的和平核計劃，談判將永遠不會發生。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795021_1_20250310022522.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm)
-
----
-
-# 澤連斯基指俄軍再襲烏克蘭能源設施　使用導彈及無人機
-
-![澤連斯基說目前各地正進行救援及恢復工作。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794823_1_20250308012954.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，俄軍再次對烏克蘭能源設施，發動大規模襲擊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm)
 
 ---

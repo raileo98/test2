@@ -1,3 +1,26 @@
+# 哈馬斯稱切斷加沙供電證實以方堅持用饑餓政策完成種族滅絕
+
+  
+
+巴勒斯坦武裝組織哈馬斯表示，以色列宣布切斷電力供應的行為，證實以方堅持透過使用饑餓政策來完成對加沙的種族滅絕，明顯無視所有國際法準則。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm)
+
+---
+
 # 中國成功發射通信技術試驗衛星十五號
 
 ![通信技術試驗衛星十五號成功發射升空。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795022_1_20250310022450.jpg&q=90)
@@ -1413,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm)
-
----
-
-# 德甲拜仁十人應戰下　2:3不敵波琴
-
-![拜仁慕尼黑主場落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794949_1_20250309071718.jpg&q=90)
-  
-
-德國甲組足球聯賽，榜首的拜仁慕尼黑主場2:3不敵波琴。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm)
 
 ---
