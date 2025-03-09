@@ -1,3 +1,26 @@
+# 敘利亞成立國家委員會調查西部襲擊和衝突事件
+
+  
+
+敘利亞總統府宣布，成立一個獨立的國家委員會，調查上星期四以來西部沿海地區發生的襲擊和衝突事件。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm)
+
+---
+
 # 以色列切斷加沙供電　迫使哈馬斯釋放被扣押人員
 
   
@@ -1413,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm)
-
----
-
-# 多倫多酒吧槍擊案槍手仍在逃　傷者無生命危險
-
-![鄒至惠說對案件深感不安。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794945_1_20250309063427.jpg&q=90)
-  
-
-加拿大多倫多市酒吧導致12人受傷的槍擊案，警方在交代案情的記者會上表示，事發時3名男子向酒吧內的民眾隨機開槍，其中6名傷者所受的是槍傷，無生命危險，槍手仍然在逃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm)
 
 ---

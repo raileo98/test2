@@ -1,3 +1,26 @@
+# 敘利亞成立國家委員會調查西部襲擊和衝突事件
+
+  
+
+敘利亞總統府宣布，成立一個獨立的國家委員會，調查上星期四以來西部沿海地區發生的襲擊和衝突事件。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm)
+
+---
+
 # 以色列切斷加沙供電　迫使哈馬斯釋放被扣押人員
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm)
-
----
-
-# 武契奇與普京通電話商合作及地區局勢等議題
-
-![武契奇上月中表示，近期發生在塞爾維亞的抗議活動由外部勢力策劃。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794821_1_20250308011356.jpg&q=90)
-  
-
-塞爾維亞總統武契奇與俄羅斯總統普京通電話，討論雙邊關係、經濟合作及地區局勢等議題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm)
 
 ---
