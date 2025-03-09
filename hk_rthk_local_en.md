@@ -1,3 +1,27 @@
+# 'Reduce waste by allowing water bottles into venues'
+
+![A number of spectators were seen with bottled water next to their seats during Sunday's World Snooker Grand Prix final at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794990_1_20250309170511.jpg&q=85)
+  
+
+A rule banning spectators from bringing water bottles into competition venues at Kai Tak Sports Park should be relaxed to reduce waste, a green group said, after noticing exemptions were given to certain guests.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm)
+
+---
+
 # Kai Tak terminal to host 17 cruise ships this month
 
 ![Four cruise ships are visiting the SAR this weekend, drawing 5,400 tourists. Photo courtesy of Tourism Board](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794998_1_20250309171406.jpg&q=80)
@@ -1414,29 +1438,5 @@ Commerce Secretary Algernon Yau on Tuesday said the SAR government still doesn't
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794132-20250304.htm)
-
----
-
-# Facial recognition mulled after alleged Kai Tak breach
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794130_1_20250304121509.jpg&q=80)
-  
-
-Facial recognition technology could be deployed at Kai Tak Sports Park and other venues to stop people sneaking in without permission, Culture, Sports and Tourism Secretary Rosanna Law said on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
 
 ---

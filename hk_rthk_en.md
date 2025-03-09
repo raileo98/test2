@@ -1,3 +1,27 @@
+# 'Reduce waste by allowing water bottles into venues'
+
+![A number of spectators were seen with bottled water next to their seats during Sunday's World Snooker Grand Prix final at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794990_1_20250309170511.jpg&q=85)
+  
+
+A rule banning spectators from bringing water bottles into competition venues at Kai Tak Sports Park should be relaxed to reduce waste, a green group said, after noticing exemptions were given to certain guests.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm)
+
+---
+
 # Kai Tak terminal to host 17 cruise ships this month
 
 ![Four cruise ships are visiting the SAR this weekend, drawing 5,400 tourists. Photo courtesy of Tourism Board](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794998_1_20250309171406.jpg&q=80)
@@ -1412,29 +1436,5 @@ A New Mexico resident who has died, tested positive for measles, the state healt
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm)
-
----
-
-# Hong Kong stocks open lower
-
-![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=50)
-  
-
-Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street over US President Donald Trump's shifting trade policy, while European bourses advanced following an ECB interest rate cut.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
 
 ---
