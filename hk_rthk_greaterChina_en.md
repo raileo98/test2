@@ -1,3 +1,27 @@
+# China's job market to be stable this year: official
+
+![The minister of human resources and social security, Wang Xiaoping, says she expects the labour market situation to remain stable this year. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
+  
+
+Beijing officials on Sunday said it is not easy to stabilise and expand the job market, but they expect there will be good outcomes with high-quality development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm)
+
+---
+
 # Link HK closely to national development, says FS
 
 ![Paul Chan says Hong Kong needs to integrate the spirit of the Two Sessions into its development. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794969_1_20250309120252.jpg&q=85)
@@ -1413,29 +1437,5 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
-
----
-
-# CPPCC annual session to run till March 10
-
-![Liu Jieyi says 2024 was a critical year for realising goals and tasks set forth in the 14th Five-Year Plan. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794001_1_20250303172238.jpg&q=90)
-  
-
-The annual session of China's top political advisory body will run from Tuesday to March 10, authorities announced on Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794001-20250303.htm)
 
 ---

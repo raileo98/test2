@@ -1,3 +1,27 @@
+# Kai Tak terminal to host 17 cruise ships this month
+
+![Four cruise ships are visiting the SAR this weekend, drawing 5,400 tourists. Photo courtesy of Tourism Board](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794998_1_20250309171406.jpg&q=80)
+  
+
+Seventeen large cruise ships will visit Hong Kong this month, according to Secretary for Culture, Sports and Tourism Rosanna Law.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm)
+
+---
+
 # 'Improve doctors' training at new medical school'
 
 ![Two patients' groups unveil findings of their survey on Hong Kong's third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794994_1_20250309165758.jpg&q=75)
@@ -1414,29 +1438,5 @@ Facial recognition technology could be deployed at Kai Tak Sports Park and other
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794130-20250304.htm)
-
----
-
-# 'No major policy shifts at Two Sessions expected'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793998_1_20250303165106.jpg&q=85)
-  
-
-A local economics academic said he does not expect major policy shifts in the "Two Sessions" meetings in Beijing, saying it's important for the central government to focus on stabilising sentiment and continuing with high-quality growth.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793998-20250304.htm)
 
 ---

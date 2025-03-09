@@ -1,3 +1,50 @@
+# 加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布
+
+![加拿大執政自由黨新黨魁選舉共有4名候選人競逐。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794997_1_20250309171207.jpg&q=90)
+  
+
+加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布，勝出者將會與現任總理杜魯多交接，並成為加拿大新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm)
+
+---
+
+# 全國兩會｜倪虹︰建設好房子關係到獲得感與幸福感
+
+  
+
+在北京，住建部部長倪虹表示，當前房地產市場供求關係發生重大變化，民眾住房需求開始從「有沒有」轉向「好不好」。他說，建設好房子，關係到民眾的獲得感和幸福感；住房發展的目的，歸根到底是要適應民眾對高品質住房需要。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm)
+
+---
+
 # 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
 
   
@@ -23,6 +70,7 @@
 
 # 財政預算案2025 | 研籃球博彩　麥美娟︰會規範非法賭博
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794992_1_20250309171044.jpg&q=85)
   
 
 財政預算案提出將積極探討規範籃球博彩活動，民政及青年事務局局長麥美娟表示，政府不鼓勵賭博，面對非法賭博問題，將採取多方面措施，包括嚴厲執法、做好宣傳教育及作出規範。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm)
-
----
-
-# 全國兩會｜最高人民法院：以嚴格公正司法維護國家安全和社會穩定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794919_1_20250308182808.jpg&q=80)
-  
-
-最高人民法院院長張軍發表工作報告，提到過去一年嚴厲打擊嚴重危害社會秩序犯罪，包括嚴懲涉及緬甸北部等跨境電信網絡詐騙犯罪，審結電信網絡詐騙案件4萬宗，涉及超過8萬多人，按年增長26.7%，以嚴格公正司法維護國家安全和社會穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm)
-
----
-
-# 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
-
-![國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794918_1_20250308180346.jpg&q=90)
-  
-
-由香港西九龍出發至北京和上海的「夕發朝至」高鐵動卧列車，去年6月開通。全國人大代表、國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車，車程時間壓縮對促進香港與內地人員、經貿和文化往來，推動香港更好融入國家發展大局具有重要作用，鐵路部門將密切關注京港、滬港之間高鐵動卧列車開行情況，根據客流需要和技術條件適時優化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm)
 
 ---

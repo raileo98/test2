@@ -1,3 +1,51 @@
+# Kai Tak terminal to host 17 cruise ships this month
+
+![Four cruise ships are visiting the SAR this weekend, drawing 5,400 tourists. Photo courtesy of Tourism Board](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794998_1_20250309171406.jpg&q=80)
+  
+
+Seventeen large cruise ships will visit Hong Kong this month, according to Secretary for Culture, Sports and Tourism Rosanna Law.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm)
+
+---
+
+# China's job market to be stable this year: official
+
+![The minister of human resources and social security, Wang Xiaoping, says she expects the labour market situation to remain stable this year. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
+  
+
+Beijing officials on Sunday said it is not easy to stabilise and expand the job market, but they expect there will be good outcomes with high-quality development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm)
+
+---
+
 # 'Improve doctors' training at new medical school'
 
 ![Two patients' groups unveil findings of their survey on Hong Kong's third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794994_1_20250309165758.jpg&q=75)
@@ -1388,53 +1436,5 @@ Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street ov
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
-
----
-
-# French shipping giant pledges to boost US shipbuilding
-
-![President Trump listens as Rodolphe Saade, CEO of CMA CGM Group, speaks in the Oval Office. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794675_1_20250307092145.jpg&q=75)
-  
-
-US President Donald Trump on Thursday said French-based shipping firm CMA CGM would invest US$20 billion in the United States to build out shipping logistics and terminals.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm)
-
----
-
-# Cyclone Alfred edges closer to Australia's east coast
-
-![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=30)
-  
-
-Violent winds toppled power lines on Friday as a tropical cyclone inched towards Australia's eastern coast, sparking evacuation orders and leaving more than 50,000 homes without electricity.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm)
 
 ---

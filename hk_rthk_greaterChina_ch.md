@@ -1,3 +1,26 @@
+# 全國兩會｜倪虹︰建設好房子關係到獲得感與幸福感
+
+  
+
+在北京，住建部部長倪虹表示，當前房地產市場供求關係發生重大變化，民眾住房需求開始從「有沒有」轉向「好不好」。他說，建設好房子，關係到民眾的獲得感和幸福感；住房發展的目的，歸根到底是要適應民眾對高品質住房需要。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm)
+
+---
+
 # 全國兩會｜倪虹︰要鞏固房地產政策組合拳效果　將減息等效應釋放
 
 ![倪虹說，未來要改革完善商品房開發等制度， 促進市場平穩健康發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794991_1_20250309165358.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
-
----
-
-# 全國兩會｜馬逢國：丁薛祥特別強調二十三條立法圓滿完成
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794777_2_20250307183326.jpg&q=85)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥列席港區人大代表團會議，港區人大代表團團長馬逢國表示，丁薛祥在講話中特別強調《基本法》第二十三條立法圓滿完成，認為是補足了短板；又提及要做好年輕人教育，特別是對國家的概念。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
 
 ---
