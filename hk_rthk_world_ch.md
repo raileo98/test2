@@ -1,3 +1,27 @@
+# 馮德萊恩：歐盟仍視美國為盟友　安全保障是優先事項
+
+![馮德萊恩強調，歐盟仍然視美國為盟友。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795017_1_20250309225853.jpg&q=90)
+  
+
+歐盟委員會主席馮德萊恩說，安全保障仍是歐盟目前的優先事項，經濟和創新潛力是保障歐盟安全的資產。她提出，「重新武裝歐洲」計劃將增強歐盟的防務和單一市場，歐盟將於本月推出一項新的、適用於歐盟國防工業的簡化方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm)
+
+---
+
 # 菲律賓前總統杜特爾特與女兒到港爭取支持並為所屬政黨候選人拉票
 
 ![杜特爾特表示，聽聞國際刑事法院已經對他發出逮捕令的消息，強調自己沒有做錯事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795013_1_20250309214714.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
-
----
-
-# 日本岩手縣山火火勢減弱　當局解除部分地區疏散指示
-
-![大船渡市有房屋被山火燒毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794807_1_20250307214310.jpg&q=75)
-  
-
-日本岩手縣消防部門及自衛隊的大型直升機繼續撲救大船渡市的山火。由於降雨使火勢有所減弱，當局解除對不再有蔓延隱患的赤崎町6個地區、超過950名居民的疏散指示，是山火發生以來首次。至於對三陸町綾里全境等3600多名居民的疏散指示繼續有效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm)
 
 ---
