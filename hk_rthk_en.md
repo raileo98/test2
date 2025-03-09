@@ -1,3 +1,27 @@
+# India beat NZ to win Champions Trophy final
+
+![India players celebrate on the podium after winning the ICC Men's Champions Trophy. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795030_1_20250310061006.jpg&q=75)
+  
+
+Rohit Sharma made a combative 76 to back up a potent spin bowling display as India beat New Zealand by four wickets to win a record third Champions Trophy title.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm)
+
+---
+
 # Arsenal held by Man Utd in latest Premiership setback
 
 ![The result leaves Arsenal 15 points behind runaway leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795028_1_20250310054122.jpg&q=75)
@@ -1413,29 +1437,5 @@ Police on Friday said they hope traffic congestion in Kwun Tong would be eased f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm)
-
----
-
-# Golden era for low-altitude economy: CPPCC delegates
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
-  
-
-China has ushered in a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
 
 ---

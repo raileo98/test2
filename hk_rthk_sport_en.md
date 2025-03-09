@@ -1,3 +1,27 @@
+# India beat NZ to win Champions Trophy final
+
+![India players celebrate on the podium after winning the ICC Men's Champions Trophy. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795030_1_20250310061006.jpg&q=75)
+  
+
+Rohit Sharma made a combative 76 to back up a potent spin bowling display as India beat New Zealand by four wickets to win a record third Champions Trophy title.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm)
+
+---
+
 # Arsenal held by Man Utd in latest Premiership setback
 
 ![The result leaves Arsenal 15 points behind runaway leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795028_1_20250310054122.jpg&q=75)
@@ -1423,29 +1447,5 @@ World number three Carlos Alcaraz was sent crashing out of the Qatar Open in the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792554-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792554-20250221.htm)
-
----
-
-# Wembanyama to miss rest of NBA regular season
-
-![The injury comes after Wembanyama made his first All-Star appearance this year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792542_1_20250221053538.jpg&q=90)
-  
-
-San Antonio Spurs star Victor Wembanyama is expected to miss the rest of the NBA season after being diagnosed with deep vein thrombosis in his right shoulder, the team announced.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm)
 
 ---
