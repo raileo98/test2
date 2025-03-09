@@ -1,3 +1,27 @@
+# 日本東京都有民間團體舉行集會反對使用核電
+
+![2011年東日本大地震引發的海嘯，導致福島第一核電廠遭受嚴重損壞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794975_1_20250309133057.jpg&q=40)
+  
+
+日本東京都有民間團體舉行集會，反對使用核電。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm)
+
+---
+
 # 中伊俄海軍本月上中旬在恰巴哈爾港附近區域聯合演習
 
 ![中國、伊朗及俄羅斯海軍去年3月在阿曼灣組織實施有關聯合演習。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794973_1_20250309131226.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm)
-
----
-
-# 南韓法院決定取消拘留尹錫悅　倘檢方不提抗訴將獲釋
-
-![南韓首爾中央地方法院通過撤銷逮捕尹錫悅的申請，如果檢方不提出抗訴將獲釋。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794749_1_20250307162803.jpg&q=90)
-  
-
-南韓首爾中央地方法院通過被停職總統尹錫悅撤銷逮捕的申請，尹錫悅將獲釋，並在非拘留的狀態下繼續受審。但如果檢方提出抗訴，尹錫悅將無法被釋放，目前正等待檢方的決定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 日本東京都有民間團體舉行集會反對使用核電
+
+![2011年東日本大地震引發的海嘯，導致福島第一核電廠遭受嚴重損壞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794975_1_20250309133057.jpg&q=40)
+  
+
+日本東京都有民間團體舉行集會，反對使用核電。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm)
+
+---
+
 # 全國兩會 | 解放軍：增國防支出用於新域新質作戰力量等方面
 
 ![吳謙說，增加的國防支出主要用於大力發展新域新質作戰力量等方面。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794976_1_20250309134432.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm)
-
----
-
-# 雲南三百多個景區對台灣首來族提供減免門票優惠
-
-![雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794892_1_20250308152101.jpg&q=80)
-  
-
-雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm)
 
 ---
