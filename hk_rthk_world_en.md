@@ -1,3 +1,27 @@
+# Mark Carney to succeed Trudeau as Canadian PM
+
+![During the campaign, Carney said he supported dollar-for-dollar retaliatory tariffs against the United States. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795033_1_20250310065447.jpg&q=90)
+  
+
+Former central banker Mark Carney won the race to become leader of Canada's ruling Liberal Party and will succeed Justin Trudeau as prime minister, official results showed on Sunday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm)
+
+---
+
 # Argentine city hit by a year's worth of rain in hours
 
 ![Rescuers wade through flooded streets in Bahia Blance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794956_1_20250309124021.jpg&q=70)
@@ -1416,29 +1440,5 @@ Hamas on Sunday slammed Israel's suspension of supplies and aid entering Gaza, d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm)
-
----
-
-# Singer Angie Stone dies in car crash
-
-![Stone, a native of South Carolina, was a member of female hip-hop trio The Sequence. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793852_1_20250302083135.jpg&q=85)
-  
-
-American singer Angie Stone, who was nominated for three Grammy Awards, died at 63 early on Saturday, a representative confirmed.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793852-20250302.htm)
 
 ---

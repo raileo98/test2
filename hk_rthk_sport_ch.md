@@ -1,3 +1,28 @@
+# 英超阿仙奴作客1:1逼和曼聯　落後利物浦15分
+
+![迪勤懷斯為兵工廠追平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_1_20250310065425.jpg&q=90)
+![車路士的古古尼也（右）一箭定江山，為球隊全取3分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_2_20250310065425.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，排第二位的阿仙奴作客逼和曼聯1:1，在踢少一場下，落後榜首的利物浦15分。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm)
+
+---
+
 # 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
 
 ![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
@@ -1423,29 +1448,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm)
-
----
-
-# 巴黎當局稱220名運動員要求更換巴黎奧運獎牌
-
-![有巴黎奧運得奬運動員指獎牌「失色」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793753_1_20250301071917.jpg&q=85)
-  
-
-2024巴黎奧運獎牌「失色」事件，巴黎奧組委說會更換損壞的獎牌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm)
 
 ---

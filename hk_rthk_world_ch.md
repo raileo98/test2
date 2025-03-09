@@ -1,3 +1,26 @@
+# 卡尼贏得黨內選舉　成為加拿大自由黨新黨魁
+
+  
+
+加拿大執政黨自由黨選舉新黨魁，由被稱為「政治素人」的前央行行長卡尼勝出，他將與現任總理杜魯多交接，並成為加拿大新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm)
+
+---
+
 # 加拿大執政黨自由黨選舉新黨魁　報道指卡尼獲議會過半黨員支持
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm)
-
----
-
-# 巴赫稱正研究革新奧運贊助商權益　堅守賽場純潔同時創造展示機會
-
-![巴赫表示正考慮放寬有關商業展示限制，調整為更靈活的「清潔賽場政策」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794828_1_20250308022818.jpg&q=90)
-  
-
-國際奧委會將於本月20日舉行新主席選舉，現任主席巴赫接受國際通訊社訪問時表示，國際奧委會正研究在贊助商權益方面進行革新，未來奧運贊助商可能會在奧運舞台上獲得更多展示機會；而在世界拳擊聯合會暫時獲得國際奧委會認可後，拳擊重返奧運舞台亦被提上議事日程。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm)
 
 ---

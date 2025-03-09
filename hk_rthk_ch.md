@@ -1,3 +1,51 @@
+# 英超阿仙奴作客1:1逼和曼聯　落後利物浦15分
+
+![迪勤懷斯為兵工廠追平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_1_20250310065425.jpg&q=90)
+![車路士的古古尼也（右）一箭定江山，為球隊全取3分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_2_20250310065425.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，排第二位的阿仙奴作客逼和曼聯1:1，在踢少一場下，落後榜首的利物浦15分。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm)
+
+---
+
+# 卡尼贏得黨內選舉　成為加拿大自由黨新黨魁
+
+  
+
+加拿大執政黨自由黨選舉新黨魁，由被稱為「政治素人」的前央行行長卡尼勝出，他將與現任總理杜魯多交接，並成為加拿大新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm)
+
+---
+
 # 美股進入夏令時間　本周關注美國上月物價數據
 
 ![美股進入夏令時間，將於香港時間晚上9時半開市，翌日凌晨4時收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795029_1_20250310054609.jpg&q=90)
@@ -1386,53 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm)
-
----
-
-# 全國兩會｜政協屠海鳴稱要深化一國兩制認識　提升社會責任感
-
-![政協屠海鳴稱近年香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794958_1_20250309101721.jpg&q=85)
-  
-
-在北京，全國政協港澳台僑委員會副主任屠海鳴表示，近年來，香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。有人認為一國兩制只是解決歷史遺留問題的權宜之計；有人認為一國兩制事關香港，與內地發展、強國建設、民族復興關聯不大；還有人對一國兩制的價值理念認識不深。他認為，要深化一國兩制實踐教育，提升文化自信和國家認同。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm)
-
----
-
-# 陳美寶︰的士車隊可按咪錶收費或以「包車」形式定收費
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794957_1_20250309100814.jpg&q=70)
-  
-
-運輸及物流局局長陳美寶表示，新成立的5支的士車隊有三大特色，包括由專業的管理人管理、擁抱科技，而且司機經過專業培訓，首支車隊將於3月底投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm)
 
 ---
