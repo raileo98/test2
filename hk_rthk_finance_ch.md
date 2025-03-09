@@ -1,3 +1,27 @@
+# 內地2月PPI按年及按月跌幅收窄　統計局：宏觀政策效果漸顯現
+
+![國家統計局指出，隨著宏觀政策效果逐步顯現，部分行業生產需求增加，帶動上月PPI跌幅收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795027_1_20250310053724.jpg&q=30)
+  
+
+內地2月工業生產者出廠價格指數(PPI)按年跌2.2%，跌幅輕微收窄0.1個百分點，是半年以來最小跌幅，但仍略差於預期。PPI按月跌0.1%，跌幅亦收窄0.1個百分點。今年首兩個月PPI按年跌2.2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm)
+
+---
+
 # 內地2月CPI按年跌0.7%　13個月以來首次轉跌
 
 ![內地2月CPI按年轉跌0.7%，是13個月以來首次下跌。核心CPI亦跌0.1%，逾4年來首次下跌。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795026_1_20250310052735.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm)
-
----
-
-# 日圓匯價轉強　市場關注日本加息步伐
-
-![黃燕娥稱日本債息反映日本央行將持續加息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794720_1_20250307130806.jpg&q=40)
-  
-
-日本央行本月稍後議息，日圓匯價近日轉強。當地正進行薪酬談判。如果工會成功爭取到5.1%加薪幅度，將再創逾30年新高。預計談判結果在議息前公布。市場關注日本今個月加息機會。有市場人士估計，央行會在7月及12月分別加息25個基點。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm)
 
 ---

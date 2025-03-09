@@ -1,3 +1,27 @@
+# 內地2月PPI按年及按月跌幅收窄　統計局：宏觀政策效果漸顯現
+
+![國家統計局指出，隨著宏觀政策效果逐步顯現，部分行業生產需求增加，帶動上月PPI跌幅收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795027_1_20250310053724.jpg&q=30)
+  
+
+內地2月工業生產者出廠價格指數(PPI)按年跌2.2%，跌幅輕微收窄0.1個百分點，是半年以來最小跌幅，但仍略差於預期。PPI按月跌0.1%，跌幅亦收窄0.1個百分點。今年首兩個月PPI按年跌2.2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm)
+
+---
+
 # 內地2月CPI按年跌0.7%　13個月以來首次轉跌
 
 ![內地2月CPI按年轉跌0.7%，是13個月以來首次下跌。核心CPI亦跌0.1%，逾4年來首次下跌。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795026_1_20250310052735.jpg&q=80)
@@ -1411,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm)
-
----
-
-# 男子手持巴勒斯坦旗幟爬上倫敦大笨鐘鐘樓　十多小時後下來
-
-![男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，事件擾攘十多小時。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794953_1_20250309085956.jpg&q=75)
-  
-
-英國倫敦一名男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，經過16個小時後下來。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm)
 
 ---
