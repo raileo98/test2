@@ -24,6 +24,7 @@
 
 # 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
 
+![發改委鄭備稱已有力有序推動「兩新」工作，帶動重點消費品銷售明顯增長，包括汽車。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_2_20250309094932.jpg&q=60)
 ![鄭備表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。（國新網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_1_20250309094405.jpg&q=90)
   
 
