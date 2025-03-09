@@ -1,3 +1,27 @@
+# 中原周末10大屋苑交投升至7宗　美聯維持8宗
+
+![在剛過去的周末，中原10大屋苑二手成交升至7宗，美聯維持8宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795036_1_20250310072302.jpg&q=75)
+  
+
+在剛過去的周末，中原地產10大屋苑二手成交有7宗，按星期回升1宗。零成交屋苑減少1個，減至6個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795036-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795036-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795036-20250310.htm)
+
+---
+
 # 美股進入夏令時間　本周關注美國上月物價數據
 
 ![美股進入夏令時間，將於香港時間晚上9時半開市，翌日凌晨4時收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795029_1_20250310054609.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm)
-
----
-
-# 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
 
 ---
