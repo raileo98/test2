@@ -1,3 +1,26 @@
+# 馬斯克稱不會切斷對烏克蘭「星鏈」服務
+
+  
+
+美國太空探索技術公司行政總裁馬斯克透過社交網站澄清，無論他多麼不同意烏克蘭的政策，都不會切斷對烏克蘭的「星鏈」衛星網絡服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm)
+
+---
+
 # 敘利亞過渡總統指責巴沙爾支持者及外國勢力試圖煽動動亂
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm)
-
----
-
-# 4船於也門及吉布提附近海域翻側最少兩死　多人失蹤
-
-![有關航道是全球最繁忙、風險最高的船民遷移路徑之一。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794826_1_20250308015036.jpg&q=65)
-  
-
-聯合國國際移民組織公布，4艘人蛇船隻在當地星期四晚間，在也門及吉布提附近海域翻側，最少2人死亡，超過180人失蹤。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm)
 
 ---

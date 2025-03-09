@@ -1,3 +1,26 @@
+# 馬斯克稱不會切斷對烏克蘭「星鏈」服務
+
+  
+
+美國太空探索技術公司行政總裁馬斯克透過社交網站澄清，無論他多麼不同意烏克蘭的政策，都不會切斷對烏克蘭的「星鏈」衛星網絡服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm)
+
+---
+
 # 敘利亞過渡總統指責巴沙爾支持者及外國勢力試圖煽動動亂
 
   
@@ -1410,29 +1433,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
-
----
-
-# 全國兩會｜港區人大冼漢迪稱將公布人工智能資助計劃首批機構名單
-
-![冼漢迪透露，「人工智能資助計劃」首批資助機構名單即將公布。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794951_1_20250309085405.jpg&q=90)
-  
-
-全國兩會正在北京召開，政府工作報告提出持續推進「人工智能+」行動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm)
 
 ---
