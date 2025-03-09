@@ -1,3 +1,27 @@
+# 男子手持巴勒斯坦旗幟爬上倫敦大笨鐘鐘樓　十多小時後下來
+
+![男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，事件擾攘十多小時。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794953_1_20250309085956.jpg&q=75)
+  
+
+英國倫敦一名男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，經過16個小時後下來。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm)
+
+---
+
 # 以媒指美國向哈馬斯提議放10人換取延長加沙停火兩個月
 
 ![美國據報提議哈馬斯釋放10名在生被扣除人員，換取延長加沙地帶（圖）停火兩個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794947_1_20250309070040.jpg&q=55)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm)
-
----
-
-# 法院批准取消逮捕申請　尹錫悅獲釋
-
-![尹錫悅上月出席彈劾案審訊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794724_1_20250307134824.jpg&q=80)
-  
-
-因涉嫌帶頭發動內亂而被逮捕起訴的南韓總統尹錫悅獲釋。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794724-20250307.htm)
 
 ---

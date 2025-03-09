@@ -1,3 +1,75 @@
+# 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
+
+  
+
+政府工作報告提出，安排超長期特別國債3000億元人民幣支持消費品「以舊換新」，按年增加一倍。全國人大代表、發改委副主任鄭備，書面接受本台訪問時表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
+
+---
+
+# 全國兩會｜港區人大冼漢迪稱將公布人工智能資助計劃首批機構名單
+
+![冼漢迪透露，「人工智能資助計劃」首批資助機構名單即將公布。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794951_1_20250309085405.jpg&q=90)
+  
+
+全國兩會正在北京召開，政府工作報告提出持續推進「人工智能+」行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm)
+
+---
+
+# 全國兩會 | 青海研增往來西寧香港航班　內蒙古拓高鐵旅遊專列
+
+![青海省省長羅東川上表示，今年會大力推進、採取更多措施與香港對接。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_1_20250309075331.jpg&q=90)
+![內蒙古文化和旅遊廳黨組書記張銳，將會開通香港西九龍經停鄭州前往呼和浩特的高鐵旅遊專列，為香港旅客提供更多入境旅遊選擇。（受訪者提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_2_20250309075331.jpg&q=90)
+  
+
+青海省西寧市和內蒙古自治區呼和浩特市，去年5月納入簽發往來港澳「個人遊」簽注城市，青海省省長羅東川上月曾訪港與行政長官李家超會面。身兼全國人大代表的羅東川在兩會期間接受本台訪問，指今年會大力推進、採取更多措施與香港對接，希望同時有更多港人到青海看看，相信隨著居民生活水平越來越高，將來也會組織更多雙向交流活動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm)
+
+---
+
 # 往來峻巒至元朗站小巴獲批「紅轉綠」　明日投入服務
 
 ![運輸署表示，由相關專線小巴路線轉乘港鐵或由港鐵轉乘相關路線，可享有5毫轉乘優惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794936_1_20250308225949.jpg&q=90)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794776-20250307.htm)
-
----
-
-# 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
-  
-
-再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
-
----
-
-# 不忿被逐出師門披露師母個人資料　女佛教徒「起底」罪成候判
-
-![法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794771_1_20250307173342.jpg&q=85)
-  
-
-一名女佛教徒前年因拍拖遭逐出師門後與師父交惡，涉嫌在手機通訊創立群組，公開任職護士的師母個人資料，女徒弟被控一項未獲當事人同意下披露其個人資料罪，在西九龍裁判法院被裁定罪名成立，法庭押後至本月21日判刑，以待索取社會服務令報告，女被告獲准保釋候判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794771-20250307.htm)
-
----
-
-# 警方擬觀塘引入智慧交通管理系統　即時分辨塞車、違泊
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794769_1_20250307184113.jpg&q=65)
-  
-
-警方推出智慧交通管理系統，在觀塘安裝11組閉路電視，涵蓋9條主要街道，實時監測車流狀況，透過人工智能，即時分辨塞車與違泊等情況，預計系統下半年投入服務，若成效良好考慮推展至全港其他地區。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794769-20250307.htm)
 
 ---

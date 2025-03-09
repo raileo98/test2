@@ -1,3 +1,50 @@
+# 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
+
+  
+
+政府工作報告提出，安排超長期特別國債3000億元人民幣支持消費品「以舊換新」，按年增加一倍。全國人大代表、發改委副主任鄭備，書面接受本台訪問時表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
+
+---
+
+# 全國兩會｜港區人大冼漢迪稱將公布人工智能資助計劃首批機構名單
+
+![冼漢迪透露，「人工智能資助計劃」首批資助機構名單即將公布。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794951_1_20250309085405.jpg&q=90)
+  
+
+全國兩會正在北京召開，政府工作報告提出持續推進「人工智能+」行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm)
+
+---
+
 # 全國兩會 | 青海研增往來西寧香港航班　內蒙古拓高鐵旅遊專列
 
 ![青海省省長羅東川上表示，今年會大力推進、採取更多措施與香港對接。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_1_20250309075331.jpg&q=90)
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
-
----
-
-# 內地1-2月美元計價出口按年增長2.3%遜預期
-
-![中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%；進口按年下跌8.4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794702_1_20250307112414.jpg&q=60)
-  
-
-中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%，差過市場預期的5%；進口按年下跌8.4%，市場原先預期會升1%。首兩個月貿易順差1705.2億美元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794702-20250307.htm)
-
----
-
-# 全國兩會｜王毅稱中國堅定維護聯合國中心地位　無意另起爐灶
-
-![王毅說，中方認為，矛盾越是複雜，越要突出聯合國的重要地位。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794700_1_20250307111345.jpg&q=55)
-  
-
-在北京，外長王毅表示，今年是聯合國成立80周年，事實證明，聯合國經受了考驗，發揮了作用。現在形勢發生了很大變化，單邊主義抬頭，強權政治氾濫，有的國家對聯合國提出了這樣那樣的質疑，但中方認為，矛盾越是複雜，越要突出聯合國的重要地位；挑戰越是緊迫，越要維護聯合國的應有權威。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794700-20250307.htm)
 
 ---

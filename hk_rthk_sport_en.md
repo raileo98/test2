@@ -1,3 +1,27 @@
+# Liverpool ease past Southampton to go 16 points clear
+
+![Liverpool's Egyptian striker #11 Mohamed Salah celebrates scoring the team's third goal from the penalty spot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794946_1_20250309085129.jpg&q=90)
+  
+
+Premier League leaders Liverpool needed two Mohamed Salah penalties to beat bottom-of-the-table Southampton 3-1 on Saturday, while Nottingham Forest took a giant step towards the Champions League with a 1-0 win over Manchester City.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm)
+
+---
+
 # Hudson-Odoi strikes late as Forest edge City
 
 ![Callum Hudson-Odoi, (far right), beats Ederson at his near post from a very tight angle. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794933_1_20250308223542.jpg&q=60)
@@ -1422,29 +1446,5 @@ Liverpool's Premier League title charge was slowed by Aston Villa after a pulsat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792375-20250220.htm)
-
----
-
-# Man Utd spent £14.5mn on sackings including Ten Hag
-
-![United confirmed in their first quarter results that the pay-off to Ten Hag and his staff was worth £10.4 million. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792358_1_20250219221926.jpg&q=90)
-  
-
-Manchester United paid a total of £14.5 million (US$18.3 million) to sack manager Erik ten Hag, sporting director Dan Ashworth and other members of their football staff, according to the fallen English giants' latest accounts published on Wednesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm](https://news.rthk.hk/rthk/en/component/k2/1792358-20250219.htm)
 
 ---

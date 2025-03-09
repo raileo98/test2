@@ -1,3 +1,74 @@
+# 男子手持巴勒斯坦旗幟爬上倫敦大笨鐘鐘樓　十多小時後下來
+
+![男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，事件擾攘十多小時。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794953_1_20250309085956.jpg&q=75)
+  
+
+英國倫敦一名男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，經過16個小時後下來。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm)
+
+---
+
+# 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
+
+  
+
+政府工作報告提出，安排超長期特別國債3000億元人民幣支持消費品「以舊換新」，按年增加一倍。全國人大代表、發改委副主任鄭備，書面接受本台訪問時表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
+
+---
+
+# 全國兩會｜港區人大冼漢迪稱將公布人工智能資助計劃首批機構名單
+
+![冼漢迪透露，「人工智能資助計劃」首批資助機構名單即將公布。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794951_1_20250309085405.jpg&q=90)
+  
+
+全國兩會正在北京召開，政府工作報告提出持續推進「人工智能+」行動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm)
+
+---
+
 # 全國兩會 | 青海研增往來西寧香港航班　內蒙古拓高鐵旅遊專列
 
 ![青海省省長羅東川上表示，今年會大力推進、採取更多措施與香港對接。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_1_20250309075331.jpg&q=90)
@@ -1366,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm)
-
----
-
-# 控煙酒辦打擊禁煙區非法吸食水煙　巡查中區酒吧發3罰款通知書
-
-![控煙酒辦人員發現有人在酒吧非法吸食水煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794872_1_20250308113356.jpg&q=90)
-  
-
-衞生署控煙酒辦昨晚派員到中區，打擊禁煙區非法吸食水煙違法活動，共發出3張定額罰款通知書。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm)
-
----
-
-# 全國兩會 | 格力電器稱以舊換新政策增強消費者對家電認識
-
-![董明珠表示，國家長期支持民營企業，作為民企，要加大技術投入，不斷創新，企業才能活得更好。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794871_1_20250308114223.jpg&q=75)
-  
-
-在北京，全國人大代表、格力電器董事長董明珠表示，國家長期支持民營企業，有各種各樣的幫助，特別是各地政府。作為民企，要加大技術投入，不斷創新，企業才能活得更好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm)
-
----
-
-# 全國兩會 | 最高人民檢察院稱依法嚴懲危害國家安全犯罪
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794869_1_20250308114347.jpg&q=90)
-  
-
-全國兩會正在北京舉行，最高人民檢察院檢察長應勇發表工作報告，提到今年要堅決維護國家安全和社會穩定，依法嚴懲危害國家安全犯罪、嚴重暴力犯罪、極端惡性犯罪，全力服務經濟社會高質量發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm)
 
 ---
