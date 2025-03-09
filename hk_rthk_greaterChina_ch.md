@@ -1,3 +1,27 @@
+# 中伊俄海軍本月上中旬在恰巴哈爾港附近區域聯合演習
+
+![中國、伊朗及俄羅斯海軍去年3月在阿曼灣組織實施有關聯合演習。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794973_1_20250309131226.jpg&q=80)
+  
+
+中國、伊朗、俄羅斯三國海軍將於本月上中旬，在伊朗恰巴哈爾港附近區域組織實施「安全紐帶-2025」聯合演習。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm)
+
+---
+
 # 全國兩會 |吳謙：解放軍一向是打「獨」促統行動派
 
 ![吳謙正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794972_1_20250309124931.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm)
-
----
-
-# 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794718_1_20250307125013.jpg&q=85)
-  
-
-在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 中伊俄海軍本月上中旬在恰巴哈爾港附近區域聯合演習
+
+![中國、伊朗及俄羅斯海軍去年3月在阿曼灣組織實施有關聯合演習。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794973_1_20250309131226.jpg&q=80)
+  
+
+中國、伊朗、俄羅斯三國海軍將於本月上中旬，在伊朗恰巴哈爾港附近區域組織實施「安全紐帶-2025」聯合演習。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm)
+
+---
+
 # 美國民主黨反對共和黨提出臨時撥款法案
 
 ![共和黨籍的眾議院議長約翰遜希望星期二就法案投票。民主黨反對法案削減非國防支出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794961_1_20250309103550.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794749-20250307.htm)
-
----
-
-# 巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運
-
-![巴黎北站附近路軌發現未引爆戰時炸彈　進出火車服務全部停運](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794745_1_20250307160914.jpg&q=90)
-  
-
-法國巴黎北站附近的鐵路路軌發現一枚未引爆的二戰時期炸彈，進出巴黎北站的火車服務全部停運。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794745-20250307.htm)
 
 ---

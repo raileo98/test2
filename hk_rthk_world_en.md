@@ -24,7 +24,7 @@ Argentina's port city of Bahia Blanca has been "destroyed" after being pummelled
 
 # Man with Palestinian flag scales Big Ben
 
-![Police said they had been alerted to a man climbing up the Elizabeth Tower at the Houses of Parliament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794937_1_20250309005211.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794937_1_20250309005211.jpg&q=85)
   
 
 A man who climbed Big Ben's Elizabeth Tower at London's Palace of Westminster waving a Palestinian flag early on Saturday has come down after 16 hours, according to Sky News.
