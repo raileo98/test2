@@ -1,3 +1,27 @@
+# 美國特勤局人員在白宮附近開槍擊中一名持槍男子
+
+![特勤局人員在白宮附近，開槍擊中一名持槍男子。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795010_1_20250309204036.jpg&q=75)
+  
+
+美國特勤局人員在白宮附近，開槍擊中一名持槍男子，總統特朗普當時不在白宮。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm)
+
+---
+
 # 匈牙利外長：歐盟峰會支持烏克蘭的政治聲明沒有法律意義
 
 ![西雅爾多說，歐盟特別峰會上發表支持烏克蘭的政治聲明沒有法律意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795009_1_20250309202820.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm)
-
----
-
-# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
-
-![丁薛祥上午分別參加香港代表團、澳門代表團審議。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794797_1_20250307210355.jpg&q=80)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
 
 ---
