@@ -1,3 +1,27 @@
+# 全國兩會 | 解放軍：增國防支出用於新域新質作戰力量等方面
+
+![吳謙說，增加的國防支出主要用於大力發展新域新質作戰力量等方面。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794976_1_20250309134432.jpg&q=90)
+  
+
+全國人大三次會議解放軍和武警部隊代表團新聞發言人吳謙表示，近年來，為維護國家主權、安全、發展利益，中國政府促進國防實力和經濟實力同步提升。今年全國一般公共預算安排國防支出1.81萬億元，比上年增長7.2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm)
+
+---
+
 # 中伊俄海軍本月上中旬在恰巴哈爾港附近區域聯合演習
 
 ![中國、伊朗及俄羅斯海軍去年3月在阿曼灣組織實施有關聯合演習。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794973_1_20250309131226.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
-
----
-
-# 全國兩會｜王毅：中東不靜世界難安　應推動加沙全面持久停火
-
-![王毅表示，若大國真正關心加沙人民，應推動加沙全面、持久停火，加大人道主義援助，保持「巴人治巴」原則。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794725_1_20250307141907.jpg&q=50)
-  
-
-美國總統特朗普較早時宣稱將「接管」和「擁有」加沙地帶。在北京，外交部部長王毅表示，若大國真正關心加沙人民，應推動加沙全面、持久停火，加大人道主義援助，保持「巴人治巴」原則，為加沙重建做出貢獻。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm)
 
 ---
