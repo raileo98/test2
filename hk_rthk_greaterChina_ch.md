@@ -1,5 +1,6 @@
 # 全國兩會｜王曉萍形容穩定和擴大就業任務繁重　總體態勢向好
 
+![王曉萍形容穩定和擴大就業任務繁重。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794984_1_20250309155750.jpg&q=90)
   
   
 

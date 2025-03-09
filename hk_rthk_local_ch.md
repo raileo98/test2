@@ -1,3 +1,26 @@
+# 新任南區民政事務專員張佩珊明日履新
+
+  
+
+張佩珊明日將接替鄭港涌出任南區民政事務專員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm)
+
+---
+
 # 麥美娟︰本屆政府上任後青年宿舍宿位增至3千個
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm)
-
----
-
-# 聯合醫院精神科女病房3病人染人類偏肺病毒　情況穩定
-
-![病房已進行全面調查及徹底清潔及消毒，並嚴格執行飛沫及接觸傳播防護措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794800_1_20250307212652.jpg&q=80)
-  
-
-聯合醫院一個精神科女病房自上月25日起，先後有病人出現輕微呼吸道感染徵狀，其中3名病人對人類偏肺病毒呈陽性反應，正接受隔離治療，情況穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794800-20250307.htm)
 
 ---

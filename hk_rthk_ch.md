@@ -1,3 +1,26 @@
+# 新任南區民政事務專員張佩珊明日履新
+
+  
+
+張佩珊明日將接替鄭港涌出任南區民政事務專員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm)
+
+---
+
 # 麥美娟︰本屆政府上任後青年宿舍宿位增至3千個
 
   
@@ -23,6 +46,7 @@
 
 # 全國兩會｜王曉萍形容穩定和擴大就業任務繁重　總體態勢向好
 
+![王曉萍形容穩定和擴大就業任務繁重。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794984_1_20250309155750.jpg&q=90)
   
   
 
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm)
-
----
-
-# 九巴稱女車長5年間增三成　今年增9個女員工優先使用休息室
-
-![九巴學院新增現職女車長分享環節，以互動教學交流方式，由九巴資深女車長，向女學員分享日常工作點滴，提升日後服務乘客時的信心。（九巴網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794908_1_20250308164747.jpg&q=90)
-  
-
-目前有大約1萬名車長的九巴表示，女車長數目有上升趨勢，比例由2020年的6%升至2024年近8%，5年之間增長近三成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm)
 
 ---
