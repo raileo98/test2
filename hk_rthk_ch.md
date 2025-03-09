@@ -1,3 +1,27 @@
+# 美股進入夏令時間　本周關注美國上月物價數據
+
+![美股進入夏令時間，將於香港時間晚上9時半開市，翌日凌晨4時收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795029_1_20250310054609.jpg&q=90)
+  
+
+美股3大指數上星期累計都跌，標普500指數及納斯達克指數都跌逾3%，同樣連跌3星期，標普指數更創去年9月以來最大單星期跌幅；道指全星期跌逾2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm)
+
+---
+
 # 加拿大執政黨自由黨選舉新黨魁　報道指卡尼獲議會過半黨員支持
 
   
@@ -1410,29 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm)
-
----
-
-# 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
-  
-
-在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm)
 
 ---

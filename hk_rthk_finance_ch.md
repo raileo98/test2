@@ -1,3 +1,27 @@
+# 美股進入夏令時間　本周關注美國上月物價數據
+
+![美股進入夏令時間，將於香港時間晚上9時半開市，翌日凌晨4時收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795029_1_20250310054609.jpg&q=90)
+  
+
+美股3大指數上星期累計都跌，標普500指數及納斯達克指數都跌逾3%，同樣連跌3星期，標普指數更創去年9月以來最大單星期跌幅；道指全星期跌逾2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm)
+
+---
+
 # 內地2月PPI按年及按月跌幅收窄　統計局：宏觀政策效果漸顯現
 
 ![國家統計局指出，隨著宏觀政策效果逐步顯現，部分行業生產需求增加，帶動上月PPI跌幅收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795027_1_20250310053724.jpg&q=30)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
-
----
-
-# 港股下午開市後上升
-
-![恒生指數較早時報24494點，升125點，升幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794722_1_20250307130532.jpg&q=75)
-  
-
-港股上升。恒生指數較早時報24494點，升125點，升幅0.51%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794722-20250307.htm)
 
 ---
