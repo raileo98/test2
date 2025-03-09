@@ -1,3 +1,27 @@
+# 'Capitalise on One Country, Two Systems'
+
+![Tu Haiming says the One Country, Two Systems principle helps Hong Kong and Macau maintain their long-term prosperity and stability. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_1_20250309104412.jpg&q=90)
+  
+
+Hong Kong and Macau delegates to the country's top political advisory body said the two SARs should make good use of their advantages under the One Country, Two Systems principle.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm)
+
+---
+
 # Mainland sees year-on-year drop in inflation
 
 ![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
@@ -1413,29 +1437,5 @@ Chief Executive John Lee will head to Beijing on Tuesday to attend the annual op
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793957-20250303.htm)
-
----
-
-# HK to push for greater integration at Two Sessions
-
-![Closewise from top right, Starry Lee, Ronick Chan, William Wong and Johnny Ng are among the delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793930_1_20250303082742.jpg&q=85)
-  
-
-Hong Kong delegates attending the "Two Sessions" meetings this year said they're looking to make a range of proposals – from the development of artificial intelligence to a low-altitude economy – as the SAR seeks to further integrate into the nation's development.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
 
 ---

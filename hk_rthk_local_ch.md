@@ -1,3 +1,27 @@
+# 陳美寶︰與的士業界幾乎共識一致　盡快強制安裝獨立監測系統
+
+![陳美寶說，的士安裝獨立監測系統能為乘客及司機提供更好保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794965_1_20250309111757.jpg&q=80)
+  
+
+政府建議立法規定所有的士必須安裝車廂攝錄機、行車紀錄儀及全球衞星導航系統，運輸及物流局局長陳美寶表示，最近與業界溝通，已幾乎達到一致共識要盡快推行，強制在全港18000輛的士裝設獨立監測系統。她說安裝系統是希望為乘客及司機提供更好保障，以免發生爭拗時「口同鼻拗」，她好有信心，當法例完成修訂，的士裝設好系統後，涉及的士的投訴可以大降。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm)
+
+---
+
 # 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
 
 ![王靈桂表示，立法會選舉屬特區內部事務，相信特區政府一定會通過各種途徑徵求意見。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm)
-
----
-
-# 鄧炳強稱就支聯會案研究是否須在法律規定及執行機制作改善措施
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794782_1_20250307184122.jpg&q=90)
-  
-
-保安局局長鄧炳強表示，歡迎終審法院昨日駁回人民力量前副主席譚得志發表煽動文字案件的上訴裁決，指判決再次顯示，根據刑事條例，煽動意圖案件，罪行元素不必包括煽動使用暴力或者煽動危害公共安全。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 陳美寶︰與的士業界幾乎共識一致　盡快強制安裝獨立監測系統
+
+![陳美寶說，的士安裝獨立監測系統能為乘客及司機提供更好保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794965_1_20250309111757.jpg&q=80)
+  
+
+政府建議立法規定所有的士必須安裝車廂攝錄機、行車紀錄儀及全球衞星導航系統，運輸及物流局局長陳美寶表示，最近與業界溝通，已幾乎達到一致共識要盡快推行，強制在全港18000輛的士裝設獨立監測系統。她說安裝系統是希望為乘客及司機提供更好保障，以免發生爭拗時「口同鼻拗」，她好有信心，當法例完成修訂，的士裝設好系統後，涉及的士的投訴可以大降。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm)
+
+---
+
+# 全國兩會｜銀娛主席呂耀東冀澳門立法會換屆選出議員帶來新思維
+
+![呂耀東冀澳門立法會換屆選出議員，為促進經濟多元化帶來新思維。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794964_1_20250309110700.jpg&q=80)
+  
+
+澳門第八屆立法會選舉將於今年9月14日舉行，全國政協委員、銀河娛樂主席呂耀東期望，新一屆議員能在促進經濟多元化方面帶來新思維，在現有平台找到新的發展項目，特別是橫琴的發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm)
+
+---
+
 # 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
 
 ![王靈桂表示，立法會選舉屬特區內部事務，相信特區政府一定會通過各種途徑徵求意見。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
@@ -27,7 +75,7 @@
 ![共和黨籍的眾議院議長約翰遜希望星期二就法案投票。民主黨反對法案削減非國防支出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794961_1_20250309103550.jpg&q=80)
   
 
-美國眾議院共和黨公布一項為期6個月的臨時政府撥款法案，避免本月14日聯邦政府停擺。民主黨反對法案削減非國防支出、賦予行政部門過大權力，以及缺乏對社保、醫保等民生項目的保障。眾議院少數黨領袖傑弗里斯表示，共和黨此舉等同放棄通過全年撥款法案協助中產階層和保障國家安全的談判機會。
+美國眾議院共和黨公布一項為期6個月的臨時撥款法案，避免本月14日聯邦政府停擺。民主黨反對法案削減非國防支出、賦予行政部門過大權力，以及缺乏對社保、醫保等民生項目的保障。眾議院少數黨領袖傑弗里斯表示，共和黨此舉等同放棄通過全年撥款法案協助中產階層和保障國家安全的談判機會。
 
   
 
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm)
-
----
-
-# 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
-
-![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟說，會帶領民青團隊深入學習貫徹國家主席習近平重要講話精神以及兩會精神，全面配合行政長官施政，提升政策目標、工具、時機、力度、節奏的匹配度，特別在地區治理工作上不斷創新和完善，連同區議員和關愛隊，堅持和發展新時代「楓橋經驗」，加強矛盾糾紛排查化解，將矛盾糾紛化解在基層、化解在萌芽狀態。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm)
-
----
-
-# 全國兩會 | 羅淑佩稱通過多元化交流活動提升香港文化影響力
-
-![羅淑佩說，作為局長，深感使命重大，責任在肩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794884_1_20250308132910.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩在社交網站發帖文，指國務院總理李強在政府工作報告中，為香港在文化，體育及旅遊領域提供了重要指引，她說，作為局長，深感使命重大，責任在肩。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm)
 
 ---

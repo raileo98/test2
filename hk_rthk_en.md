@@ -1,3 +1,27 @@
+# 'Capitalise on One Country, Two Systems'
+
+![Tu Haiming says the One Country, Two Systems principle helps Hong Kong and Macau maintain their long-term prosperity and stability. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_1_20250309104412.jpg&q=90)
+  
+
+Hong Kong and Macau delegates to the country's top political advisory body said the two SARs should make good use of their advantages under the One Country, Two Systems principle.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm)
+
+---
+
 # Mainland sees year-on-year drop in inflation
 
 ![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
@@ -337,7 +361,7 @@ Mainland authorities on Saturday said Hong Kong and the mainland should work tog
 
 # Six people arrested for assaulting a teenage girl
 
-![Police said the teenage girl and the attackers had argued over "an attitude problem and trivial matters.”  (File photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794902_1_20250308155807.jpg&q=40)
+![Police said the teenage girl and the attackers had argued over "an attitude problem and trivial matters.”  File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794902_1_20250308155807.jpg&q=40)
   
 
 Police on Saturday said they have arrested six people for allegedly assaulting a 14-year-old girl in Mong Kok last August.
@@ -1413,29 +1437,5 @@ US President Donald Trump on Thursday unveiled a temporary rollback to steep tar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm)
-
----
-
-# Ireland's Doris fit to face France in Six Nations
-
-![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=85)
-  
-
-Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 全國兩會｜銀娛主席呂耀東冀澳門立法會換屆選出議員帶來新思維
+
+![呂耀東冀澳門立法會換屆選出議員，為促進經濟多元化帶來新思維。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794964_1_20250309110700.jpg&q=80)
+  
+
+澳門第八屆立法會選舉將於今年9月14日舉行，全國政協委員、銀河娛樂主席呂耀東期望，新一屆議員能在促進經濟多元化方面帶來新思維，在現有平台找到新的發展項目，特別是橫琴的發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm)
+
+---
+
 # 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
 
 ![王靈桂表示，立法會選舉屬特區內部事務，相信特區政府一定會通過各種途徑徵求意見。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm)
-
----
-
-# 全國兩會｜回應中歐關係　王毅稱中國對歐洲有信心可成信任夥伴
-
-![王毅指，50年後的今天，中歐經濟總量超過世界三分之一，中歐合作更具戰略意義和世界影響。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794712_1_20250307123400.jpg&q=10)
-  
-
-在北京，外長王毅回應中歐面臨長期緊張的經貿關係，如何看待中歐關係發展時表示，今年是中歐建交50周年，50年來，中歐合作獲得長足發展，貿易額從當年的24億美元增長到7800億美元，投資額從幾乎為零增長到近2600億美元。中歐班列累計開行突破10萬列，成為聯接亞歐的黃金通道。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
 
 ---
