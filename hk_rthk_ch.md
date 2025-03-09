@@ -1,3 +1,27 @@
+# 綠色和平發現桌球賽大會違反自訂規定　包括場內派膠水樽
+
+![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794971_1_20250309124553.jpg&q=90)
+  
+
+環保組織綠色和平在啟德體育園體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到貴價門票觀眾席上，預設擺放了連蓋的膠樽水；亦有貴賓將自備杯帶入場內，未有職員阻止，有違場館列明不能攜帶任何容器進場的規定。綠色和平認為，派水安排製造不必要的即棄垃圾，啟德體育園應盡快落實重用杯服務，平衡安全及環保考量，讓觀眾有使用非即棄的選擇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm)
+
+---
+
 # 全國兩會｜台聯陳雲英批台灣當局禁學生與三大陸學府交流或招不滿
 
 ![在北京，台灣人大代表團舉行全體會議。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794970_1_20250309120720.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm)
-
----
-
-# 屯門男子踏單車被的士撞倒搶救不治　73歲的士司機被捕
-
-![73歲的士司機涉嫌危險駕駛引致他人死亡被捕，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794888_1_20250308140304.jpg&q=85)
-  
-
-屯門早上發生致命交通意外，一名騎單車的68歲男子死亡。73歲的士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm)
 
 ---

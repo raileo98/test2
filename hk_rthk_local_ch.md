@@ -1,3 +1,27 @@
+# 綠色和平發現桌球賽大會違反自訂規定　包括場內派膠水樽
+
+![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794971_1_20250309124553.jpg&q=90)
+  
+
+環保組織綠色和平在啟德體育園體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到貴價門票觀眾席上，預設擺放了連蓋的膠樽水；亦有貴賓將自備杯帶入場內，未有職員阻止，有違場館列明不能攜帶任何容器進場的規定。綠色和平認為，派水安排製造不必要的即棄垃圾，啟德體育園應盡快落實重用杯服務，平衡安全及環保考量，讓觀眾有使用非即棄的選擇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm)
+
+---
+
 # 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
 
 ![陳茂波說，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794967_1_20250309115602.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794790-20250307.htm)
-
----
-
-# 全國兩會｜有人大引述丁薛祥稱香港在由治及興路上越走越穩
-
-![丁薛祥參加港區全國人大代表團審議，並聽取代表的意見。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794789_1_20250307191857.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港區全國人大代表團審議，並聽取代表的意見。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
 
 ---

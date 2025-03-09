@@ -1,3 +1,27 @@
+# 全國兩會 |吳謙：解放軍一向是打「獨」促統行動派
+
+![吳謙正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794972_1_20250309124931.jpg&q=90)
+  
+
+十四屆全國人大三次會議解放軍和武警部隊代表團新聞發言人吳謙強調，祖國必然統一，這是大勢所趨、道義所在，既是實力使然、更是民心所向，解放軍一向是打「獨」促統的行動派，近年繞島巡航、軍事懾壓已成常態。「台獨」分子鬧得越歡，脖子上的繩索就會勒得越緊，頭頂上的利劍就會愈加鋒利，正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm)
+
+---
+
 # 全國兩會｜台聯陳雲英批台灣當局禁學生與三大陸學府交流或招不滿
 
 ![在北京，台灣人大代表團舉行全體會議。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794970_1_20250309120720.jpg&q=75)
@@ -1415,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
-
----
-
-# 全國兩會｜周進強：全運會籌備工作順利　劉國梁：將帶來重大突破
-
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_1_20250307124807.jpg&q=85)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_2_20250307124807.jpg&q=85)
-  
-
-在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794715-20250307.htm)
 
 ---

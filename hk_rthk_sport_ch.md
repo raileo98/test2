@@ -1,3 +1,27 @@
+# 綠色和平發現桌球賽大會違反自訂規定　包括場內派膠水樽
+
+![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794971_1_20250309124553.jpg&q=90)
+  
+
+環保組織綠色和平在啟德體育園體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到貴價門票觀眾席上，預設擺放了連蓋的膠樽水；亦有貴賓將自備杯帶入場內，未有職員阻止，有違場館列明不能攜帶任何容器進場的規定。綠色和平認為，派水安排製造不必要的即棄垃圾，啟德體育園應盡快落實重用杯服務，平衡安全及環保考量，讓觀眾有使用非即棄的選擇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm)
+
+---
+
 # 德甲拜仁十人應戰下　2:3不敵波琴
 
 ![拜仁慕尼黑主場落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794949_1_20250309071718.jpg&q=90)
@@ -1422,31 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm)
-
----
-
-# 張家朗回母校獲頒337.5萬獎金　勉勵學生遇挫折不要氣餒
-
-![張家朗表示，他在巴黎奧運前的亞錦賽遇到很大挫折，花了一些時間重新振作。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_4_20250228171530.jpg&q=35)
-![林大輝說，運動員獎勵計劃再次證明學校對香港體育界和教育界的付出和貢獻。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_3_20250228170314.jpg&q=85)
-![林大輝中學將興建一所樓高8層的「藝術及文化發展中心」，今日舉行奠基典禮，預計明年9月落成。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793664_5_20250301124343.jpg&q=65)
-  
-
-「香港劍神」張家朗在去年巴黎奧運衞冕成功，再奪花劍個人賽金牌，「林大輝慈善基金傑出運動員獎勵計劃」向張家朗頒發337.5萬元獎金，表揚他的傑出表現。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793664-20250228.htm)
 
 ---
