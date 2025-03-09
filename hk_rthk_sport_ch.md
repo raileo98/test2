@@ -1,3 +1,28 @@
+# 西甲皇馬2:1挫華歷簡奴　馬體會1:2不敵基達菲
+
+![麥巴比為皇馬攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_1_20250310071437.jpg&q=85)
+![基達菲把握多打一人下，2:1擊敗馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_2_20250310071437.jpg&q=85)
+  
+
+西班牙甲組聯賽，皇家馬德里憑麥巴比及雲尼斯奧斯入球，主場2:1擊敗華歷簡奴，在馬體會落敗下，升上第二位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm)
+
+---
+
 # 英超阿仙奴作客1:1逼和曼聯　落後利物浦15分
 
 ![迪勤懷斯為兵工廠追平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_1_20250310065425.jpg&q=90)
@@ -1424,29 +1449,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm)
-
----
-
-# 啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播
-
-![啟德體育園傍晚開幕典禮　表演晚上九時半於四間免費電視台轉播](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793761_1_20250301094658.jpg&q=75)
-  
-
-啟德體育園開幕典禮傍晚6時半在啟德主場館舉行，由行政長官李家超主持儀式，預計有超過3萬名觀眾入場參與，部分門票早前公開發售，入場人士要持實體門票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793761-20250301.htm)
 
 ---

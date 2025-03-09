@@ -1,3 +1,28 @@
+# 西甲皇馬2:1挫華歷簡奴　馬體會1:2不敵基達菲
+
+![麥巴比為皇馬攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_1_20250310071437.jpg&q=85)
+![基達菲把握多打一人下，2:1擊敗馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_2_20250310071437.jpg&q=85)
+  
+
+西班牙甲組聯賽，皇家馬德里憑麥巴比及雲尼斯奧斯入球，主場2:1擊敗華歷簡奴，在馬體會落敗下，升上第二位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm)
+
+---
+
 # 英超阿仙奴作客1:1逼和曼聯　落後利物浦15分
 
 ![迪勤懷斯為兵工廠追平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_1_20250310065425.jpg&q=90)
@@ -25,6 +50,7 @@
 
 # 卡尼贏得黨內選舉　成為加拿大自由黨新黨魁
 
+![卡尼勝出自由黨黨魁，將成為加拿大新總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795032_1_20250310071448.jpg&q=90)
   
 
 加拿大執政黨自由黨選舉新黨魁，由被稱為「政治素人」的前央行行長卡尼勝出，他將與現任總理杜魯多交接，並成為加拿大新總理。
@@ -72,6 +98,7 @@
 
 # 加拿大執政黨自由黨選舉新黨魁　報道指卡尼獲議會過半黨員支持
 
+![加拿大前央行行長卡尼在黨內支持率持續領先。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795031_1_20250310071536.jpg&q=85)
   
 
 加拿大執政黨自由黨選舉新黨魁，預料結果在當地星期日晚公布，新黨魁將與現任總理杜魯多交接，並成為加拿大新總理。
@@ -1410,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm)
-
----
-
-# 陳翊庭︰港股今年平均每日成交額暫破2千億　「遺址論」不攻自破
-
-![陳翊庭說，「遺址論」已不攻自破，不管新股市場、交易量均可見完全推翻有關說法。（本台節目《舊日的足跡》）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794960_1_20250309102619.jpg&q=80)
-  
-
-港交所行政總裁陳翊庭表示，去年本港共有71間公司新上市，融資額達880億元，較2023年增加約9成。而由年初至3月，已有11宗新股上市，同時有百多間公司排隊上市。她又說，港股成交額在過去一年亦有很大進步，由23年平均每日成交金額大約1000億元，升至去年的1320億元，而在今年暫時已突破2000億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm)
 
 ---
