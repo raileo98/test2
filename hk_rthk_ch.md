@@ -1,3 +1,27 @@
+# 敘利亞過渡總統：國內發生事情屬預計中挑戰　籲維護國家團結和平
+
+![沙拉說，敘利亞國內目前發生的事情屬於預計中的挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794989_1_20250309162357.jpg&q=90)
+  
+
+敘利亞內政部安全人員連日在西部拉塔基亞省與忠於前政權的武裝人員衝突，總部設在英國的敘利亞人權觀察組織說，已造成過千人死亡，包括745名平民。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm)
+
+---
+
 # 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm)
-
----
-
-# 運物局指女性在不同領域擔當重要角色　陳美寶祝願女性能發揮才能
-
-![運輸及物流局說，女性在不同領域中均擔當著至關重要的角色。（運輸及物流局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794912_1_20250308170117.jpg&q=90)
-  
-
-今天是國際婦女節，運輸及物流局表示，女性在不同領域中均擔當著至關重要的角色，近年專營巴士的女車長人數不斷上升，例如九巴的女性約佔總車長人數的6%，城巴在去年的女車長數字亦較2022年上升三成。航空方面，國泰集團旗下現時有超過200名女機師，佔總機師數目大約8%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm)
 
 ---

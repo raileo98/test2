@@ -1,3 +1,27 @@
+# 敘利亞過渡總統：國內發生事情屬預計中挑戰　籲維護國家團結和平
+
+![沙拉說，敘利亞國內目前發生的事情屬於預計中的挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794989_1_20250309162357.jpg&q=90)
+  
+
+敘利亞內政部安全人員連日在西部拉塔基亞省與忠於前政權的武裝人員衝突，總部設在英國的敘利亞人權觀察組織說，已造成過千人死亡，包括745名平民。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm)
+
+---
+
 # 彈劾案何時宣判備受關注　尹錫悅避免外部活動冷靜等待結果
 
 ![尹錫悅昨日獲釋後，返回漢南洞的總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794980_1_20250309151403.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm)
-
----
-
-# 鄧炳強稱成功營救3男3女港人　料晚上10時許返抵本港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794775_1_20250307174348.jpg&q=90)
-  
-
-再有6名被誘騙到緬甸的香港人獲救，保安局局長鄧炳強說，6人於凌晨時分由泰國軍方送到泰國湄索，預計今晚10時左右返到香港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
 
 ---
