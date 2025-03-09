@@ -1,3 +1,26 @@
+# 一名入境旅客處理未完稅香煙罪成判監6個月及罰款
+
+  
+
+一名41歲旅客因處理未完稅香煙以及未有向海關人員作出申報，違反《應課稅品條例》，昨日在九龍城裁判法院被判處監禁6個月及罰款。海關對判刑表示歡迎，指監禁判刑具相當阻嚇作用，並充分反映罪行的嚴重性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm)
+
+---
+
 # 關注病人組織調查　多受訪者冀新醫學院培育仁醫及具科研實力
 
 ![調查訪問500多名市民，逾七成受訪者指第三間醫學院最重要是培育具醫德的醫生。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794978_1_20250309141058.jpg&q=75)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
-
----
-
-# 陳克勤料本港與泰國建立機制　致參與營救行動更實質及具體
-
-![陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794793_1_20250307191947.jpg&q=90)
-  
-
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。立法會議員陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動，而非如以往般，身處幕後角色，主要依靠當地政府及執法部門，或國家駐當地的使領館。他估計是與早前保安局副局長率領專責小組前往泰國協調有關，令雙方建立了合作機制，令今次特區政府的參與更實質和具體。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
 
 ---

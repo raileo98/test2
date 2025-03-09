@@ -1,3 +1,50 @@
+# 彈劾案何時宣判備受關注　尹錫悅避免外部活動冷靜等待結果
+
+![尹錫悅昨日獲釋後，返回漢南洞的總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794980_1_20250309151403.jpg&q=85)
+  
+
+南韓憲法法院何時就總統尹錫悅彈劾案作出宣判備受關注，韓聯社報道，司法界普遍認為，法院在本周五宣判的可能性較大，但亦有分析認為，由於尹錫悅一方全面抗辯，導致法院工作量增加，可能要多一至兩星期才會宣判。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm)
+
+---
+
+# 全國兩會｜駐日大使吳江浩稱關稅上中日有共同語言　冀建穩定環境
+
+  
+
+全國政協委員、中國駐日本大使吳江浩接受本台訪問說，日本經濟界對美國加徵關稅的做法非常緊張，難以估計美國總統特朗普的計劃。他相信，這方面中日雙方有共同語言，都是希望建立穩定的經濟環境，有利各方發展，即使中國與日本官方未談上開展合作應對關稅問題，企業之間的合作過程也會考慮到相關問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
+
+---
+
 # 日本東京都有民間團體舉行集會反對使用核電
 
 ![2011年東日本大地震引發的海嘯，導致福島第一核電廠遭受嚴重損壞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794975_1_20250309133057.jpg&q=40)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794775-20250307.htm)
-
----
-
-# 教宗方濟各發表入院以來首段錄音　感謝信眾支持
-
-![在教宗方濟各入住的醫院外，不少信眾都寫下對他的祝福。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794764_1_20250307171822.jpg&q=70)
-  
-
-因肺炎留院3星期的教宗方濟各連續3天病情穩定，沒有再次出現呼吸危機。他發表入院以來首段錄音，感謝信眾支持。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794764-20250307.htm)
-
----
-
-# 扎哈羅娃：任何挑起俄中關係不和企圖　俄中將堅決回擊
-
-![扎哈羅娃強調，俄中將對挑起兩國關係不和的企圖予以堅決回擊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794755_1_20250307164513.jpg&q=90)
-  
-
-俄羅斯外交部發言人扎哈羅娃表示，俄中關係是國際事務中的重要穩定因素，雙方為建立更加公正的世界秩序作出重大貢獻。她強調，俄中將對任何挑起兩國關係不和的企圖予以堅決回擊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794755-20250307.htm)
 
 ---

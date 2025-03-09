@@ -1,3 +1,49 @@
+# 全國兩會｜駐日大使吳江浩稱關稅上中日有共同語言　冀建穩定環境
+
+  
+
+全國政協委員、中國駐日本大使吳江浩接受本台訪問說，日本經濟界對美國加徵關稅的做法非常緊張，難以估計美國總統特朗普的計劃。他相信，這方面中日雙方有共同語言，都是希望建立穩定的經濟環境，有利各方發展，即使中國與日本官方未談上開展合作應對關稅問題，企業之間的合作過程也會考慮到相關問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
+
+---
+
+# 一名入境旅客處理未完稅香煙罪成判監6個月及罰款
+
+  
+
+一名41歲旅客因處理未完稅香煙以及未有向海關人員作出申報，違反《應課稅品條例》，昨日在九龍城裁判法院被判處監禁6個月及罰款。海關對判刑表示歡迎，指監禁判刑具相當阻嚇作用，並充分反映罪行的嚴重性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm)
+
+---
+
 # 關注病人組織調查　多受訪者冀新醫學院培育仁醫及具科研實力
 
 ![調查訪問500多名市民，逾七成受訪者指第三間醫學院最重要是培育具醫德的醫生。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794978_1_20250309141058.jpg&q=75)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm)
-
----
-
-# 金正恩視察北韓造船廠　要求大量建造艦艇並加強海軍戰力
-
-![金正恩視察北韓一間造船廠。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794900_1_20250308154916.jpg&q=50)
-  
-
-北韓領袖金正恩視察當地一間造船廠，要求大量建造艦艇並加強海軍戰力，強調朝方絕不會坐視不管敵人的海上及水下軍事行動，將會實現海軍力量革新，進一步強化實力，捍衛海洋主權，切實保證朝鮮半島與地區的安全。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm)
-
----
-
-# 全國兩會 | 生態環境部稱藍天成常態　水利部指堅持節水優先
-
-![黃潤秋表示，近十年全國生態環境發生了根本性、轉折性的變化。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794899_1_20250308155735.jpg&q=90)
-  
-
-國家生態環境部部長黃潤秋表示，近十年全國生態環境發生了根本性、轉折性的變化，去年全國PM2.5平均濃度降至每立方米30微克以下，超越「十四五」規劃定下降低10%的目標。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm)
 
 ---

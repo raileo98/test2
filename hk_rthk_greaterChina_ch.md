@@ -1,3 +1,26 @@
+# 全國兩會｜駐日大使吳江浩稱關稅上中日有共同語言　冀建穩定環境
+
+  
+
+全國政協委員、中國駐日本大使吳江浩接受本台訪問說，日本經濟界對美國加徵關稅的做法非常緊張，難以估計美國總統特朗普的計劃。他相信，這方面中日雙方有共同語言，都是希望建立穩定的經濟環境，有利各方發展，即使中國與日本官方未談上開展合作應對關稅問題，企業之間的合作過程也會考慮到相關問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
+
+---
+
 # 全國兩會 | 解放軍：增國防支出用於新域新質作戰力量等方面
 
 ![吳謙說，增加的國防支出主要用於大力發展新域新質作戰力量等方面。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794976_1_20250309134432.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794738-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794738-20250307.htm)
-
----
-
-# 全國兩會｜馬逢國引述丁薛祥　港經濟恢復向好由治及興路越走越穩
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794727_1_20250307142012.jpg&q=75)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥參加港區人大代表團會議，港澳辦主任夏寶龍亦有列席會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794727-20250307.htm)
 
 ---
