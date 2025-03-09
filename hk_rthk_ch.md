@@ -1,3 +1,27 @@
+# 哈馬斯證實與美國人質事務特使舉行數次會談
+
+![哈馬斯證實近期與美國總統人質事務特使伯勒爾（圖）舉行了數次會談。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795012_1_20250309212454.jpg&q=90)
+  
+
+巴勒斯坦武裝組織哈馬斯高級成員塔希爾努努證實，哈馬斯多位領導人近期與美國總統人質事務特使伯勒爾在多哈舉行了數次會談，重點討論釋放其中一名有雙重國籍的被扣押人員。他說，哈馬斯採取了積極、靈活的處理方式，符合巴勒斯坦人的利益。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm)
+
+---
+
 # LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
 
   
