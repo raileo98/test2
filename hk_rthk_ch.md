@@ -1,3 +1,26 @@
+# 政府探討規範籃球博彩活動　麥美娟︰會多方面規範非法賭博
+
+  
+
+財政預算案提出將積極探討規範籃球博彩活動，民政及青年事務局局長麥美娟表示，政府不鼓勵賭博，但面對非法賭博問題，將採取多方面措施，包括嚴厲執法、做好宣傳教育及作出規範。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm)
+
+---
+
 # 全國兩會｜倪虹︰要鞏固房地產政策組合拳效果　將減息等效應釋放
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm)
-
----
-
-# 南韓檢察機關放棄上訴　尹錫悅將從拘留所獲釋
-
-![大批尹錫悅支持者在首爾拘留所外聚集，準備歡迎尹錫悅獲釋。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794914_1_20250308165307.jpg&q=45)
-  
-
-南韓檢察機關決定，不就法院批准取消拘留總統尹錫悅提出上訴，法務部已接到檢察機關的相關文件，正進行釋放尹錫悅的程序。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 政府探討規範籃球博彩活動　麥美娟︰會多方面規範非法賭博
+
+  
+
+財政預算案提出將積極探討規範籃球博彩活動，民政及青年事務局局長麥美娟表示，政府不鼓勵賭博，但面對非法賭博問題，將採取多方面措施，包括嚴厲執法、做好宣傳教育及作出規範。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm)
+
+---
+
 # 新任南區民政事務專員張佩珊明日履新
 
   
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
-
----
-
-# 緬甸獲救6港人中1人暫留泰國以證人身分助查　料明日才返港
-
-![鄧炳強透過視像與六名港人見面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794802_2_20250308121537.jpg&q=80)
-![鄧炳強（左）早前在泰國期間與中國駐泰國特命全權大使韓志強（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794802_3_20250308121537.jpg&q=75)
-  
-
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救，保安局局長鄧炳強說，6人是在緬甸的園區內獲救，身體狀況良好，營救行動不牽涉交贖金，至今仍有3名被誘騙的港人未回港，特區政府將繼續全力營救。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794802-20250307.htm)
 
 ---
