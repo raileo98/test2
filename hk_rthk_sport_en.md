@@ -1,3 +1,27 @@
+# Robertson romps to World Snooker Grand Prix title
+
+![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=75)
+  
+
+Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, delivering a dominant performance by whitewashing Stuart Bingham from England by a score of 10-frames-to-nil.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm)
+
+---
+
 # Fans enjoy the atmosphere on the final day of LIV Golf
 
 ![Many fans told RTHK the all-star player roster was a big draw for them. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795008_1_20250309201219.jpg&q=60)
@@ -1423,29 +1447,5 @@ Spain's High Court has found former soccer federation boss Luis Rubiales guilty 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm)
-
----
-
-# Handball National Games trials to be held this weekend
-
-![Yeung Tak-keung said a series of trials for the National Games will take place in Hong Kong in the coming months. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792464_1_20250220161403.jpg&q=90)
-  
-
-The Hong Kong official who heads an office coordinating the upcoming National Games, Yeung Tak-keung, said he expects around 1,000 spectators to attend a handball tournament serving as a test event for the Games this weekend.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792464-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792464-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792464-20250220.htm)
 
 ---
