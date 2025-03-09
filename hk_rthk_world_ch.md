@@ -1,3 +1,27 @@
+# 聯合國官員敦促敘利亞衝突各方立即停止敵對行動
+
+![敘利亞軍方人員坐車前往拉塔基亞，加入對付效忠前政權武裝人員的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794954_1_20250309092001.jpg&q=75)
+  
+
+聯合國官員發表聲明，敦促敘利亞衝突各方立即停止在西部沿海和中部地區的敵對行動，切實保護平民、維護民用基礎設施並確保人道救援行動正常展開。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm)
+
+---
+
 # 男子手持巴勒斯坦旗幟爬上倫敦大笨鐘鐘樓　十多小時後下來
 
 ![男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，事件擾攘十多小時。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794953_1_20250309085956.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm)
-
----
-
-# 全國兩會｜王毅：中東不靜世界難安　應推動加沙全面持久停火
-
-![王毅表示，若大國真正關心加沙人民，應推動加沙全面、持久停火，加大人道主義援助，保持「巴人治巴」原則。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794725_1_20250307141907.jpg&q=50)
-  
-
-美國總統特朗普較早時宣稱將「接管」和「擁有」加沙地帶。在北京，外交部部長王毅表示，若大國真正關心加沙人民，應推動加沙全面、持久停火，加大人道主義援助，保持「巴人治巴」原則，為加沙重建做出貢獻。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794725-20250307.htm)
 
 ---

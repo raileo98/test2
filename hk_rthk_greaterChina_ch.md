@@ -1,5 +1,30 @@
+# 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
+
+![王瑞軍回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
+  
+
+在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm)
+
+---
+
 # 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
 
+![鄭備表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。（國新網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_1_20250309094405.jpg&q=90)
   
 
 政府工作報告提出，安排超長期特別國債3000億元人民幣支持消費品「以舊換新」，按年增加一倍。全國人大代表、發改委副主任鄭備，書面接受本台訪問時表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794707-20250307.htm)
-
----
-
-# 全國兩會｜上合峰會秋季在天津舉行　組織成員的國家領導人將出席
-
-![王毅說，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。（新華社）07](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794706_1_20250307123443.jpg&q=90)
-  
-
-中國今年出任上海合作組織輪任主席國，外長王毅宣布，今年秋季將在天津舉行上合組織峰會，組織成員的國家領導人會出席會議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794706-20250307.htm)
 
 ---

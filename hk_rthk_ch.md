@@ -1,3 +1,51 @@
+# 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
+
+![王瑞軍回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
+  
+
+在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm)
+
+---
+
+# 聯合國官員敦促敘利亞衝突各方立即停止敵對行動
+
+![敘利亞軍方人員坐車前往拉塔基亞，加入對付效忠前政權武裝人員的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794954_1_20250309092001.jpg&q=75)
+  
+
+聯合國官員發表聲明，敦促敘利亞衝突各方立即停止在西部沿海和中部地區的敵對行動，切實保護平民、維護民用基礎設施並確保人道救援行動正常展開。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm)
+
+---
+
 # 男子手持巴勒斯坦旗幟爬上倫敦大笨鐘鐘樓　十多小時後下來
 
 ![男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，事件擾攘十多小時。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794953_1_20250309085956.jpg&q=75)
@@ -24,6 +72,7 @@
 
 # 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
 
+![鄭備表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。（國新網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_1_20250309094405.jpg&q=90)
   
 
 政府工作報告提出，安排超長期特別國債3000億元人民幣支持消費品「以舊換新」，按年增加一倍。全國人大代表、發改委副主任鄭備，書面接受本台訪問時表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。
@@ -121,7 +170,7 @@
 # 英超利物浦3:1反勝修咸頓　榜首優勢擴大至16分
 
 ![達雲紐尼斯今仗為利物浦追成平手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_1_20250309070507.jpg&q=90)
-![諾定咸森林的赫臣奧杜爾一箭定江山。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_2_20250309070507.jpg&q=90)
+![諾定咸森林的赫臣奧杜爾一箭定江山。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_2_20250309070507.jpg&q=90)
   
 
 英格蘭超級足球聯賽，利物浦主場3:1反勝修咸頓，在踢多兩場下，榜首優勢擴大至16分。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm)
-
----
-
-# 愛秩序灣遊樂場有銅喉被偷走　警列盜竊及刑毀案跟進
-
-![警方到場調查，暫時未有人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794878_1_20250308122756.jpg&q=30)
-  
-
-筲箕灣南安街的愛秩序灣遊樂場有銅喉被偷走。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm)
-
----
-
-# 李家超稱政府重視女性權益和福祉　不論男女均有平等發展機會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794876_1_20250308121922.jpg&q=90)
-  
-
-行政長官李家超及夫人李林麗嬋，在政府總部主持民政及青年事務局與婦女事務委員會舉辦的2025年國際婦女節酒會。李家超致辭時說，婦女是香港發展的重要力量，他向全港女士致敬。他提到，香港是國際大都會，不論男女均有平等發展機會，女性佔香港的人口54%，多年來女性不但擔當家庭支柱，亦是社會進步的重要推動者，在各領域展現觸目的風采。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm)
 
 ---
