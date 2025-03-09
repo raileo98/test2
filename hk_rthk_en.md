@@ -1,3 +1,27 @@
+# 'Non-recurrent social welfare spending can be reduced'
+
+![Chris Sun said he doesn't see room for further cuts in recurrent social welfare expenditure. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794974_1_20250309150059.jpg&q=90)
+  
+
+Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent social welfare expenditure to go down.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm)
+
+---
+
 # Fleet taxis do not have to charge by meter: govt
 
 ![Five new taxi fleets with more than 3,500 vehicles between them are set to launch from the end of March. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=70)
@@ -1412,29 +1436,5 @@ Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm)
-
----
-
-# 'Govt should seek new revenue streams amid deficit'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=85)
-  
-
-Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
 
 ---

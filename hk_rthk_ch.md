@@ -43,7 +43,7 @@
 
 # 孫玉菡料「高才通」續簽高峰期第二季出現
 
-![孫玉菡相信，「高才通」續簽高峰期第二季開始出現。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794983_1_20250309152855.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794983_1_20250309152855.jpg&q=90)
   
 
 勞工及福利局局長孫玉菡預料，「高才通計劃」續簽高峰期將於今年第二季左右開始出現，稍後有更多數據時再公布。

@@ -1,3 +1,27 @@
+# 'Non-recurrent social welfare spending can be reduced'
+
+![Chris Sun said he doesn't see room for further cuts in recurrent social welfare expenditure. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794974_1_20250309150059.jpg&q=90)
+  
+
+Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent social welfare expenditure to go down.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm)
+
+---
+
 # Fleet taxis do not have to charge by meter: govt
 
 ![Five new taxi fleets with more than 3,500 vehicles between them are set to launch from the end of March. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=70)
@@ -1414,29 +1438,5 @@ Hong Kong delegates to the nation's top political advisory body who met with sen
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794055-20250303.htm)
-
----
-
-# Sunbeam puts on a show for one last time
-
-![Lana Wong, left, says she has many fond memories of Sunbeam. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794043_2_20250303213509.jpg&q=90)
-  
-
-Sunbeam Theatre – the North Point venue best known for its Cantonese opera performances – put on its last show on Monday night, bidding farewell to fans and opera lovers after more than half a century.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm)
 
 ---
