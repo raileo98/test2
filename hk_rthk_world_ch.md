@@ -1,3 +1,26 @@
+# 加拿大執政黨自由黨選舉新黨魁　報道指卡尼獲議會過半黨員支持
+
+  
+
+加拿大執政黨自由黨選舉新黨魁，預料結果在當地星期日晚公布，新黨魁將與現任總理杜魯多交接，並成為加拿大新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm)
+
+---
+
 # 馬斯克稱不會切斷對烏克蘭「星鏈」服務
 
 ![馬斯克說，不會切斷對烏克蘭的「星鏈」衛星網絡服務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795025_1_20250310053705.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794828-20250308.htm)
-
----
-
-# 俄國防部稱打擊確保烏克蘭軍工運作能源基礎設施　摧毀所有目標
-
-![烏克蘭哈爾科夫遇襲，有建築物受損並冒煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794827_1_20250308021709.jpg&q=70)
-  
-
-俄羅斯國防部發表戰報指出，俄軍在當地星期五凌晨，集體打擊確保烏克蘭軍工綜合體運作的天然氣能源基礎設施，所有目標都被擊毀。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794827-20250308.htm)
 
 ---

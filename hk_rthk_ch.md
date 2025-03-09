@@ -1,3 +1,26 @@
+# 加拿大執政黨自由黨選舉新黨魁　報道指卡尼獲議會過半黨員支持
+
+  
+
+加拿大執政黨自由黨選舉新黨魁，預料結果在當地星期日晚公布，新黨魁將與現任總理杜魯多交接，並成為加拿大新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm)
+
+---
+
 # 內地2月PPI按年及按月跌幅收窄　統計局：宏觀政策效果漸顯現
 
 ![國家統計局指出，隨著宏觀政策效果逐步顯現，部分行業生產需求增加，帶動上月PPI跌幅收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795027_1_20250310053724.jpg&q=30)
@@ -1411,29 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm)
-
----
-
-# 聯合國官員敦促敘利亞衝突各方立即停止敵對行動
-
-![敘利亞軍方人員坐車前往拉塔基亞，加入對付效忠前政權武裝人員的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794954_1_20250309092001.jpg&q=75)
-  
-
-聯合國官員發表聲明，敦促敘利亞衝突各方立即停止在西部沿海和中部地區的敵對行動，切實保護平民、維護民用基礎設施並確保人道救援行動正常展開。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm)
 
 ---
