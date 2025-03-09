@@ -24,7 +24,7 @@ Financial Secretary Paul Chan said on Sunday that Hong Kong must closely link it
 
 # 'Each Legco election should be better than the last’
 
-![Wang Linggui says Hong Kong needs more talent in politics as well as innovation and technology. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794968_1_20250309114238.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794968_1_20250309114238.jpg&q=75)
   
 
 Each Legislative Council election should be better than the previous one, according to a senior Beijing official overseeing Hong Kong affairs, who also stressed the SAR needs “capable, responsible and accomplished” individuals to serve the city.
