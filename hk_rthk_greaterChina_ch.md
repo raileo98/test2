@@ -1,3 +1,26 @@
+# 全國兩會｜倪虹︰要鞏固房地產政策組合拳效果　將減息等效應釋放
+
+  
+
+在北京，住建部部長倪虹表示，未來要鞏固房地產政策組合拳的效果，將減息、增貸等政策效應充分釋放，亦要加大房地產項目白名單貸款投放力度，按照「應貸盡貸」等要求，將符合條件的房地產項目全部納入白名單，並提供有力的融資支持，充分保障交付。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm)
+
+---
+
 # 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794777-20250307.htm)
-
----
-
-# 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
-  
-
-在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
 
 ---

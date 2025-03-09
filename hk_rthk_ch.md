@@ -1,3 +1,26 @@
+# 全國兩會｜倪虹︰要鞏固房地產政策組合拳效果　將減息等效應釋放
+
+  
+
+在北京，住建部部長倪虹表示，未來要鞏固房地產政策組合拳的效果，將減息、增貸等政策效應充分釋放，亦要加大房地產項目白名單貸款投放力度，按照「應貸盡貸」等要求，將符合條件的房地產項目全部納入白名單，並提供有力的融資支持，充分保障交付。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm)
+
+---
+
 # 敘利亞過渡總統：國內發生事情屬預計中挑戰　籲維護國家團結和平
 
 ![沙拉說，敘利亞國內目前發生的事情屬於預計中的挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794989_1_20250309162357.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm)
-
----
-
-# 美國今年以來逾220人感染麻疹　2名患者死亡
-
-![美國疾控中心公布的數據顯示，全美今年以來共報告222宗麻疹確診病例，2名患者死亡。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794913_1_20250308164746.jpg&q=85)
-  
-
-美國疾病控制和預防中心公布的數據顯示，截至本月6日，全美今年以來共報告222宗麻疹確診病例，2名患者死亡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm)
 
 ---
