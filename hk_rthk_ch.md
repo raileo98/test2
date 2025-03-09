@@ -1,3 +1,26 @@
+# 以色列切斷加沙供電　迫使哈馬斯釋放被扣押人員
+
+  
+
+以色列宣布切斷加沙地帶供電，藉此向巴勒斯坦武裝組織哈馬斯施壓，迫使哈馬斯釋放被扣押在加沙的人員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm)
+
+---
+
 # 主辦方稱按既定程序申請在球員比賽範圍及貴賓席放膠樽裝飲料
 
 ![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795018_1_20250309234709.jpg&q=90)
@@ -1414,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm)
-
----
-
-# 以色列接受斡旋方邀請將派代表團赴多哈尋求談判取得進展
-
-![以色列總理內塔尼亞胡辦公室表示，以色列於星期一派遣代表團前往多哈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794944_1_20250309061454.jpg&q=85)
-  
-
-以色列總理辦公室發聲明表示，以色列接受斡旋方邀請，將於星期一派遣一個代表團前往卡塔爾首都多哈，尋求談判取得進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm)
 
 ---

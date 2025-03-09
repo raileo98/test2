@@ -1,3 +1,26 @@
+# 以色列切斷加沙供電　迫使哈馬斯釋放被扣押人員
+
+  
+
+以色列宣布切斷加沙地帶供電，藉此向巴勒斯坦武裝組織哈馬斯施壓，迫使哈馬斯釋放被扣押在加沙的人員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm)
+
+---
+
 # 馮德萊恩：歐盟仍視美國為盟友　安全保障是優先事項
 
 ![馮德萊恩強調，歐盟仍然視美國為盟友。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795017_1_20250309225853.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794821-20250308.htm)
-
----
-
-# 全國兩會｜陳茂波：兩會精神落實到各工作　陳國基：盡快開創新局
-
-![陳茂波（左）說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向；陳國基（右）說，特區政府在推動創新發展上，認識不斷提升、思維持續更新、行動更加得力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794809_3_20250308142054.jpg&q=85)
-  
-
-全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
 
 ---
