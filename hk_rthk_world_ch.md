@@ -1,3 +1,26 @@
+# 敘利亞過渡總統指責巴沙爾支持者及外國勢力試圖煽動動亂
+
+  
+
+敘利亞過渡政府安全部隊與效忠前總統巴沙爾的武裝分子在沿海地區爆發衝突，總部設在英國的「敘利亞人權觀察組織」最新表示，衝突已造成過千人死亡，包括830名平民。敘利亞總統府宣布，成立一個獨立的國家委員會調查事件，30天內向總統府提交報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm)
+
+---
+
 # 哈馬斯稱切斷加沙供電證實以方堅持用饑餓政策完成種族滅絕
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794826-20250308.htm)
-
----
-
-# 特朗普稱強烈考慮對俄實施制裁　籲俄烏返談判桌
-
-![特朗普敦促俄羅斯及烏克蘭回到談判桌。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794824_1_20250308013427.jpg&q=90)
-  
-
-美國總統特朗普在旗下社交平台貼文表示，鑒於俄羅斯目前在前線，對烏克蘭發動猛烈攻擊，他強烈考慮對俄羅斯實施制裁，包括銀行業在內的大規模制裁及關稅制裁，直至達成停火及最終和平協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794824-20250308.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 敘利亞過渡總統指責巴沙爾支持者及外國勢力試圖煽動動亂
+
+  
+
+敘利亞過渡政府安全部隊與效忠前總統巴沙爾的武裝分子在沿海地區爆發衝突，總部設在英國的「敘利亞人權觀察組織」最新表示，衝突已造成過千人死亡，包括830名平民。敘利亞總統府宣布，成立一個獨立的國家委員會調查事件，30天內向總統府提交報告。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm)
+
+---
+
 # 哈馬斯稱切斷加沙供電證實以方堅持用饑餓政策完成種族滅絕
 
   
@@ -1411,30 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm)
-
----
-
-# 全國兩會 | 青海研增往來西寧香港航班　內蒙古拓高鐵旅遊專列
-
-![青海省省長羅東川上表示，今年會大力推進、採取更多措施與香港對接。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_1_20250309075331.jpg&q=90)
-![內蒙古文化和旅遊廳黨組書記張銳，將會開通香港西九龍經停鄭州前往呼和浩特的高鐵旅遊專列，為香港旅客提供更多入境旅遊選擇。（受訪者提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_2_20250309075331.jpg&q=90)
-  
-
-青海省西寧市和內蒙古自治區呼和浩特市，去年5月納入簽發往來港澳「個人遊」簽注城市，青海省省長羅東川上月曾訪港與行政長官李家超會面。身兼全國人大代表的羅東川在兩會期間接受本台訪問，指今年會大力推進、採取更多措施與香港對接，希望同時有更多港人到青海看看，相信隨著居民生活水平越來越高，將來也會組織更多雙向交流活動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm)
 
 ---
