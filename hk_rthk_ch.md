@@ -1,3 +1,27 @@
+# M+今免費開放標準門票展覽　逾16300人次入場參觀
+
+![M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795003_1_20250309184923.jpg&q=75)
+  
+
+M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展覽，截至下午5時，有超過16300人次入場參觀。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795003-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795003-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795003-20250309.htm)
+
+---
+
 # 陳國基分別觀賞高球賽及電影《哪吒2》　籲積極參與各活動
 
 ![陳國基（中）今日一連參與兩項活動。（陳國基社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795002_1_20250309184335.jpg&q=70)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm)
-
----
-
-# 白宮舉行加密貨幣峰會　特朗普重申支持比特幣為代表的加密貨幣
-
-![特朗普早前簽署行政命令，設立戰略比特幣儲備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794927_1_20250308202343.jpg&q=90)
-  
-
-美國白宮舉行加密貨幣峰會，總統特朗普表示，聯邦政府將支持以比特幣為代表的加密貨幣，以及數字資產市場的發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm)
 
 ---

@@ -1,3 +1,27 @@
+# M+今免費開放標準門票展覽　逾16300人次入場參觀
+
+![M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795003_1_20250309184923.jpg&q=75)
+  
+
+M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展覽，截至下午5時，有超過16300人次入場參觀。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795003-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795003-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795003-20250309.htm)
+
+---
+
 # 陳國基分別觀賞高球賽及電影《哪吒2》　籲積極參與各活動
 
 ![陳國基（中）今日一連參與兩項活動。（陳國基社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795002_1_20250309184335.jpg&q=70)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm)
-
----
-
-# 房委會建議公屋入息及資產限額平均上調1.7%
-
-![房委會建議2025/26年度公屋入息和資產限額均平均上調1.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794815_1_20250307224750.jpg&q=90)
-  
-
-房委會完成公屋入息及資產限額檢討，建議2025/26年度公屋入息和資產限額均平均上調1.7%。下星期五諮詢立法會房屋事務委員會意見，之後房委會資助房屋小組將於本月21日的會議上討論。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
 
 ---
