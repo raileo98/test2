@@ -1,3 +1,27 @@
+# 'Improve doctors' training at new medical school'
+
+![Two patients' groups unveil findings of their survey on Hong Kong's third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794994_1_20250309165758.jpg&q=75)
+  
+
+Two patients' groups on Sunday gave their thoughts on the city's future medical school, hoping it would improve training for doctors and minimise the risk of mishaps.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm)
+
+---
+
 # 'Non-recurrent social welfare spending can be reduced'
 
 ![Chris Sun said he doesn't see room for further cuts in recurrent social welfare expenditure. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794974_1_20250309150059.jpg&q=90)
@@ -1412,29 +1436,5 @@ Violent winds toppled power lines on Friday as a tropical cyclone inched towards
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm)
-
----
-
-# SpaceX loses contact with Starship rocket after launch
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794668_1_20250307085312.jpg&q=90)
-  
-
-Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship mega-rocket on Thursday, successfully catching the massive booster but with the upper stage failing for the second consecutive time.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm)
 
 ---
