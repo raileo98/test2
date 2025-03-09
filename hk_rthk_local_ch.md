@@ -1,3 +1,26 @@
+# 主辦方稱按既定程序申請在球員比賽範圍及貴賓席放膠樽裝飲料
+
+  
+
+環保組織綠色和平在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到觀眾席上，有預設擺放連蓋的膠樽水；亦有觀眾將自備杯帶入場內，認為有違場館規定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm)
+
+---
+
 # 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
 
 ![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
@@ -1413,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
-
----
-
-# 麥美娟期望今年年中啟動聯廈聯管計劃
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794852_1_20250308105824.jpg&q=80)
-  
-
-民政及青年事務局局長麥美娟出席一個電台節目時提到，《施政報告》提出的「聯廈聯管計劃」是協助不同大廈的小業主共同聘用物業管理公司，管理好自己的資產，目標除了「三無大廈」，亦有其他樓宇，尤其是舊區的樓齡高、單幢一梯兩伙大廈。她說，今個月會諮詢率先試行計劃的區議會，包括油尖旺、深水埗、九龍城及荃灣，關愛隊會協助宣傳和接觸小業主，之後會邀請團體提交建議書，期望今年年中啟動計劃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm)
 
 ---

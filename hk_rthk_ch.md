@@ -1,3 +1,26 @@
+# 主辦方稱按既定程序申請在球員比賽範圍及貴賓席放膠樽裝飲料
+
+  
+
+環保組織綠色和平在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到觀眾席上，有預設擺放連蓋的膠樽水；亦有觀眾將自備杯帶入場內，認為有違場館規定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm)
+
+---
+
 # 馮德萊恩：歐盟仍視美國為盟友　安全保障是優先事項
 
 ![馮德萊恩強調，歐盟仍然視美國為盟友。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795017_1_20250309225853.jpg&q=90)
