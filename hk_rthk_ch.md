@@ -1,3 +1,28 @@
+# 全國兩會 | 青海研增往來西寧香港航班　內蒙古拓高鐵旅遊專列
+
+![青海省省長羅東川上表示，今年會大力推進、採取更多措施與香港對接。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_1_20250309075331.jpg&q=90)
+![內蒙古文化和旅遊廳黨組書記張銳，將會開通香港西九龍經停鄭州前往呼和浩特的高鐵旅遊專列，為香港旅客提供更多入境旅遊選擇。（受訪者提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_2_20250309075331.jpg&q=90)
+  
+
+青海省西寧市和內蒙古自治區呼和浩特市，去年5月納入簽發往來港澳「個人遊」簽注城市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm)
+
+---
+
 # 德甲拜仁十人應戰下　2:3不敵波琴
 
 ![拜仁慕尼黑主場落敗。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794949_1_20250309071718.jpg&q=90)
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm)
-
----
-
-# 體育爭議解決先導計劃今年內啟動　政府冀年中物色到合適仲裁機構
-
-![張國鈞說，會在體育界加強教育及宣傳，令業界明白遇到內部解決不到的問題，可透過爭議解決方式去處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794867_1_20250308112118.jpg&q=75)
-  
-
-律政司副司長張國鈞表示，期望今年內啟動體育爭議解決先導計劃，在年中物色到合適的仲裁機構，在本港開展體育爭議的相關服務，如果遇到需要調解的問題，可以向這個機構求助。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm)
 
 ---
