@@ -1,3 +1,46 @@
+# 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm)
+
+---
+
+# 全國兩會｜陸治原︰要順應群眾需求變化　逐步擴大民生保障政策
+
+  
+
+在北京，民政部部長陸治原表示，要順應群眾需求變化，逐步擴大民生保障政策覆蓋面，有序推進民政民生保障由兜底性、基礎性向普惠性發展。他表示，中國人口發展呈現老齡化、高齡化、少子化等特點，傳統家庭養老功能正在弱化，越來越多老年人對社會養老服務提出需求，要推動養老服務由過去的「三無」老年人為主，向全體老年人拓展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm)
+
+---
+
 # 全國兩會｜王曉萍形容穩定和擴大就業任務繁重　總體態勢向好
 
 ![王曉萍形容穩定和擴大就業任務繁重。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794984_1_20250309155750.jpg&q=90)
@@ -1390,54 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
-
----
-
-# 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
-
-![黃代放表示，民企發展面臨一系列複雜挑戰，相信隨著政策持續落地與完善，民企發展難題會越來越少。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794758_2_20250307171251.jpg&q=90)
-  
-
-國家主席習近平上月出席民營企業座談會並發表重要講活。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm)
-
----
-
-# 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
-
-![楊華勇認為，浙江民營經濟發達，杭州有政府支持，亦有民間資本，均有利發展。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_2_20250307202819.jpg&q=85)
-![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
-  
-
-杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm)
 
 ---

@@ -1,3 +1,46 @@
+# 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm)
+
+---
+
+# 全國兩會｜陸治原︰要順應群眾需求變化　逐步擴大民生保障政策
+
+  
+
+在北京，民政部部長陸治原表示，要順應群眾需求變化，逐步擴大民生保障政策覆蓋面，有序推進民政民生保障由兜底性、基礎性向普惠性發展。他表示，中國人口發展呈現老齡化、高齡化、少子化等特點，傳統家庭養老功能正在弱化，越來越多老年人對社會養老服務提出需求，要推動養老服務由過去的「三無」老年人為主，向全體老年人拓展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm)
+
+---
+
 # 新任南區民政事務專員張佩珊明日履新
 
   
@@ -1389,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm)
-
----
-
-# 全國兩會 | 預算案倡研陸路邊境建設費　仇鴻稱可實施後看效果
-
-![仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794910_1_20250308164843.jpg&q=85)
-  
-
-在北京，全國政協委員、中聯辦前副主任仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm)
-
----
-
-# 基金會稱每14名婦女1人有機會患入侵性乳癌　倡實施全民篩查
-
-![香港乳癌基金會主席霍何綺華（左）和基金會創會人張淑儀（右）舉行基金會20周年慶典啟動禮。（香港乳癌基金會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794909_1_20250308164821.jpg&q=80)
-  
-
-香港乳癌基金會歡迎政府延續乳癌篩查先導計劃，同時建議政府分三個階段實施全民乳癌篩查，首先是高危女性組別，其次是低收入地區女性，最終落實全民乳癌篩查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm)
 
 ---
