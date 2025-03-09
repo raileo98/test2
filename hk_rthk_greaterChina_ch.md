@@ -1,3 +1,27 @@
+# 內地2月CPI按年跌0.7%　13個月以來首次轉跌
+
+![內地2月CPI按年轉跌0.7%，是13個月以來首次下跌。核心CPI亦跌0.1%，逾4年來首次下跌。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795026_1_20250310052735.jpg&q=80)
+  
+
+內地2月居民消費價格指數(CPI)按年跌0.7%，是13個月以來首次轉跌；1月是升0.5%。上月CPI按月亦跌0.2%，創3個月新低，按月及按年跌幅都超出市場預期。今年首兩個月CPI按年跌0.1%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm)
+
+---
+
 # 中國成功發射通信技術試驗衛星十五號
 
 ![通信技術試驗衛星十五號成功發射升空。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795022_1_20250310022450.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
-
----
-
-# 全國兩會｜王毅︰談判桌是烏克蘭危機終點　和平不會有輸家
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794780_1_20250307183452.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
 
 ---

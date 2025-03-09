@@ -1,3 +1,27 @@
+# 內地2月CPI按年跌0.7%　13個月以來首次轉跌
+
+![內地2月CPI按年轉跌0.7%，是13個月以來首次下跌。核心CPI亦跌0.1%，逾4年來首次下跌。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795026_1_20250310052735.jpg&q=80)
+  
+
+內地2月居民消費價格指數(CPI)按年跌0.7%，是13個月以來首次轉跌；1月是升0.5%。上月CPI按月亦跌0.2%，創3個月新低，按月及按年跌幅都超出市場預期。今年首兩個月CPI按年跌0.1%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm)
+
+---
+
 # 全國兩會｜住建部︰今年初房地產市場保持止跌回穩積極勢頭
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794999_1_20250309182945.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794720-20250307.htm)
-
----
-
-# 全國兩會｜唐英年稱中央看到本港優勢　鼓勵進一步國際化
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794718_1_20250307125013.jpg&q=85)
-  
-
-在北京，全國政協常委唐英年表示，國家正面臨進一步深化改革開放，香港的角色非常重要，本港是國家最具國際化的城市，過去與國際社會有高度交流及溝通，他相信中央是看到本港的優勢，鼓勵特區進一步國際化。他希望本港其他組織亦透過自身優勢，加深國際化，相信在複雜多變的環境下，對本港絕對有幫助。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
 
 ---
