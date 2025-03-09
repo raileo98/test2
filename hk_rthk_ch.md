@@ -1,3 +1,26 @@
+# 伊朗稱企圖廢除伊朗和平核計劃的談判將永遠不會發生
+
+  
+
+伊朗駐聯合國代表團說，如果談判的目的是廢除伊朗的和平核計劃，談判將永遠不會發生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm)
+
+---
+
 # 敘利亞成立國家委員會調查西部襲擊和衝突事件
 
   
@@ -1412,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm)
-
----
-
-# 以媒指美國向哈馬斯提議放10人換取延長加沙停火兩個月
-
-![美國據報提議哈馬斯釋放10名在生被扣除人員，換取延長加沙地帶（圖）停火兩個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794947_1_20250309070040.jpg&q=55)
-  
-
-以色列傳媒引述消息人士報道，美國近日向巴勒斯坦武裝組織哈馬斯提供一項協議，希望哈馬斯釋放10名活著的以方被扣押人員，換取延長加沙地帶停火兩個月。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm)
 
 ---

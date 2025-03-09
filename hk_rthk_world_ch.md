@@ -1,3 +1,26 @@
+# 伊朗稱企圖廢除伊朗和平核計劃的談判將永遠不會發生
+
+  
+
+伊朗駐聯合國代表團說，如果談判的目的是廢除伊朗的和平核計劃，談判將永遠不會發生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm)
+
+---
+
 # 敘利亞成立國家委員會調查西部襲擊和衝突事件
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794823-20250308.htm)
-
----
-
-# 微軟向南非追加近3億美元投資推動人工智能發展和應用
-
-![微軟承諾在未來12個月內，為5萬名南非年輕人支付參加數碼技能認證考試的費用。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794822_1_20250308011921.jpg&q=90)
-  
-
-美國微軟公司總裁史密斯表示，計劃到2027年年底前，向南非追加約2億9千8百萬美元投資，推動當地人工智能發展和應用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794822-20250308.htm)
 
 ---
