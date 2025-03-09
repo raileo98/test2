@@ -1,6 +1,6 @@
 # China's job market to be stable this year: official
 
-![The minister of human resources and social security, Wang Xiaoping, says she expects the labour market situation to remain stable this year. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
   
 
 Beijing officials on Sunday said it is not easy to stabilise and expand the job market, but they expect there will be good outcomes with high-quality development.

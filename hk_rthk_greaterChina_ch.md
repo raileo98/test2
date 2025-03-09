@@ -1,3 +1,27 @@
+# 全國兩會｜住建部︰今年初房地產市場保持止跌回穩積極勢頭
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794999_1_20250309182945.jpg&q=90)
+  
+
+在全國人大會議關於民生的記者會上，住房和城鄉建設部部長倪虹說，中央去年為促進房地產市場止跌回穩，推出組合拳，房地產市場已出現了正面變化，今年首兩個月，保持止跌回穩的積極勢頭，會重點在四方面，堅持長短結合、標本兼治，堅決穩住樓市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm)
+
+---
+
 # 全國兩會｜倪虹︰建設好房子關係到獲得感與幸福感
 
 ![倪虹說，要積極推動全屋智能。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794996_1_20250309174056.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794779-20250307.htm)
-
----
-
-# 全國兩會｜孫青野：應在校園進行孩子們聽得懂的國安教育
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794778_1_20250307183034.jpg&q=80)
-  
-
-中央駐港國安公署副署長孫青野表示，香港的年輕人國家安全意識比較淡薄，應該要在校園裡適當地進行一些讓孩子們能夠聽得懂的國家安全教育。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794778-20250307.htm)
 
 ---

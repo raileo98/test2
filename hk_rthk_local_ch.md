@@ -1,3 +1,27 @@
+# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795000_1_20250309183439.jpg&q=80)
+  
+
+新一屆立法會選舉將於今年底舉行，在北京，港澳辦副主任王靈桂接受本台訪問表示，香港要有能力、有擔當、有作為的人為市民服務，形容如奧運會一樣，每一屆立法會選舉沒有最好、只有更好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm)
+
+---
+
 # 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
 
 ![羅淑佩說，正與LIV Golf主辦方密切聯繫，目標雙方能建立長期合作關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794993_1_20250309172626.jpg&q=60)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm)
-
----
-
-# 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
-
-![啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794810_1_20250307221729.jpg&q=80)
-  
-
-啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。截至傍晚6時，有397名會員使用跑步徑，11名會員使用乒乓球設施，整體運作大致順暢。預訂設施方面，累計共1733人成功預訂跑步徑設施，127人預約乒乓球設施，園方形容訂場情況理想。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
 
 ---

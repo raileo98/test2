@@ -1,3 +1,27 @@
+# 全國兩會｜住建部︰今年初房地產市場保持止跌回穩積極勢頭
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794999_1_20250309182945.jpg&q=90)
+  
+
+在全國人大會議關於民生的記者會上，住房和城鄉建設部部長倪虹說，中央去年為促進房地產市場止跌回穩，推出組合拳，房地產市場已出現了正面變化，今年首兩個月，保持止跌回穩的積極勢頭，會重點在四方面，堅持長短結合、標本兼治，堅決穩住樓市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm)
+
+---
+
 # 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
 
 ![倪虹說，中央高度重視房地產市場健康發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794988_1_20250309165217.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794718-20250307.htm)
-
----
-
-# 港股半日升135點　科技股支撐大市
-
-![恒指今早跌過300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794713_1_20250307121256.jpg&q=20)
-  
-
-港股今早先跌後升，恒生指數跌逾300點，跌至24000點邊緣後掉頭，中午收市報24504點，升135點，主板半日成交約1830億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794713-20250307.htm)
 
 ---

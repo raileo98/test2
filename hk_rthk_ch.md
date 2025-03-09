@@ -1,3 +1,75 @@
+# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795000_1_20250309183439.jpg&q=80)
+  
+
+新一屆立法會選舉將於今年底舉行，在北京，港澳辦副主任王靈桂接受本台訪問表示，香港要有能力、有擔當、有作為的人為市民服務，形容如奧運會一樣，每一屆立法會選舉沒有最好、只有更好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm)
+
+---
+
+# 全國兩會｜住建部︰今年初房地產市場保持止跌回穩積極勢頭
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794999_1_20250309182945.jpg&q=90)
+  
+
+在全國人大會議關於民生的記者會上，住房和城鄉建設部部長倪虹說，中央去年為促進房地產市場止跌回穩，推出組合拳，房地產市場已出現了正面變化，今年首兩個月，保持止跌回穩的積極勢頭，會重點在四方面，堅持長短結合、標本兼治，堅決穩住樓市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm)
+
+---
+
+# 英郵局系統出錯致逾9百人被不當起訴　英政府與富士通將協商賠償
+
+![富士通早前表明，會根據英國獨立機構調查事件的結果，探討賠償問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795001_1_20250309182914.jpg&q=90)
+  
+
+英國郵局數年前因會計系統出錯導致郵局局長等超過900人受到不當起訴的事件，英國政府表示，已與當時提供會計系統的日本企業富士通達成共識，會協商為受害者提供賠償。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm)
+
+---
+
 # 加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布
 
 ![加拿大執政自由黨新黨魁選舉共有4名候選人競逐。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794997_1_20250309171207.jpg&q=90)
@@ -1366,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm)
-
----
-
-# 巴黎當局在鐵路附近拆除戰時炸彈　估計60萬人受列車停運影響
-
-![施工人員在巴黎一條鐵路線上發現一枚二戰時期炸彈。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794924_1_20250308193940.jpg&q=85)
-  
-
-法國巴黎北站附近路軌在施工過程中發現一枚未引爆的二戰時期炸彈，導致進出巴黎北站的列車全面暫停，巴黎往返倫敦的歐洲之星列車亦全部停運。當局其後將炸彈拆除，受影響路線逐步恢復運作。事件導致鐵路服務癱瘓大約14小時，官員估計，大約500班列車和60萬人受到影響。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm)
-
----
-
-# 全國兩會｜張軍稱要加強涉外法治建設　依法反制非法制裁
-
-![張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794921_1_20250308195840.jpg&q=35)
-  
-
-在北京，最高人民法院院長張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟，亦要加強涉外法治建設，依法反制非法制裁和「長臂管轄」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm)
-
----
-
-# 全國兩會｜趙樂際稱今年工作任務包括制定民營經濟促進法
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794920_3_20250308224158.jpg&q=90)
-  
-
-在北京，全國人大委員長趙樂際發表工作報告，指去年工作取得新進展和成效，包括兩次審議民營經濟促進法草案，宣介「一國兩制」主張和成功實踐等，但工作仍存在一些差距和不足。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm)
 
 ---

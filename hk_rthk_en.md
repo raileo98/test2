@@ -48,7 +48,7 @@ Seventeen large cruise ships will visit Hong Kong this month, according to Secre
 
 # China's job market to be stable this year: official
 
-![The minister of human resources and social security, Wang Xiaoping, says she expects the labour market situation to remain stable this year. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
   
 
 Beijing officials on Sunday said it is not easy to stabilise and expand the job market, but they expect there will be good outcomes with high-quality development.
@@ -96,7 +96,7 @@ Two patients' groups on Sunday gave their thoughts on the city's future medical 
 
 # 'Non-recurrent social welfare spending can be reduced'
 
-![Chris Sun said he doesn't see room for further cuts in recurrent social welfare expenditure. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794974_1_20250309150059.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794974_1_20250309150059.jpg&q=90)
   
 
 Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent social welfare expenditure to go down.
@@ -120,7 +120,7 @@ Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent s
 
 # Fleet taxis do not have to charge by meter: govt
 
-![Five new taxi fleets with more than 3,500 vehicles between them are set to launch from the end of March. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=70)
   
 
 Commuters who reserve a ride from a licensed taxi fleet will have the option of negotiating a fare with the driver and not pay by the meter, according to the transport chief.

@@ -1,3 +1,27 @@
+# 英郵局系統出錯致逾9百人被不當起訴　英政府與富士通將協商賠償
+
+![富士通早前表明，會根據英國獨立機構調查事件的結果，探討賠償問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795001_1_20250309182914.jpg&q=90)
+  
+
+英國郵局數年前因會計系統出錯導致郵局局長等超過900人受到不當起訴的事件，英國政府表示，已與當時提供會計系統的日本企業富士通達成共識，會協商為受害者提供賠償。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm)
+
+---
+
 # 加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布
 
 ![加拿大執政自由黨新黨魁選舉共有4名候選人競逐。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794997_1_20250309171207.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm)
-
----
-
-# 全國兩會｜王毅︰談判桌是烏克蘭危機終點　和平不會有輸家
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794780_1_20250307183452.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅說，無論國際環境如何變化，中俄友好的歷史邏輯不變，一個成熟、堅韌、穩定的中俄關係，不會受第三方的干擾。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794780-20250307.htm)
 
 ---
