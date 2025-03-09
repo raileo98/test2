@@ -1,3 +1,27 @@
+# Arsenal held by Man Utd in latest Premiership setback
+
+![The result leaves Arsenal 15 points behind runaway leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795028_1_20250310054122.jpg&q=75)
+  
+
+Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed win but Arsenal's faltering Premier League title challenge suffered another damaging blow in a 1-1 draw at Old Trafford.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm)
+
+---
+
 # Robertson romps to World Snooker Grand Prix title
 
 ![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=75)
@@ -1413,29 +1437,5 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
-
----
-
-# China will 'firmly counter' US amid trade row: Wang Yi
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794703_1_20250307113148.jpg&q=90)
-  
-
-Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, after Washington imposed new tariffs on Chinese goods.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm)
 
 ---
