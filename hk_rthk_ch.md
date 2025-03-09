@@ -1,3 +1,76 @@
+# 菲律賓前總統杜特爾特與女兒到港爭取支持並為所屬政黨候選人拉票
+
+![杜特爾特表示，聽聞國際刑事法院已經對他發出逮捕令的消息，強調自己沒有做錯事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795013_1_20250309214714.jpg&q=75)
+![杜特爾特在灣仔出席活動，大批菲傭到場支持。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795013_2_20250309214714.jpg&q=40)
+  
+
+菲律賓前總統杜特爾特與女兒、現任副總統莎拉，到香港出席活動，爭取在港的菲傭支持，並為所屬政黨的參議員候選人拉票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm)
+
+---
+
+# 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
+
+![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，澳洲球手羅拔臣於決賽以局數10:0擊敗英格蘭球手冰咸奪得冠軍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
+
+---
+
+# 澳洲遭熱帶氣旋吹襲　東部廣泛地區停電
+
+![熱帶氣旋「阿爾弗雷德」吹襲澳洲，有樹木倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795015_1_20250309215121.jpg&q=55)
+  
+
+熱帶氣旋「阿爾弗雷德」減弱為熱帶低氣壓，在澳洲東海岸登陸。「阿爾弗雷德」吹襲澳洲期間，帶來狂風暴雨，至少1人死亡，部分地區停電，學校關閉，有樹木倒塌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm)
+
+---
+
 # 哈馬斯證實與美國人質事務特使舉行數次會談
 
 ![哈馬斯證實近期與美國總統人質事務特使伯勒爾（圖）舉行了數次會談。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795012_1_20250309212454.jpg&q=90)
@@ -24,7 +97,8 @@
 
 # LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
 
-![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （LIV Golf 提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
+![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
+![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=85)
   
 
 LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。

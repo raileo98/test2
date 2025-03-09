@@ -1,3 +1,28 @@
+# 菲律賓前總統杜特爾特與女兒到港爭取支持並為所屬政黨候選人拉票
+
+![杜特爾特表示，聽聞國際刑事法院已經對他發出逮捕令的消息，強調自己沒有做錯事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795013_1_20250309214714.jpg&q=75)
+![杜特爾特在灣仔出席活動，大批菲傭到場支持。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795013_2_20250309214714.jpg&q=40)
+  
+
+菲律賓前總統杜特爾特與女兒、現任副總統莎拉，到香港出席活動，爭取在港的菲傭支持，並為所屬政黨的參議員候選人拉票。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm)
+
+---
+
 # 澳洲遭熱帶氣旋吹襲　東部廣泛地區停電
 
 ![熱帶氣旋「阿爾弗雷德」吹襲澳洲，有樹木倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795015_1_20250309215121.jpg&q=55)
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794807-20250307.htm)
-
----
-
-# 歐爾班：歐洲增自身防務開支又支持烏克蘭　此舉將毀掉歐洲
-
-![歐爾班重申，匈牙利將繼續推動和平談判，而不是為戰爭提供資金。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794801_1_20250307211337.jpg&q=90)
-  
-
-由於匈牙利反對，歐盟就軍事援助烏克蘭未能達成一致意見。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794801-20250307.htm)
 
 ---

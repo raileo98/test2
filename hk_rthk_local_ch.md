@@ -1,6 +1,31 @@
+# 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
+
+![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，澳洲球手羅拔臣於決賽以局數10:0擊敗英格蘭球手冰咸奪得冠軍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
+
+---
+
 # LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
 
-![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （LIV Golf 提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
+![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
+![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=85)
   
 
 LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
@@ -1412,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794852-20250308.htm)
-
----
-
-# 財政預算案2025｜甯漢豪稱不能停止推售工業地住宅地
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794851_1_20250308100405.jpg&q=85)
-  
-
-新一份《財政預算案》表明，政府下一年度不會推售商業用地。對於有聲音希望政府暫停賣住宅地，發展局局長甯漢豪說，政府銳意發展產業，因此不能停推工業地；至於住宅地同樣不會停售，因為有相關科學根據，無論公營或私營房屋土地，政府有10年推算，不能不跟隨，至於每季推幾多土就要視乎市場情況作出平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm)
 
 ---

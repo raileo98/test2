@@ -1,6 +1,31 @@
+# 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
+
+![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，澳洲球手羅拔臣於決賽以局數10:0擊敗英格蘭球手冰咸奪得冠軍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
+
+---
+
 # LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
 
-![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （LIV Golf 提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
+![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
+![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=85)
   
 
 LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
@@ -1422,29 +1447,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793753-20250301.htm)
-
----
-
-# 英足盃16強維拉2:0挫英冠卡迪夫城
-
-![阿辛斯奧包辦維拉兩個入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793752_1_20250301071752.jpg&q=90)
-  
-
-英格蘭足總盃16強，阿士東維拉2:0擊敗英冠球隊卡迪夫城，十年來首次晉級8強。阿辛斯奧包辦兩個入球。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793752-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793752-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793752-20250301.htm)
 
 ---
