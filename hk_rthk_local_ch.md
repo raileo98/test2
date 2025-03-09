@@ -24,7 +24,7 @@
 
 # 財政預算案2025 | 孫玉菡：社福恆常開支看不到空間再調整
 
-![孫玉菡指出，服務兒童或長者的社福機構，一般需於地面及低層提供設施，但涉及開支較高。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794977_1_20250309141657.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794977_1_20250309141657.jpg&q=90)
   
 
 新一份財政預算案提出，於2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，就社福恆常開支，已看不到再有空間可作額外調整。
