@@ -1,3 +1,26 @@
+# 鄧炳強料香港航空業大有可為　人才需求會增加
+
+  
+
+保安局局長鄧炳強表示，國家自主研發的C919客機定期來往香港與上海的航線在今年1月開通，而2月底發表的《財政預算案》亦提到將助力C919打進國際市場，同時特區政府正推動香港發展成為亞洲首個飛機部件處理及交易中心，認為可以預期香港航空業未來將大有可為，人才需求亦會增加。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm)
+
+---
+
 # 啟德體育園稱主辦方可申請指定區域提供飲食　但需確保安全
 
   
@@ -1413,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm)
-
----
-
-# 阿根廷布蘭卡港暴雨成災至少10人死亡
-
-![布蘭卡港暴雨成災，部分地區變成澤國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794931_1_20250308213245.jpg&q=90)
-  
-
-阿根廷港口城市布蘭卡港暴雨成災，至少10人死亡，超過1千人疏散，當局又將一間醫院內的人員撤離。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm)
 
 ---

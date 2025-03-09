@@ -1,3 +1,27 @@
+# Fans enjoy the atmosphere on the final day of LIV Golf
+
+![Many fans told RTHK the all-star player roster was a big draw for them. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795008_1_20250309201219.jpg&q=60)
+  
+
+Spectators were immersed in what felt like a party-like atmosphere on the third and final day of the LIV Golf Hong Kong tournament, as the second edition of the event wrapped up in Fanling on Sunday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm)
+
+---
+
 # Spain's Garcia claims LIV Golf HK crown
 
 ![The victory is Garcia's second on the LIV Golf tour. Photo courtesy of LIV Golf Official](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_1_20250309194714.jpg&q=90)
@@ -1413,29 +1437,5 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm)
-
----
-
-# Woman killed in traffic accident in Kwai Chung
-
-![Police say a woman was killed in a traffic accident in Kwai Chung. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794688_1_20250307101912.jpg&q=85)
-  
-
-A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morning.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm)
 
 ---

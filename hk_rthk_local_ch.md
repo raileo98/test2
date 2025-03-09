@@ -1,3 +1,26 @@
+# 鄧炳強料香港航空業大有可為　人才需求會增加
+
+  
+
+保安局局長鄧炳強表示，國家自主研發的C919客機定期來往香港與上海的航線在今年1月開通，而2月底發表的《財政預算案》亦提到將助力C919打進國際市場，同時特區政府正推動香港發展成為亞洲首個飛機部件處理及交易中心，認為可以預期香港航空業未來將大有可為，人才需求亦會增加。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm)
+
+---
+
 # 啟德體育園稱主辦方可申請指定區域提供飲食　但需確保安全
 
   
@@ -1413,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794849-20250308.htm)
-
----
-
-# 被騙到緬甸後獲救港人部分回港　由警方車輛接載到機場警署
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794820_1_20250308000411.jpg&q=90)
-  
-
-再多6名被誘騙到緬甸的香港人獲救。除了一人留在泰國，其餘返抵本港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm)
 
 ---
