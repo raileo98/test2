@@ -1,3 +1,27 @@
+# 加拿大候任總理卡尼：不能讓特朗普控制加拿大企圖得逞
+
+![卡尼獲選為自由黨新黨魁後發表勝利演說。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795037_1_20250310075208.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替現任總理杜魯多出任總理，組建新內閣。卡尼在渥太華向黨內支持者發表勝利演說時警告，美國在總統特朗普管治下，正尋求控制加拿大，必須挫敗這個企圖。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm)
+
+---
+
 # 中原周末10大屋苑交投升至7宗　美聯維持8宗
 
 ![在剛過去的周末，中原10大屋苑二手成交升至7宗，美聯維持8宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795036_1_20250310072302.jpg&q=75)
@@ -1413,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm)
-
----
-
-# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
-  
-
-在北京，全國政協委員、港澳辦副主任王靈桂表示，香港進入「由治及興」新階段，需要有能力、有擔當、有作為的人為市民服務，每一屆立法會選舉應該要越來越好，如奧運會一樣，只有更好、沒有最好，「好」是一個不斷追求的目標。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm)
 
 ---

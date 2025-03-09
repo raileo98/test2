@@ -1,3 +1,27 @@
+# 加拿大候任總理卡尼：不能讓特朗普控制加拿大企圖得逞
+
+![卡尼獲選為自由黨新黨魁後發表勝利演說。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795037_1_20250310075208.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替現任總理杜魯多出任總理，組建新內閣。卡尼在渥太華向黨內支持者發表勝利演說時警告，美國在總統特朗普管治下，正尋求控制加拿大，必須挫敗這個企圖。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm)
+
+---
+
 # 卡尼贏得黨內選舉　成為加拿大自由黨新黨魁
 
 ![卡尼勝出自由黨黨魁，將成為加拿大新總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795032_1_20250310071448.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm)
-
----
-
-# 特朗普稱致信哈梅內伊促談判放棄開發核武　強調不想傷害伊朗
-
-![特朗普說他希望與伊朗談判，這樣對伊朗來說亦是更好的事。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794829_1_20250308035517.jpg&q=85)
-  
-
-美國總統特朗普在當地星期五播出的訪談節目節錄中表示，他已經向伊朗最高領袖哈梅內伊致送信件，敦促伊方就放棄開發核武器計劃，與美國談判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794829-20250308.htm)
 
 ---
