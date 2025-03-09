@@ -1,3 +1,27 @@
+# Fleet taxis do not have to charge by meter: govt
+
+![Five new taxi fleets with more than 3,500 vehicles between them are set to launch from the end of March. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=70)
+  
+
+Commuters who reserve a ride from a licensed taxi fleet will have the option of negotiating a fare with the driver and not pay by the meter, according to the transport chief.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm)
+
+---
+
 # Argentine city hit by a year's worth of rain in hours
 
 ![Rescuers wade through flooded streets in Bahia Blance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794956_1_20250309124021.jpg&q=70)
@@ -1412,29 +1436,5 @@ Former transport secretary Frank Chan says it is appropriate for the government 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
-
----
-
-# US stocks tumble again on slowdown worries
-
-![The Dow finished down one percent at 42.579, after spending the entire session in negative territory. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794654_1_20250307064135.jpg&q=90)
-  
-
-Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key US jobs data as markets shrugged off President Trump's latest moves to soften tariff actions.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm)
 
 ---

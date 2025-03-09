@@ -1,3 +1,27 @@
+# Fleet taxis do not have to charge by meter: govt
+
+![Five new taxi fleets with more than 3,500 vehicles between them are set to launch from the end of March. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=70)
+  
+
+Commuters who reserve a ride from a licensed taxi fleet will have the option of negotiating a fare with the driver and not pay by the meter, according to the transport chief.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm)
+
+---
+
 # Link HK closely to national development, says FS
 
 ![Paul Chan says Hong Kong needs to integrate the spirit of the Two Sessions into its development. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794969_1_20250309120252.jpg&q=85)
@@ -1414,29 +1438,5 @@ Sunbeam Theatre – the North Point venue best known for its Cantonese opera per
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794043-20250303.htm)
-
----
-
-# 'Hundreds of species at risk of local extinction'
-
-![WWF-Hong Kong says it hopes to discuss its findings with government officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794010_1_20250303173647.jpg&q=85)
-  
-
-Conservation groups are warning that around a quarter of almost 900 different species assessed in Hong Kong are at risk of local extinction, with types of birds and freshwater fish among the most in danger of disappearing from the territory.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794010-20250303.htm)
 
 ---
