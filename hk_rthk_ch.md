@@ -1,3 +1,27 @@
+# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
+
+![王靈桂表示，立法會選舉屬特區內部事務，相信特區政府一定會通過各種途徑徵求意見。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂表示，香港進入「由治及興」新階段，需要有能力、有擔當、有作為的人為市民服務，每一屆立法會選舉應該要越來越好，如奧運會一樣，只有更好、沒有最好，「好」是一個不斷追求的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm)
+
+---
+
 # 美國民主黨反對共和黨提出臨時撥款法案
 
 ![共和黨籍的眾議院議長約翰遜希望星期二就法案投票。民主黨反對法案削減非國防支出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794961_1_20250309103550.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm)
-
----
-
-# 全國兩會 | 醫衞局稱利用一國兩制優勢建設國際醫療創新樞紐
-
-![醫務衞生局說，《施政報告》提出深化醫療體系改革亦必須「三醫聯動」，才能持續提升醫療質量及效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794883_1_20250308132556.jpg&q=85)
-  
-
-醫務衞生局在社交平台提到，中央政府依二十屆三中全會的《決定》作出部署，深化醫藥衞生體制改革，實施健康優先發展戰略，促進醫療、醫藥、醫保「三醫聯動」，協同發展和治理，對香港帶來重要啟示。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
 
 ---

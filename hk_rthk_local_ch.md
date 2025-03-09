@@ -1,3 +1,27 @@
+# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
+
+![王靈桂表示，立法會選舉屬特區內部事務，相信特區政府一定會通過各種途徑徵求意見。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂表示，香港進入「由治及興」新階段，需要有能力、有擔當、有作為的人為市民服務，每一屆立法會選舉應該要越來越好，如奧運會一樣，只有更好、沒有最好，「好」是一個不斷追求的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm)
+
+---
+
 # 陳翊庭︰港股今年平均每日成交額暫破2千億　「遺址論」不攻自破
 
 ![陳翊庭說，「遺址論」已不攻自破，不管新股市場、交易量均可見完全推翻有關說法。（本台節目《舊日的足跡》）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794960_1_20250309102619.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794782-20250307.htm)
-
----
-
-# 全國兩會｜胡曉明倡完善保障勞動者權益　葉玉如指港有國際化優勢
-
-![朱葉玉如在會後表示，本月17日將向當局提交籌辦本港第三間醫學院的建議書。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794781_1_20250307184049.jpg&q=80)
-  
-
-在北京，港區人大代表團下午舉行全體會議，中聯辦主任鄭雁雄出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794781-20250307.htm)
 
 ---

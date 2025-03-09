@@ -1,3 +1,27 @@
+# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
+
+![王靈桂表示，立法會選舉屬特區內部事務，相信特區政府一定會通過各種途徑徵求意見。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂表示，香港進入「由治及興」新階段，需要有能力、有擔當、有作為的人為市民服務，每一屆立法會選舉應該要越來越好，如奧運會一樣，只有更好、沒有最好，「好」是一個不斷追求的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm)
+
+---
+
 # 全國兩會｜政協屠海鳴稱要深化一國兩制認識　提升社會責任感
 
 ![政協屠海鳴稱近年香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794958_1_20250309101721.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794712-20250307.htm)
-
----
-
-# 全國兩會｜中國經濟增長5%　王毅稱展現迎難而上奮發有為特徵
-
-![王毅說，中國的信心，來源於超大市場和國內需求，來源於強大產業和創新動能，更來源於制度優勢和改革開放。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794709_1_20250307123330.jpg&q=35)
-  
-
-在北京，外長王毅表示，去年中國經濟實現了5%的增長，在主要大國中仍然一枝獨秀，這一成績是在大力推進綠色轉型中取得，是在全球增長低迷背景下實現，更是在克服美國等單邊制裁打壓下拼來，展現出中國經濟迎難而上、奮發有為的鮮明特徵。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794709-20250307.htm)
 
 ---
