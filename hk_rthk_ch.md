@@ -1,3 +1,27 @@
+# 全國兩會 |吳謙：解放軍一向是打「獨」促統行動派
+
+![吳謙正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794972_1_20250309124931.jpg&q=90)
+  
+
+十四屆全國人大三次會議解放軍和武警部隊代表團新聞發言人吳謙強調，祖國必然統一，這是大勢所趨、道義所在，既是實力使然、更是民心所向，解放軍一向是打「獨」促統的行動派，近年繞島巡航、軍事懾壓已成常態。「台獨」分子鬧得越歡，脖子上的繩索就會勒得越緊，頭頂上的利劍就會愈加鋒利，正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm)
+
+---
+
 # 綠色和平發現桌球賽大會違反自訂規定　包括場內派膠水樽
 
 ![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794971_1_20250309124553.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm)
-
----
-
-# 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
-
-![何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794890_1_20250308155802.jpg&q=90)
-  
-
-在北京，全國人大代表、小鵬汽車集團董事長何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm)
 
 ---
