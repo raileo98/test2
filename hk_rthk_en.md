@@ -1,3 +1,27 @@
+# Man with Palestinian flag scales Big Ben
+
+![Police said they had been alerted to a man climbing up the Elizabeth Tower at the Houses of Parliament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794937_1_20250309005211.jpg&q=85)
+  
+
+A man who climbed Big Ben's Elizabeth Tower at London's Palace of Westminster waving a Palestinian flag early on Saturday has come down after 16 hours, according to Sky News.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm)
+
+---
+
 # Liverpool ease past Southampton to go 16 points clear
 
 ![Liverpool's Egyptian striker #11 Mohamed Salah celebrates scoring the team's third goal from the penalty spot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794946_1_20250309085129.jpg&q=90)
@@ -1413,29 +1437,5 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
-
----
-
-# "Home demand is keen": govt rejects oversupply claims
-
-![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=75)
-  
-
-Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
 
 ---

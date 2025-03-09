@@ -1,3 +1,26 @@
+# 陳美寶︰的士車隊可按咪錶收費或以「包車」形式定收費
+
+  
+
+運輸及物流局局長陳美寶表示，新成立的5支的士車隊有三大特色，包括由專業的管理人管理、擁抱科技，而且司機經過專業培訓，首支車隊將於3月底投入服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm)
+
+---
+
 # 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
 
 ![王瑞軍回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm)
-
----
-
-# 甯漢豪：視乎市場意向調查結果　北都片區招標條款或會更進取
-
-![甯漢豪說，有內地開發商提出平整片區產業地後，興建並營運園區，政府會檢視是否屬主流意見，日後招標條款或會更加進取。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794880_1_20250308130001.jpg&q=75)
-  
-
-政府正就北部都會區三個片區開發試點做市場意向調查，本月底完結。發展局局長甯漢豪說，有內地開發商提出平整片區產業地後，興建並營運園區，政府會檢視是否屬主流意見，日後招標條款或會更加進取。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm)
 
 ---
