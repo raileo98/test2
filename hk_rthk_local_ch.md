@@ -1,3 +1,27 @@
+# 陳國基分別觀賞高球賽及電影《哪吒2》　籲積極參與各活動
+
+![陳國基（中）今日一連參與兩項活動。（陳國基社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795002_1_20250309184335.jpg&q=70)
+  
+
+政務司司長陳國基表示，每年3月一系列本地及國際文化、體育和藝術盛事，展覽和活動匯聚香港，為市民和旅客帶來嶄新而豐富的體驗，盡顯香港盛事之都的非凡魅力，呼籲積極參與各項活動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm)
+
+---
+
 # 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795000_1_20250309183439.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
-
----
-
-# 港鐵稱考慮業績市場及經濟環境與員工貢獻而調整薪酬
-
-![港鐵表示，一直有聆聽員工代表、工會及員工就薪酬調整幅度的意見及訴求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794812_1_20250307223155.jpg&q=45)
-  
-
-港鐵公司表示，按照既定及行之有效的薪酬檢討機制，在審慎考慮業績、市場及經濟環境、員工貢獻等多方面因素後，大部分的非經理級員工獲 1.8%-4.3%的基本薪酬加幅，為確保公司整體薪酬福利持續具市場競爭力，吸引及保留人才，公司亦會按業務表現等考慮發放獎金等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 陳國基分別觀賞高球賽及電影《哪吒2》　籲積極參與各活動
+
+![陳國基（中）今日一連參與兩項活動。（陳國基社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795002_1_20250309184335.jpg&q=70)
+  
+
+政務司司長陳國基表示，每年3月一系列本地及國際文化、體育和藝術盛事，展覽和活動匯聚香港，為市民和旅客帶來嶄新而豐富的體驗，盡顯香港盛事之都的非凡魅力，呼籲積極參與各項活動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm)
+
+---
+
 # 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795000_1_20250309183439.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm)
-
----
-
-# 澳洲東部受熱帶氣旋吹襲至少一死　兩輛協助救災軍車相撞36傷
-
-![在黃金海岸，有帆船被大浪沖到岸邊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794925_1_20250308195330.jpg&q=80)
-  
-
-澳洲東部遭受熱帶氣旋吹襲，至少一人死亡，新南威爾士州有兩輛協助救災的軍車相撞，最少36人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm)
 
 ---
