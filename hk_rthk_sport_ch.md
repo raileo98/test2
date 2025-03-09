@@ -1,5 +1,6 @@
 # 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
 
+![羅淑佩說，正與LIV Golf主辦方密切聯繫，目標雙方能建立長期合作關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794993_1_20250309172626.jpg&q=60)
   
 
 文化體育及旅遊局局長羅淑佩表示，正與LIV Golf的主辦方密切聯繫，並非常接近達成協議，目標是雙方能夠建立長期合作關係，令主辦方能夠每年都將賽事帶來香港。
