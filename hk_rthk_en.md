@@ -1,6 +1,6 @@
-# Mainland sees large year-on-year drop in inflation
+# Mainland sees year-on-year drop in inflation
 
-![Customers buy vegetables at a supermarket in Handan in Hebei province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
+![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
   
 
 China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.

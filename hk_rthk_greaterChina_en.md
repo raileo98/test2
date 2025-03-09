@@ -1,3 +1,27 @@
+# Mainland sees year-on-year drop in inflation
+
+![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
+  
+
+China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm)
+
+---
+
 # ‘HK should take One Country, Two Systems to new level'
 
 ![Zheng Yanxiong says Hong Kong should speed up the process of advancing to prosperity. Photo courtesy of the Liaison Office.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794932_1_20250308214630.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong delegates attending the "Two Sessions" meetings this year said they're
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793930-20250303.htm)
-
----
-
-# Local delegate proposes plans to connect with GBA
-
-![Henry Tang, a member of the CPPCC Standing Committee, says he will put forward ideas on allowing Greater Bay Area residents more access to HK's financial system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793894_1_20250302185544.jpg&q=90)
-  
-
-A local delegate to the country’s top advisory body plans to ask for measures on facilitating people flow within the Greater Bay Area, during the upcoming “Two Sessions” meetings in Beijing.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793894-20250302.htm)
 
 ---
