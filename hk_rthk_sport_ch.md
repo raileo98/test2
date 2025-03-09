@@ -1,5 +1,6 @@
 # LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
 
+![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （LIV Golf 提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
   
 
 LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
