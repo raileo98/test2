@@ -1,3 +1,27 @@
+# Arsenal held by Man Utd in latest Premiership setback
+
+![The result leaves Arsenal 15 points behind runaway leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795028_1_20250310054122.jpg&q=75)
+  
+
+Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed win but Arsenal's faltering Premier League title challenge suffered another damaging blow in a 1-1 draw at Old Trafford.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm)
+
+---
+
 # Robertson romps to World Snooker Grand Prix title
 
 ![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=75)
@@ -1423,29 +1447,5 @@ San Antonio Spurs star Victor Wembanyama is expected to miss the rest of the NBA
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792542-20250221.htm)
-
----
-
-# Spanish court convicts ex-football boss over kiss
-
-![Former Spanish soccer chief Luis Rubiales was convicted of sexual assault for kissing footballer Jenni Hermoso. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792520_1_20250220212652.jpg&q=85)
-  
-
-Spain's High Court has found former soccer federation boss Luis Rubiales guilty of sexual assault for kissing player Jenni Hermoso without her consent and fined him over 10,000 euros (US$10,434), the court said on Thursday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm](https://news.rthk.hk/rthk/en/component/k2/1792520-20250220.htm)
 
 ---

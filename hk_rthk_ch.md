@@ -1,5 +1,30 @@
+# 內地2月CPI按年跌0.7%　13個月以來首次轉跌
+
+![內地2月CPI按年轉跌0.7%，是13個月以來首次下跌。核心CPI亦跌0.1%，逾4年來首次下跌。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795026_1_20250310052735.jpg&q=80)
+  
+
+內地2月居民消費價格指數(CPI)按年跌0.7%，是13個月以來首次轉跌；1月是升0.5%。上月CPI按月亦跌0.2%，創3個月新低，按月及按年跌幅都超出市場預期。今年首兩個月CPI按年跌0.1%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm)
+
+---
+
 # 馬斯克稱不會切斷對烏克蘭「星鏈」服務
 
+![馬斯克說，不會切斷對烏克蘭的「星鏈」衛星網絡服務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795025_1_20250310053705.jpg&q=90)
   
 
 美國太空探索技術公司行政總裁馬斯克透過社交網站澄清，無論他多麼不同意烏克蘭的政策，都不會切斷對烏克蘭的「星鏈」衛星網絡服務。
@@ -23,6 +48,7 @@
 
 # 敘利亞過渡總統指責巴沙爾支持者及外國勢力試圖煽動動亂
 
+![沙拉強調，所有傷害平民的人都將被追究責任。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795024_1_20250310053752.jpg&q=90)
   
 
 敘利亞過渡政府安全部隊與效忠前總統巴沙爾的武裝分子在沿海地區爆發衝突，總部設在英國的「敘利亞人權觀察組織」最新表示，衝突已造成過千人死亡，包括830名平民。敘利亞總統府宣布，成立一個獨立的國家委員會調查事件，30天內向總統府提交報告。
@@ -46,6 +72,7 @@
 
 # 哈馬斯稱切斷加沙供電證實以方堅持用饑餓政策完成種族滅絕
 
+![哈馬斯表示，實際上以色列自2023年10月、今輪衝突爆發以來，就切斷對加沙的電力供應。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795023_1_20250310053912.jpg&q=20)
   
 
 巴勒斯坦武裝組織哈馬斯表示，以色列宣布切斷電力供應的行為，證實以方堅持透過使用饑餓政策來完成對加沙的種族滅絕，明顯無視所有國際法準則。
@@ -1408,30 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm)
-
----
-
-# 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
-
-![發改委鄭備稱已有力有序推動「兩新」工作，帶動重點消費品銷售明顯增長，包括汽車。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_2_20250309094932.jpg&q=60)
-![鄭備表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。（國新網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_1_20250309094405.jpg&q=90)
-  
-
-政府工作報告提出，安排超長期特別國債3000億元人民幣支持消費品「以舊換新」，按年增加一倍。全國人大代表、發改委副主任鄭備，書面接受本台訪問時表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
 
 ---
