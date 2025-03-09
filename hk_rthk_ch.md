@@ -1,3 +1,26 @@
+# 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，正與LIV Golf的主辦方密切聯繫，並非常接近達成協議，目標是雙方能夠建立長期合作關係，令主辦方能夠每年都將賽事帶來香港。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm)
+
+---
+
 # 財政預算案2025 | 研籃球博彩　麥美娟︰會規範非法賭博
 
   
@@ -70,6 +93,7 @@
 
 # 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
 
+![倪虹說，中央高度重視房地產市場健康發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794988_1_20250309165217.jpg&q=90)
   
 
 在北京，住建部部長倪虹表示，今年首2個月內地房地產市場保持止跌回穩的積極勢頭，去年第4季新建商品房銷售面積及銷售額都錄得正增長。今年政府工作報告提及要穩定樓市，未來會與相關部門持續以長短措施結合，堅決穩住樓市。
@@ -1411,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm)
-
----
-
-# 南韓總統尹錫悅離開首爾拘留所　將在非拘留狀態繼續接受審訊
-
-![尹錫悅在首爾拘留所外向支持者揮手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794916_1_20250308172251.jpg&q=75)
-![尹錫悅在首爾拘留所外向支持者鞠躬致意。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794916_2_20250308172251.jpg&q=90)
-  
-
-南韓檢察機關決定，不就法院批准取消拘留總統尹錫悅提出上訴，尹錫悅其後離開首爾拘留所。他在今年1月15日被捕至今日上午，已滿52天。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm)
 
 ---

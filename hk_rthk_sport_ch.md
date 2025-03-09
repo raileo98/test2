@@ -1,3 +1,26 @@
+# 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，正與LIV Golf的主辦方密切聯繫，並非常接近達成協議，目標是雙方能夠建立長期合作關係，令主辦方能夠每年都將賽事帶來香港。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm)
+
+---
+
 # 綠色和平發現桌球賽大會違反自訂規定　包括場內派膠水樽
 
 ![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794971_1_20250309124553.jpg&q=90)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793726-20250228.htm)
-
----
-
-# 石偉雄退役　獲體院聘任為中國香港競技體操隊全職教練
-
-![石偉雄宣布退役，結束26年的運動生涯。（港協暨奧委會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793703_1_20250228202512.jpg&q=90)
-  
-
-港隊體操代表石偉雄宣布退役，結束26年的運動生涯。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm](https://news.rthk.hk/rthk/ch/component/k2/1793703-20250228.htm)
 
 ---

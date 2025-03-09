@@ -1,3 +1,26 @@
+# 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，正與LIV Golf的主辦方密切聯繫，並非常接近達成協議，目標是雙方能夠建立長期合作關係，令主辦方能夠每年都將賽事帶來香港。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm)
+
+---
+
 # 財政預算案2025 | 研籃球博彩　麥美娟︰會規範非法賭博
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
-
----
-
-# 全國兩會｜陳茂波：兩會精神落實到各工作　陳國基：盡快開創新局
-
-![陳茂波（左）說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向；陳國基（右）說，特區政府在推動創新發展上，認識不斷提升、思維持續更新、行動更加得力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794809_3_20250308142054.jpg&q=85)
-  
-
-全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
 
 ---
