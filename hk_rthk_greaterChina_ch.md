@@ -1,3 +1,26 @@
+# 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
+
+  
+
+北京正舉行全國兩會，財政司司長陳茂波表示，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作，包括加速推動科技創新及應用創新，以增強經濟動力和提升發展質量；透過「打造體驗、確立主題」；並加強深化國際交往合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
+
+---
+
 # 全國兩會｜銀娛主席呂耀東冀澳門立法會換屆選出議員帶來新思維
 
 ![呂耀東冀澳門立法會換屆選出議員，為促進經濟多元化帶來新思維。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794964_1_20250309110700.jpg&q=80)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794714-20250307.htm)
-
----
-
-# 全國兩會｜陳弘毅稱國安法實施細則由國安委決定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794717_1_20250307125009.jpg&q=90)
-  
-
-支聯會拒交資料案，3名上訴人鄒幸彤、鄧岳君及徐漢光終極上訴得直。特區政府表示，會積極審視香港特區維護國家安全的執法經驗，研究如何進一步完善香港特區相關的法律制度及執行機制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794717-20250307.htm)
 
 ---

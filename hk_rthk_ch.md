@@ -1,3 +1,26 @@
+# 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
+
+  
+
+北京正舉行全國兩會，財政司司長陳茂波表示，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作，包括加速推動科技創新及應用創新，以增強經濟動力和提升發展質量；透過「打造體驗、確立主題」；並加強深化國際交往合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
+
+---
+
 # 陳美寶︰與的士業界幾乎共識一致　盡快強制安裝獨立監測系統
 
 ![陳美寶說，的士安裝獨立監測系統能為乘客及司機提供更好保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794965_1_20250309111757.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm)
-
----
-
-# 全國兩會 | 海南省省長：確保封關運作取得明顯成效
-
-![劉小明表示，平穩有序和萬無一失地確保封關運作能取得明顯的成效。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794886_1_20250308140026.jpg&q=90)
-  
-
-海南自貿港預計今年年底前實現全島封關運作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm)
 
 ---

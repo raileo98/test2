@@ -1,3 +1,26 @@
+# 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
+
+  
+
+北京正舉行全國兩會，財政司司長陳茂波表示，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作，包括加速推動科技創新及應用創新，以增強經濟動力和提升發展質量；透過「打造體驗、確立主題」；並加強深化國際交往合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
+
+---
+
 # 陳美寶︰與的士業界幾乎共識一致　盡快強制安裝獨立監測系統
 
 ![陳美寶說，的士安裝獨立監測系統能為乘客及司機提供更好保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794965_1_20250309111757.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
-
----
-
-# 民政事務總署於各區開放十八間臨時避寒中心
-
-![臨時避寒中心於寒冷天氣警告持續生效期間繼續開放，期間免費提供潔淨的墊褥及毛氈或棉被、熱食及熱水予入住人士使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794787_1_20250307183527.jpg&q=90)
-  
-
-民政事務總署在各區開放共十八間臨時避寒中心，供有需要的市民避寒，中心會於寒冷天氣警告持續生效期間繼續開放，期間會免費提供潔淨的墊褥及毛氈或棉被、熱食及熱水予入住人士使用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794787-20250307.htm)
 
 ---

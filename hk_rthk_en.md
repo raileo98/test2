@@ -359,7 +359,7 @@ Mainland authorities on Saturday said Hong Kong and the mainland should work tog
 
 ---
 
-# Six people arrested for assaulting a teenage girl
+# Six people arrested over assault of girl, 14
 
 ![Police said the teenage girl and the attackers had argued over "an attitude problem and trivial matters.”  File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794902_1_20250308155807.jpg&q=40)
   
