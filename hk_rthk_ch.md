@@ -1,3 +1,93 @@
+# 全國兩會｜王曉萍形容穩定和擴大就業任務繁重　總體態勢向好
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm)
+
+---
+
+# 孫玉菡料「高才通」續簽高峰期第二季出現
+
+  
+
+勞工及福利局局長孫玉菡預料，「高才通計劃」續簽高峰期將於今年第二季左右開始出現，稍後有更多數據時再公布。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm)
+
+---
+
+# 羅淑佩稱本月共17艘大型郵輪停泊香港
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，本月共有17艘大型郵輪停泊香港，包括「銀海新星號」和「安妮皇后號」兩艘新建成的豪華郵輪，不少高增值船客會在香港過夜。她又表示，今個周末共有4艘郵輪同時訪港。旅發局指，4艘郵輪將吸引約5400名旅客。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm)
+
+---
+
+# 彈劾案何時宣判備受關注　尹錫悅避免外部活動冷靜等待結果
+
+![尹錫悅昨日獲釋後，返回漢南洞的總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794980_1_20250309151403.jpg&q=85)
+  
+
+南韓憲法法院何時就總統尹錫悅彈劾案作出宣判備受關注，韓聯社報道，司法界普遍認為，法院在本周五宣判的可能性較大，但亦有分析認為，由於尹錫悅一方全面抗辯，導致法院工作量增加，可能要多一至兩星期才會宣判。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm)
+
+---
+
 # 全國兩會｜駐日大使吳江浩稱關稅上中日有共同語言　冀建穩定環境
 
   
@@ -1341,101 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm)
-
----
-
-# 日本多宗進食污染食物染諾如病毒　衞生防護中心籲外遊時提高警覺
-
-![衞生防護中心表示，諾如病毒可透過進食受污染的食物、接觸受感染人士的嘔吐物或排泄物，及接觸受污染的物件等不同途徑傳播。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794906_1_20250308162902.jpg&q=90)
-  
-
-日本由上月起錄得多宗因為進食受污染食物而感染諾如病毒個案，衞生防護中心提醒市民外遊時提高警覺，注意個人、環境及食物衞生，而由於酒精未能有效殺死諾如病毒，酒精搓手液並不能代替使用梘液和清水潔手。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794906-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794906-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794906-20250308.htm)
-
----
-
-# 太空油毒品去年被捕人數升35倍最年輕僅12歲　警籲勿沾染毒品
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794905_1_20250308164649.jpg&q=85)
-  
-
-警務處處長蕭澤頤表示，青少年涉及嚴重毒品的被捕人數，由2021年的高峰430人，持續下跌至去年的129人，累積跌幅達七成，創下近年的新低，當中學生的跌幅近八成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm)
-
----
-
-# 政府第二季推友師計劃　女性領袖為女大學生職涯規劃提供指導
-
-![麥美娟表示，將於今年第二季推出「『友』妳啟導」友師計劃，為本地女大學生配對女性領袖作為友師。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794904_1_20250308162157.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，將於今年第二季推出「『友』妳啟導」友師計劃，為本地女大學生配對女性領袖作為友師，為學員的職涯規劃提供指導。當局已展開了招募友師的工作，得到了本地傑出女性的熱烈響應，成功招募了約50位友師，超出目標，當中不乏女行政總裁和合夥人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm)
-
----
-
-# 彭博社：只要最終和平協議有進展　俄方對俄烏臨時停火持開放態度
-
-![俄羅斯和烏克蘭未達成和平協議，俄軍連夜空襲頓涅茨克地區，有建築物起火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794901_1_20250308155514.jpg&q=65)
-  
-
-彭博社引述莫斯科知情人士透露，只要在推動俄烏最終和平協議方面取得進展，俄羅斯對討論俄烏臨時停火持開放態度。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm)
 
 ---

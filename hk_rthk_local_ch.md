@@ -1,3 +1,49 @@
+# 孫玉菡料「高才通」續簽高峰期第二季出現
+
+  
+
+勞工及福利局局長孫玉菡預料，「高才通計劃」續簽高峰期將於今年第二季左右開始出現，稍後有更多數據時再公布。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm)
+
+---
+
+# 羅淑佩稱本月共17艘大型郵輪停泊香港
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，本月共有17艘大型郵輪停泊香港，包括「銀海新星號」和「安妮皇后號」兩艘新建成的豪華郵輪，不少高增值船客會在香港過夜。她又表示，今個周末共有4艘郵輪同時訪港。旅發局指，4艘郵輪將吸引約5400名旅客。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm)
+
+---
+
 # 一名入境旅客處理未完稅香煙罪成判監6個月及罰款
 
   
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794799-20250307.htm)
-
----
-
-# 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
-
-![機管局十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794798_1_20250307210418.jpg&q=80)
-  
-
-一批建築工人懷疑因勞資糾紛早上在機場南交匯處附近聚集，現場交通一度受阻，機管局表示，十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜，確保相關工人獲應得報酬，機管局會繼續密切監察承建商的跟進工作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm)
-
----
-
-# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
-
-![丁薛祥上午分別參加香港代表團、澳門代表團審議。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794797_1_20250307210355.jpg&q=80)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
 
 ---
