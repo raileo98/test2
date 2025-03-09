@@ -1,3 +1,27 @@
+# 日本大船渡市長稱當地山火火勢已減弱
+
+![當局加緊撲救大船渡市的山火。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795004_1_20250309185315.jpg&q=80)
+  
+
+日本岩手縣大船渡市市長說，當地持續一個多星期的山火火勢已經減弱，不再有進一步蔓延的風險。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm)
+
+---
+
 # 英郵局系統出錯致逾9百人被不當起訴　英政府與富士通將協商賠償
 
 ![富士通早前表明，會根據英國獨立機構調查事件的結果，探討賠償問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795001_1_20250309182914.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
-
----
-
-# 特朗普：暫緩對符合《美墨加協定》商品徵收關稅
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794773_1_20250307181453.jpg&q=80)
-  
-
-美國總統特朗普簽署行政命令，對符合《美墨加協定》的產品，暫緩加徵關稅，直至下月2日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794773-20250307.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 日本大船渡市長稱當地山火火勢已減弱
+
+![當局加緊撲救大船渡市的山火。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795004_1_20250309185315.jpg&q=80)
+  
+
+日本岩手縣大船渡市市長說，當地持續一個多星期的山火火勢已經減弱，不再有進一步蔓延的風險。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm)
+
+---
+
 # M+今免費開放標準門票展覽　逾16300人次入場參觀
 
 ![M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795003_1_20250309184923.jpg&q=75)
@@ -1414,29 +1438,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm)
-
----
-
-# 法德意英支持阿拉伯國家提出的加沙重建計劃
-
-![由埃及提出的加沙重建計劃，將會分幾個階段實施，預計重建費用為530億美元。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794928_1_20250308204951.jpg&q=20)
-  
-
-法國、德國、意大利和英國的外長發表聯合聲明，支持阿拉伯國家提出的加沙重建計劃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm)
 
 ---
