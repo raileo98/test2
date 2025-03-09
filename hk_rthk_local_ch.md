@@ -1,3 +1,26 @@
+# 啟德體育園稱主辦方可申請指定區域提供飲食　但需確保安全
+
+  
+
+環保組織綠色和平在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到觀眾席上，有預設擺放連蓋的膠樽水；亦有觀眾將自備杯帶入場內，有違場館規定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795005-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795005-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795005-20250309.htm)
+
+---
+
 # M+今免費開放標準門票展覽　逾16300人次入場參觀
 
 ![M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展覽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795003_1_20250309184923.jpg&q=75)
@@ -1414,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794820-20250307.htm)
-
----
-
-# 海關於機場及元朗檢約670萬支私煙及57萬支另類吸煙產品
-
-![海關展示檢獲私煙。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794819_1_20250307232108.jpg&q=30)
-  
-
-海關過去兩星期於香港國際機場偵破多宗航空旅客走私香煙案件，並於昨日在元朗搗破一個懷疑私煙貯存倉庫，共檢獲約670萬支懷疑私煙及約57萬支懷疑另類吸煙產品，市值共約3300萬元，私煙應課稅值共約2200萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794819-20250307.htm)
 
 ---
