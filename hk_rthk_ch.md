@@ -1,3 +1,26 @@
+# 中國成功發射通信技術試驗衛星十五號
+
+  
+
+中國在西昌衛星發射中心使用長征三號乙運載火箭，在凌晨1時17分，成功將通信技術試驗衛星十五號發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm)
+
+---
+
 # 伊朗稱企圖廢除伊朗和平核計劃的談判將永遠不會發生
 
   
@@ -1410,30 +1433,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794949-20250309.htm)
-
----
-
-# 英超利物浦3:1反勝修咸頓　榜首優勢擴大至16分
-
-![達雲紐尼斯今仗為利物浦追成平手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_1_20250309070507.jpg&q=90)
-![諾定咸森林的赫臣奧杜爾一箭定江山。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794948_2_20250309070507.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，利物浦主場3:1反勝修咸頓，在踢多兩場下，榜首優勢擴大至16分。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794948-20250309.htm)
 
 ---
