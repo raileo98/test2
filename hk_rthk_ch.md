@@ -1,3 +1,27 @@
+# 匈牙利外長：歐盟峰會支持烏克蘭的政治聲明沒有法律意義
+
+![西雅爾多說，歐盟特別峰會上發表支持烏克蘭的政治聲明沒有法律意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795009_1_20250309202820.jpg&q=85)
+  
+
+匈牙利外長西雅爾多在首都布達佩斯表示，歐盟特別峰會上發表支持烏克蘭的政治聲明沒有法律意義，只是一個政治觀點。在外交和安全政策領域，歐盟只有在所有27個成員國一致同意的情況下，才能作出決定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm)
+
+---
+
 # 鄧炳強料香港航空業大有可為　人才需求會增加
 
   
@@ -1412,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm)
-
----
-
-# 全國兩會｜鄭雁雄要求香港充分發揮一國兩制制度優勢
-
-![鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段。（中聯辦微信公眾號）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794934_1_20250308224742.jpg&q=90)
-  
-
-在北京，中聯辦主任鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段，抓住發揮制度優勢、堅持改革創新、推動高質量發展、強化內聯外通、完善特區治理、高度警惕風險等六方面的重點工作，把握好香港與內地的異同點，做到充分發揮一國兩制的制度優勢，更有力有效推動香港加快實現由治及興。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm)
 
 ---

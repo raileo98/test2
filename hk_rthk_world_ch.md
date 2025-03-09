@@ -1,3 +1,27 @@
+# 匈牙利外長：歐盟峰會支持烏克蘭的政治聲明沒有法律意義
+
+![西雅爾多說，歐盟特別峰會上發表支持烏克蘭的政治聲明沒有法律意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795009_1_20250309202820.jpg&q=85)
+  
+
+匈牙利外長西雅爾多在首都布達佩斯表示，歐盟特別峰會上發表支持烏克蘭的政治聲明沒有法律意義，只是一個政治觀點。在外交和安全政策領域，歐盟只有在所有27個成員國一致同意的情況下，才能作出決定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm)
+
+---
+
 # 日本大船渡市長稱當地山火火勢已減弱
 
 ![當局加緊撲救大船渡市的山火。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795004_1_20250309185315.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
-
----
-
-# 陳克勤料本港與泰國建立機制　致參與營救行動更實質及具體
-
-![陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794793_1_20250307191947.jpg&q=90)
-  
-
-再多6名懷疑被誘騙到東南亞遭禁錮從事非法工作的港人獲救。立法會議員陳克勤說，今次的營救行動與以往不同，特區政府今次有份直接參與聯合營救行動，而非如以往般，身處幕後角色，主要依靠當地政府及執法部門，或國家駐當地的使領館。他估計是與早前保安局副局長率領專責小組前往泰國協調有關，令雙方建立了合作機制，令今次特區政府的參與更實質和具體。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794793-20250307.htm)
 
 ---
