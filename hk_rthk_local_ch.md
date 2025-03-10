@@ -168,7 +168,7 @@
 
 # 孫東稱人工智能為香港關鍵產業　政府會繼續支持及投入
 
-![孫東指出，在財政相對比較收緊的情況下，未來在創科的支持和發展會更有重點，更有針對性去做。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795087_1_20250310131833.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795087_1_20250310131833.jpg&q=85)
   
 
 黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。創新科技及工業局局長孫東說，捐贈主要用於研發中心，盡快建立服務平台，為市民推出港產大模型講話通服務手機版。

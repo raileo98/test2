@@ -240,7 +240,7 @@
 
 # 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
 
-![鄭澤光說，中方願意和英方共同努力，落實好國家主席習近平和英國首相施紀賢達成的重要共識。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795058_1_20250310103005.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795058_1_20250310103005.jpg&q=75)
   
 
 在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
