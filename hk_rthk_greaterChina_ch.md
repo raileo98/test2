@@ -1,5 +1,29 @@
+# 丘應樺鼓勵在廣東省港商積極在內地創新創業
+
+  
+
+商務及經濟發展局局長丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。為配合國家發展新質生產力，政府會致力發揮內聯外通的角色，打造香港成跨國供應鏈管理中心，吸引更多內地生產企業在港落戶，並建立管理離岸貿易和供應鏈的國際或區域總部。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm)
+
+---
+
 # 全國兩會｜中山大學高等研究院落戶香港正開展課程註冊及評審
 
+![高松認為，校方在港設立機構，為大灣區建設世界重要人才中心和創新高地貢獻力量。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795122_1_20250310173057.jpg&q=90)
   
 
 中山大學高等研究院去年10月落戶香港科學園，全國人大代表、中山大學校長高松表示，這是內地高校在港首個綜合研究機構，正開展課程註冊和評審，待相關辦學程序申辦完成後，研究院將先開展研究生招生，希望在不遠的時間內，按照非本地課程教育和專上院校教育模式在港招生。
@@ -47,6 +71,7 @@
 
 # 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
 
+![趙東說，C919飛機進入國際市場是時間問題，要取得不同認證，有一定過程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795121_1_20250310173033.jpg&q=90)
   
 
 國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm)
-
----
-
-# 全國兩會 | 格力電器稱以舊換新政策增強消費者對家電認識
-
-![董明珠表示，國家長期支持民營企業，作為民企，要加大技術投入，不斷創新，企業才能活得更好。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794871_1_20250308114223.jpg&q=75)
-  
-
-在北京，全國人大代表、格力電器董事長董明珠表示，國家長期支持民營企業，有各種各樣的幫助，特別是各地政府。作為民企，要加大技術投入，不斷創新，企業才能活得更好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm)
 
 ---

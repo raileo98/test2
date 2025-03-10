@@ -1,3 +1,26 @@
+# 丘應樺鼓勵在廣東省港商積極在內地創新創業
+
+  
+
+商務及經濟發展局局長丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。為配合國家發展新質生產力，政府會致力發揮內聯外通的角色，打造香港成跨國供應鏈管理中心，吸引更多內地生產企業在港落戶，並建立管理離岸貿易和供應鏈的國際或區域總部。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm)
+
+---
+
 # 舜宇光學2月手機攝像模組出貨量按年跌逾32%
 
 ![舜宇上月手機攝像模組出貨量按年跌32.1%因公司更多專注中高端訂單，產品結構較去年同期改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795135_1_20250310172832.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 戶戶送將撤出香港　勞聯正接觸部分受影響前線員工
 
+![戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795131_1_20250310173159.jpg&q=90)
   
 
 戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
@@ -95,6 +119,7 @@
 
 # 全國兩會｜中山大學高等研究院落戶香港正開展課程註冊及評審
 
+![高松認為，校方在港設立機構，為大灣區建設世界重要人才中心和創新高地貢獻力量。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795122_1_20250310173057.jpg&q=90)
   
 
 中山大學高等研究院去年10月落戶香港科學園，全國人大代表、中山大學校長高松表示，這是內地高校在港首個綜合研究機構，正開展課程註冊和評審，待相關辦學程序申辦完成後，研究院將先開展研究生招生，希望在不遠的時間內，按照非本地課程教育和專上院校教育模式在港招生。
@@ -118,6 +143,7 @@
 
 # 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
 
+![趙東說，C919飛機進入國際市場是時間問題，要取得不同認證，有一定過程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795121_1_20250310173033.jpg&q=90)
   
 
 國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
@@ -1408,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm)
-
----
-
-# 馬斯克稱不會切斷對烏克蘭「星鏈」服務
-
-![馬斯克說，不會切斷對烏克蘭的「星鏈」衛星網絡服務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795025_1_20250310053705.jpg&q=90)
-  
-
-美國太空探索技術公司行政總裁馬斯克透過社交網站澄清，無論他多麼不同意烏克蘭的政策，都不會切斷對烏克蘭的「星鏈」衛星網絡服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm)
 
 ---
