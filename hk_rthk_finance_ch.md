@@ -1,3 +1,27 @@
+# 中旅料去年盈利按年跌最少40%
+
+![香港中旅預計去年度少賺最少40%，主要由於投資性物業公允價值下跌。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795137_1_20250310173054.jpg&q=85)
+  
+
+香港中旅預計，去年度盈利按年最少跌40%，前年度盈利為2.4億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm)
+
+---
+
 # 人民幣兌美元收市創近1周低位
 
 ![在岸人民幣收市報7.2649兌1美元，較上交易日跌267點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795133_1_20250310172448.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm)
-
----
-
-# 內地2月PPI按年及按月跌幅收窄　統計局：宏觀政策效果漸顯現
-
-![國家統計局指出，隨著宏觀政策效果逐步顯現，部分行業生產需求增加，帶動上月PPI跌幅收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795027_1_20250310053724.jpg&q=30)
-  
-
-內地2月工業生產者出廠價格指數(PPI)按年跌2.2%，跌幅輕微收窄0.1個百分點，是半年以來最小跌幅，但仍略差於預期。PPI按月跌0.1%，跌幅亦收窄0.1個百分點。今年首兩個月PPI按年跌2.2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm)
 
 ---

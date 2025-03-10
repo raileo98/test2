@@ -1,3 +1,27 @@
+# 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
+
+![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
+  
+
+南韓聯合參謀本部表示，北韓下午向西部海域方向發射多枚型號不明的彈道導彈，飛行距離60至100公里，推斷可能是近程彈道導彈。韓方與美方緊密合作，保持高度戒備。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm)
+
+---
+
 # 特朗普︰與四組買家商討洽售TikTok料很快達成協議
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm)
-
----
-
-# 哈梅內伊批評有霸凌國家政府堅持談判只為將自身期望強加於伊朗
-
-![哈梅內伊反問歐洲國家是否有履行自身在伊核協議中的義務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794938_1_20250309014649.jpg&q=90)
-  
-
-伊朗最高領袖哈梅內伊表示，伊朗在政治及經濟等各種範疇方面，不能照搬西方物質文明的基礎，批評西方國家的雙重標準是西方文明的恥辱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm)
 
 ---

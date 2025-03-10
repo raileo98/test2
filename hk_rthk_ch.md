@@ -1,3 +1,51 @@
+# 中旅料去年盈利按年跌最少40%
+
+![香港中旅預計去年度少賺最少40%，主要由於投資性物業公允價值下跌。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795137_1_20250310173054.jpg&q=85)
+  
+
+香港中旅預計，去年度盈利按年最少跌40%，前年度盈利為2.4億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm)
+
+---
+
+# 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
+
+![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
+  
+
+南韓聯合參謀本部表示，北韓下午向西部海域方向發射多枚型號不明的彈道導彈，飛行距離60至100公里，推斷可能是近程彈道導彈。韓方與美方緊密合作，保持高度戒備。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm)
+
+---
+
 # 人民幣兌美元收市創近1周低位
 
 ![在岸人民幣收市報7.2649兌1美元，較上交易日跌267點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795133_1_20250310172448.jpg&q=75)

@@ -1,3 +1,27 @@
+# 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
+
+![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
+  
+
+南韓聯合參謀本部表示，北韓下午向西部海域方向發射多枚型號不明的彈道導彈，飛行距離60至100公里，推斷可能是近程彈道導彈。韓方與美方緊密合作，保持高度戒備。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm)
+
+---
+
 # 丘應樺鼓勵在廣東省港商積極在內地創新創業
 
 ![丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795136_1_20250310173906.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
-
----
-
-# 全國兩會 | 甯漢豪稱全力將北都有關土地建設及基建工程做好
-
-![甯漢豪說，會採用多元發展模式，以創新思維更靈活善用市場力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794882_1_20250308132219.jpg&q=70)
-  
-
-發展局局長甯漢豪表示，會與團隊全力以赴，讓香港得以充分發揮「一國兩制」下的獨特地位和優勢，全力拼經濟、謀發展、搞建設。其中，北部都會區對香港社會和經濟發展至為關鍵，有助香港突破長久以來土地不足的瓶頸，發展局會全力將北都有關土地建設及基建工程做好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm)
 
 ---
