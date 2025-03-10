@@ -21,12 +21,12 @@
 
 ---
 
-# 找鋼：通過De-SPAC形式在港上市　邁向新征程重要里程碑
+# 找鋼：通過De-SPAC形式在港上市邁向新征程重要里程碑
 
 ![王東稱，公司通過De-SPAC形式在香港上市，是內地鋼鐵產業互聯網平台邁向新階段標誌性事件。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795076_1_20250310114912.jpg&q=85)
   
 
-香港首家上市的特殊目的併購公司（SPAC）Aquila Acquisition早前與找鋼產業互聯集團一家全資附屬公司合併，找鋼產業互聯集團完成併購交易（De-SPAC）今日掛牌上市。
+香港特殊目的併購公司（SPAC）Aquila Acquisition早前與找鋼產業互聯集團一家全資附屬公司合併，找鋼產業互聯集團完成併購交易（De-SPAC）今日掛牌上市。
 
   
 

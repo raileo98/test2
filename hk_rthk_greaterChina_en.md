@@ -24,7 +24,7 @@ Businessman Irons Sze on Monday said Hong Kong's position as an international fi
 
 # CPPCC session ends with call to focus on 'big picture'
 
-![Senior state leader Wang Huning says the meetings have achieved fruitful results. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=75)
   
 
 The annual session of the country's top advisory body has concluded in Beijing, with a senior state leader calling on members to focus on the "big picture" and deepen unity.
