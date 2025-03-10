@@ -1,5 +1,29 @@
+# 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
+
+  
+
+商務及經濟發展局局長丘應樺抵達廣州，展開訪問行程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm)
+
+---
+
 # 麥萃才相信外賣平台面對挑戰包括假日不留港消費市民增加
 
+![戶戶送Deliveroo宣布撤出香港市場。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795148_1_20250310192201.jpg&q=90)
   
 
 戶戶送Deliveroo宣布撤出香港市場。浸會大學會計、經濟及金融學系副教授麥萃才相信，當中涉及的挑戰包括因為疫情過去，假日時多了市民不留港消費；即使在香港，外出吃飯亦很方便。加上早前有內地外賣平台進駐香港，提供了不少優惠活動；而本港工資水平較高，送外賣需時，未必容易聘請到送餐員，導致營運成本高居不下。

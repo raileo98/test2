@@ -1,3 +1,26 @@
+# 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
+
+  
+
+商務及經濟發展局局長丘應樺抵達廣州，展開訪問行程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm)
+
+---
+
 # 清遠和佛山旅行團再多兩名團友感染退伍軍人病
 
 ![中心接獲首宗通報後調查和跟進，聯絡與首名感染者參加同一團，及參與另外兩個行程及入住酒店相同的旅行團人士，並發現最新兩宗個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795147_1_20250310191613.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm)
-
----
-
-# 全國兩會 | 小鵬集團計劃「分體式飛行汽車」明年量產
-
-![何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794890_1_20250308155802.jpg&q=90)
-  
-
-在北京，全國人大代表、小鵬汽車集團董事長何小鵬表示，中國汽車產業正在變革，人工智能AI將推動自動駕駛、甚至無人駕駛加速發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794890-20250308.htm)
 
 ---
