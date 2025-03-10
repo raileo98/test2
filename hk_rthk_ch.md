@@ -1,5 +1,78 @@
+# 台股收市跌逾0.5%
+
+![台灣加權指數收市報22459點，跌116點，跌幅0.52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795095_1_20250310140739.jpg&q=85)
+  
+
+台灣股市下跌。加權指數收市報22459點，跌116點，跌幅0.52%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm)
+
+---
+
+# 全國兩會｜文化和旅遊部料有更多文化產業或產品引入香港
+
+![李群希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795097_1_20250310141516.jpg&q=90)
+  
+
+在北京，文化和旅遊部副部長、國家文物局局長李群接受本台訪問說，香港近年大力投入文化工作，啟用近三年的香港故宮文化博物館廣受歡迎，希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm)
+
+---
+
+# 疑妻外遇女兒非親生潑熱粥及斬傷妻女　74歲男子判無限期醫院令
+
+![法庭按醫生建議判處被告無限期醫院令，希望被告早日康復，與家人團聚。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795096_1_20250310141041.jpg&q=90)
+  
+
+一名74歲清潔工懷疑同齡妻子有外遇，長女並非親生，前年深夜趁妻女入睡，先用熱粥潑灑，再用菜刀砍向兩人，造成妻女多處受傷。被告早前承認兩項蓄意傷人罪，今日在高等法院被判處無限期醫院令。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795096-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795096-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795096-20250310.htm)
+
+---
+
 # 質疑已離世周天瑜醫療紀錄真確性　周父促警交代事件調查方向
 
+![周天瑜父親促請警方不要放棄任何釐清事實的機會，希望知道真相。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795094_1_20250310141406.jpg&q=90)
   
 
 早年因手術期間懷疑發生醫療事故，最終成為植物人的女童周天瑜，去年3月離世，周天瑜的父親說，今日是天瑜死忌，藉此召開記者會表達訴求。
@@ -26,7 +99,7 @@
 ![北韓向黃海發射數枚導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795093_1_20250310135058.jpg&q=90)
   
 
-在美韓啟動代號「自由護盾」的年度大型聯合軍演之際，北韓發射數枚彈道導彈。
+在美韓啟動代號「自由護盾」的年度大型聯合軍演之際，北韓發射多枚彈道導彈。
 
   
 
@@ -1055,7 +1128,7 @@
 
 # 全國兩會｜邱達昌：盛事經濟成效需時　啟德體育園可帶動旅遊業
 
-![邱達昌表示，啟德體育園開幕令該區酒店受惠，亦有利帶動本港旅遊業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795039_1_20250310080730.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795039_2_20250310141539.jpg&q=80)
   
 
 全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，香港發展「盛事經濟」路線正確，但成效需時。他說，公司旗下在港酒店經營改善很多，入住率高，但房價較疫情前水平增幅不多，反而歐洲及澳洲酒店表現較好。
@@ -1079,7 +1152,7 @@
 
 # 全國兩會｜邱達昌料樓市應已見底　發展商冀套現低價買地
 
-![邱達昌表示，考慮到高息環境及存貨，發展商寧願蝕本賣部分樓盤套現，並買入更便宜的土地。（容上智攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795038_1_20250310080433.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795038_1_20250310080433.jpg&q=80)
   
 
 全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，相信樓市應該已見底，預計樓價將平穩發展。

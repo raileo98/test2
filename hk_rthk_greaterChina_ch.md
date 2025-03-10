@@ -1,3 +1,27 @@
+# 全國兩會｜文化和旅遊部料有更多文化產業或產品引入香港
+
+![李群希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795097_1_20250310141516.jpg&q=90)
+  
+
+在北京，文化和旅遊部副部長、國家文物局局長李群接受本台訪問說，香港近年大力投入文化工作，啟用近三年的香港故宮文化博物館廣受歡迎，希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm)
+
+---
+
 # 孫東稱人工智能為香港關鍵產業　政府會繼續支持及投入
 
 ![孫東指出，在財政相對比較收緊的情況下，未來在創科的支持和發展會更有重點，更有針對性去做。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795087_1_20250310131833.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
-
----
-
-# 全國兩會 | 最高法報告：促推法治經濟、信用經濟建設
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794858_2_20250308105935.jpg&q=90)
-  
-
-在北京，最高人民法院院長張軍發表工作報告，提到今年的工作安排，包括要依法平等保護國有、民營，外資等各種所有制企業產權和自主經營權，促推法治經濟、信用經濟建設，依法保障創新創造，助力發展新質生產力，亦要加強涉外法治建議，提升涉外司法效能，依法反制非法制裁和「長臂管轄」，堅定維護國家主權、安全、發展利益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794858-20250308.htm)
 
 ---
