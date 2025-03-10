@@ -1,5 +1,6 @@
 # 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
 
+![美國經濟衰退風險上升引發市場嚴重擔憂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795175_1_20250311051543.jpg&q=90)
   
 
 由於美國經濟衰退風險上升引發市場嚴重擔憂，紐約股市三大指數低開低走。
