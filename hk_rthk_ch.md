@@ -1,3 +1,51 @@
+# 旺角新寶戲院將於4月1日結業
+
+![旺角新寶戲院將於4月1日結業。（新寶戲院社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795166_1_20250310224754.jpg&q=90)
+  
+
+旺角新寶戲院將於4月1日結業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm)
+
+---
+
+# 城隧凌晨車禍有私家車不顧而去　司機涉意外後沒有停車被捕
+
+![警方經調查後，在荃灣區拘捕34歲私家車司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795165_1_20250310224842.jpg&q=85)
+  
+
+城門隧道凌晨發生交通意外，涉及兩輛私家車及一輛的士，有4人受傷，其中1名私家車司機逃去。警方經調查後，今日下午在荃灣區拘捕這名34歲私家車司機，他涉嫌「危險駕駛引致他人身體受嚴重傷害」、「意外後沒有停車」及「意外後沒有報案」，正被扣查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm)
+
+---
+
 # 俄羅斯指英國大使館兩人員從事間諜活動威脅安全　勒令兩周內離境
 
 ![佩斯科夫表示，情報部門正盡一切努力維護國家安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795164_1_20250310223930.jpg&q=90)

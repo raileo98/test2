@@ -1,3 +1,51 @@
+# 旺角新寶戲院將於4月1日結業
+
+![旺角新寶戲院將於4月1日結業。（新寶戲院社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795166_1_20250310224754.jpg&q=90)
+  
+
+旺角新寶戲院將於4月1日結業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm)
+
+---
+
+# 城隧凌晨車禍有私家車不顧而去　司機涉意外後沒有停車被捕
+
+![警方經調查後，在荃灣區拘捕34歲私家車司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795165_1_20250310224842.jpg&q=85)
+  
+
+城門隧道凌晨發生交通意外，涉及兩輛私家車及一輛的士，有4人受傷，其中1名私家車司機逃去。警方經調查後，今日下午在荃灣區拘捕這名34歲私家車司機，他涉嫌「危險駕駛引致他人身體受嚴重傷害」、「意外後沒有停車」及「意外後沒有報案」，正被扣查。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm)
+
+---
+
 # 20多名中學生韶關交流回港後嘔吐及腹瀉等不適　全部人毋須入院
 
 ![中心表示，正從不同方向調查源頭，包括經人傳人、或受污染的食物或環境傳播的可能性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795163_1_20250310224045.jpg&q=80)
@@ -1388,53 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm)
-
----
-
-# 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
-
-![羅淑佩說，正與LIV Golf主辦方密切聯繫，目標雙方能建立長期合作關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794993_1_20250309172626.jpg&q=60)
-  
-
-文化體育及旅遊局局長羅淑佩表示，正與LIV Golf的主辦方密切聯繫，並非常接近達成協議，目標是雙方能夠建立長期合作關係，令主辦方能夠每年都將賽事帶來香港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm)
-
----
-
-# 財政預算案2025 | 研籃球博彩　麥美娟︰會規範非法賭博
-
-![麥美娟表示將採取多方面措施應對非法賭博問題。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794992_1_20250309171044.jpg&q=85)
-  
-
-財政預算案提出將積極探討規範籃球博彩活動，民政及青年事務局局長麥美娟表示，政府不鼓勵賭博，面對非法賭博問題，將採取多方面措施，包括嚴厲執法、做好宣傳教育及作出規範。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm)
 
 ---
