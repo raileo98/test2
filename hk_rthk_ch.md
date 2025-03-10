@@ -1,3 +1,27 @@
+# 港股下午初段跌逾500點　科指挫逾3%
+
+![恒生指數較早時報23698點，跌532點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795092_1_20250310130518.jpg&q=20)
+  
+
+港股下午初段持續捱沽，恒生指數較早時報23698點，跌532點，跌幅2.2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm)
+
+---
+
 # 本港暫停英國赫里福德郡禽肉及禽類產品入口
 
   
@@ -23,7 +47,7 @@
 
 # 九倉置業去年收入及營業盈利均跌3%
 
-![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_1_20250310125758.jpg&q=75)
+![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_2_20250310131010.jpg&q=85)
   
 
 九龍倉置業全年收入按年減少3%至129.12億元，營業盈利亦跌3%至96.91億元。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm)
-
----
-
-# 主辦方稱按既定程序申請在球員比賽範圍及貴賓席放膠樽裝飲料
-
-![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795018_1_20250309234709.jpg&q=90)
-  
-
-環保組織綠色和平在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到觀眾席上，有預設擺放連蓋的膠樽水；亦有觀眾將自備杯帶入場內，認為有違場館規定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm)
 
 ---

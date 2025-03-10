@@ -1,3 +1,27 @@
+# 港股下午初段跌逾500點　科指挫逾3%
+
+![恒生指數較早時報23698點，跌532點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795092_1_20250310130518.jpg&q=20)
+  
+
+港股下午初段持續捱沽，恒生指數較早時報23698點，跌532點，跌幅2.2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm)
+
+---
+
 # 本港暫停英國赫里福德郡禽肉及禽類產品入口
 
   
@@ -23,7 +47,7 @@
 
 # 九倉置業去年收入及營業盈利均跌3%
 
-![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_1_20250310125758.jpg&q=75)
+![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_2_20250310131010.jpg&q=85)
   
 
 九龍倉置業全年收入按年減少3%至129.12億元，營業盈利亦跌3%至96.91億元。
@@ -1411,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm)
-
----
-
-# 政府第二季推友師計劃　女性領袖為女大學生職涯規劃提供指導
-
-![麥美娟表示，將於今年第二季推出「『友』妳啟導」友師計劃，為本地女大學生配對女性領袖作為友師。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794904_1_20250308162157.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，將於今年第二季推出「『友』妳啟導」友師計劃，為本地女大學生配對女性領袖作為友師，為學員的職涯規劃提供指導。當局已展開了招募友師的工作，得到了本地傑出女性的熱烈響應，成功招募了約50位友師，超出目標，當中不乏女行政總裁和合夥人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794904-20250308.htm)
 
 ---
