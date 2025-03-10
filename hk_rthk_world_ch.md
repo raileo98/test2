@@ -1,3 +1,73 @@
+# 特朗普拒絕排除美國經濟因關稅措施陷入衰退可能
+
+![特朗普在空軍一號專機上再次回應有關經濟衰退的問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795081_1_20250310115716.jpg&q=90)
+  
+
+美國總統特朗普接受傳媒訪問時，為政府關稅政策辯護，拒絕排除美國經濟因此陷入衰退的可能。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm)
+
+---
+
+# 日本大船渡市政府解除受山火影響全部地區避難指示
+
+  
+
+日本岩手縣大船渡市政府宣布，解除受山火影響全部地區的避難指示。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795080-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795080-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795080-20250310.htm)
+
+---
+
+# 陳茂波稱香港要在人工智能引領浪潮中把握機遇
+
+  
+
+黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm)
+
+---
+
 # 南韓戰機誤炸民居　空軍參謀總長再次致歉稱負全責
 
 ![兩架戰機本月6日在京畿道抱川市參加射擊演習時，誤投合共8枚炸彈到射擊場外的民居。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795072_1_20250310110741.jpg&q=90)
@@ -1365,78 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm)
-
----
-
-# 特朗普稱「強烈考慮」對俄實施大規模制裁
-
-![特朗普認為在結束戰事的努力中，他與俄羅斯打交道「更容易」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794881_2_20250308132504.jpg&q=90)
-  
-
-俄羅斯星期五對烏克蘭能源設施發動大規模的無人機和導彈攻擊後，美國總統特朗普在旗下社交平台發文說，考慮對俄羅斯實施大規模制裁。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794881-20250308.htm)
-
----
-
-# 美烏外長通電話　魯比奧：特朗普決心盡快結束俄烏戰事
-
-![魯比奧強調，各方必須採取措施確保持久和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794868_1_20250308112237.jpg&q=90)
-  
-
-美國國務卿魯比奧與烏克蘭外長瑟比加通電話。美國國務院在聲明中表示，魯比奧向瑟比加強調，總統特朗普決心盡快結束俄烏戰事，各方必須採取措施確保持久和平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794868-20250308.htm)
-
----
-
-# 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
-
-![許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_3_20250308114839.jpg&q=90)
-![羅照輝說，電訊詐騙令人神共憤，中國政府有很多工作堅決打擊。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_2_20250308114839.jpg&q=90)
-  
-
-再有6名被誘騙到緬甸的香港人獲救。在北京，全國人大代表、公安部副部長許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功，通過開展國際合作狠狠打擊，希望更多被詐騙到當地的受困人士趕快回到家人身邊，中國公安機關會與外國警方密切合作，盡快解救更多受害人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
 
 ---

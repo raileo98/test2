@@ -1,3 +1,27 @@
+# 'HK plays an important role in China's development'
+
+![CPPCC Standing Committee member Irons Sze says Hong Kong plays a vital role in the country's development.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795077_1_20250310114948.jpg&q=90)
+  
+
+Businessman Irons Sze on Monday said Hong Kong's position as an international financial centre is attributed to China's reform and opening up and reinforced by the "One Country, Two Systems" principle.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm)
+
+---
+
 # HK must take advantage of int'l position: NPC delegate
 
 ![Priscilla Leung says local NPC delegates were being encouraged to help Hong Kong build on its international strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795062_1_20250310102114.jpg&q=75)
@@ -1415,29 +1439,5 @@ A Beijing official overseeing Hong Kong and Macau affairs has told delegates to 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794232-20250304.htm)
-
----
-
-# HKUST founding president dies at 87
-
-![Woo Chia-wai was credited for setting up the world-class HKUST Business School during his tenure. Photo courtesy: HKUST](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794219_1_20250304203731.jpg&q=90)
-  
-
-The founding president of the Hong Kong University of Science and Technology (HKUST) has died last Sunday at the age of 87.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794219-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794219-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794219-20250304.htm)
 
 ---

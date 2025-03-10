@@ -1,3 +1,27 @@
+# 'HK plays an important role in China's development'
+
+![CPPCC Standing Committee member Irons Sze says Hong Kong plays a vital role in the country's development.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795077_1_20250310114948.jpg&q=90)
+  
+
+Businessman Irons Sze on Monday said Hong Kong's position as an international financial centre is attributed to China's reform and opening up and reinforced by the "One Country, Two Systems" principle.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm)
+
+---
+
 # CPPCC session ends with call to focus on 'big picture'
 
 ![Senior state leader Wang Huning says the meetings have achieved fruitful results. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=75)
@@ -1413,29 +1437,5 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
-
----
-
-# Security tightened in Beijing ahead of Two Sessions
-
-![Authorities step up patrols and ID checks in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793999_1_20250303164358.jpg&q=60)
-  
-
-Authorities in the capital have stepped up security ahead of the annual “Two Sessions” meetings.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm)
 
 ---

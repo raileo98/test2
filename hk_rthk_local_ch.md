@@ -1,3 +1,26 @@
+# 陳茂波稱香港要在人工智能引領浪潮中把握機遇
+
+  
+
+黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm)
+
+---
+
 # 港股曾跌逾400點　失守24000點
 
 ![港股跌幅一度擴大至逾400點，恒生指數失守24000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795073_1_20250310111137.jpg&q=5)
@@ -1414,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
-
----
-
-# 全國兩會 | 甯漢豪稱全力將北都有關土地建設及基建工程做好
-
-![甯漢豪說，會採用多元發展模式，以創新思維更靈活善用市場力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794882_1_20250308132219.jpg&q=70)
-  
-
-發展局局長甯漢豪表示，會與團隊全力以赴，讓香港得以充分發揮「一國兩制」下的獨特地位和優勢，全力拼經濟、謀發展、搞建設。其中，北部都會區對香港社會和經濟發展至為關鍵，有助香港突破長久以來土地不足的瓶頸，發展局會全力將北都有關土地建設及基建工程做好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm)
 
 ---

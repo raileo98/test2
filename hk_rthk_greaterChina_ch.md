@@ -1,3 +1,26 @@
+# 陳茂波稱香港要在人工智能引領浪潮中把握機遇
+
+  
+
+黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm)
+
+---
+
 # 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
 
 ![王靈桂說，香港在全球發達經濟體當中並不弱。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795068_1_20250310105925.jpg&q=85)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm)
-
----
-
-# 全國兩會｜鄭新聰籲講好澳門特色一國兩制成功實踐故事
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794814_1_20250307224630.jpg&q=90)
-  
-
-在北京，全國人大代表、澳門中聯辦主任鄭新聰表示，國家主席習近平去年12月到澳門視察，為澳門未來發展指明方向，激勵澳門各界打開發展新天地，不斷創造鬥志，希望媒體繼續講好一國兩制成功實踐的澳門故事，廣泛傳播正能量。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794814-20250307.htm)
 
 ---
