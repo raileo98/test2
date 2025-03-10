@@ -1,3 +1,27 @@
+# 找鋼：通過De-SPAC形式在港上市　邁向新征程重要里程碑
+
+![王東稱，公司通過De-SPAC形式在香港上市，是內地鋼鐵產業互聯網平台邁向新階段標誌性事件。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795076_1_20250310114912.jpg&q=85)
+  
+
+香港首家上市的特殊目的併購公司（SPAC）Aquila Acquisition早前與找鋼產業互聯集團一家全資附屬公司合併，找鋼產業互聯集團完成併購交易（De-SPAC）今日掛牌上市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795076-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795076-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795076-20250310.htm)
+
+---
+
 # 滬股半日跌約0.6%　創業板指數失守2200點
 
 ![上證指數半日收報3352點，跌19點，跌幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795075_1_20250310113626.jpg&q=90)
@@ -1415,29 +1439,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm)
-
----
-
-# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795000_1_20250309183439.jpg&q=80)
-  
-
-新一屆立法會選舉將於今年底舉行，在北京，港澳辦副主任王靈桂接受本台訪問表示，香港要有能力、有擔當、有作為的人為市民服務，形容如奧運會一樣，每一屆立法會選舉沒有最好、只有更好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm)
 
 ---
