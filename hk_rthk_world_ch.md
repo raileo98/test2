@@ -1,3 +1,24 @@
+# 南韓軍方稱北韓向黃海發射多枚導彈
+
+![北韓向黃海發射數枚導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795093_1_20250310135058.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795093-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795093-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795093-20250310.htm)
+
+---
+
 # 本港暫停英國赫里福德郡禽肉及禽類產品入口
 
 ![中心即時指示業界暫停從英國赫里福德郡進口禽肉及禽類產品，包括禽蛋。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795091_1_20250310131723.jpg&q=90)
@@ -1413,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm)
-
----
-
-# 加拿大多倫多酒吧槍擊案12傷　槍手在逃
-
-![加拿大多倫多酒吧槍擊案12傷　槍手在逃](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794895_1_20250308153632.jpg&q=90)
-  
-
-加拿大多倫多一間酒吧發生槍擊案，至少12人受傷，槍手在逃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm)
 
 ---
