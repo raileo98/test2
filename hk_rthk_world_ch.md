@@ -1,3 +1,50 @@
+# 道指曾挫逾千點　3大指數低收2%至4%　Tesla跌15%
+
+![憂慮美國經濟陷入衰退，美股3大指數急瀉2%至4%，標普500指數及納指創半年收市新低。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795176_1_20250311053617.jpg&q=90)
+  
+
+美股3大指數急瀉2%至4%，關稅措施不確定及聯邦政府可能停擺，引發市場擔憂美國經濟陷入衰退。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm)
+
+---
+
+# 英國附近海域油輪與貨船相撞　貨船船主稱1名船員失蹤
+
+  
+
+英國英格蘭東北部附近海域發生油輪和貨船相撞事故，涉事油輪事後起火。英國傳媒報道，兩艘船共30多人被安全救上岸，貨船船主就說，一名船員失蹤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm)
+
+---
+
 # 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
 
 ![美國經濟衰退風險上升引發市場嚴重擔憂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795175_1_20250311051543.jpg&q=90)
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm)
-
----
-
-# 敘利亞過渡總統：國內發生事情屬預計中挑戰　籲維護國家團結和平
-
-![沙拉說，敘利亞國內目前發生的事情屬於預計中的挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794989_1_20250309162357.jpg&q=90)
-  
-
-敘利亞內政部安全人員連日在西部拉塔基亞省與忠於前政權的武裝人員衝突，總部設在英國的敘利亞人權觀察組織說，已造成過千人死亡，包括745名平民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm)
-
----
-
-# 彈劾案何時宣判備受關注　尹錫悅避免外部活動冷靜等待結果
-
-![尹錫悅昨日獲釋後，返回漢南洞的總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794980_1_20250309151403.jpg&q=85)
-  
-
-南韓憲法法院何時就總統尹錫悅彈劾案作出宣判備受關注，韓聯社報道，司法界普遍認為，法院在本周五宣判的可能性較大，但亦有分析認為，由於尹錫悅一方全面抗辯，導致法院工作量增加，可能要多一至兩星期才會宣判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm)
 
 ---

@@ -1,3 +1,74 @@
+# 英法德股市低收近1%或以上　科技股捱沽
+
+![歐洲主要股市跌近1%或以上，美國關稅持續不確定，環球科技股出現拋售潮。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795177_1_20250311054207.jpg&q=90)
+  
+
+歐洲主要股市跌近1%或以上，美國關稅持續不確定，環球科技股出現拋售潮。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm)
+
+---
+
+# 道指曾挫逾千點　3大指數低收2%至4%　Tesla跌15%
+
+![憂慮美國經濟陷入衰退，美股3大指數急瀉2%至4%，標普500指數及納指創半年收市新低。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795176_1_20250311053617.jpg&q=90)
+  
+
+美股3大指數急瀉2%至4%，關稅措施不確定及聯邦政府可能停擺，引發市場擔憂美國經濟陷入衰退。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm)
+
+---
+
+# 英國附近海域油輪與貨船相撞　貨船船主稱1名船員失蹤
+
+  
+
+英國英格蘭東北部附近海域發生油輪和貨船相撞事故，涉事油輪事後起火。英國傳媒報道，兩艘船共30多人被安全救上岸，貨船船主就說，一名船員失蹤。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm)
+
+---
+
 # 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
 
 ![美國經濟衰退風險上升引發市場嚴重擔憂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795175_1_20250311051543.jpg&q=90)
@@ -1361,77 +1432,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm)
-
----
-
-# 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
-
-![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
-  
-
-加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
-
----
-
-# 泰航本月15日起禁止在航班使用充電寶或備用電池
-
-![泰航本月15日起禁止在航班使用充電寶或備用電池。（泰航官方微博截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795109_1_20250310153442.jpg&q=90)
-  
-
-泰國航空表示，本月15日起，所有泰航航班將禁止使用充電寶或備用電池，同時也禁止在航班上為充電寶或備用電池充電。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm)
-
----
-
-# 「戶戶送」客戶及送遞員將導向至foodpanda平台
-
-![Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795108_1_20250310154011.jpg&q=85)
-  
-
-戶戶送Deliveroo決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。foodpanda的母公司Delivery Hero表示，已與Deliveroo簽署並達成協議，根據該協議，Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台，而部份餐廳及生活百貨商戶亦將會進駐foodpanda。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm)
 
 ---

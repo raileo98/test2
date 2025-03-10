@@ -1,3 +1,51 @@
+# 英法德股市低收近1%或以上　科技股捱沽
+
+![歐洲主要股市跌近1%或以上，美國關稅持續不確定，環球科技股出現拋售潮。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795177_1_20250311054207.jpg&q=90)
+  
+
+歐洲主要股市跌近1%或以上，美國關稅持續不確定，環球科技股出現拋售潮。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm)
+
+---
+
+# 道指曾挫逾千點　3大指數低收2%至4%　Tesla跌15%
+
+![憂慮美國經濟陷入衰退，美股3大指數急瀉2%至4%，標普500指數及納指創半年收市新低。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795176_1_20250311053617.jpg&q=90)
+  
+
+美股3大指數急瀉2%至4%，關稅措施不確定及聯邦政府可能停擺，引發市場擔憂美國經濟陷入衰退。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm)
+
+---
+
 # 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
 
 ![美國經濟衰退風險上升引發市場嚴重擔憂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795175_1_20250311051543.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm)
-
----
-
-# 港股競價時段跌115點　赤峰黃金首掛開市持平
-
-![恒生指數競價時段報24115點，跌115點，跌幅0.48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795053_1_20250310092350.jpg&q=50)
-  
-
-港股低開逾百點，恒生指數競價時段報24115點，跌115點，跌幅0.48%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm)
-
----
-
-# 全國兩會｜施榮懷稱香港國際金融航運中心地位得益於國家改革開放
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795050_1_20250310091931.jpg&q=90)
-  
-
-全國政協常委施榮懷表示，香港國際金融、航運、貿易中心地位的形成，得益於國家改革開放和發展進步，並在回歸後在香港實施「一國兩制」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
 
 ---
