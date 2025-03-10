@@ -1,5 +1,30 @@
+# 建造業議會稱政府資助2500個在職培訓名額足以照顧市場需要
+
+![何安誠（左）表示，去年全港已有六成地盤取得「安全智慧工地系統標籤」。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795142_1_20250310181404.jpg&q=80)
+  
+
+財政預算案提出建造業議會將出資約1.5億元，資助業界為合共2500名工程、建築、測量、規劃及園境的學位課程畢業生，提供在職培訓，協助更多青年獲取專業資格。建造業議會執行總監鄭定寕表示，相信有關名額已足夠照顧市場需要，並且具有一定影響力，又希望外界不要太斟酌數字的多寡，因今次資助是希望令僱主對行業有信心，並在艱難時期為他們提供支援，令公司能夠留得住年青人才。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm)
+
+---
+
 # 藍田興田邨美田樓有單位疑漏煤氣及爆炸　男住戶被捕准保釋候查
 
+![警方調查後，相信與其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795140_1_20250310181143.jpg&q=30)
   
 
 藍田興田邨美田樓一個單位上星期懷疑洩漏煤氣及發生爆炸，觀塘警區重案組人員經調查後，相信其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。他已獲准保候查，須於4月上旬向警方報到。
@@ -1411,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm)
-
----
-
-# 全國兩會｜王靈桂相信年底立法會換屆　將選出具能力愛國愛港者
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794962_1_20250309103850.jpg&q=90)
-  
-
-在北京，全國政協委員、港澳辦副主任王靈桂表示，香港進入「由治及興」新階段，需要有能力、有擔當、有作為的人為市民服務，每一屆立法會選舉應該要越來越好，如奧運會一樣，只有更好、沒有最好，「好」是一個不斷追求的目標。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm)
 
 ---

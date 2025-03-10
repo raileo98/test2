@@ -1,5 +1,78 @@
+# 萊爾斯丹料去年度虧損最多擴大至1.15億元人民幣
+
+![萊爾斯丹預計，去年度虧損將擴大至介乎9300萬至1.15億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795138_1_20250310174150.jpg&q=85)
+  
+
+萊爾斯丹（LE SAUNDA） 預計，截至2月底去年度虧損將擴大至介乎9300萬元至1.15億元人民幣，按年擴大近3倍至4倍，主要由於內地零售市場遲緩拖累總銷售下跌、公司提供較高折扣以清理存貨令毛利率顯著向下、關閉低效實體零售店及優化後勤行政人員而產生一次過僱員賠償費用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm)
+
+---
+
+# 建造業議會稱政府資助2500個在職培訓名額足以照顧市場需要
+
+![何安誠（左）表示，去年全港已有六成地盤取得「安全智慧工地系統標籤」。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795142_1_20250310181404.jpg&q=80)
+  
+
+財政預算案提出建造業議會將出資約1.5億元，資助業界為合共2500名工程、建築、測量、規劃及園境的學位課程畢業生，提供在職培訓，協助更多青年獲取專業資格。建造業議會執行總監鄭定寕表示，相信有關名額已足夠照顧市場需要，並且具有一定影響力，又希望外界不要太斟酌數字的多寡，因今次資助是希望令僱主對行業有信心，並在艱難時期為他們提供支援，令公司能夠留得住年青人才。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm)
+
+---
+
+# 內地2月乘用車市場零售按年升26%　新能源車按年升近80%
+
+![中國乘聯會公布，內地2月狹義乘用車市場零售按年增加26%，新能源車按年升近80%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795127_1_20250310171219.jpg&q=90)
+  
+
+中國乘用車市場信息聯席會公布，內地2月狹義乘用車市場零售138.6萬輛，按年增加26%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm)
+
+---
+
 # 藍田興田邨美田樓有單位疑漏煤氣及爆炸　男住戶被捕准保釋候查
 
+![警方調查後，相信與其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795140_1_20250310181143.jpg&q=30)
   
 
 藍田興田邨美田樓一個單位上星期懷疑洩漏煤氣及發生爆炸，觀塘警區重案組人員經調查後，相信其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。他已獲准保候查，須於4月上旬向警方報到。

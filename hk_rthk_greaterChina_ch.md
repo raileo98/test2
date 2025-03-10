@@ -1,3 +1,27 @@
+# 內地2月乘用車市場零售按年升26%　新能源車按年升近80%
+
+![中國乘聯會公布，內地2月狹義乘用車市場零售按年增加26%，新能源車按年升近80%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795127_1_20250310171219.jpg&q=90)
+  
+
+中國乘用車市場信息聯席會公布，內地2月狹義乘用車市場零售138.6萬輛，按年增加26%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm)
+
+---
+
 # 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
 
 ![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm)
-
----
-
-# 全國兩會 | 醫衞局稱利用一國兩制優勢建設國際醫療創新樞紐
-
-![醫務衞生局說，《施政報告》提出深化醫療體系改革亦必須「三醫聯動」，才能持續提升醫療質量及效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794883_1_20250308132556.jpg&q=85)
-  
-
-醫務衞生局在社交平台提到，中央政府依二十屆三中全會的《決定》作出部署，深化醫藥衞生體制改革，實施健康優先發展戰略，促進醫療、醫藥、醫保「三醫聯動」，協同發展和治理，對香港帶來重要啟示。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
 
 ---
