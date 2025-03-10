@@ -1,3 +1,192 @@
+# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm)
+
+---
+
+# 人民幣兌美元中間價跌28點子
+
+![人民幣兌美元中間價報7.1733，較上日中間價下跌28點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795052_1_20250310092102.jpg&q=90)
+  
+
+人民幣兌美元中間價報7.1733，較上日中間價下跌28點子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm)
+
+---
+
+# 港股競價時段跌115點　赤峰黃金首掛開市持平
+
+![恒生指數競價時段報24115點，跌115點，跌幅0.48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795053_1_20250310092350.jpg&q=50)
+  
+
+港股低開逾百點，恒生指數競價時段報24115點，跌115點，跌幅0.48%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm)
+
+---
+
+# 全國兩會｜施榮懷稱香港國際金融航運中心地位得益於國家改革開放
+
+![施榮懷（左）說，國際金融中心是香港的「金字招牌」；何潤生（右）說，「澳門新街坊」項目，為澳門居民提供住房、教育、醫療等服務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795050_1_20250310091931.jpg&q=90)
+  
+
+全國政協常委施榮懷表示，香港國際金融、航運、貿易中心地位的形成，得益於國家改革開放和發展進步，並在回歸後在香港實施「一國兩制」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
+
+---
+
+# 全國兩會｜學者指國家半導體製造業迅速進步　料未來數年更大進展
+
+![常凱說，近年很多半導體製造設備的國產化率已大幅提高。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795049_1_20250310093534.jpg&q=85)
+  
+
+在北京，全國政協常委、中國科學院半導體研究所研究員常凱接受本台訪問時表示，晶片是中美科技競爭的重要領域，雖然美國通過很多法案限制對華晶片出口，帶來了一些困難，但近年中國半導體晶圓製造產業有非常大進步，很多半導體製造設備的國產化率已大幅提高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm)
+
+---
+
+# 台股初段窄幅上落
+
+![加權指數較早時報22596點，升20點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795046_1_20250310090236.jpg&q=90)
+  
+
+台股初段靠穩，加權指數較早時報22596點，升20點，升幅0.09%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm)
+
+---
+
+# 全國兩會｜全國政協會議今早閉幕　王滬寧主持會議
+
+![王滬寧宣布，會議應出席委員2154人，實到2082人，符合規定人數。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795048_1_20250310092311.jpg&q=90)
+  
+
+全國政協十四屆三次會議今早9時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm)
+
+---
+
+# 全國兩會｜創科成熱話　政協認為發展人工智能需謀劃勿人云亦云
+
+![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_1_20250310090600.jpg&q=90)
+![朱松純認為，香港要有自己的「發展和改革委員會」，即「發改委」，制訂長期的人工智能發展戰略。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_2_20250310090600.jpg&q=90)
+  
+
+中國人工智能大模型DeepSeek的出現，在北京兩會期間令國家科研創新能力成為熱烈話題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm)
+
+---
+
 # 韓股早段跌逾0.2%
 
 ![首爾綜合指數較早時報2557點，跌5點，跌幅0.22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795041_1_20250310080944.jpg&q=80)
@@ -1245,197 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
-
----
-
-# 一名入境旅客處理未完稅香煙罪成判監6個月及罰款
-
-![一名旅客因處理未完稅香煙並未有向海關人員作出申報，違反《應課稅品條例》。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794979_1_20250309152712.jpg&q=85)
-  
-
-一名41歲旅客因處理未完稅香煙以及未有向海關人員作出申報，違反《應課稅品條例》，昨日在九龍城裁判法院被判處監禁6個月及罰款。海關對判刑表示歡迎，指監禁判刑具相當阻嚇作用，並充分反映罪行的嚴重性。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm)
-
----
-
-# 關注病人組織調查　多受訪者冀新醫學院培育仁醫及具科研實力
-
-![調查訪問500多名市民，逾七成受訪者指第三間醫學院最重要是培育具醫德的醫生。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794978_1_20250309141058.jpg&q=75)
-  
-
-政府提出支持本地大學籌建第三所醫學院，關注病人權益的團體就此措施經網上問卷，訪問了500多名市民意見。其中，在課程內容方面，超過七成受訪者認為最重要是培育具醫德、仁心仁術的醫生，另外亦較多受訪者期望第三間醫學院，能透過醫療創科培育出學生創新精神、能力和態度。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm)
-
----
-
-# 財政預算案2025 | 孫玉菡：社福恆常開支看不到空間再調整
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794977_1_20250309141657.jpg&q=90)
-  
-
-新一份財政預算案提出，於2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，就社福恆常開支，已看不到再有空間可作額外調整。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm)
-
----
-
-# 日本東京都有民間團體舉行集會反對使用核電
-
-![2011年東日本大地震引發的海嘯，導致福島第一核電廠遭受嚴重損壞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794975_1_20250309133057.jpg&q=40)
-  
-
-日本東京都有民間團體舉行集會，反對使用核電。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm)
-
----
-
-# 全國兩會 | 解放軍：增國防支出用於新域新質作戰力量等方面
-
-![吳謙說，增加的國防支出主要用於大力發展新域新質作戰力量等方面。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794976_1_20250309134432.jpg&q=90)
-  
-
-全國人大三次會議解放軍和武警部隊代表團新聞發言人吳謙表示，近年來，為維護國家主權、安全、發展利益，中國政府促進國防實力和經濟實力同步提升。今年全國一般公共預算安排國防支出1.81萬億元，比上年增長7.2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm)
-
----
-
-# 中伊俄海軍本月上中旬在恰巴哈爾港附近區域聯合演習
-
-![中國、伊朗及俄羅斯海軍去年3月在阿曼灣組織實施有關聯合演習。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794973_1_20250309131226.jpg&q=80)
-  
-
-中國、伊朗、俄羅斯三國海軍將於本月上中旬，在伊朗恰巴哈爾港附近區域組織實施「安全紐帶-2025」聯合演習。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm)
-
----
-
-# 全國兩會 |吳謙：解放軍一向是打「獨」促統行動派
-
-![吳謙正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794972_1_20250309124931.jpg&q=90)
-  
-
-全國人大三次會議解放軍和武警部隊代表團新聞發言人吳謙強調，祖國必然統一，這是大勢所趨、道義所在，既是實力使然、更是民心所向，解放軍一向是打「獨」促統的行動派，近年繞島巡航、軍事懾壓已成常態。「台獨」分子鬧得越歡，脖子上的繩索就會勒得越緊，頭頂上的利劍就會愈加鋒利，正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm)
-
----
-
-# 綠色和平發現桌球賽大會違反自訂規定　包括場內派膠水樽
-
-![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794971_1_20250309124553.jpg&q=90)
-  
-
-環保組織綠色和平在啟德體育園體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到貴價門票觀眾席上，預設擺放了連蓋的膠樽水；亦有貴賓將自備杯帶入場內，未有職員阻止，有違場館列明不能攜帶任何容器進場的規定。綠色和平認為，派水安排製造不必要的即棄垃圾，啟德體育園應盡快落實重用杯服務，平衡安全及環保考量，讓觀眾有使用非即棄的選擇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 7-Eleven explores sell-offs with Couche-Tard
+
+![Seven & i operates some 85,000 convenience stores worldwide. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795045_1_20250310090227.jpg&q=90)
+  
+
+The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore store sell-offs with Alimentation Couche-Tard (ACT) to address antitrust concerns ahead of a potential merger.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm)
+
+---
+
+# Trump declines to rule out 2025 US recession
+
+![President Trump told reporters aboard Air Force One "Who knows?", when asked on Sunday to clarify whether there could be a recession. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795044_1_20250310084801.jpg&q=90)
+  
+
+US President Donald Trump declined on Sunday to rule out the possibility that the United States might enter a recession this year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
+
+---
+
 # Mainland sees year-on-year drop in inflation
 
 ![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
@@ -1387,53 +1435,5 @@ Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm)
-
----
-
-# CLP's annual profit increases by 75 percent
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792948_1_20250224163049.jpg&q=80)
-  
-
-CLP Holdings on Monday said its annual profit increased by about 75 percent to HK$11.7 billion last year, thanks partly to notable improvements in its business in Australia.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792948-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792948-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792948-20250224.htm)
-
----
-
-# Alibaba announces investment in AI, cloud computing
-
-![Alibaba says it plans to invest at least 380 billion yuan over the next three years to advance its cloud computing and AI infrastructure. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792919_1_20250224132805.jpg&q=90)
-  
-
-Chinese tech giant Alibaba said on Monday it will invest more than 380 billion yuan (US$52.4 billion) on artificial intelligence and cloud computing over the next three years.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792919-20250224.htm)
 
 ---

@@ -1,3 +1,52 @@
+# 全國兩會｜施榮懷稱香港國際金融航運中心地位得益於國家改革開放
+
+![施榮懷（左）說，國際金融中心是香港的「金字招牌」；何潤生（右）說，「澳門新街坊」項目，為澳門居民提供住房、教育、醫療等服務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795050_1_20250310091931.jpg&q=90)
+  
+
+全國政協常委施榮懷表示，香港國際金融、航運、貿易中心地位的形成，得益於國家改革開放和發展進步，並在回歸後在香港實施「一國兩制」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
+
+---
+
+# 全國兩會｜創科成熱話　政協認為發展人工智能需謀劃勿人云亦云
+
+![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_1_20250310090600.jpg&q=90)
+![朱松純認為，香港要有自己的「發展和改革委員會」，即「發改委」，制訂長期的人工智能發展戰略。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_2_20250310090600.jpg&q=90)
+  
+
+中國人工智能大模型DeepSeek的出現，在北京兩會期間令國家科研創新能力成為熱烈話題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm)
+
+---
+
 # 全國兩會｜邱達昌：盛事經濟成效需時　啟德體育園可帶動旅遊業
 
 ![邱達昌表示，啟德體育園開幕令該區酒店受惠，亦有利帶動本港旅遊業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795039_1_20250310080730.jpg&q=65)
@@ -1388,53 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794865-20250308.htm)
-
----
-
-# 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
-
-![曾國衞認為，工作報告有關香港的部分，凸顯中央考慮香港的事情從來都是站在國家的戰略高度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794863_1_20250308111540.jpg&q=75)
-  
-
-政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
-
----
-
-# 張國鈞稱香港國安法如須修改須經人大　如修改並非輸打贏要
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794862_1_20250308105928.jpg&q=85)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料的案件，終極上訴得直。律政司副司長張國鈞表示，由於香港國安法是全國人大常委會訂立，如果需要修改，需要經由人大去修改。至於在本港的執法程序，如何能夠執行得更好，則由香港的機關去處理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm)
 
 ---

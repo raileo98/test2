@@ -1,3 +1,27 @@
+# Trump declines to rule out 2025 US recession
+
+![President Trump told reporters aboard Air Force One "Who knows?", when asked on Sunday to clarify whether there could be a recession. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795044_1_20250310084801.jpg&q=90)
+  
+
+US President Donald Trump declined on Sunday to rule out the possibility that the United States might enter a recession this year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
+
+---
+
 # Mark Carney to succeed Trudeau as Canadian PM
 
 ![During the campaign, Carney said he supported dollar-for-dollar retaliatory tariffs against the United States. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795033_1_20250310065447.jpg&q=90)
@@ -1416,29 +1440,5 @@ Firefly Aerospace became the second US company to land on the moon on Sunday wit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793887-20250302.htm)
-
----
-
-# Israel suspends entry of supplies into Gaza
-
-![Israel is stopping the entry of goods and supplies into Gaza and warned of “additional consequences” if Hamas does not accept new ceasefire proposals. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793880_1_20250302160735.jpg&q=65)
-  
-
-Hamas on Sunday slammed Israel's suspension of supplies and aid entering Gaza, describing it as a "war crime" and a violation of the ceasefire agreement.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793880-20250302.htm)
 
 ---

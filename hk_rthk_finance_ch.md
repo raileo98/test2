@@ -1,3 +1,192 @@
+# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm)
+
+---
+
+# 人民幣兌美元中間價跌28點子
+
+![人民幣兌美元中間價報7.1733，較上日中間價下跌28點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795052_1_20250310092102.jpg&q=90)
+  
+
+人民幣兌美元中間價報7.1733，較上日中間價下跌28點子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm)
+
+---
+
+# 港股競價時段跌115點　赤峰黃金首掛開市持平
+
+![恒生指數競價時段報24115點，跌115點，跌幅0.48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795053_1_20250310092350.jpg&q=50)
+  
+
+港股低開逾百點，恒生指數競價時段報24115點，跌115點，跌幅0.48%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795053-20250310.htm)
+
+---
+
+# 全國兩會｜施榮懷稱香港國際金融航運中心地位得益於國家改革開放
+
+![施榮懷（左）說，國際金融中心是香港的「金字招牌」；何潤生（右）說，「澳門新街坊」項目，為澳門居民提供住房、教育、醫療等服務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795050_1_20250310091931.jpg&q=90)
+  
+
+全國政協常委施榮懷表示，香港國際金融、航運、貿易中心地位的形成，得益於國家改革開放和發展進步，並在回歸後在香港實施「一國兩制」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
+
+---
+
+# 全國兩會｜學者指國家半導體製造業迅速進步　料未來數年更大進展
+
+![常凱說，近年很多半導體製造設備的國產化率已大幅提高。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795049_1_20250310093534.jpg&q=85)
+  
+
+在北京，全國政協常委、中國科學院半導體研究所研究員常凱接受本台訪問時表示，晶片是中美科技競爭的重要領域，雖然美國通過很多法案限制對華晶片出口，帶來了一些困難，但近年中國半導體晶圓製造產業有非常大進步，很多半導體製造設備的國產化率已大幅提高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm)
+
+---
+
+# 台股初段窄幅上落
+
+![加權指數較早時報22596點，升20點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795046_1_20250310090236.jpg&q=90)
+  
+
+台股初段靠穩，加權指數較早時報22596點，升20點，升幅0.09%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm)
+
+---
+
+# 全國兩會｜全國政協會議今早閉幕　王滬寧主持會議
+
+![王滬寧宣布，會議應出席委員2154人，實到2082人，符合規定人數。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795048_1_20250310092311.jpg&q=90)
+  
+
+全國政協十四屆三次會議今早9時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm)
+
+---
+
+# 全國兩會｜創科成熱話　政協認為發展人工智能需謀劃勿人云亦云
+
+![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_1_20250310090600.jpg&q=90)
+![朱松純認為，香港要有自己的「發展和改革委員會」，即「發改委」，制訂長期的人工智能發展戰略。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_2_20250310090600.jpg&q=90)
+  
+
+中國人工智能大模型DeepSeek的出現，在北京兩會期間令國家科研創新能力成為熱烈話題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm)
+
+---
+
 # 韓股早段跌逾0.2%
 
 ![首爾綜合指數較早時報2557點，跌5點，跌幅0.22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795041_1_20250310080944.jpg&q=80)
@@ -1244,197 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
-
----
-
-# 全國兩會｜人大代表：民營經濟促進法能保障民企平等使用生產要素
-
-![黃代放表示，民企發展面臨一系列複雜挑戰，相信隨著政策持續落地與完善，民企發展難題會越來越少。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794758_2_20250307171251.jpg&q=90)
-  
-
-國家主席習近平上月出席民營企業座談會並發表重要講活。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794758-20250307.htm)
-
----
-
-# 鐵路總工會引述港鐵加薪1.8%至5.4%　平均加幅3.78%
-
-![港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794757_1_20250307172048.jpg&q=85)
-  
-
-香港鐵路總工會表示，港鐵宣布員工年度薪酬增幅介乎1.8%至5.4%，平均加幅3.78%，與去年加薪幅度相若。工會期望，未來能進一步加強溝通，創造更好的勞資環境，挽留人才。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794757-20250307.htm)
-
----
-
-# 全國兩會｜楊華勇：杭州民營經濟發達及政府支持創新有利科企發展
-
-![楊華勇認為，浙江民營經濟發達，杭州有政府支持，亦有民間資本，均有利發展。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_2_20250307202819.jpg&q=85)
-![諶志華表示，DeepSeek出現，反映中國在創新上的突破，亦帶來一個新模式。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794754_1_20250307164916.jpg&q=75)
-  
-
-杭州近年有多家科技新貴崛起，包括DeepSeek、人形機械人登上春晚的宇樹科技、推出《黑神話：悟空》的遊戲科學等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794754-20250307.htm)
-
----
-
-# 港股反覆低收138點　京東績後挫約5%
-
-![恒生指數一度升約300點，觸及24669點，再創逾3年新高，收市報24231點，跌138點，跌幅約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794747_1_20250307161746.jpg&q=1)
-  
-
-港股表現反覆，恒生指數一度升約300點，觸及24669點，再創逾3年新高，尾市回落，收市報24231點，跌138點，跌幅約0.6%，主板成交額約3832億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794747-20250307.htm)
-
----
-
-# 唐家成出任行會、立法會及政治委任制度官員薪津獨立委員會主席
-
-![唐家成獲委任為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794742_1_20250307154353.jpg&q=90)
-  
-
-行政長官再度委任唐家成為「香港特別行政區行政會議成員、立法會議員及政治委任制度官員薪津獨立委員會」主席，並再度委任蔡永忠和黃子遜為獨立委員會成員，任期由4月1日起生效，為期1年。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794742-20250307.htm)
-
----
-
-# 遠東發展與周大福企業收購布里斯本娛樂及休閒區項目一半股權
-
-  
-
-遠東發展公布，與周大福企業組成合營夥伴，與The Star Entertainment Group Limited訂立協議綱領，與The Star進行資產置換。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794740-20250307.htm)
-
----
-
-# 分析：內地出口於未來兩至三個月或按年下跌
-
-![林俊泓稱特朗普上任美國總統後「搶出口」已延續一段時間，市場或需時消化累積庫存。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794738_1_20250307153106.jpg&q=10)
-  
-
-中國海關總署公布，以美元計價，今年1至2月內地出口按年增長2.3%，差過市場預期的5%；進口按年下跌8.4%，市場原先預期會升1%。首兩個月貿易順差1705.2億美元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794738-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794738-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794738-20250307.htm)
-
----
-
-# 滬股低收0.25%　創業板跌1.3%
-
-![上證指數收報3372點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794736_1_20250307150918.jpg&q=90)
-  
-
-滬深股市反覆偏軟，有色金屬、軍工股造好，電池、金融、地產股偏軟。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm)
 
 ---

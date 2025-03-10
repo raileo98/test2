@@ -1,3 +1,27 @@
+# Unsold homes dampens interest for new sites: tycoon
+
+![CPPCC standing committee member, David Chiu, says it is "sensible and smart" for the government not to sell any commercial sites this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
+  
+
+A property tycoon says he believes Hong Kong developers will take a "conservative" approach over acquiring new plots, noting such firms still had a lot of unsold units.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm)
+
+---
+
 # Robertson romps to World Snooker Grand Prix title
 
 ![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=75)
@@ -1415,29 +1439,5 @@ The chairman of a leading casino and hospitality group in Macau said on Tuesday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794196-20250304.htm)
-
----
-
-# CPPCC outlines modernisation push and self-improvement
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794177_1_20250304165718.jpg&q=90)
-  
-
-The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm)
 
 ---

@@ -1,3 +1,120 @@
+# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm)
+
+---
+
+# 全國兩會｜施榮懷稱香港國際金融航運中心地位得益於國家改革開放
+
+![施榮懷（左）說，國際金融中心是香港的「金字招牌」；何潤生（右）說，「澳門新街坊」項目，為澳門居民提供住房、教育、醫療等服務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795050_1_20250310091931.jpg&q=90)
+  
+
+全國政協常委施榮懷表示，香港國際金融、航運、貿易中心地位的形成，得益於國家改革開放和發展進步，並在回歸後在香港實施「一國兩制」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
+
+---
+
+# 全國兩會｜學者指國家半導體製造業迅速進步　料未來數年更大進展
+
+![常凱說，近年很多半導體製造設備的國產化率已大幅提高。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795049_1_20250310093534.jpg&q=85)
+  
+
+在北京，全國政協常委、中國科學院半導體研究所研究員常凱接受本台訪問時表示，晶片是中美科技競爭的重要領域，雖然美國通過很多法案限制對華晶片出口，帶來了一些困難，但近年中國半導體晶圓製造產業有非常大進步，很多半導體製造設備的國產化率已大幅提高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm)
+
+---
+
+# 全國兩會｜全國政協會議今早閉幕　王滬寧主持會議
+
+![王滬寧宣布，會議應出席委員2154人，實到2082人，符合規定人數。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795048_1_20250310092311.jpg&q=90)
+  
+
+全國政協十四屆三次會議今早9時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人出席。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm)
+
+---
+
+# 全國兩會｜創科成熱話　政協認為發展人工智能需謀劃勿人云亦云
+
+![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_1_20250310090600.jpg&q=90)
+![朱松純認為，香港要有自己的「發展和改革委員會」，即「發改委」，制訂長期的人工智能發展戰略。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_2_20250310090600.jpg&q=90)
+  
+
+中國人工智能大模型DeepSeek的出現，在北京兩會期間令國家科研創新能力成為熱烈話題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm)
+
+---
+
 # 內地2月PPI按年及按月跌幅收窄　統計局：宏觀政策效果漸顯現
 
 ![國家統計局指出，隨著宏觀政策效果逐步顯現，部分行業生產需求增加，帶動上月PPI跌幅收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795027_1_20250310053724.jpg&q=30)
@@ -1318,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794796-20250307.htm)
-
----
-
-# 全國兩會｜何超瓊建議構建跨境低空觀光及接駁航線
-
-![何超瓊建議，推動大灣區智慧交通系統普及化，完善共享機制，推動航線創新。（信德集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794792_1_20250307185447.jpg&q=85)
-  
-
-全國政協常委、信德集團行政主席何超瓊建議，聯合民航局、港澳交通部門，開通「港澳—珠海橫琴」、「港澳—廣州南沙」跨境低空觀光及接駁航線、試點直升機等，進一步拓展「多式聯運」網絡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm)
-
----
-
-# 全國兩會｜有人大引述丁薛祥稱香港在由治及興路上越走越穩
-
-![丁薛祥參加港區全國人大代表團審議，並聽取代表的意見。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794789_1_20250307191857.jpg&q=85)
-  
-
-在北京，主管港澳事務的國務院常務副總理丁薛祥，參加港區全國人大代表團審議，並聽取代表的意見。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794789-20250307.htm)
-
----
-
-# 全國兩會｜王毅：「以台制華」無異於螳臂擋車　中國最終必將統一
-
-![王毅強調，「以台制華」無異於螳臂擋車，中國最終必將統一。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794788_1_20250307191045.jpg&q=90)
-  
-
-外長王毅在記者會回應烏克蘭危機時強調，談判桌是衝突的終點，也是和平的起點，中方歡迎並支持一切致力於和平的努力。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794788-20250307.htm)
-
----
-
-# 全國兩會｜王毅：在芬太尼問題上美國不能以怨報德，無端加稅
-
-![王毅說，相互尊重是中美關係的重要前提。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794786_1_20250307190950.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅，在全國人大會議期間舉行中外記者會。他說，相互尊重是中美關係的重要前提，任何一個國家都不能幻想一邊打壓中國，一邊又與中國發展良好關係，這種「兩面人」的做法，不利雙邊關係穩定，亦無法建立彼此互信。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794786-20250307.htm)
-
----
-
-# 全國兩會｜澳門立法會主席稱會依法選出合居民期望議員
-
-![高開賢相信澳門一定會依法依規選出符合愛國者治澳要求及澳門居民期望的議員。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794783_1_20250307184231.jpg&q=90)
-  
-
-澳門第八屆立法會選舉將在今年9月14日舉行。身兼澳門立法會主席的全國人大代表高開賢表示，立法會選舉是澳門政治生活一件大事，相信澳門特區政府與社會各界，一定會依法依規選出符合愛國者治澳要求，符合澳門居民期望的議員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794783-20250307.htm)
 
 ---

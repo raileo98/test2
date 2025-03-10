@@ -1,3 +1,76 @@
+# 全國兩會｜施榮懷稱香港國際金融航運中心地位得益於國家改革開放
+
+![施榮懷（左）說，國際金融中心是香港的「金字招牌」；何潤生（右）說，「澳門新街坊」項目，為澳門居民提供住房、教育、醫療等服務。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795050_1_20250310091931.jpg&q=90)
+  
+
+全國政協常委施榮懷表示，香港國際金融、航運、貿易中心地位的形成，得益於國家改革開放和發展進步，並在回歸後在香港實施「一國兩制」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
+
+---
+
+# 全國兩會｜學者指國家半導體製造業迅速進步　料未來數年更大進展
+
+![常凱說，近年很多半導體製造設備的國產化率已大幅提高。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795049_1_20250310093534.jpg&q=85)
+  
+
+在北京，全國政協常委、中國科學院半導體研究所研究員常凱接受本台訪問時表示，晶片是中美科技競爭的重要領域，雖然美國通過很多法案限制對華晶片出口，帶來了一些困難，但近年中國半導體晶圓製造產業有非常大進步，很多半導體製造設備的國產化率已大幅提高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm)
+
+---
+
+# 全國兩會｜創科成熱話　政協認為發展人工智能需謀劃勿人云亦云
+
+![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_1_20250310090600.jpg&q=90)
+![朱松純認為，香港要有自己的「發展和改革委員會」，即「發改委」，制訂長期的人工智能發展戰略。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_2_20250310090600.jpg&q=90)
+  
+
+中國人工智能大模型DeepSeek的出現，在北京兩會期間令國家科研創新能力成為熱烈話題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm)
+
+---
+
 # 加拿大候任總理卡尼：不能讓特朗普控制加拿大企圖得逞
 
 ![卡尼獲選為自由黨新黨魁後發表勝利演說。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795037_2_20250310085746.jpg&q=90)
@@ -1366,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794844-20250308.htm)
-
----
-
-# 圖斯克計劃軍訓所有波蘭成年男子　形容是軍事儲備應對潛在威脅
-
-![圖斯克說希望將波蘭軍隊的規模，從現在的大約20萬人增加到50萬人。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794836_1_20250308055652.jpg&q=90)
-  
-
-波蘭總理圖斯克在國會發表演說時表示，計劃安排當地所有成年男子接受軍事訓練，政府在未來幾個月內會提供全部細節。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794836-20250308.htm)
-
----
-
-# 特朗普稱須知道烏克蘭冀解決問題　與烏交涉難於與俄交涉
-
-![特朗普說如果烏方不想和解，美方就會退出。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794831_1_20250308035652.jpg&q=90)
-  
-
-美國總統特朗普在白宮橢圓形辦公室表示，俄羅斯正猛烈轟炸烏克蘭，形容烏克蘭遭受重大懲罰，但他認為在達成和平協議方面，與烏克蘭交涉比與俄羅斯交涉更加困難。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794831-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794831-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794831-20250308.htm)
-
----
-
-# 伊媒報道特朗普致信消息　安全機關新聞機構形容華盛頓重複表演
-
-![特朗普稱已向伊朗最高領袖哈梅內伊（圖）致送信件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794830_1_20250308035403.jpg&q=90)
-  
-
-伊朗傳媒已報道美國總統特朗普宣稱已向伊朗最高領袖哈梅內伊致送信件，敦促伊方放棄開發核武的消息。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794830-20250308.htm)
 
 ---

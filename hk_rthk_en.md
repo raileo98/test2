@@ -1,3 +1,75 @@
+# 7-Eleven explores sell-offs with Couche-Tard
+
+![Seven & i operates some 85,000 convenience stores worldwide. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795045_1_20250310090227.jpg&q=90)
+  
+
+The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore store sell-offs with Alimentation Couche-Tard (ACT) to address antitrust concerns ahead of a potential merger.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm)
+
+---
+
+# Unsold homes dampens interest for new sites: tycoon
+
+![CPPCC standing committee member, David Chiu, says it is "sensible and smart" for the government not to sell any commercial sites this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
+  
+
+A property tycoon says he believes Hong Kong developers will take a "conservative" approach over acquiring new plots, noting such firms still had a lot of unsold units.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm)
+
+---
+
+# Trump declines to rule out 2025 US recession
+
+![President Trump told reporters aboard Air Force One "Who knows?", when asked on Sunday to clarify whether there could be a recession. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795044_1_20250310084801.jpg&q=90)
+  
+
+US President Donald Trump declined on Sunday to rule out the possibility that the United States might enter a recession this year.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
+
+---
+
 # Shai outguns Jokic as Thunder roll past Nuggets
 
 ![Shai Gilgeous-Alexander put up 40 points in Oklahoma City's win over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_1_20250310082123.jpg&q=85)
@@ -1366,77 +1438,5 @@ Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguardin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm)
-
----
-
-# Good to improve NSL, Beijing official says
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=85)
-  
-
-A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
-
----
-
-# 'Let's bring key international events to Kai Tak'
-
-![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=85)
-  
-
-The Kai Tak Sports Park will promote sports development and exchanges between Hong Kong and the mainland, according to senior Chinese sports officials attending the "Two Sessions" in Beijing.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
-
----
-
-# 'China's diplomacy gives certainty to uncertain world'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
-  
-
-Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
 
 ---
