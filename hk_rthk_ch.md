@@ -1,5 +1,78 @@
+# 人行逆回購965億元人民幣　連續6日淨回籠
+
+![人行逆回購965億元人民幣，連續6日錄得淨回籠，但單日淨回籠僅5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795056_1_20250310093848.jpg&q=65)
+  
+
+人民銀行公開市場開展965億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠5億元，連續6日淨回籠。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm)
+
+---
+
+# 滬深股市早段窄幅上落
+
+![內地股市早段窄幅上落，上證指數較早時報3371點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795057_1_20250310094030.jpg&q=80)
+  
+
+內地股市早段窄幅上落。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm)
+
+---
+
+# 日本1月實質薪酬按年轉跌1.8%　市場關注春鬥結果
+
+![日本1月經通脹調整實質薪酬按年轉跌1.8%，結束兩個月升勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795051_1_20250310091642.jpg&q=70)
+  
+
+日本1月經通脹調整實質薪酬按年轉跌1.8%，結束兩個月升勢，由於通脹升至4.7%的兩年高位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm)
+
+---
+
 # 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
 
+![王滬寧宣布全國政協會議圓滿完成所有議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
   
   
 
@@ -1362,77 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm)
-
----
-
-# 羅淑佩稱本月共17艘大型郵輪停泊香港
-
-![旅發局指4艘郵輪將吸引約5400名旅客。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794982_1_20250309152619.jpg&q=75)
-  
-
-文化體育及旅遊局局長羅淑佩表示，本月共有17艘大型郵輪停泊香港，包括「銀海新星號」和「安妮皇后號」兩艘新建成的豪華郵輪，不少高增值船客會在香港過夜。她又表示，今個周末共有4艘郵輪同時訪港。旅發局指，4艘郵輪將吸引約5400名旅客。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm)
-
----
-
-# 彈劾案何時宣判備受關注　尹錫悅避免外部活動冷靜等待結果
-
-![尹錫悅昨日獲釋後，返回漢南洞的總統官邸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794980_1_20250309151403.jpg&q=85)
-  
-
-南韓憲法法院何時就總統尹錫悅彈劾案作出宣判備受關注，韓聯社報道，司法界普遍認為，法院在本周五宣判的可能性較大，但亦有分析認為，由於尹錫悅一方全面抗辯，導致法院工作量增加，可能要多一至兩星期才會宣判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm)
-
----
-
-# 全國兩會｜駐日大使吳江浩稱關稅上中日有共同語言　冀建穩定環境
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794981_1_20250309155127.jpg&q=85)
-  
-
-全國政協委員、中國駐日本大使吳江浩接受本台訪問說，日本經濟界對美國加徵關稅的做法非常緊張，難以估計美國總統特朗普的計劃。他相信，這方面中日雙方有共同語言，都是希望建立穩定的經濟環境，有利各方發展，即使中國與日本官方未談上開展合作應對關稅問題，企業之間的合作過程也會考慮到相關問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
 
 ---

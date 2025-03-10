@@ -1,5 +1,6 @@
 # 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
 
+![王滬寧宣布全國政協會議圓滿完成所有議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
   
   
 

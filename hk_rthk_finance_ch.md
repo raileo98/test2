@@ -1,5 +1,78 @@
+# 人行逆回購965億元人民幣　連續6日淨回籠
+
+![人行逆回購965億元人民幣，連續6日錄得淨回籠，但單日淨回籠僅5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795056_1_20250310093848.jpg&q=65)
+  
+
+人民銀行公開市場開展965億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠5億元，連續6日淨回籠。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm)
+
+---
+
+# 滬深股市早段窄幅上落
+
+![內地股市早段窄幅上落，上證指數較早時報3371點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795057_1_20250310094030.jpg&q=80)
+  
+
+內地股市早段窄幅上落。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm)
+
+---
+
+# 日本1月實質薪酬按年轉跌1.8%　市場關注春鬥結果
+
+![日本1月經通脹調整實質薪酬按年轉跌1.8%，結束兩個月升勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795051_1_20250310091642.jpg&q=70)
+  
+
+日本1月經通脹調整實質薪酬按年轉跌1.8%，結束兩個月升勢，由於通脹升至4.7%的兩年高位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm)
+
+---
+
 # 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
 
+![王滬寧宣布全國政協會議圓滿完成所有議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
   
   
 
@@ -283,6 +356,30 @@
 
 ---
 
+# 加拿大候任總理卡尼：不能讓特朗普控制加拿大企圖得逞
+
+![卡尼獲選為自由黨新黨魁後發表勝利演說。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795037_2_20250310085746.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替現任總理杜魯多出任總理，組建新內閣。卡尼在渥太華向黨內支持者發表勝利演說時警告，美國在總統特朗普管治下，正尋求控制加拿大，必須挫敗這個企圖。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm)
+
+---
+
 # 中原周末10大屋苑交投升至7宗　美聯維持8宗
 
 ![在剛過去的周末，中原10大屋苑二手成交升至7宗，美聯維持8宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795036_1_20250310072302.jpg&q=75)
@@ -307,6 +404,30 @@
 
 ---
 
+# 卡尼贏得黨內選舉　成為加拿大自由黨新黨魁
+
+![卡尼勝出自由黨黨魁，將成為加拿大新總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795032_1_20250310071448.jpg&q=90)
+  
+
+加拿大執政黨自由黨選舉新黨魁，由被稱為「政治素人」的前央行行長卡尼勝出，他將與現任總理杜魯多交接，並成為加拿大新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm)
+
+---
+
 # 美股進入夏令時間　本周關注美國上月物價數據
 
 ![美股進入夏令時間，將於香港時間晚上9時半開市，翌日凌晨4時收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795029_1_20250310054609.jpg&q=90)
@@ -328,6 +449,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795029-20250310.htm)
+
+---
+
+# 加拿大執政黨自由黨選舉新黨魁　報道指卡尼獲議會過半黨員支持
+
+![加拿大前央行行長卡尼在黨內支持率持續領先。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795031_1_20250310071536.jpg&q=85)
+  
+
+加拿大執政黨自由黨選舉新黨魁，預料結果在當地星期日晚公布，新黨魁將與現任總理杜魯多交接，並成為加拿大新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm)
 
 ---
 
@@ -376,6 +521,78 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm)
+
+---
+
+# 馬斯克稱不會切斷對烏克蘭「星鏈」服務
+
+![馬斯克說，不會切斷對烏克蘭的「星鏈」衛星網絡服務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795025_1_20250310053705.jpg&q=90)
+  
+
+美國太空探索技術公司行政總裁馬斯克透過社交網站澄清，無論他多麼不同意烏克蘭的政策，都不會切斷對烏克蘭的「星鏈」衛星網絡服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm)
+
+---
+
+# 中國成功發射通信技術試驗衛星十五號
+
+![通信技術試驗衛星十五號成功發射升空。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795022_1_20250310022450.jpg&q=90)
+  
+
+中國在西昌衛星發射中心使用長征三號乙運載火箭，在凌晨1時17分，成功將通信技術試驗衛星十五號發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm)
+
+---
+
+# 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
+
+![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
+  
+
+在啟德體藝館舉行的世界格蘭披治桌球大獎賽，澳洲球手羅拔臣於決賽以局數10:0擊敗英格蘭球手冰咸奪得冠軍。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
 
 ---
 
@@ -1217,221 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm)
-
----
-
-# 全國兩會｜何超瓊建議構建跨境低空觀光及接駁航線
-
-![何超瓊建議，推動大灣區智慧交通系統普及化，完善共享機制，推動航線創新。（信德集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794792_1_20250307185447.jpg&q=85)
-  
-
-全國政協常委、信德集團行政主席何超瓊建議，聯合民航局、港澳交通部門，開通「港澳—珠海橫琴」、「港澳—廣州南沙」跨境低空觀光及接駁航線、試點直升機等，進一步拓展「多式聯運」網絡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794792-20250307.htm)
-
----
-
-# 金管局：2月外匯儲備資產減少51億美元
-
-![金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794772_1_20250307173630.jpg&q=90)
-  
-
-金管局數字顯示，截至2月底，官方外匯儲備資產4164億美元，按月減少51億美元。外匯儲備資產總額相當於香港流通貨幣5倍多，或港元貨幣供應M3約38%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794772-20250307.htm)
-
----
-
-# 百度擬發行不超過20億美元可交換債券　或以攜程股份交付
-
-![百度計劃以離岸方式發行可交換債券，當滿足若干條件，百度可選擇以持有的攜程股份交付。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794774_1_20250307173835.jpg&q=90)
-  
-
-百度集團宣布以離岸方式發行可交換債券，本金總額不超過20億美元，2032年到期。債券將參考攜程集團在本港上市的普通股。當滿足若干條件，百度可選擇以持有的攜程股份代替現金交付，或以現金加攜程股份結合方式交付。債券交換率及其他條款尚未最終確定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794774-20250307.htm)
-
----
-
-# 呷哺呷哺料去年淨虧損擴大逾1倍
-
-![呷哺呷哺發盈警，預期去年淨虧損按年擴大約1.1倍至約1.2倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794770_1_20250307173327.jpg&q=75)
-  
-
-呷哺呷哺發盈警，預期去年淨虧損有所擴大，介乎3.9億至4.1億元人民幣，按年擴大約1.1倍至約1.2倍。期內，收入約48億元，按年減少約20%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794770-20250307.htm)
-
----
-
-# 在岸人民幣兌美元高收46點子　創逾3個月新高
-
-![在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794767_1_20250307172752.jpg&q=75)
-  
-
-在岸人民幣收報7.2382兌1美元，較昨日收市價升46點子，升幅0.06%，創逾3個月新高。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794767-20250307.htm)
-
----
-
-# 奈雪的茶料去年業績轉虧　料持續關閉或改造經營不善門店
-
-![奈雪的茶預計，將繼續關閉或改造經營不善的門店，因而計提資產減值準備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794766_1_20250307172217.jpg&q=80)
-  
-
-奈雪的茶發盈警，預計去年業績由盈轉虧，以非國際財務報告準則計，經調整虧損約8.8億至9.7億元人民幣，而前年經調整盈利約2090萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794766-20250307.htm)
-
----
-
-# 本港二手樓價按星期升0.32%　結束兩周跌勢
-
-![中原城市領先指數最新報137.46，按星期升0.32%，結束兩星期跌勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794752_1_20250307163426.jpg&q=80)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報137.46，按星期升0.32%，結束兩星期跌勢，但仍處於近8年半低位，今年累計跌0.13%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794752-20250307.htm)
-
----
-
-# 內地2月外匯儲備增加約182億美元　連續4個月增持黃金
-
-![人行數據顯示，內地2月外匯儲備規模按月增加約182億美元，連升兩個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794760_1_20250307170721.jpg&q=60)
-  
-
-國家外匯管理局公布，截至上月底，內地外匯儲備規模32272億美元，按月上升約182億美元，升幅逾0.5%，連升兩個月。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794760-20250307.htm)
-
----
-
-# 全國兩會｜鄭雁雄出席港區人大會議　霍啟剛稱文化企業可在港融資
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794759_1_20250307172115.jpg&q=90)
-  
-
-在北京，港區人大代表團下午舉行全體會議，審議政府工作報告，中聯辦主任鄭雁雄出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794759-20250307.htm)
 
 ---
