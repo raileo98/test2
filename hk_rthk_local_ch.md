@@ -1,3 +1,26 @@
+# 質疑已離世周天瑜醫療紀錄真確性　周父促警交代事件調查方向
+
+  
+
+早年因手術期間懷疑發生醫療事故，最終成為植物人的女童周天瑜，去年3月離世，周天瑜的父親說，今日是天瑜死忌，藉此召開記者會表達訴求。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795094-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795094-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795094-20250310.htm)
+
+---
+
 # 港股下午初段跌逾500點　科指挫逾3%
 
 ![恒生指數較早時報23698點，跌532點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795092_1_20250310130518.jpg&q=20)
@@ -1414,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794906-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794906-20250308.htm)
-
----
-
-# 太空油毒品去年被捕人數升35倍最年輕僅12歲　警籲勿沾染毒品
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794905_1_20250308164649.jpg&q=85)
-  
-
-警務處處長蕭澤頤表示，青少年涉及嚴重毒品的被捕人數，由2021年的高峰430人，持續下跌至去年的129人，累積跌幅達七成，創下近年的新低，當中學生的跌幅近八成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794905-20250308.htm)
 
 ---
