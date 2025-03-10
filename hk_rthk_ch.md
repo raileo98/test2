@@ -1,3 +1,51 @@
+# 逾期居留十多年花光積蓄　75歲新加坡籍男子承認打劫還押候判
+
+![高等法院將案件押後至明日判刑，期間被告還押看管。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795125_1_20250310165943.jpg&q=90)
+  
+
+75歲新加坡籍男子逾期居留10多年，花光積蓄後財困，2020年7月用清水佯裝電油，恫嚇連鎖藥店職員但事敗。他於2022年4月中，再闖入油麻地彌敦道一間銀行，在櫃位亮出一支失靈氣槍，劫走1.4萬元現金後逃去。他在高等法院承認1項企圖搶劫罪及1項搶劫罪，案件押後至明日判刑，期間被告還押看管。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm)
+
+---
+
+# 貿發局：香港中小企可特別留意泰國和印尼電商市場
+
+![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
+  
+
+貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm)
+
+---
+
 # 7歲男童感染侵入性腦膜炎雙球菌現時情況穩定
 
   

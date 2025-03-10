@@ -1,3 +1,27 @@
+# 貿發局：香港中小企可特別留意泰國和印尼電商市場
+
+![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
+  
+
+貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm)
+
+---
+
 # 全國兩會｜中山大學高等研究院落戶香港正開展課程註冊及評審
 
   
@@ -1410,29 +1434,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm)
-
----
-
-# 鄧炳強料香港航空業大有可為　人才需求會增加
-
-![鄧炳強（左二）主持香港航空青年團總部暨訓練中心揭幕儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795007_1_20250310095608.jpg&q=85)
-  
-
-保安局局長鄧炳強表示，國家自主研發的C919客機定期來往香港與上海的航線在今年1月開通，而2月底發表的《財政預算案》亦提到將助力C919打進國際市場，同時特區政府正推動香港發展成為亞洲首個飛機部件處理及交易中心，認為可以預期香港航空業未來將大有可為，人才需求亦會增加。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm)
 
 ---

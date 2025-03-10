@@ -1,3 +1,51 @@
+# 逾期居留十多年花光積蓄　75歲新加坡籍男子承認打劫還押候判
+
+![高等法院將案件押後至明日判刑，期間被告還押看管。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795125_1_20250310165943.jpg&q=90)
+  
+
+75歲新加坡籍男子逾期居留10多年，花光積蓄後財困，2020年7月用清水佯裝電油，恫嚇連鎖藥店職員但事敗。他於2022年4月中，再闖入油麻地彌敦道一間銀行，在櫃位亮出一支失靈氣槍，劫走1.4萬元現金後逃去。他在高等法院承認1項企圖搶劫罪及1項搶劫罪，案件押後至明日判刑，期間被告還押看管。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm)
+
+---
+
+# 貿發局：香港中小企可特別留意泰國和印尼電商市場
+
+![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
+  
+
+貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm)
+
+---
+
 # 7歲男童感染侵入性腦膜炎雙球菌現時情況穩定
 
   
@@ -1386,54 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
-
----
-
-# 全國兩會｜港區人大冼漢迪稱將公布人工智能資助計劃首批機構名單
-
-![冼漢迪透露，「人工智能資助計劃」首批資助機構名單即將公布。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794951_1_20250309085405.jpg&q=90)
-  
-
-全國兩會正在北京召開，政府工作報告提出持續推進「人工智能+」行動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm)
-
----
-
-# 全國兩會 | 青海研增往來西寧香港航班　內蒙古拓高鐵旅遊專列
-
-![青海省省長羅東川上表示，今年會大力推進、採取更多措施與香港對接。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_1_20250309075331.jpg&q=90)
-![內蒙古文化和旅遊廳黨組書記張銳，將會開通香港西九龍經停鄭州前往呼和浩特的高鐵旅遊專列，為香港旅客提供更多入境旅遊選擇。（受訪者提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_2_20250309075331.jpg&q=90)
-  
-
-青海省西寧市和內蒙古自治區呼和浩特市，去年5月納入簽發往來港澳「個人遊」簽注城市，青海省省長羅東川上月曾訪港與行政長官李家超會面。身兼全國人大代表的羅東川在兩會期間接受本台訪問，指今年會大力推進、採取更多措施與香港對接，希望同時有更多港人到青海看看，相信隨著居民生活水平越來越高，將來也會組織更多雙向交流活動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm)
 
 ---
