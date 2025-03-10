@@ -1,5 +1,6 @@
 # 「戶戶送」客戶及送遞員將導向至foodpanda平台
 
+![Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795108_1_20250310154011.jpg&q=85)
   
 
 戶戶送Deliveroo決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。foodpanda的母公司Delivery Hero表示，已與Deliveroo簽署並達成協議，根據該協議，Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台，而部份餐廳及生活百貨商戶亦將會進駐foodpanda。
