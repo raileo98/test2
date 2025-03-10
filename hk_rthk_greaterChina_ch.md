@@ -1,3 +1,26 @@
+# 金融科技周及StartmeupHK創業節11月舉行
+
+  
+
+投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm)
+
+---
+
 # 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
 
 ![王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
-
----
-
-# 商務部：中方促美方理性處理芬太尼問題　不要一味甩鍋推責
-
-![商務部稱，中方敦促美方客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794804_1_20250307212107.jpg&q=45)
-  
-
-在北京，商務部發言人說，國務院新聞辦公室近日發布《中國的芬太尼類物質管控》白皮書，充分說明美方以芬太尼為由對中國產品加徵20%關稅是毫無根據，是典型的保護主義、單邊主義和霸凌主義行徑。中方敦促美方糾正錯誤做法，客觀、理性看待和處理自身芬太尼問題，不要一味甩鍋推責。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794804-20250307.htm)
 
 ---

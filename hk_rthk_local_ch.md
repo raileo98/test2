@@ -1,3 +1,26 @@
+# 金融科技周及StartmeupHK創業節11月舉行
+
+  
+
+投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm)
+
+---
+
 # 歐家榮稱近期月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
 
   
@@ -1414,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm)
-
----
-
-# 控煙酒辦打擊禁煙區非法吸食水煙　巡查中區酒吧發3罰款通知書
-
-![控煙酒辦人員發現有人在酒吧非法吸食水煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794872_1_20250308113356.jpg&q=90)
-  
-
-衞生署控煙酒辦昨晚派員到中區，打擊禁煙區非法吸食水煙違法活動，共發出3張定額罰款通知書。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794872-20250308.htm)
 
 ---

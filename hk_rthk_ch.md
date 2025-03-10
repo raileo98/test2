@@ -1,3 +1,26 @@
+# 金融科技周及StartmeupHK創業節11月舉行
+
+  
+
+投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm)
+
+---
+
 # 日股反覆靠穩　重上37000點
 
 ![日股重上37000點，半日收報37095點，升208點，升幅0.57%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795065_1_20250310103452.jpg&q=90)
@@ -1415,29 +1438,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm)
-
----
-
-# 敘利亞過渡總統：國內發生事情屬預計中挑戰　籲維護國家團結和平
-
-![沙拉說，敘利亞國內目前發生的事情屬於預計中的挑戰。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794989_1_20250309162357.jpg&q=90)
-  
-
-敘利亞內政部安全人員連日在西部拉塔基亞省與忠於前政權的武裝人員衝突，總部設在英國的敘利亞人權觀察組織說，已造成過千人死亡，包括745名平民。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm)
 
 ---

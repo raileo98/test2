@@ -1,3 +1,26 @@
+# 金融科技周及StartmeupHK創業節11月舉行
+
+  
+
+投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm)
+
+---
+
 # 卡尼：加拿大將保持對美報復性關稅措施　不會讓特朗普得逞
 
 ![卡尼當選自由黨新黨魁後，與妻子一同與支持者見面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795063_1_20250310102749.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm)
-
----
-
-# 美國據報考慮禁止政府設備使用DeepSeek
-
-![美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794848_1_20250308083439.jpg&q=90)
-  
-
-路透社引述消息人士報道，美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm)
 
 ---
