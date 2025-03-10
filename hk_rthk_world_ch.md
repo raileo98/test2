@@ -1,3 +1,27 @@
+# 外交部：美方徵收港口費等措施損人害己　促立即停止錯誤做法
+
+![毛寧說，徵收港口費等措施損人害己，推高全球的海運成本，擾亂全球產供鏈穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795120_1_20250310163621.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應美國正考慮對在中國建造或註冊的船隻徵收港口停靠費時表示，中方敦促美方尊重事實和多邊規則，立即停止錯誤做法，中方將採取必要措施捍衛自身的合法權益。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm)
+
+---
+
 # 外交部：反對泛化國家安全概念　將堅定維護中國企業合法權益
 
 ![毛寧表示，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795113_1_20250310160037.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm)
-
----
-
-# 白宮舉行加密貨幣峰會　特朗普重申支持比特幣為代表的加密貨幣
-
-![特朗普早前簽署行政命令，設立戰略比特幣儲備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794927_1_20250308202343.jpg&q=90)
-  
-
-美國白宮舉行加密貨幣峰會，總統特朗普表示，聯邦政府將支持以比特幣為代表的加密貨幣，以及數字資產市場的發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm)
 
 ---

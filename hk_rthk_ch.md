@@ -1,5 +1,30 @@
-# 未經同意披露客戶個人資料　女子被私隱公署拘捕保釋候查
+# 恒指低收447點　晶片及軟件股沽壓大
 
+![恒生指數一度跌約600點，收市報23783點，跌447點，跌幅1.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795118_1_20250310161901.jpg&q=45)
+  
+
+港股連跌兩個交易日，恒生指數失守24000點關口，低見23632點，跌約600點，收市報23783點，跌447點，跌幅1.8%，全日主板成交額逾3018億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm)
+
+---
+
+# 未經同意披露客戶個人資料　女子被私隱公署拘捕准保釋候查
+
+![私隱專員公署提醒市民，不要因為金錢糾紛而將他人「起底」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795117_1_20250310161642.jpg&q=85)
   
 
 私隱專員公署在新界區拘捕一名31歲女子，涉嫌違反《私隱條例》，在未經客戶的同意下披露對方的個人資料。被捕女子獲准保釋，公署會繼續調查案件。
@@ -430,7 +455,7 @@
 
 # 質疑已離世周天瑜醫療紀錄真確性　周父促警交代事件調查方向
 
-![周天瑜父親促請警方不要放棄任何釐清事實的機會，希望知道真相。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795094_1_20250310141406.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795094_1_20250310141406.jpg&q=90)
   
 
 早年因手術期間懷疑發生醫療事故，最終成為植物人的女童周天瑜，去年3月離世，周天瑜的父親說，今日是天瑜死忌，藉此召開記者會表達訴求。
