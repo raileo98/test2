@@ -1,3 +1,27 @@
+# 英國附近海域有油輪與貨輪相撞　37人被救上岸
+
+![英國附近海域有油輪與貨輪相撞　37人被救上岸](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795168_1_20250310235712.jpg&q=90)
+  
+
+英國英格蘭東北部附近海域發生油輪和貨輪相撞事故，涉事油輪事後起火。英國傳媒報道，兩艘船共37人被救上岸，其中1人送院治理，其餘36人安全。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm)
+
+---
+
 # 俄羅斯指英國大使館兩人員從事間諜活動威脅安全　勒令兩周內離境
 
 ![佩斯科夫表示，情報部門正盡一切努力維護國家安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795164_1_20250310223930.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm)
-
----
-
-# 多倫多酒吧槍擊案槍手仍在逃　傷者無生命危險
-
-![鄒至惠說對案件深感不安。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794945_1_20250309063427.jpg&q=90)
-  
-
-加拿大多倫多市酒吧導致12人受傷的槍擊案，警方在交代案情的記者會上表示，事發時3名男子向酒吧內的民眾隨機開槍，其中6名傷者所受的是槍傷，無生命危險，槍手仍然在逃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm)
 
 ---
