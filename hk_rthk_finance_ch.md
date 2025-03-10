@@ -1,3 +1,51 @@
+# 韓股收市靠穩
+
+![首爾綜合指數收市報2570點，升6點，升幅0.27%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795101_1_20250310143607.jpg&q=75)
+  
+
+南韓股市靠穩，首爾綜合指數收市報2570點，升6點，升幅0.27%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm)
+
+---
+
+# 日股高收近0.4%
+
+![日經平均指數收市報37028點，升141點，升幅0.38%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795100_1_20250310143343.jpg&q=80)
+  
+
+日本股市收市上升，日經平均指數報37028點，升141點，升幅0.38%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm)
+
+---
+
 # 台股收市跌逾0.5%
 
 ![台灣加權指數收市報22459點，跌116點，跌幅0.52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795095_1_20250310140739.jpg&q=85)
@@ -1389,53 +1437,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
-
----
-
-# 中國對加拿大菜子油、油渣餅及豌豆加徵100%關稅
-
-![國務院關稅稅則委員會發公布，向加拿大部分農產品及食品加徵關稅。（相關公告網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794854_1_20250308095726.jpg&q=90)
-  
-
-國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
-
----
-
-# 財政預算案2025｜甯漢豪稱不能停止推售工業地住宅地
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794851_1_20250308100405.jpg&q=85)
-  
-
-新一份《財政預算案》表明，政府下一年度不會推售商業用地。對於有聲音希望政府暫停賣住宅地，發展局局長甯漢豪說，政府銳意發展產業，因此不能停推工業地；至於住宅地同樣不會停售，因為有相關科學根據，無論公營或私營房屋土地，政府有10年推算，不能不跟隨，至於每季推幾多土就要視乎市場情況作出平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794851-20250308.htm)
 
 ---
