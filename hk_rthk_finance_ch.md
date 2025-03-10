@@ -192,7 +192,7 @@
 
 # 草姬集團料去年盈利按年最少跌67%
 
-![草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795157_1_20250310210226.jpg&q=90)
+![草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795157_2_20250311062331.jpg&q=85)
   
 
 草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。

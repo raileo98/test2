@@ -1,3 +1,27 @@
+# Police arrest driver who 'fled' Shing Mun accident
+
+![Officers arrested the 34-year-old man on suspicion of dangerous driving causing grievous bodily harm and other charges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795184_1_20250311062017.jpg&q=40)
+  
+
+Police have arrested the driver of a private car, who allegedly fled following a three-vehicle pile-up in the Shing Mun Tunnel on Monday morning.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm)
+
+---
+
 # Wall Street sells off on US recession fears
 
 ![The main three US indices fell between 2 percent and 4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795182_1_20250311061228.jpg&q=80)
@@ -1413,29 +1437,5 @@ Chief Executive John Lee praised the contribution of women to society and pledge
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm)
-
----
-
-# New scheme aims to remove poorly managed buildings
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794870_1_20250308113054.jpg&q=85)
-  
-
-There's hope that a new scheme can help eliminate poorly managed, so-called "three-nil buildings" - which are blocks that lack owners’ corporations, property management services, or resident organizations.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm)
 
 ---
