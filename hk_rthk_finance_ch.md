@@ -1,3 +1,27 @@
+# 人民幣兌美元收市創近1周低位
+
+![在岸人民幣收市報7.2649兌1美元，較上交易日跌267點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795133_1_20250310172448.jpg&q=75)
+  
+
+在岸人民幣兌美元收市價及中間價均創近1星期新低，收市報7.2649兌1美元，較上交易日跌267點子；中間價跌至7.1733兌1美元，與市場預測偏離逾600點子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm)
+
+---
+
 # 丘應樺鼓勵在廣東省港商積極在內地創新創業
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm)
-
----
-
-# 內地2月CPI按年跌0.7%　13個月以來首次轉跌
-
-![內地2月CPI按年轉跌0.7%，是13個月以來首次下跌。核心CPI亦跌0.1%，逾4年來首次下跌。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795026_1_20250310052735.jpg&q=80)
-  
-
-內地2月居民消費價格指數(CPI)按年跌0.7%，是13個月以來首次轉跌；1月是升0.5%。上月CPI按月亦跌0.2%，創3個月新低，按月及按年跌幅都超出市場預期。今年首兩個月CPI按年跌0.1%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm)
 
 ---
