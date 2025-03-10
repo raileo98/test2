@@ -1,3 +1,72 @@
+# 梁子穎指上調公屋入息限額建議未符現實　梁文廣促平衡及取捨
+
+  
+
+房委會完成公屋入息及資產限額檢討，建議下年度上調公屋入息限額，平均加幅1.7%。其中2人家庭建議加幅最多，達2.5%，入息限額由19730元增至20230元。房委會資助房屋小組委員會委員、工聯會立法會議員梁子穎認為，這次上調水平未能符合現實，因為現時一些清潔工人和保安入息水平已超過最低工資水平，新門檻將令部分全職工作申請人寧願辭職或「打散」工作，令入息不超過水平，才可保留申請公屋資格。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm)
+
+---
+
+# 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
+
+  
+
+在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm)
+
+---
+
+# 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
+
+  
+
+在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm)
+
+---
+
 # 人行逆回購965億元人民幣　連續6日淨回籠
 
 ![人行逆回購965億元人民幣，連續6日錄得淨回籠，但單日淨回籠僅5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795056_1_20250310093848.jpg&q=65)
@@ -70,7 +139,7 @@
 
 ---
 
-# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
+# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程並閉幕
 
 ![王滬寧宣布全國政協會議圓滿完成所有議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
   
@@ -593,6 +662,103 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
+
+---
+
+# LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
+
+![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
+![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=85)
+  
+
+LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm)
+
+---
+
+# 鄧炳強料香港航空業大有可為　人才需求會增加
+
+![鄧炳強（左二）主持香港航空青年團總部暨訓練中心揭幕儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795007_1_20250310095608.jpg&q=85)
+  
+
+保安局局長鄧炳強表示，國家自主研發的C919客機定期來往香港與上海的航線在今年1月開通，而2月底發表的《財政預算案》亦提到將助力C919打進國際市場，同時特區政府正推動香港發展成為亞洲首個飛機部件處理及交易中心，認為可以預期香港航空業未來將大有可為，人才需求亦會增加。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795007-20250309.htm)
+
+---
+
+# 啟德體育園稱主辦方可申請指定區域提供飲食　但需確保安全
+
+![綠色和平在「世界格蘭披治桌球大獎賽」拍攝到觀眾席上，有預設擺放連蓋的膠樽水。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795005_1_20250310095453.jpg&q=85)
+  
+
+環保組織綠色和平在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到觀眾席上，有預設擺放連蓋的膠樽水；亦有觀眾將自備杯帶入場內，有違場館規定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795005-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795005-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795005-20250309.htm)
+
+---
+
+# 陳國基分別觀賞高球賽及電影《哪吒2》　籲積極參與各活動
+
+![陳國基（中）今日一連參與兩項活動。（陳國基社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795002_1_20250309184335.jpg&q=70)
+  
+
+政務司司長陳國基表示，每年3月一系列本地及國際文化、體育和藝術盛事，展覽和活動匯聚香港，為市民和旅客帶來嶄新而豐富的體驗，盡顯香港盛事之都的非凡魅力，呼籲積極參與各項活動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795002-20250309.htm)
 
 ---
 
@@ -1266,173 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794812-20250307.htm)
-
----
-
-# 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
-
-![啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794810_1_20250307221729.jpg&q=80)
-  
-
-啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。截至傍晚6時，有397名會員使用跑步徑，11名會員使用乒乓球設施，整體運作大致順暢。預訂設施方面，累計共1733人成功預訂跑步徑設施，127人預約乒乓球設施，園方形容訂場情況理想。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794810-20250307.htm)
-
----
-
-# 全國兩會｜陳茂波：兩會精神落實到各工作　陳國基：盡快開創新局
-
-![陳茂波（左）說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向；陳國基（右）說，特區政府在推動創新發展上，認識不斷提升、思維持續更新、行動更加得力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794809_3_20250308142054.jpg&q=85)
-  
-
-全國兩會正在北京舉行，財政司司長陳茂波說，全國兩會為香港如何繼續發揮好獨特優勢、持續改革創新，指明了方向，今年經濟穩中向好的態勢，為香港的經濟發展提供了最大的信心和底氣。香港必須勇立潮頭，把握機遇，在貢獻國家高質量發展的過程中，為自身取得更好的發展，香港在科技創新、金融中心、全球聯繫的三個方面發揮更大功能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794809-20250307.htm)
-
----
-
-# 美國2月非農業新增職位15.1萬個遜預期　失業率升至4.1%
-
-![美國2月非農業新增職位15.1萬個，少過市場預期，失業率出乎意料升至4.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794806_1_20250307214245.jpg&q=75)
-  
-
-美國2月非農業新增職位15.1萬個，少過市場預期的16萬個，但多過1月向下修訂後的12.5萬個。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794806-20250307.htm)
-
----
-
-# 恒大物業料去年盈利至少跌28%　但財務狀況持續改善
-
-![恒大物業預料，去年盈利按年跌逾28%至逾37%，受稅收滯納金等非經營支出影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794805_1_20250307212617.jpg&q=90)
-  
-
-恒大物業發盈利警告，預料去年盈利介乎9.8億至11.2億元人民幣，按年跌逾28%至逾37%，由於稅收滯納金等非經營支出，及採用更謹慎的收入確認方式所致。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794805-20250307.htm)
-
----
-
-# 機管局敦促總承建商金門建築盡快及妥善處理建築工人勞資糾紛
-
-![機管局十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794798_1_20250307210418.jpg&q=80)
-  
-
-一批建築工人懷疑因勞資糾紛早上在機場南交匯處附近聚集，現場交通一度受阻，機管局表示，十分關注事件，已敦促總承建商金門建築，盡快及妥善處理相關事宜，確保相關工人獲應得報酬，機管局會繼續密切監察承建商的跟進工作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794798-20250307.htm)
-
----
-
-# 全國兩會｜丁薛祥籲鞏固香港國際金融中心地位　澳門適度多元發展
-
-![丁薛祥上午分別參加香港代表團、澳門代表團審議。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794797_1_20250307210355.jpg&q=80)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥上午分別參加香港代表團、澳門代表團審議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794797-20250307.htm)
-
----
-
-# 歐元區上季經濟按季增長減慢至0.2%　但高過初值
-
-![歐元區去年第4季經濟按季增長減慢至0.2%，但好過初值的0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794794_1_20250307190232.jpg&q=75)
-  
-
-歐元區去年第4季經濟按季增長0.2%，增速慢過第3季的0.4%，但好過初值的0.1%，由於愛爾蘭經濟表現由初值估計的跌1.3%，大幅向上修訂至增長3.6%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794794-20250307.htm)
 
 ---

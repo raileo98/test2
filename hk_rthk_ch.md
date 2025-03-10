@@ -1,3 +1,72 @@
+# 梁子穎指上調公屋入息限額建議未符現實　梁文廣促平衡及取捨
+
+  
+
+房委會完成公屋入息及資產限額檢討，建議下年度上調公屋入息限額，平均加幅1.7%。其中2人家庭建議加幅最多，達2.5%，入息限額由19730元增至20230元。房委會資助房屋小組委員會委員、工聯會立法會議員梁子穎認為，這次上調水平未能符合現實，因為現時一些清潔工人和保安入息水平已超過最低工資水平，新門檻將令部分全職工作申請人寧願辭職或「打散」工作，令入息不超過水平，才可保留申請公屋資格。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm)
+
+---
+
+# 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
+
+  
+
+在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm)
+
+---
+
+# 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
+
+  
+
+在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm)
+
+---
+
 # 人行逆回購965億元人民幣　連續6日淨回籠
 
 ![人行逆回購965億元人民幣，連續6日錄得淨回籠，但單日淨回籠僅5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795056_1_20250310093848.jpg&q=65)
@@ -70,7 +139,7 @@
 
 ---
 
-# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程
+# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程並閉幕
 
 ![王滬寧宣布全國政協會議圓滿完成所有議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
   
@@ -962,6 +1031,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 鄧炳強料香港航空業大有可為　人才需求會增加
 
+![鄧炳強（左二）主持香港航空青年團總部暨訓練中心揭幕儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795007_1_20250310095608.jpg&q=85)
   
 
 保安局局長鄧炳強表示，國家自主研發的C919客機定期來往香港與上海的航線在今年1月開通，而2月底發表的《財政預算案》亦提到將助力C919打進國際市場，同時特區政府正推動香港發展成為亞洲首個飛機部件處理及交易中心，認為可以預期香港航空業未來將大有可為，人才需求亦會增加。
@@ -985,6 +1055,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園稱主辦方可申請指定區域提供飲食　但需確保安全
 
+![綠色和平在「世界格蘭披治桌球大獎賽」拍攝到觀眾席上，有預設擺放連蓋的膠樽水。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795005_1_20250310095453.jpg&q=85)
   
 
 環保組織綠色和平在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到觀眾席上，有預設擺放連蓋的膠樽水；亦有觀眾將自備杯帶入場內，有違場館規定。
@@ -1363,77 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm)
-
----
-
-# 麥美娟︰本屆政府上任後青年宿舍宿位增至3千個
-
-![麥美娟說，擴大青年宿舍計劃至今已批出5個有關項目。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794985_1_20250309162502.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，今屆政府上任後，青年宿舍宿位由80個，增加至3千個。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm)
-
----
-
-# 全國兩會｜王曉萍形容穩定和擴大就業任務繁重　總體態勢向好
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794984_1_20250309155750.jpg&q=90)
-  
-
-在北京，人力資源和社會保障部部長王曉萍表示，今年國家就業形勢總體穩定，並呈向好態勢，但擴大就業任務繁重，仍有大量農村轉移勞動力需要穩定就業，群眾就業增收面臨壓力，同時外部環境更趨複雜嚴峻，國內經濟回升向好基礎仍未穩固，可能會對就業產生一定影響。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm)
-
----
-
-# 孫玉菡料「高才通」續簽高峰期第二季出現
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794983_1_20250309152855.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡預料，「高才通計劃」續簽高峰期將於今年第二季左右開始出現，稍後有更多數據時再公布。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm)
 
 ---
