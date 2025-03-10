@@ -1,3 +1,50 @@
+# 九龍倉置業去年盈利挫81%　基礎淨盈利升2%
+
+![九龍倉置業去年盈利8.9億元，按年大減81%，基礎淨盈利增加2%至約61.4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795089_1_20250310125139.jpg&q=90)
+  
+
+九龍倉置業去年盈利8.9億元，按年大減81%。派第2次中期股息每股0.6元；全年合共派息1.24元，按年減少約3%，佔香港投資物業及酒店基礎淨盈利的65%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795089-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795089-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795089-20250310.htm)
+
+---
+
+# 過去兩星期警方接獲490宗網購騙案涉款逾1300萬元
+
+  
+
+警方在過去兩星期接獲490宗網購騙案，涉款超過1300萬元。其中一名37歲本地女子在網上拍賣平台購買名牌手袋，付款後貨不到手，騙徒亦失去聯絡，共損失超過7萬元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm)
+
+---
+
 # 孫東稱人工智能為香港關鍵產業　政府會繼續支持及投入
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm)
-
----
-
-# 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
-
-![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
-  
-
-在啟德體藝館舉行的世界格蘭披治桌球大獎賽，澳洲球手羅拔臣於決賽以局數10:0擊敗英格蘭球手冰咸奪得冠軍。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
-
----
-
-# 澳洲遭熱帶氣旋吹襲　東部廣泛地區停電
-
-![熱帶氣旋「阿爾弗雷德」吹襲澳洲，有樹木倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795015_1_20250309215121.jpg&q=55)
-  
-
-熱帶氣旋「阿爾弗雷德」減弱為熱帶低氣壓，在澳洲東海岸登陸。「阿爾弗雷德」吹襲澳洲期間，帶來狂風暴雨，至少1人死亡，部分地區停電，學校關閉，有樹木倒塌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm)
 
 ---
