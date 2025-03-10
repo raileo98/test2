@@ -1,3 +1,26 @@
+# 瑪麗醫院重申周天瑜事件不涉及醫療事故
+
+  
+
+因手術期間懷疑發生醫療事故，最終成為植物人的女童周天瑜，去年3月離世。周天瑜的父親要求警方交代事件的調查方向，不要放棄任何釐清事實的機會，希望知道真相。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm)
+
+---
+
 # 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
 
   
@@ -1411,29 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm)
-
----
-
-# 羅淑佩稱本月共17艘大型郵輪停泊香港
-
-![旅發局指4艘郵輪將吸引約5400名旅客。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794982_1_20250309152619.jpg&q=75)
-  
-
-文化體育及旅遊局局長羅淑佩表示，本月共有17艘大型郵輪停泊香港，包括「銀海新星號」和「安妮皇后號」兩艘新建成的豪華郵輪，不少高增值船客會在香港過夜。她又表示，今個周末共有4艘郵輪同時訪港。旅發局指，4艘郵輪將吸引約5400名旅客。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794982-20250309.htm)
 
 ---

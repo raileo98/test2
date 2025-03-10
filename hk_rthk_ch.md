@@ -1,3 +1,26 @@
+# 瑪麗醫院重申周天瑜事件不涉及醫療事故
+
+  
+
+因手術期間懷疑發生醫療事故，最終成為植物人的女童周天瑜，去年3月離世。周天瑜的父親要求警方交代事件的調查方向，不要放棄任何釐清事實的機會，希望知道真相。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm)
+
+---
+
 # 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
 
   
