@@ -1,3 +1,26 @@
+# 美烏代表團周二於沙特會談　據報烏方將提出部分停火
+
+  
+
+由烏克蘭高級官員組成的代表團，星期二將在沙特阿拉伯與美方代表團舉行會談，是上月底烏克蘭總統澤連斯基和美國總統特朗普在白宮激烈爭吵後，雙方首次會面。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm)
+
+---
+
 # 格陵蘭總理：美國不尊重格陵蘭島且極其不可預測
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
-
----
-
-# 日本東京都有民間團體舉行集會反對使用核電
-
-![2011年東日本大地震引發的海嘯，導致福島第一核電廠遭受嚴重損壞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794975_1_20250309133057.jpg&q=40)
-  
-
-日本東京都有民間團體舉行集會，反對使用核電。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm)
 
 ---
