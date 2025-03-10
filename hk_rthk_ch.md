@@ -1,5 +1,30 @@
+# 配合系統升級及維護工程　衞生署個別網上服務明晚起分別暫停
+
+![新冠疫苗接種系統、家庭健康服務季節性流感疫苗接種預約系統、以及「中央器官捐贈登記名冊」網頁，將於不同時間短暫停止服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795085_1_20250310123120.jpg&q=90)
+  
+
+衞生署宣布，因進行系統升級及維謢工程，新冠疫苗接種系統、家庭健康服務季節性流感疫苗接種預約系統、以及「中央器官捐贈登記名冊」網頁要短暫停止服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795085-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795085-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795085-20250310.htm)
+
+---
+
 # 全國兩會 | 全國政協會議閉幕　王滬寧：彰顯人民政協政治優勢
 
+![王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795084_2_20250310123241.jpg&q=80)
   
 
 在北京，全國政協會議早上閉幕，全國政協主席王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。
@@ -23,6 +48,7 @@
 
 # 全國兩會 | 研究員相信中國半導體產業未來幾年將有不錯發展
 
+![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795083_2_20250310122847.jpg&q=90)
   
 
 中國人工智能大模型DeepSeek的出現，令國家科研創新能力成為熱話。不過，有網絡安全企業關注網絡攻擊風險。
@@ -94,6 +120,7 @@
 
 # 日本大船渡市政府解除受山火影響全部地區避難指示
 
+![日本大船渡市政府解除受山火影響全部地區的避難指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795080_1_20250310123322.jpg&q=85)
   
 
 日本岩手縣大船渡市政府宣布，解除受山火影響全部地區的避難指示。
@@ -117,6 +144,7 @@
 
 # 陳茂波稱香港要在人工智能引領浪潮中把握機遇
 
+![陳茂波說，總理李強在政府工作報告提到要推進人工智能的行動，支持大模型廣泛應用。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
   
 
 黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
@@ -1411,29 +1439,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm)
-
----
-
-# 美國特勤局人員在白宮附近開槍擊中一名持槍男子
-
-![特勤局人員在白宮附近，開槍擊中一名持槍男子。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795010_1_20250309204036.jpg&q=75)
-  
-
-美國特勤局人員在白宮附近，開槍擊中一名持槍男子，總統特朗普當時不在白宮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm)
 
 ---
