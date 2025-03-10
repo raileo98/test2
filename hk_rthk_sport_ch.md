@@ -995,7 +995,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 曼聯互射十二碼不敵富咸　英格蘭足總盃第五圈止步
 
-![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=45)
+![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=1)
   
 
 曼聯爭取衛冕英格蘭足總盃失敗，他們在第五圈主場互射十二碼不敵富咸出局。
