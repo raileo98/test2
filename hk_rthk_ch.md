@@ -1,3 +1,50 @@
+# 口岸爆炸案警長以專家證人身分解釋手機應用通訊程式運作
+
+![口岸爆炸案高等法院踏入第67天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795103_1_20250310145411.jpg&q=90)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第67天審訊。控方傳召網罪科警長吳曉羲以專家證人身分作供解釋Telegram運作，警長表示，曾經進行測試，確認能夠以兩部不同的手提電話登入同一個帳戶，當使用其中一者發送訊息，另一部手機亦能同樣地瀏覽到訊息記錄。發送訊息的顯示時間會依照手機設定時間，但接收訊息一方的顯示時間則會依照Telegram伺服器時間。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm)
+
+---
+
+# 貿發局研究發現香港企業在東盟電商市場有優勢
+
+  
+
+貿易發展局發布有關「東盟電商機遇：消費行為與香港產品定位」的研究，顯示香港企業在東盟市場具有優勢，認為可借助新一份財政預算案有關推動電子商貿發展的政策，在東盟開拓商機。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm)
+
+---
+
 # 韓股收市靠穩
 
 ![首爾綜合指數收市報2570點，升6點，升幅0.27%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795101_1_20250310143607.jpg&q=75)
@@ -742,7 +789,7 @@
 
 ---
 
-# 歐家榮稱近期月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
+# 歐家榮稱近月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
 
 ![歐家榮說，諾如病毒傳染性非常高，即使一個人接觸很少量的病毒，都有機會受到感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795064_1_20250310110103.jpg&q=80)
   

@@ -1,3 +1,50 @@
+# 口岸爆炸案警長以專家證人身分解釋手機應用通訊程式運作
+
+![口岸爆炸案高等法院踏入第67天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795103_1_20250310145411.jpg&q=90)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第67天審訊。控方傳召網罪科警長吳曉羲以專家證人身分作供解釋Telegram運作，警長表示，曾經進行測試，確認能夠以兩部不同的手提電話登入同一個帳戶，當使用其中一者發送訊息，另一部手機亦能同樣地瀏覽到訊息記錄。發送訊息的顯示時間會依照手機設定時間，但接收訊息一方的顯示時間則會依照Telegram伺服器時間。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm)
+
+---
+
+# 貿發局研究發現香港企業在東盟電商市場有優勢
+
+  
+
+貿易發展局發布有關「東盟電商機遇：消費行為與香港產品定位」的研究，顯示香港企業在東盟市場具有優勢，認為可借助新一份財政預算案有關推動電子商貿發展的政策，在東盟開拓商機。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm)
+
+---
+
 # 全國兩會｜文化和旅遊部料有更多文化產業或產品引入香港
 
 ![李群希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795097_1_20250310141516.jpg&q=90)
@@ -382,7 +429,7 @@
 
 ---
 
-# 歐家榮稱近期月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
+# 歐家榮稱近月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
 
 ![歐家榮說，諾如病毒傳染性非常高，即使一個人接觸很少量的病毒，都有機會受到感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795064_1_20250310110103.jpg&q=80)
   
@@ -1390,53 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm)
-
----
-
-# 基金會稱每14名婦女1人有機會患入侵性乳癌　倡實施全民篩查
-
-![香港乳癌基金會主席霍何綺華（左）和基金會創會人張淑儀（右）舉行基金會20周年慶典啟動禮。（香港乳癌基金會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794909_1_20250308164821.jpg&q=80)
-  
-
-香港乳癌基金會歡迎政府延續乳癌篩查先導計劃，同時建議政府分三個階段實施全民乳癌篩查，首先是高危女性組別，其次是低收入地區女性，最終落實全民乳癌篩查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794909-20250308.htm)
-
----
-
-# 九巴稱女車長5年間增三成　今年增9個女員工優先使用休息室
-
-![九巴學院新增現職女車長分享環節，以互動教學交流方式，由九巴資深女車長，向女學員分享日常工作點滴，提升日後服務乘客時的信心。（九巴網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794908_1_20250308164747.jpg&q=90)
-  
-
-目前有大約1萬名車長的九巴表示，女車長數目有上升趨勢，比例由2020年的6%升至2024年近8%，5年之間增長近三成。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794908-20250308.htm)
 
 ---
