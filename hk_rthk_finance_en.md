@@ -1,3 +1,27 @@
+# Hong Kong stocks open lower on growth concerns
+
+![In a Fox News interview on Sunday, US President Donald Trump declined to predict whether his tariffs would result in a US recession.Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795061_1_20250310102543.jpg&q=90)
+  
+
+The Hang Seng Index lost 115.32 points, or 0.48 percent, to open at 24,115.98 points on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm)
+
+---
+
 # 7-Eleven explores sell-offs with Couche-Tard
 
 ![Seven & i operates some 85,000 convenience stores worldwide. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795045_1_20250310090227.jpg&q=90)
@@ -1411,29 +1435,5 @@ US stocks drifted lower on Monday to compound their sharp losses from last week 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.6 percent at 23,341. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792970_1_20250224180846.jpg&q=25)
-  
-
-Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 0.6 percent at 23,341.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792970-20250224.htm)
 
 ---

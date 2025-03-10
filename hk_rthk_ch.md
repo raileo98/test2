@@ -1,3 +1,27 @@
+# 日股反覆靠穩　重上37000點
+
+![日股重上37000點，半日收報37095點，升208點，升幅0.57%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795065_1_20250310103452.jpg&q=90)
+  
+
+日股半日反覆靠穩，重上37000點以上。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795065-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795065-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795065-20250310.htm)
+
+---
+
 # 歐家榮稱近期月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
 
   
@@ -1415,29 +1439,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794989-20250309.htm)
-
----
-
-# 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
-
-![倪虹說，中央高度重視房地產市場健康發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794988_1_20250309165217.jpg&q=90)
-  
-
-在北京，住建部部長倪虹表示，今年首2個月內地房地產市場保持止跌回穩的積極勢頭，去年第4季新建商品房銷售面積及銷售額都錄得正增長。今年政府工作報告提及要穩定樓市，未來會與相關部門持續以長短措施結合，堅決穩住樓市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm)
 
 ---

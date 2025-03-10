@@ -1,3 +1,27 @@
+# Hong Kong stocks open lower on growth concerns
+
+![In a Fox News interview on Sunday, US President Donald Trump declined to predict whether his tariffs would result in a US recession.Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795061_1_20250310102543.jpg&q=90)
+  
+
+The Hang Seng Index lost 115.32 points, or 0.48 percent, to open at 24,115.98 points on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm)
+
+---
+
 # HK must take advantage of int'l position: NPC delegate
 
 ![Priscilla Leung says local NPC delegates were being encouraged to help Hong Kong build on its international strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795062_1_20250310102114.jpg&q=75)
@@ -1414,29 +1438,5 @@ Legal scholar and Chinese People's Political Consultative Conference (CPPCC) mem
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm)
-
----
-
-# S Korea court orders Yoon's release, pending ruling
-
-![Yoon Suk-yeol's supporters cheer after a court decides to release him. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794746_1_20250307161141.jpg&q=90)
-  
-
-A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warrant on Friday, paving the way for his release from jail following his arrest in mid-January on insurrection charges over a brief imposition of martial law.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm)
 
 ---
