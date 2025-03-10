@@ -1,3 +1,27 @@
+# 美股初段跌逾1%至2%　大型科技股下跌
+
+![道瓊斯指數較早時報42325點，跌476點，跌幅1.11%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795160_1_20250310213802.jpg&q=90)
+  
+
+美股3大指數在開市初段跌逾1%至逾2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm)
+
+---
+
 # 日本有研究發現北海道千島海溝已累積巨大能量或足以引發9級地震
 
 ![日本311大地震奪走多條性命，不少民眾每年都會舉行活動悼念。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795159_1_20250310213026.jpg&q=90)

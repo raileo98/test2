@@ -1,3 +1,51 @@
+# New Canada PM 'should be pragmatic in China policy'
+
+![Mao Ning says China and Canada should develop bilateral ties on the basis of mutual respect, equality and mutual benefit. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795162_1_20250310215514.jpg&q=90)
+  
+
+China hopes that the incoming government in Canada will adopt a positive and pragmatic approach towards Beijing, Foreign Ministry spokeswoman Mao Ning said on Monday after Mark Carney's victory in the leadership race for Canada's ruling party, paving the way for him to succeed Justin Trudeau as prime minister.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm)
+
+---
+
+# EU says US not engaging to make deal to avoid tariffs
+
+![The EU's trade chief Maros Sefcovic said Washington does not seem to be engaging to make a deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
+  
+
+The United States does not appear to want to make a deal with Brussels to avoid hefty tariffs against the EU, the bloc's trade chief said on Monday, days before US steel and aluminium levies kick in.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm)
+
+---
+
 # Israeli team due in Qatar for Gaza truce talks
 
 ![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=75)
@@ -1389,53 +1437,5 @@ Oscar-winning actor Gene Hackman and his wife died of natural causes about a wee
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm)
-
----
-
-# Private sector law on parliament agenda: Zhao Leji
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794861_1_20250308104551.jpg&q=90)
-  
-
-The nation’s top legislators on Saturday pledged to formulate and amend a slew of laws in the coming year, including one on backing private enterprises.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm)
-
----
-
-# Beijing to impose additional tariffs on Canada
-
-![The Commerce Ministry said the additional tariffs are to take effect March 20. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794864_1_20250308110510.jpg&q=65)
-  
-
-The Commerce Ministry on Saturday announced that it will impose additional tariffs on some products imported from Canada based on the ruling of an anti-discrimination probe.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm)
 
 ---
