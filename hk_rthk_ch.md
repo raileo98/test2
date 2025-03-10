@@ -1,3 +1,26 @@
+# 赤峰黃金：收購是未來發展非常重要動力
+
+  
+
+內地黃金生產商赤峰黃金今日在港交所掛牌上市，開市報13.72元屬招股價，一度升至13.92元，隨後跌穿招股價，報13.54元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795074-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795074-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795074-20250310.htm)
+
+---
+
 # 港股曾跌逾400點　失守24000點
 
 ![港股跌幅一度擴大至逾400點，恒生指數失守24000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795073_1_20250310111137.jpg&q=5)
@@ -528,7 +551,6 @@
 # 全國兩會｜創科成熱話　政協認為發展人工智能需謀劃勿人云亦云
 
 ![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_1_20250310090600.jpg&q=90)
-![朱松純認為，香港要有自己的「發展和改革委員會」，即「發改委」，制訂長期的人工智能發展戰略。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_2_20250310090600.jpg&q=90)
   
 
 中國人工智能大模型DeepSeek的出現，在北京兩會期間令國家科研創新能力成為熱烈話題。
@@ -1415,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm)
-
----
-
-# 英郵局系統出錯致逾9百人被不當起訴　英政府與富士通將協商賠償
-
-![富士通早前表明，會根據英國獨立機構調查事件的結果，探討賠償問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795001_1_20250309182914.jpg&q=90)
-  
-
-英國郵局數年前因會計系統出錯導致郵局局長等超過900人受到不當起訴的事件，英國政府表示，已與當時提供會計系統的日本企業富士通達成共識，會協商為受害者提供賠償。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm)
 
 ---
