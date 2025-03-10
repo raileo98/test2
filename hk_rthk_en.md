@@ -1,3 +1,27 @@
+# Newcastle sink West Ham to boost top four bid
+
+![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=35)
+  
+
+Newcastle reignited their bid to qualify for the Champions League as Bruno Guimarães sealed a controversial 1-0 win at West Ham.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm)
+
+---
+
 # Police arrest driver who 'fled' Shing Mun accident
 
 ![Officers arrested the 34-year-old man on suspicion of dangerous driving causing grievous bodily harm and other charges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795184_1_20250311062017.jpg&q=40)
@@ -1413,29 +1437,5 @@ The country’s most senior judge has promised to take steps to counter unlawful
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm)
-
----
-
-# CE pledges to promote women's rights
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
-  
-
-Chief Executive John Lee praised the contribution of women to society and pledged that the government is committed to promoting women's rights.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm)
 
 ---

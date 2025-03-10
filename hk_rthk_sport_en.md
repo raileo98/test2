@@ -1,3 +1,27 @@
+# Newcastle sink West Ham to boost top four bid
+
+![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=35)
+  
+
+Newcastle reignited their bid to qualify for the Champions League as Bruno Guimarães sealed a controversial 1-0 win at West Ham.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm)
+
+---
+
 # Shai outguns Jokic as Thunder roll past Nuggets
 
 ![Shai Gilgeous-Alexander put up 40 points in Oklahoma City's win over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_1_20250310082123.jpg&q=85)
@@ -1422,30 +1446,5 @@ In an ice hockey grudge match of border rivals fuelled by political tensions, "5
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm)
-
----
-
-# Roma reach Europa League last 16; Ajax scrape through
-
-![Roma will either play Lazio or Athletic Bilbao in the next round. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792560_1_20250221080728.jpg&q=90)
-![Ajax players celebrate after securing a 3-2 aggregate victory over Union Saint-Gillois. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792560_2_20250221080936.jpg&q=80)
-  
-
-Paulo Dybala scored twice as Roma beat Porto to clinch a place in the last 16 of the Europa League, as Ajax clawed through in extra time despite playing a man down for 95 minutes.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792560-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792560-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792560-20250221.htm)
 
 ---
