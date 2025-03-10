@@ -1,3 +1,27 @@
+# 九倉置業對上半年前景不感樂觀
+
+![吳天海稱今年以來旗下商業物業及酒店業務仍趨向下行，對上半年前景不感樂觀。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795143_1_20250310183206.jpg&q=65)
+  
+
+九龍倉置業去年盈利8.9億元，按年大減81%。撇除投資物業重估減值淨額56.2億元及金融工具按市價計值影響，去年基礎淨盈利增加2%至約61.4億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm)
+
+---
+
 # InnoHK獲2億元捐款　陳茂波︰建立大模型「港話通」服務
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795130_1_20250310182434.jpg&q=90)
@@ -1412,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm)
-
----
-
-# 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
-
-![陳茂波說，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794967_1_20250309115602.jpg&q=90)
-  
-
-北京正舉行全國兩會，財政司司長陳茂波表示，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作，包括加速推動科技創新及應用創新，以增強經濟動力和提升發展質量；透過「打造體驗、確立主題」；並加強深化國際交往合作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
 
 ---

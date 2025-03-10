@@ -1,3 +1,27 @@
+# 九倉置業對上半年前景不感樂觀
+
+![吳天海稱今年以來旗下商業物業及酒店業務仍趨向下行，對上半年前景不感樂觀。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795143_1_20250310183206.jpg&q=65)
+  
+
+九龍倉置業去年盈利8.9億元，按年大減81%。撇除投資物業重估減值淨額56.2億元及金融工具按市價計值影響，去年基礎淨盈利增加2%至約61.4億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm)
+
+---
+
 # 全國兩會｜邱達昌︰本港樓市應已見底　樓價將平穩發展
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795141_1_20250310182453.jpg&q=75)
@@ -960,7 +984,7 @@
 
 # 卡尼：加拿大將保持對美報復性關稅措施　不會讓特朗普得逞
 
-![卡尼當選自由黨新黨魁後，與妻子一同與支持者見面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795063_1_20250310102749.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795063_1_20250310102749.jpg&q=90)
   
 
 加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。卡尼向黨內支持者發表勝利演說時警告，美國想要加拿大的資源、水、土地甚至國家，一旦得逞，將摧毀加拿大人的生活。他又說，美國總統特朗普向加拿大開徵不合理的關稅，攻擊美國的家庭、工人和企業，加拿大不會讓他得逞。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm)
-
----
-
-# 加拿大候任總理卡尼：不能讓特朗普控制加拿大企圖得逞
-
-![卡尼獲選為自由黨新黨魁後發表勝利演說。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795037_2_20250310085746.jpg&q=90)
-  
-
-加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替現任總理杜魯多出任總理，組建新內閣。卡尼在渥太華向黨內支持者發表勝利演說時警告，美國在總統特朗普管治下，正尋求控制加拿大，必須挫敗這個企圖。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm)
 
 ---
