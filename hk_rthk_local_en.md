@@ -1,6 +1,6 @@
 # Govt welcomes HK$200m donation to support AI
 
-![Financial Secretary Paul Chan says the government welcomes donations by the private sector to support AI development. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795099_1_20250310143309.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795099_1_20250310143309.jpg&q=90)
   
 
 Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million donation by property developers to support the city’s generative artificial intelligence development.
