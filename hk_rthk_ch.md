@@ -1,3 +1,26 @@
+# 清遠和佛山旅行團再多兩名團友感染退伍軍人病
+
+  
+
+「領華旅遊社」清遠和佛山旅行團，再有兩名男團友感染退伍軍人病，連同之前已經公布的6宗個案，相關旅行團至今已有8人感染退伍軍人病。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm)
+
+---
+
 # 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
 
 ![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=70)

@@ -1,3 +1,26 @@
+# 清遠和佛山旅行團再多兩名團友感染退伍軍人病
+
+  
+
+「領華旅遊社」清遠和佛山旅行團，再有兩名男團友感染退伍軍人病，連同之前已經公布的6宗個案，相關旅行團至今已有8人感染退伍軍人病。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm)
+
+---
+
 # 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
 
 ![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
@@ -1412,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm)
-
----
-
-# 財政預算案2025 | 孫玉菡：社福恆常開支看不到空間再調整
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794977_1_20250309141657.jpg&q=90)
-  
-
-新一份財政預算案提出，於2027/28年度累計削減政府經常開支7%。勞工及福利局局長孫玉菡表示，就社福恆常開支，已看不到再有空間可作額外調整。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm)
 
 ---

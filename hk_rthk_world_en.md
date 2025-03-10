@@ -1,3 +1,27 @@
+# Russia expels two British 'diplomats' on spy charges
+
+![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=60)
+  
+
+Russia said on Monday it was expelling two British "diplomats" on suspicion of carrying out espionage activities.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm)
+
+---
+
 # N Korea fires missiles as South begins drills with US
 
 ![Seoul says the south's military will bolster surveillance and maintain a full readiness posture. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795098_1_20250310141933.jpg&q=90)
@@ -1416,29 +1440,5 @@ European leaders closed ranks on Sunday in support of Kyiv at a London summit, w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm)
-
----
-
-# Gaza health ministry says 4 killed in Israel attacks
-
-![Relatives mourn two Palestinians killed in a reported Israeli strike in the northern Gaza Strip, as a truce hangs in the balance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793904_1_20250302212847.jpg&q=75)
-  
-
-The ministry of health in Hamas-run Gaza said four people were killed and six others wounded in Israeli attacks on Sunday after the first phase of a fragile truce in the territory drew to a close.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm)
 
 ---
