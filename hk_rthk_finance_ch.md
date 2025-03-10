@@ -1,3 +1,75 @@
+# 港股美國預託證券普遍跌1%至逾4%
+
+![港股美國預託證券急挫，比本港昨日收市價普遍跌1%至逾4%，阿里巴巴表現最差。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795181_1_20250311060150.jpg&q=60)
+  
+
+港股美國預託證券(ADR)急挫，比本港昨日收市價普遍跌1%至逾4%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm)
+
+---
+
+# 現貨金跌逾1%　失守2900美元
+
+![現貨金失守每盎司2900美元，低見2879.99美元，跌約1.1%，創1星期低位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795180_1_20250311055520.jpg&q=80)
+  
+
+金價受壓，失守每盎司2900美元。投資者沽貨鎖定利潤，抵銷地緣政治不確定帶來的避險需求支撐，市場亦正觀望本周公布的美國通脹數據。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm)
+
+---
+
+# 油價低收1.5%　布蘭特期油失守70美元
+
+![英美期油低收1.5%，倫敦布蘭特期油跌穿70美元一桶，收報69.28美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795179_1_20250311055037.jpg&q=90)
+  
+
+英美期油低收1.5%，由於憂慮美國對加拿大、墨西哥及中國徵收關稅，將導致全球經濟放緩，抑制石油需求。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795179-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795179-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795179-20250311.htm)
+
+---
+
 # 英法德股市低收近1%或以上　科技股捱沽
 
 ![歐洲主要股市跌近1%或以上，美國關稅持續不確定，環球科技股出現拋售潮。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795177_1_20250311054207.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm)
-
----
-
-# 日本1月實質薪酬按年轉跌1.8%　市場關注春鬥結果
-
-![日本1月經通脹調整實質薪酬按年轉跌1.8%，結束兩個月升勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795051_1_20250310091642.jpg&q=70)
-  
-
-日本1月經通脹調整實質薪酬按年轉跌1.8%，結束兩個月升勢，由於通脹升至4.7%的兩年高位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795051-20250310.htm)
-
----
-
-# 全國兩會｜王滬寧宣布全國政協會議圓滿完成各項議程並閉幕
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
-  
-
-為期六日的全國政協十四屆三次會議今早在北京人民大會堂閉幕，中共中央總書記、國家主席習近平等黨和國家領導人出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm)
-
----
-
-# 人民幣兌美元中間價跌28點子
-
-![人民幣兌美元中間價報7.1733，較上日中間價下跌28點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795052_1_20250310092102.jpg&q=90)
-  
-
-人民幣兌美元中間價報7.1733，較上日中間價下跌28點子。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795052-20250310.htm)
 
 ---

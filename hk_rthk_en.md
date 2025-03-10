@@ -1,3 +1,27 @@
+# Wall Street sells off on US recession fears
+
+![The main three US indices fell between 2 percent and 4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795182_1_20250311061228.jpg&q=80)
+  
+
+Wall Street stocks fell sharply on Monday as investors fretted that uncertainty over President Donald Trump's tariff policy could tip the world's biggest economy into a recession.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm)
+
+---
+
 # New Canada PM 'should be pragmatic in China policy'
 
 ![Mao Ning says China and Canada should develop bilateral ties on the basis of mutual respect, equality and mutual benefit. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795162_1_20250310215514.jpg&q=90)
@@ -1413,29 +1437,5 @@ There's hope that a new scheme can help eliminate poorly managed, so-called "thr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm)
-
----
-
-# 'Hackman died of natural causes, a week after wife'
-
-![Gene Hackman poses during the 60th annual Golden Globe Awards in Beverly Hills, California, U.S. January 19, 2003. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794873_1_20250308114632.jpg&q=90)
-  
-
-Oscar-winning actor Gene Hackman and his wife died of natural causes about a week apart, a medical examiner said on Friday, ending more than a week of mystery surrounding the death of one of Hollywood's most beloved stars.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm)
 
 ---
