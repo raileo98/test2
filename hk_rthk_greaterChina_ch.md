@@ -1,3 +1,27 @@
+# 王文濤：貿易戰沒有贏家　保護主義沒有出路
+
+![王文濤與百時美施貴寶公司董事會主席兼執行官博科思會面。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795158_1_20250310212211.jpg&q=90)
+  
+
+商務部部長王文濤會見百時美施貴寶公司董事會主席兼執行官博科思，雙方就公司對華合作情況、中美經貿關係等議題交流。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
+
+---
+
 # 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
 
 ![丘應樺（左）拜會廣東省商務廳廳長張勁松（右），就深化粵港兩地的經貿合作包括招商引資交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795149_1_20250310195225.jpg&q=65)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794899-20250308.htm)
-
----
-
-# 雲南三百多個景區對台灣首來族提供減免門票優惠
-
-![雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794892_1_20250308152101.jpg&q=80)
-  
-
-雲南進一步加大對第一次由台灣到大陸旅客的優惠力度。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794892-20250308.htm)
 
 ---

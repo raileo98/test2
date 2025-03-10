@@ -1,3 +1,27 @@
+# 王文濤：貿易戰沒有贏家　保護主義沒有出路
+
+![王文濤與百時美施貴寶公司董事會主席兼執行官博科思會面。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795158_1_20250310212211.jpg&q=90)
+  
+
+商務部部長王文濤會見百時美施貴寶公司董事會主席兼執行官博科思，雙方就公司對華合作情況、中美經貿關係等議題交流。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
+
+---
+
 # 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
 
 ![盧寵茂與正在訪問香港的世界衞生組織西太平洋區域主任（前排右二）會面，就公共衞生相關議題作交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795156_1_20250310211737.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm)
-
----
-
-# 以軍針對式突襲敘利亞境內目標　稱已處理大批彈藥及軍事裝備
-
-![以色列之前以自衞為由，出兵佔領戈蘭高地東側的以敘軍事緩衝區。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794942_1_20250309034534.jpg&q=20)
-  
-
-以色列國防軍發聲明指出，過去一星期傘兵旅、裝甲兵團及特種部隊，對敘利亞境內目標進行針對式突襲，並部署在敘利亞境內一些戰略要地。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm)
 
 ---
