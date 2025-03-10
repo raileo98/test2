@@ -1,3 +1,27 @@
+# Govt welcomes HK$200m donation to support AI
+
+![Financial Secretary Paul Chan says the government welcomes donations by the private sector to support AI development. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795099_1_20250310143309.jpg&q=90)
+  
+
+Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million donation by property developers to support the city’s generative artificial intelligence development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm)
+
+---
+
 # Driver flees after three-vehicle collision
 
 ![Two private cars and a taxi are severely damaged after a collision in Shing Mun Tunnel. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795078_1_20250310115428.jpg&q=85)
@@ -72,7 +96,7 @@ Lawmaker and National People's Congress delegate Priscilla Leung on Monday said 
 
 # Unsold homes dampens interest for new sites: tycoon
 
-![CPPCC standing committee member, David Chiu, says it is "sensible and smart" for the government not to sell any commercial sites this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
+![CPPCC Standing Committee member, David Chiu, says it is "sensible and smart" for the government not to sell any commercial sites this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
   
 
 A property tycoon says he believes Hong Kong developers will take a "conservative" approach over acquiring new plots, noting such firms still had a lot of unsold units.
@@ -1413,30 +1437,5 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
-
----
-
-# Trump wins opening match at World Snooker Grand Prix
-
-![Trump beat Gary Wilson 4-2 in an all-English affair at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_1_20250304224416.jpg&q=90)
-![The Secretary for Culture, Sports and Tourism, Rosanna Law (middle) officiated at the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_2_20250304224416.jpg&q=85)
-  
-
-World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
 
 ---

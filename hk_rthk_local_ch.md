@@ -1,3 +1,23 @@
+# 外賣平台「戶戶送」撤出香港市場　運作至4月7日
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
+
+---
+
 # 口岸爆炸案警長以專家證人身分解釋手機應用通訊程式運作
 
 ![口岸爆炸案高等法院踏入第67天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795103_1_20250310145411.jpg&q=90)
@@ -1413,29 +1433,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm)
-
----
-
-# 全國兩會 | 預算案倡研陸路邊境建設費　仇鴻稱可實施後看效果
-
-![仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794910_1_20250308164843.jpg&q=85)
-  
-
-在北京，全國政協委員、中聯辦前副主任仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm)
 
 ---

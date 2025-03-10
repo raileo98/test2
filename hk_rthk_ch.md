@@ -1,3 +1,95 @@
+# 內地股市微跌　連跌兩個交易日
+
+![內地股市3大指數收市跌近0.2%或以上，連跌兩個交易日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795105_1_20250310151000.jpg&q=85)
+  
+
+滬深股市連跌兩個交易日。人工智能相關股份下跌；醫藥商業、培育鑽石及光伏概念股向上。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm)
+
+---
+
+# 外賣平台「戶戶送」撤出香港市場　運作至4月7日
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
+
+---
+
+# 特朗普：美國已恢復與烏克蘭共享情報
+
+![特朗普說，美國已經恢復與烏克蘭共享情報。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795106_1_20250310151239.jpg&q=90)
+  
+
+美國總統特朗普說，美國已經恢復與烏克蘭共享情報，並認為烏克蘭會簽署美烏礦產協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm)
+
+---
+
+# 東京大空襲發生80周年　約160人參與追悼法事
+
+![遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795104_1_20250310150257.jpg&q=90)
+  
+
+今日是日本東京大空襲發生80周年，遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事，大約160人參加，包括日皇德仁的胞弟、秋篠宮文仁親王伉儷，以及東京都知事小池百合子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm)
+
+---
+
 # 口岸爆炸案警長以專家證人身分解釋手機應用通訊程式運作
 
 ![口岸爆炸案高等法院踏入第67天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795103_1_20250310145411.jpg&q=90)

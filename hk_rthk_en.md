@@ -1,3 +1,27 @@
+# Govt welcomes HK$200m donation to support AI
+
+![Financial Secretary Paul Chan says the government welcomes donations by the private sector to support AI development. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795099_1_20250310143309.jpg&q=90)
+  
+
+Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million donation by property developers to support the city’s generative artificial intelligence development.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm)
+
+---
+
 # N Korea fires missiles as South begins drills with US
 
 ![Seoul says the south's military will bolster surveillance and maintain a full readiness posture. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795098_1_20250310141933.jpg&q=90)
@@ -96,7 +120,7 @@ The annual session of the country's top advisory body has concluded in Beijing, 
 
 # China to provide global trade stability: analyst
 
-![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
+![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
   
 
 An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Two Sessions" last week that China ensured global stability.
@@ -216,7 +240,7 @@ The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore s
 
 # Unsold homes dampens interest for new sites: tycoon
 
-![CPPCC standing committee member, David Chiu, says it is "sensible and smart" for the government not to sell any commercial sites this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
+![CPPCC Standing Committee member, David Chiu, says it is "sensible and smart" for the government not to sell any commercial sites this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
   
 
 A property tycoon says he believes Hong Kong developers will take a "conservative" approach over acquiring new plots, noting such firms still had a lot of unsold units.
@@ -1413,29 +1437,5 @@ President Donald Trump on Friday threatened new sanctions and tariffs on Russia 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm)
-
----
-
-# Hamas delegation in Cairo for more Gaza truce talks
-
-![Palestinian children eat the evening Iftar meal with which Muslims end their daily fast at sunset during Ramadan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794803_1_20250307211901.jpg&q=85)
-  
-
-A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolong a fragile ceasefire in Gaza, which has largely paused hostilities with Israel, two senior Hamas officials said.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm)
 
 ---

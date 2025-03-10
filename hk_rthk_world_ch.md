@@ -1,3 +1,71 @@
+# 外賣平台「戶戶送」撤出香港市場　運作至4月7日
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
+
+---
+
+# 特朗普：美國已恢復與烏克蘭共享情報
+
+![特朗普說，美國已經恢復與烏克蘭共享情報。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795106_1_20250310151239.jpg&q=90)
+  
+
+美國總統特朗普說，美國已經恢復與烏克蘭共享情報，並認為烏克蘭會簽署美烏礦產協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm)
+
+---
+
+# 東京大空襲發生80周年　約160人參與追悼法事
+
+![遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795104_1_20250310150257.jpg&q=90)
+  
+
+今日是日本東京大空襲發生80周年，遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事，大約160人參加，包括日皇德仁的胞弟、秋篠宮文仁親王伉儷，以及東京都知事小池百合子。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm)
+
+---
+
 # 南韓軍方稱北韓向黃海發射數枚導彈
 
 ![北韓向黃海發射數枚導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795093_1_20250310135058.jpg&q=90)
@@ -1365,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm)
-
----
-
-# 美國今年以來逾220人感染麻疹　2名患者死亡
-
-![美國疾控中心公布的數據顯示，全美今年以來共報告222宗麻疹確診病例，2名患者死亡。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794913_1_20250308164746.jpg&q=85)
-  
-
-美國疾病控制和預防中心公布的數據顯示，截至本月6日，全美今年以來共報告222宗麻疹確診病例，2名患者死亡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794913-20250308.htm)
-
----
-
-# 彭博社：只要最終和平協議有進展　俄方對俄烏臨時停火持開放態度
-
-![俄羅斯和烏克蘭未達成和平協議，俄軍連夜空襲頓涅茨克地區，有建築物起火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794901_1_20250308155514.jpg&q=65)
-  
-
-彭博社引述莫斯科知情人士透露，只要在推動俄烏最終和平協議方面取得進展，俄羅斯對討論俄烏臨時停火持開放態度。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794901-20250308.htm)
-
----
-
-# 金正恩視察北韓造船廠　要求大量建造艦艇並加強海軍戰力
-
-![金正恩視察北韓一間造船廠。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794900_1_20250308154916.jpg&q=50)
-  
-
-北韓領袖金正恩視察當地一間造船廠，要求大量建造艦艇並加強海軍戰力，強調朝方絕不會坐視不管敵人的海上及水下軍事行動，將會實現海軍力量革新，進一步強化實力，捍衛海洋主權，切實保證朝鮮半島與地區的安全。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794900-20250308.htm)
 
 ---
