@@ -1,3 +1,26 @@
+# 以色列談判代表團啟程往卡塔爾　推進停火第二階段談判
+
+  
+
+以色列談判代表團啟程前往卡塔爾首都多哈，以推進加沙停火協議第二階段談判。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm)
+
+---
+
 # 澤連斯基抵達沙特阿拉伯　將與沙特王儲會面
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm)
-
----
-
-# 聯合國官員敦促敘利亞衝突各方立即停止敵對行動
-
-![敘利亞軍方人員坐車前往拉塔基亞，加入對付效忠前政權武裝人員的行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794954_1_20250309092001.jpg&q=75)
-  
-
-聯合國官員發表聲明，敦促敘利亞衝突各方立即停止在西部沿海和中部地區的敵對行動，切實保護平民、維護民用基礎設施並確保人道救援行動正常展開。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm)
 
 ---
