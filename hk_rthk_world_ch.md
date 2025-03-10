@@ -1,3 +1,27 @@
+# 《環看天下》：加尼出任加拿大新總理　同時應對中美關稅勢成考驗
+
+![卡尼當選執政加拿大自由黨新黨魁，將成為加拿大新任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795188_1_20250311073323.jpg&q=90)
+  
+
+加拿大執政自由黨選出新黨魁，由被形容為「政治素人」的加拿大央行前行長卡尼勝出，將會接替杜魯多成為新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm)
+
+---
+
 # 沙特王儲會見澤連斯基　強調支持為解決危機和實現和平的努力
 
 ![穆罕默德為澤連斯基舉行歡迎儀式。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795185_1_20250311065703.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm)
-
----
-
-# 英郵局系統出錯致逾9百人被不當起訴　英政府與富士通將協商賠償
-
-![富士通早前表明，會根據英國獨立機構調查事件的結果，探討賠償問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795001_1_20250309182914.jpg&q=90)
-  
-
-英國郵局數年前因會計系統出錯導致郵局局長等超過900人受到不當起訴的事件，英國政府表示，已與當時提供會計系統的日本企業富士通達成共識，會協商為受害者提供賠償。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm)
 
 ---
