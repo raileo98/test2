@@ -1,3 +1,27 @@
+# 滬股半日跌約0.6%　創業板指數失守2200點
+
+![上證指數半日收報3352點，跌19點，跌幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795075_1_20250310113626.jpg&q=90)
+  
+
+內地股市3大指數半日下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm)
+
+---
+
 # 赤峰黃金：收購是未來發展非常重要動力
 
 ![楊宜方（中）稱股份下限定價因考慮到A股上漲不少，參考其他A+H股折讓後期望為股東提供增長空間。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795074_1_20250310112824.jpg&q=85)
@@ -1413,29 +1437,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794816-20250307.htm)
-
----
-
-# 越秀地產料去年盈利至少跌約65%　核心盈利至少減半
-
-![越秀地產預計，去年盈利按年跌約65%至70%，核心盈利按年跌約50%至55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794813_1_20250307221702.jpg&q=80)
-  
-
-越秀地產發盈利警告，預計去年盈利按年跌約65%至70%；撇除淨匯兌收益或虧損、投資物業公允值變動及相關稅項影響等之後，核心盈利按年跌約50%至55%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794813-20250307.htm)
 
 ---
