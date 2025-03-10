@@ -1,3 +1,26 @@
+# 20多名中學生韶關交流回港後嘔吐及腹瀉等不適　全部人毋須入院
+
+  
+
+沙田官立中學多名學生參加內地交流團返港後，出現腸胃炎徵狀。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm)
+
+---
+
 # 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
 
 ![盧寵茂與正在訪問香港的世界衞生組織西太平洋區域主任（前排右二）會面，就公共衞生相關議題作交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795156_1_20250310211737.jpg&q=85)
@@ -1412,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm)
-
----
-
-# 新任南區民政事務專員張佩珊明日履新
-
-![新任南區民政事務專員張佩珊明日履新。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794986_1_20250309164729.jpg&q=90)
-  
-
-張佩珊明日將接替鄭港涌出任南區民政事務專員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm)
 
 ---
