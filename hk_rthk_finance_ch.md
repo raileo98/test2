@@ -1,3 +1,27 @@
+# 舜宇光學2月手機攝像模組出貨量按年跌逾32%
+
+![舜宇上月手機攝像模組出貨量按年跌32.1%因公司更多專注中高端訂單，產品結構較去年同期改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795135_1_20250310172832.jpg&q=90)
+  
+
+舜宇光學科技上月手機鏡頭出貨量約9717萬件，按年跌6.9%，按月跌8.2%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm)
+
+---
+
 # 戶戶送將撤出香港　勞聯正接觸部分受影響前線員工
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm)
-
----
-
-# 中國成功發射通信技術試驗衛星十五號
-
-![通信技術試驗衛星十五號成功發射升空。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795022_1_20250310022450.jpg&q=90)
-  
-
-中國在西昌衛星發射中心使用長征三號乙運載火箭，在凌晨1時17分，成功將通信技術試驗衛星十五號發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm)
 
 ---
