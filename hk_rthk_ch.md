@@ -1,3 +1,26 @@
+# 全國兩會｜仇鴻指赤字是香港前進過程挑戰　齊心協力情況越來越好
+
+  
+
+在北京，全國政協委員、中聯辦前副主任仇鴻說，相信香港的情況會越來越好，她亦看到香港市民積極參與香港及國家的建設，為保持香港長期繁榮作出自己的貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm)
+
+---
+
 # 配合系統升級及維護工程　衞生署個別網上服務明晚起分別暫停
 
 ![新冠疫苗接種系統、家庭健康服務季節性流感疫苗接種預約系統、以及「中央器官捐贈登記名冊」網頁，將於不同時間短暫停止服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795085_1_20250310123120.jpg&q=90)
@@ -144,7 +167,7 @@
 
 # 陳茂波稱香港要在人工智能引領浪潮中把握機遇
 
-![陳茂波說，總理李強在政府工作報告提到要推進人工智能的行動，支持大模型廣泛應用。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
   
 
 黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
@@ -1414,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm)
-
----
-
-# LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
-
-![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
-![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=85)
-  
-
-LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm)
 
 ---

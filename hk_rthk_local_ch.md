@@ -1,3 +1,26 @@
+# 全國兩會｜仇鴻指赤字是香港前進過程挑戰　齊心協力情況越來越好
+
+  
+
+在北京，全國政協委員、中聯辦前副主任仇鴻說，相信香港的情況會越來越好，她亦看到香港市民積極參與香港及國家的建設，為保持香港長期繁榮作出自己的貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm)
+
+---
+
 # 配合系統升級及維護工程　衞生署個別網上服務明晚起分別暫停
 
 ![新冠疫苗接種系統、家庭健康服務季節性流感疫苗接種預約系統、以及「中央器官捐贈登記名冊」網頁，將於不同時間短暫停止服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795085_1_20250310123120.jpg&q=90)
@@ -48,7 +71,7 @@
 
 # 陳茂波稱香港要在人工智能引領浪潮中把握機遇
 
-![陳茂波說，總理李強在政府工作報告提到要推進人工智能的行動，支持大模型廣泛應用。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
   
 
 黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
@@ -1414,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm)
-
----
-
-# 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
-
-![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟說，會帶領民青團隊深入學習貫徹國家主席習近平重要講話精神以及兩會精神，全面配合行政長官施政，提升政策目標、工具、時機、力度、節奏的匹配度，特別在地區治理工作上不斷創新和完善，連同區議員和關愛隊，堅持和發展新時代「楓橋經驗」，加強矛盾糾紛排查化解，將矛盾糾紛化解在基層、化解在萌芽狀態。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm)
 
 ---

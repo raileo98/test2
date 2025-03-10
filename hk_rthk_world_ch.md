@@ -48,7 +48,7 @@
 
 # 陳茂波稱香港要在人工智能引領浪潮中把握機遇
 
-![陳茂波說，總理李強在政府工作報告提到要推進人工智能的行動，支持大模型廣泛應用。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
   
 
 黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。

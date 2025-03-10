@@ -1,3 +1,26 @@
+# 全國兩會｜仇鴻指赤字是香港前進過程挑戰　齊心協力情況越來越好
+
+  
+
+在北京，全國政協委員、中聯辦前副主任仇鴻說，相信香港的情況會越來越好，她亦看到香港市民積極參與香港及國家的建設，為保持香港長期繁榮作出自己的貢獻。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm)
+
+---
+
 # 全國兩會 | 全國政協會議閉幕　王滬寧：彰顯人民政協政治優勢
 
 ![王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795084_2_20250310123241.jpg&q=80)
@@ -48,7 +71,7 @@
 
 # 陳茂波稱香港要在人工智能引領浪潮中把握機遇
 
-![陳茂波說，總理李強在政府工作報告提到要推進人工智能的行動，支持大模型廣泛應用。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
   
 
 黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
-
----
-
-# 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
-
-![張國鈞形容，有關國家安全的法例是「沒有完成式，只有進行式」。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794855_1_20250308111924.jpg&q=85)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
 
 ---
