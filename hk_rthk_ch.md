@@ -1,3 +1,27 @@
+# 韓股收市靠穩
+
+![首爾綜合指數收市報2570點，升6點，升幅0.27%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795101_1_20250310143607.jpg&q=75)
+  
+
+南韓股市靠穩，首爾綜合指數收市報2570點，升6點，升幅0.27%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm)
+
+---
+
 # 日股高收近0.4%
 
 ![日經平均指數收市報37028點，升141點，升幅0.38%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795100_1_20250310143343.jpg&q=80)
