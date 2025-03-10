@@ -1,3 +1,26 @@
+# 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
+
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂被問到本港經濟情況及特區政府面對財赤問題時表示，香港在全球發達經濟體當中並不弱，去年經濟增長有百分之二點幾，認為目前赤字數目對香港這麼大的經濟體而言應該不算甚麼，也不是問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm)
+
+---
+
 # 金融科技周及StartmeupHK創業節11月舉行
 
   
@@ -1413,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm)
-
----
-
-# 李家超稱政府重視女性權益和福祉　不論男女均有平等發展機會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794876_1_20250308121922.jpg&q=90)
-  
-
-行政長官李家超及夫人李林麗嬋，在政府總部主持民政及青年事務局與婦女事務委員會舉辦的2025年國際婦女節酒會。李家超致辭時說，婦女是香港發展的重要力量，他向全港女士致敬。他提到，香港是國際大都會，不論男女均有平等發展機會，女性佔香港的人口54%，多年來女性不但擔當家庭支柱，亦是社會進步的重要推動者，在各領域展現觸目的風采。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794876-20250308.htm)
 
 ---

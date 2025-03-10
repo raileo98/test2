@@ -1,3 +1,26 @@
+# 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
+
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂被問到本港經濟情況及特區政府面對財赤問題時表示，香港在全球發達經濟體當中並不弱，去年經濟增長有百分之二點幾，認為目前赤字數目對香港這麼大的經濟體而言應該不算甚麼，也不是問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm)
+
+---
+
 # 金融科技周及StartmeupHK創業節11月舉行
 
   
@@ -1413,29 +1436,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794815-20250307.htm)
-
----
-
-# 華潤飲料、毛戈平、小菜園等納入港股通名單
-
-![上海證券交易所表示，滬港通下的港股通標的名單加入多隻股份，包括華潤飲料、毛戈平、小菜園等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794808_1_20250307215320.jpg&q=85)
-  
-
-上海證券交易所表示，因應恒生綜合大型股指數等實施成份股調整，滬港通下的港股通標的名單加入多隻股份，包括貝殼、華潤飲料、迅飛醫療科技、英諾賽科、中信金融資產、毛戈平、小菜園等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794808-20250307.htm)
 
 ---

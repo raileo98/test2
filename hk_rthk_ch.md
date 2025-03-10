@@ -1,3 +1,26 @@
+# 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
+
+  
+
+在北京，全國政協委員、港澳辦副主任王靈桂被問到本港經濟情況及特區政府面對財赤問題時表示，香港在全球發達經濟體當中並不弱，去年經濟增長有百分之二點幾，認為目前赤字數目對香港這麼大的經濟體而言應該不算甚麼，也不是問題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm)
+
+---
+
 # 韓美展開大規模聯合軍演　北韓譴責把局勢推向極限
 
 ![韓美軍演還包括覆蓋陸海空、網絡、太空等全領域的聯合野外機動訓練。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795067_1_20250310105023.jpg&q=80)
@@ -1414,29 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm)
-
----
-
-# 財政預算案2025 | 研籃球博彩　麥美娟︰會規範非法賭博
-
-![麥美娟表示將採取多方面措施應對非法賭博問題。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794992_1_20250309171044.jpg&q=85)
-  
-
-財政預算案提出將積極探討規範籃球博彩活動，民政及青年事務局局長麥美娟表示，政府不鼓勵賭博，面對非法賭博問題，將採取多方面措施，包括嚴厲執法、做好宣傳教育及作出規範。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm)
 
 ---
