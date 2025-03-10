@@ -1,5 +1,53 @@
+# 歐家榮稱近期月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
+
+  
+
+日本由上月起錄得多宗因進食受污染食物而感染諾如病毒個案，衞生防護中心傳染病主任歐家榮說，本港近3個月院舍或學校情報的急性腸胃炎爆發，絕大部分是由諾如病毒引起，由去年12月至今年2月錄得有87宗院舍爆發，每宗爆發個案受影響人士介乎3至39人，有些個案比較大型，這87院舍爆發合共影響近千人，有六成個案來自安老院舍，其次來自殘疾人士院舍、小學、幼稚園和幼兒中心等。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795064-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795064-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795064-20250310.htm)
+
+---
+
+# 卡尼：加拿大將保持對美報復性關稅措施　不會讓特朗普得逞
+
+![卡尼當選自由黨新黨魁後，與妻子一同與支持者見面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795063_1_20250310102749.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。卡尼向黨內支持者發表勝利演說時警告，美國想要加拿大的資源、水、土地甚至國家，一旦得逞，將摧毀加拿大人的生活。他又說，美國總統特朗普向加拿大開徵不合理的關稅，攻擊美國的家庭、工人和企業，加拿大不會讓他得逞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm)
+
+---
+
 # 梁子穎指上調公屋入息限額建議未符現實　梁文廣促平衡及取捨
 
+![梁子穎（左）說，新門檻將令部分全職工作申請人寧願辭職或「打散」工作；梁文廣（右）認為，在現時公屋供應不足的情況下，要先照顧最有需要的一群。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795060_1_20250310102936.jpg&q=85)
   
 
 房委會完成公屋入息及資產限額檢討，建議下年度上調公屋入息限額，平均加幅1.7%。其中2人家庭建議加幅最多，達2.5%，入息限額由19730元增至20230元。房委會資助房屋小組委員會委員、工聯會立法會議員梁子穎認為，這次上調水平未能符合現實，因為現時一些清潔工人和保安入息水平已超過最低工資水平，新門檻將令部分全職工作申請人寧願辭職或「打散」工作，令入息不超過水平，才可保留申請公屋資格。
@@ -23,6 +71,7 @@
 
 # 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
 
+![王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
   
 
 在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
@@ -46,6 +95,7 @@
 
 # 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
 
+![鄭澤光說，中方願意和英方共同努力，落實好國家主席習近平和英國首相施紀賢達成的重要共識。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795058_1_20250310103005.jpg&q=75)
   
 
 在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
@@ -139,10 +189,13 @@
 
 ---
 
-# 全國兩會｜王滬寧宣布全國政協會議圓滿完成所有議程並閉幕
+# 全國兩會｜王滬寧宣布全國政協會議圓滿完成各項議程並閉幕
 
 ![王滬寧宣布全國政協會議圓滿完成所有議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
   
+
+為期六日的全國政協十四屆三次會議今早在北京人民大會堂閉幕，中共中央總書記、國家主席習近平等黨和國家領導人出席。
+
   
 
 
@@ -1386,53 +1439,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm)
-
----
-
-# 全國兩會｜陸治原︰要順應群眾需求變化　逐步擴大民生保障政策
-
-![陸治原表示，要逐步擴大民生保障政策覆蓋面。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794987_1_20250309164917.jpg&q=90)
-  
-
-在北京，民政部部長陸治原表示，要順應群眾需求變化，逐步擴大民生保障政策覆蓋面，有序推進民政民生保障由兜底性、基礎性向普惠性發展。他表示，中國人口發展呈現老齡化、高齡化、少子化等特點，傳統家庭養老功能正在弱化，越來越多老年人對社會養老服務提出需求，要推動養老服務由過去的「三無」老年人為主，向全體老年人拓展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm)
-
----
-
-# 新任南區民政事務專員張佩珊明日履新
-
-![新任南區民政事務專員張佩珊明日履新。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794986_1_20250309164729.jpg&q=90)
-  
-
-張佩珊明日將接替鄭港涌出任南區民政事務專員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm)
 
 ---

@@ -1,5 +1,30 @@
+# 卡尼：加拿大將保持對美報復性關稅措施　不會讓特朗普得逞
+
+![卡尼當選自由黨新黨魁後，與妻子一同與支持者見面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795063_1_20250310102749.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。卡尼向黨內支持者發表勝利演說時警告，美國想要加拿大的資源、水、土地甚至國家，一旦得逞，將摧毀加拿大人的生活。他又說，美國總統特朗普向加拿大開徵不合理的關稅，攻擊美國的家庭、工人和企業，加拿大不會讓他得逞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm)
+
+---
+
 # 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
 
+![王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
   
 
 在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
@@ -23,6 +48,7 @@
 
 # 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
 
+![鄭澤光說，中方願意和英方共同努力，落實好國家主席習近平和英國首相施紀賢達成的重要共識。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795058_1_20250310103005.jpg&q=75)
   
 
 在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
@@ -1413,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794848-20250308.htm)
-
----
-
-# 哈馬斯代表團抵達開羅討論推進停火協議第二階段談判
-
-![加沙地帶大量房屋在以軍行動中被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794846_1_20250308075132.jpg&q=65)
-  
-
-巴勒斯坦武裝組織哈馬斯代表團抵達開羅，參與討論推進加沙停火協議第二階段談判。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794846-20250308.htm)
 
 ---
