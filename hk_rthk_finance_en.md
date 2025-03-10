@@ -1,3 +1,27 @@
+# Hang Seng Index closes down 1.85pc
+
+![The Hang Seng Index has closed lower, ending the day at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795139_1_20250310175233.jpg&q=60)
+  
+
+Local shares sank on Monday on a mixed day for equity markets, amid escalating global trade tensions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm)
+
+---
+
 # Hong Kong stocks open lower on growth concerns
 
 ![In a Fox News interview on Sunday, US President Donald Trump declined to predict whether his tariffs would result in a US recession.Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795061_1_20250310102543.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump said on Monday that his tariffs on Canada and Mexico a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793020-20250225.htm)
-
----
-
-# Wall Street holds steadier but still falls
-
-![US markets face uncertainty over growth, valuations, and geopolitics. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793018_1_20250225073058.jpg&q=90)
-  
-
-US stocks drifted lower on Monday to compound their sharp losses from last week .
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793018-20250225.htm)
 
 ---

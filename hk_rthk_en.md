@@ -336,7 +336,7 @@ The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore s
 
 # Unsold homes dampens interest for new sites: tycoon
 
-![CPPCC Standing Committee member, David Chiu, says it is "sensible and smart" for the government not to sell any commercial sites this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
   
 
 A property tycoon says he believes Hong Kong developers will take a "conservative" approach over acquiring new plots, noting such firms still had a lot of unsold units.
