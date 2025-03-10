@@ -1,3 +1,27 @@
+# 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
+
+![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
+  
+
+外交部駐港派員公署發言人就菲律賓前總統杜特爾特訪港回應記者提問，發言人說，據了解，杜特爾特及女兒莎拉此次來港是私人度假行程。有關菲律賓公民在港舉行的集會已根據特區法律法規事先提出申請。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
+
+---
+
 # 九倉置業對上半年前景不感樂觀
 
 ![吳天海稱今年以來旗下商業物業及酒店業務仍趨向下行，對上半年前景不感樂觀。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795143_1_20250310183206.jpg&q=65)
@@ -1412,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794977-20250309.htm)
-
----
-
-# 綠色和平發現桌球賽大會違反自訂規定　包括場內派膠水樽
-
-![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794971_1_20250309124553.jpg&q=90)
-  
-
-環保組織綠色和平在啟德體育園體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到貴價門票觀眾席上，預設擺放了連蓋的膠樽水；亦有貴賓將自備杯帶入場內，未有職員阻止，有違場館列明不能攜帶任何容器進場的規定。綠色和平認為，派水安排製造不必要的即棄垃圾，啟德體育園應盡快落實重用杯服務，平衡安全及環保考量，讓觀眾有使用非即棄的選擇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm)
 
 ---

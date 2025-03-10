@@ -1,3 +1,27 @@
+# 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
+
+![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
+  
+
+外交部駐港派員公署發言人就菲律賓前總統杜特爾特訪港回應記者提問，發言人說，據了解，杜特爾特及女兒莎拉此次來港是私人度假行程。有關菲律賓公民在港舉行的集會已根據特區法律法規事先提出申請。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
+
+---
+
 # 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
 
 ![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm)
-
----
-
-# 哈馬斯稱有積極跡象表明協議次階段談判將啟動　以官員指不知情
-
-![哈馬斯表示願意以滿足巴勒斯坦民眾要求的方式進入談判。圖為加沙地帶被炸成廢墟的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794939_1_20250309015115.jpg&q=15)
-  
-
-巴勒斯坦武裝組織哈馬斯發言人形容，有「積極跡象」表明加沙地帶停火協議第二階段談判，將會啟動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794939-20250309.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
+
+![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
+  
+
+外交部駐港派員公署發言人就菲律賓前總統杜特爾特訪港回應記者提問，發言人說，據了解，杜特爾特及女兒莎拉此次來港是私人度假行程。有關菲律賓公民在港舉行的集會已根據特區法律法規事先提出申請。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
+
+---
+
 # 內地2月乘用車市場零售按年升26%　新能源車按年升近80%
 
 ![中國乘聯會公布，內地2月狹義乘用車市場零售按年增加26%，新能源車按年升近80%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795127_1_20250310171219.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm)
-
----
-
-# 全國兩會 | 羅淑佩稱通過多元化交流活動提升香港文化影響力
-
-![羅淑佩說，作為局長，深感使命重大，責任在肩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794884_1_20250308132910.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩在社交網站發帖文，指國務院總理李強在政府工作報告中，為香港在文化，體育及旅遊領域提供了重要指引，她說，作為局長，深感使命重大，責任在肩。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm)
 
 ---
