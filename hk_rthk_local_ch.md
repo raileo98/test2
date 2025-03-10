@@ -1,3 +1,26 @@
+# 「戶戶送」客戶及送遞員將導向至foodpanda平台
+
+  
+
+戶戶送Deliveroo決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。foodpanda的母公司Delivery Hero表示，已與Deliveroo簽署並達成協議，根據該協議，Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台，而部份餐廳及生活百貨商戶亦將會進駐foodpanda。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm)
+
+---
+
 # 外賣平台「戶戶送」撤出香港市場　運作至4月7日
 
 ![戶戶送香港平台將繼續運行至4月7日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795107_1_20250310152224.jpg&q=85)
@@ -1413,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm)
-
----
-
-# 運物局指女性在不同領域擔當重要角色　陳美寶祝願女性能發揮才能
-
-![運輸及物流局說，女性在不同領域中均擔當著至關重要的角色。（運輸及物流局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794912_1_20250308170117.jpg&q=90)
-  
-
-今天是國際婦女節，運輸及物流局表示，女性在不同領域中均擔當著至關重要的角色，近年專營巴士的女車長人數不斷上升，例如九巴的女性約佔總車長人數的6%，城巴在去年的女車長數字亦較2022年上升三成。航空方面，國泰集團旗下現時有超過200名女機師，佔總機師數目大約8%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794912-20250308.htm)
 
 ---

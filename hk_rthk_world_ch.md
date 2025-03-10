@@ -1,3 +1,27 @@
+# 泰航本月15日起禁止在航班使用充電寶或備用電池
+
+![泰航本月15日起禁止在航班使用充電寶或備用電池。（泰航官方微博截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795109_1_20250310153442.jpg&q=90)
+  
+
+泰國航空表示，本月15日起，所有泰航航班將禁止使用充電寶或備用電池，同時也禁止在航班上為充電寶或備用電池充電。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm)
+
+---
+
 # 外賣平台「戶戶送」撤出香港市場　運作至4月7日
 
 ![戶戶送香港平台將繼續運行至4月7日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795107_1_20250310152224.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm)
-
----
-
-# 南韓檢察機關放棄上訴　尹錫悅將從拘留所獲釋
-
-![大批尹錫悅支持者在首爾拘留所外聚集，準備歡迎尹錫悅獲釋。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794914_1_20250308165307.jpg&q=45)
-  
-
-南韓檢察機關決定，不就法院批准取消拘留總統尹錫悅提出上訴，法務部已接到檢察機關的相關文件，正進行釋放尹錫悅的程序。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794914-20250308.htm)
 
 ---

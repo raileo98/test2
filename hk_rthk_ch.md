@@ -1,3 +1,50 @@
+# 泰航本月15日起禁止在航班使用充電寶或備用電池
+
+![泰航本月15日起禁止在航班使用充電寶或備用電池。（泰航官方微博截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795109_1_20250310153442.jpg&q=90)
+  
+
+泰國航空表示，本月15日起，所有泰航航班將禁止使用充電寶或備用電池，同時也禁止在航班上為充電寶或備用電池充電。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm)
+
+---
+
+# 「戶戶送」客戶及送遞員將導向至foodpanda平台
+
+  
+
+戶戶送Deliveroo決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。foodpanda的母公司Delivery Hero表示，已與Deliveroo簽署並達成協議，根據該協議，Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台，而部份餐廳及生活百貨商戶亦將會進駐foodpanda。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm)
+
+---
+
 # 內地股市微跌　連跌兩個交易日
 
 ![內地股市3大指數收市跌近0.2%或以上，連跌兩個交易日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795105_1_20250310151000.jpg&q=85)
