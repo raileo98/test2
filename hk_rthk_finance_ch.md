@@ -24,7 +24,11 @@
 
 # 外賣平台「戶戶送」撤出香港市場　運作至4月7日
 
+![戶戶送香港平台將繼續運行至4月7日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795107_1_20250310152224.jpg&q=85)
   
+
+戶戶送Deliveroo宣布，決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
+
   
 
 
