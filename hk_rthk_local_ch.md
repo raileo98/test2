@@ -1,3 +1,26 @@
+# 廣華醫院有護士懷疑被非禮　一名男病人被捕
+
+  
+
+廣華醫院發生護士懷疑被非禮的事件，院方表示，今日上午一名護士在急症室護士站工作期間，懷疑被人非禮。院方接獲報告後，隨即報警，警方及後在急症室拘捕一名男病人。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm)
+
+---
+
 # 瑪麗醫院重申周天瑜事件不涉及醫療事故
 
 ![醫院重申，事件不屬於「醫療風險警示事件」或「重要風險事件」，亦不涉及醫療事故。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795150_1_20250310195249.jpg&q=85)
@@ -1412,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm)
-
----
-
-# 孫玉菡料「高才通」續簽高峰期第二季出現
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794983_1_20250309152855.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡預料，「高才通計劃」續簽高峰期將於今年第二季左右開始出現，稍後有更多數據時再公布。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794983-20250309.htm)
 
 ---
