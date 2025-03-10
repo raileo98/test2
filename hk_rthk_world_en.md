@@ -1,3 +1,27 @@
+# China to provide global trade stability: analyst
+
+![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
+  
+
+An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Two Sessions" last week that China ensured global stability.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm)
+
+---
+
 # Freed scammers still trapped in Myanmar
 
 ![China repatriates its citizens freed from scam centres on to a chartered flight at Mae Sot International Airport on February 20, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795054_1_20250310092617.jpg&q=90)
@@ -1416,29 +1440,5 @@ Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sun
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm)
-
----
-
-# UK, France working with Ukraine on peace plan: Starmer
-
-![British Prime Minister Keir Starmer and Ukrainian President Volodymyr Zelensky shake hands during a bilateral meeting ahead of a European leaders' summit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793890_1_20250302180719.jpg&q=85)
-  
-
-Britain and France will work with Ukraine on a plan to end the fighting with Russia, which will later be presented to the United States, Prime Minister Keir Starmer said on Sunday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793890-20250302.htm)
 
 ---

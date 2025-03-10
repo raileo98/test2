@@ -1,3 +1,27 @@
+# China to provide global trade stability: analyst
+
+![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
+  
+
+An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Two Sessions" last week that China ensured global stability.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm)
+
+---
+
 # Hong Kong stocks open lower on growth concerns
 
 ![In a Fox News interview on Sunday, US President Donald Trump declined to predict whether his tariffs would result in a US recession.Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795061_1_20250310102543.jpg&q=90)
@@ -1414,29 +1438,5 @@ China's export growth grew slower than expected in the first two months of this 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
-
----
-
-# NSL provisions can be amended: legal scholar
-
-![Albert Chen says the Committee for Safeguarding National Security can decide to change the rules on its own, without seeking approval from the National People's Congress. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794748_1_20250307162745.jpg&q=90)
-  
-
-Legal scholar and Chinese People's Political Consultative Conference (CPPCC) member Albert Chen on Friday said the National Security Law can be amended, and that won't have retroactive effect.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm)
 
 ---
