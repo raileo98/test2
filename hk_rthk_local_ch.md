@@ -1,3 +1,26 @@
+# 麥萃才相信外賣平台面對挑戰包括假日不留港消費市民增加
+
+  
+
+戶戶送Deliveroo宣布撤出香港市場。浸會大學會計、經濟及金融學系副教授麥萃才相信，當中涉及的挑戰包括因為疫情過去，假日時多了市民不留港消費；即使在香港，外出吃飯亦很方便。加上早前有內地外賣平台進駐香港，提供了不少優惠活動；而本港工資水平較高，送外賣需時，未必容易聘請到送餐員，導致營運成本高居不下。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm)
+
+---
+
 # 清遠和佛山旅行團再多兩名團友感染退伍軍人病
 
 ![中心接獲首宗通報後調查和跟進，聯絡與首名感染者參加同一團，及參與另外兩個行程及入住酒店相同的旅行團人士，並發現最新兩宗個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795147_1_20250310191613.jpg&q=90)
@@ -1412,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794979-20250309.htm)
-
----
-
-# 關注病人組織調查　多受訪者冀新醫學院培育仁醫及具科研實力
-
-![調查訪問500多名市民，逾七成受訪者指第三間醫學院最重要是培育具醫德的醫生。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794978_1_20250309141058.jpg&q=75)
-  
-
-政府提出支持本地大學籌建第三所醫學院，關注病人權益的團體就此措施經網上問卷，訪問了500多名市民意見。其中，在課程內容方面，超過七成受訪者認為最重要是培育具醫德、仁心仁術的醫生，另外亦較多受訪者期望第三間醫學院，能透過醫療創科培育出學生創新精神、能力和態度。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794978-20250309.htm)
 
 ---
