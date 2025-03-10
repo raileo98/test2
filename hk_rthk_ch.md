@@ -1,3 +1,26 @@
+# 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
+
+  
+
+由於美國經濟衰退風險上升引發市場嚴重擔憂，紐約股市三大股指10日低開低走。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm)
+
+---
+
 # 美烏代表團周二於沙特會談　據報烏方將提出部分停火
 
   
@@ -1409,29 +1432,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm)
-
----
-
-# 內地股市微跌　連跌兩個交易日
-
-![內地股市3大指數收市跌近0.2%或以上，連跌兩個交易日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795105_1_20250310151000.jpg&q=85)
-  
-
-滬深股市連跌兩個交易日。人工智能相關股份下跌；醫藥商業、培育鑽石及光伏概念股向上。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm)
 
 ---

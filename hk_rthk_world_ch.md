@@ -1,3 +1,26 @@
+# 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
+
+  
+
+由於美國經濟衰退風險上升引發市場嚴重擔憂，紐約股市三大股指10日低開低走。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm)
+
+---
+
 # 美烏代表團周二於沙特會談　據報烏方將提出部分停火
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794980-20250309.htm)
-
----
-
-# 全國兩會｜駐日大使吳江浩稱關稅上中日有共同語言　冀建穩定環境
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794981_1_20250309155127.jpg&q=85)
-  
-
-全國政協委員、中國駐日本大使吳江浩接受本台訪問說，日本經濟界對美國加徵關稅的做法非常緊張，難以估計美國總統特朗普的計劃。他相信，這方面中日雙方有共同語言，都是希望建立穩定的經濟環境，有利各方發展，即使中國與日本官方未談上開展合作應對關稅問題，企業之間的合作過程也會考慮到相關問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
 
 ---
