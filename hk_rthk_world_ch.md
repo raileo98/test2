@@ -1,3 +1,26 @@
+# 美中東特使料本周與鳥克蘭談判將取得實質性進展
+
+  
+
+美國中東問題特使威特科夫表示，預計本周美國與烏克蘭的談判將取得實質性進展，希望能與烏克蘭簽署礦產協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm)
+
+---
+
 # 英國附近海域有油輪與貨輪相撞　37人被救上岸
 
 ![英國附近海域有油輪與貨輪相撞　37人被救上岸](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795168_1_20250310235712.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm)
-
----
-
-# 以媒指美國向哈馬斯提議放10人換取延長加沙停火兩個月
-
-![美國據報提議哈馬斯釋放10名在生被扣除人員，換取延長加沙地帶（圖）停火兩個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794947_1_20250309070040.jpg&q=55)
-  
-
-以色列傳媒引述消息人士報道，美國近日向巴勒斯坦武裝組織哈馬斯提供一項協議，希望哈馬斯釋放10名活著的以方被扣押人員，換取延長加沙地帶停火兩個月。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794947-20250309.htm)
 
 ---

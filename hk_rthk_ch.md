@@ -1,3 +1,26 @@
+# 美中東特使料本周與鳥克蘭談判將取得實質性進展
+
+  
+
+美國中東問題特使威特科夫表示，預計本周美國與烏克蘭的談判將取得實質性進展，希望能與烏克蘭簽署礦產協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm)
+
+---
+
 # 英國附近海域有油輪與貨輪相撞　37人被救上岸
 
 ![英國附近海域有油輪與貨輪相撞　37人被救上岸](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795168_1_20250310235712.jpg&q=90)
@@ -1411,29 +1434,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm)
-
----
-
-# 韓股收市靠穩
-
-![首爾綜合指數收市報2570點，升6點，升幅0.27%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795101_1_20250310143607.jpg&q=75)
-  
-
-南韓股市靠穩，首爾綜合指數收市報2570點，升6點，升幅0.27%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm)
 
 ---
