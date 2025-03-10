@@ -1,3 +1,97 @@
+# 戶戶送將撤出香港　勞聯正接觸部分受影響前線員工
+
+  
+
+戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm)
+
+---
+
+# 聯交所將泰國證券交易所納入認可證券交易所名單
+
+![聯交所新增泰國證券交易所為證券交易所，當地主市場主要上市的公司可申請香港第二上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795126_1_20250310171004.jpg&q=90)
+  
+
+香港交易所旗下聯交所宣布，已新增泰國證券交易所（The Stock Exchange of Thailand）為認可證券交易所，在泰國證券交易所主市場主要上市的公司，可以在香港申請第二上市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm)
+
+---
+
+# 5男女涉暴動其中3人認罪　法庭待同案2人審結後再處理
+
+![暫委法官高偉雄將案件押後至6月25日判刑，待同案另2名被告結束審訊後處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795129_1_20250310171525.jpg&q=90)
+  
+
+5年前灣仔示威衝突，3男2女被裁定暴動罪名不成立，律政司早前上訴得直，上訴庭撤銷5人的無罪裁決，再次恢復審訊。其中1男2女在區域法院承認暴動罪，餘下2人否認控罪並開審，暫委法官高偉雄將案件押後至6月25日判刑，待同案另2名被告結束審訊後處理，期間認罪被告須還押候懲。辯方求情指本案存在延誤，影響被告的更生，但他們沒有自暴自棄，一直做義工服務貢獻社會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm)
+
+---
+
+# 特朗普︰與四組買家商討洽售TikTok料很快達成協議
+
+  
+
+美國總統特朗普說，他的團隊就短片分享平台TikTok出售事宜，和四組不同買家接觸，又說很快就會達成協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm)
+
+---
+
 # 逾期居留十多年花光積蓄　75歲新加坡籍男子承認打劫還押候判
 
 ![高等法院將案件押後至明日判刑，期間被告還押看管。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795125_1_20250310165943.jpg&q=90)
@@ -27,7 +121,7 @@
 ![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
   
 
-貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。
+貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。貿發局將於下周三舉行的亞洲品牌及營銷論壇，以及亞洲電子商貿論壇上，發表完整報告。
 
   
 

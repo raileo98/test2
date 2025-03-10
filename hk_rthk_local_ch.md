@@ -1,3 +1,50 @@
+# 戶戶送將撤出香港　勞聯正接觸部分受影響前線員工
+
+  
+
+戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm)
+
+---
+
+# 5男女涉暴動其中3人認罪　法庭待同案2人審結後再處理
+
+![暫委法官高偉雄將案件押後至6月25日判刑，待同案另2名被告結束審訊後處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795129_1_20250310171525.jpg&q=90)
+  
+
+5年前灣仔示威衝突，3男2女被裁定暴動罪名不成立，律政司早前上訴得直，上訴庭撤銷5人的無罪裁決，再次恢復審訊。其中1男2女在區域法院承認暴動罪，餘下2人否認控罪並開審，暫委法官高偉雄將案件押後至6月25日判刑，待同案另2名被告結束審訊後處理，期間認罪被告須還押候懲。辯方求情指本案存在延誤，影響被告的更生，但他們沒有自暴自棄，一直做義工服務貢獻社會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm)
+
+---
+
 # 逾期居留十多年花光積蓄　75歲新加坡籍男子承認打劫還押候判
 
 ![高等法院將案件押後至明日判刑，期間被告還押看管。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795125_1_20250310165943.jpg&q=90)
@@ -27,7 +74,7 @@
 ![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
   
 
-貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。
+貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。貿發局將於下周三舉行的亞洲品牌及營銷論壇，以及亞洲電子商貿論壇上，發表完整報告。
 
   
 
@@ -1385,54 +1432,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794957-20250309.htm)
-
----
-
-# 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
-  
-
-在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm)
-
----
-
-# 全國兩會｜ 發改委鄭備稱將用好超長特別國債　支持「兩新政策」
-
-![發改委鄭備稱已有力有序推動「兩新」工作，帶動重點消費品銷售明顯增長，包括汽車。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_2_20250309094932.jpg&q=60)
-![鄭備表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。（國新網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794952_1_20250309094405.jpg&q=90)
-  
-
-政府工作報告提出，安排超長期特別國債3000億元人民幣支持消費品「以舊換新」，按年增加一倍。全國人大代表、發改委副主任鄭備，書面接受本台訪問時表示，「兩新政策」既惠企又利民、既利當前又利長遠，是推進高質量發展一項重要舉措。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
 
 ---

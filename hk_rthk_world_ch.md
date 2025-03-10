@@ -1,3 +1,26 @@
+# 特朗普︰與四組買家商討洽售TikTok料很快達成協議
+
+  
+
+美國總統特朗普說，他的團隊就短片分享平台TikTok出售事宜，和四組不同買家接觸，又說很快就會達成協議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm)
+
+---
+
 # 外交部：聯合國稱台灣為「中國台灣省」的立場一貫　有案可查
 
 ![毛寧說，中方將採取一切必要措施捍衛國家主權和領土完整。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795119_1_20250310162532.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794938-20250309.htm)
-
----
-
-# 澤連斯基：烏方致力與美方在沙特建設性對話
-
-![澤連斯基說，烏克蘭從戰爭爆發的第一秒就尋求和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794935_1_20250308224541.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，烏方完全致力於下星期在沙特阿拉伯與美國代表進行建設性對話，探討如何結束與俄羅斯的戰爭。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm)
 
 ---
