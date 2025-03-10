@@ -1,3 +1,27 @@
+# 韓美展開大規模聯合軍演　北韓譴責把局勢推向極限
+
+![韓美軍演還包括覆蓋陸海空、網絡、太空等全領域的聯合野外機動訓練。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795067_1_20250310105023.jpg&q=80)
+  
+
+南韓與美國正式啟動代號「自由護盾」的年度例行聯合軍演，為期11天。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm)
+
+---
+
 # 金融科技周及StartmeupHK創業節11月舉行
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
-
----
-
-# 敘利亞過渡總統敦促前政權「殘餘勢力」放下武器
-
-![沙拉就西部地區的衝突發表電視講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794850_1_20250308090126.jpg&q=90)
-  
-
-敘利亞過渡時期總統沙拉敦促前政權「殘餘勢力」放下武器。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794850-20250308.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 韓美展開大規模聯合軍演　北韓譴責把局勢推向極限
+
+![韓美軍演還包括覆蓋陸海空、網絡、太空等全領域的聯合野外機動訓練。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795067_1_20250310105023.jpg&q=80)
+  
+
+南韓與美國正式啟動代號「自由護盾」的年度例行聯合軍演，為期11天。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm)
+
+---
+
 # 金融科技周及StartmeupHK創業節11月舉行
 
   
@@ -1414,29 +1438,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794992-20250309.htm)
-
----
-
-# 全國兩會｜倪虹︰要鞏固房地產政策組合拳效果　將減息等效應釋放
-
-![倪虹說，未來要改革完善商品房開發等制度， 促進市場平穩健康發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794991_1_20250309165358.jpg&q=90)
-  
-
-在北京，住建部部長倪虹表示，未來要鞏固房地產政策組合拳的效果，將減息、增貸等政策效應充分釋放，亦要加大房地產項目白名單貸款投放力度，按照「應貸盡貸」等要求，將符合條件的房地產項目全部納入白名單，並提供有力的融資支持，充分保障交付。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm)
 
 ---
