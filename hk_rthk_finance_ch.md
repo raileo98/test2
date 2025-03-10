@@ -1,3 +1,50 @@
+# 本港暫停英國赫里福德郡禽肉及禽類產品入口
+
+  
+
+食物安全中心表示，因應世界動物衞生組織通報，英國赫里福德郡爆發H5N1禽流感，中心即時指示業界暫停從該地區進口禽肉及禽類產品，包括禽蛋，保障本港公眾健康。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm)
+
+---
+
+# 九倉置業去年收入及營業盈利均跌3%
+
+![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_1_20250310125758.jpg&q=75)
+  
+
+九龍倉置業全年收入按年減少3%至129.12億元，營業盈利亦跌3%至96.91億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm)
+
+---
+
 # 九龍倉置業去年盈利挫81%　基礎淨盈利升2%
 
 ![九龍倉置業去年盈利8.9億元，按年大減81%，基礎淨盈利增加2%至約61.4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795089_1_20250310125139.jpg&q=90)
@@ -1387,53 +1434,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794843-20250308.htm)
-
----
-
-# 港股美國預託證券普遍較本港收市下跌
-
-![ATMXJ的ADR較本港收市下跌，其中京東跌幅逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794841_1_20250308070123.jpg&q=80)
-  
-
-港股美國預託證券(ADR)普遍較本港收市下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794841-20250308.htm)
-
----
-
-# 美元下跌　美國就業市場數據遜預期
-
-![美元指數報103.88，跌幅約0.3%。本周累計下跌逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794840_1_20250308065750.jpg&q=75)
-  
-
-美元兌多數貨幣下跌，數據顯示美國勞動力市場在2月放緩。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794840-20250308.htm)
 
 ---

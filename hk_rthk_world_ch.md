@@ -1,3 +1,26 @@
+# 本港暫停英國赫里福德郡禽肉及禽類產品入口
+
+  
+
+食物安全中心表示，因應世界動物衞生組織通報，英國赫里福德郡爆發H5N1禽流感，中心即時指示業界暫停從該地區進口禽肉及禽類產品，包括禽蛋，保障本港公眾健康。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm)
+
+---
+
 # 特朗普拒絕排除美國經濟因關稅措施陷入衰退可能
 
 ![特朗普在空軍一號專機上再次回應有關經濟衰退的問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795081_1_20250310115716.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794895-20250308.htm)
-
----
-
-# 緬甸軍方領導人稱計劃今年12月或明年1月舉行大選
-
-![敏昂萊說，軍方計劃盡快舉行一場自由和公正的選舉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794894_1_20250308152207.jpg&q=90)
-  
-
-緬甸國營傳媒引述軍方領袖敏昂萊表示，軍政府計劃在今年12月或明年1月舉行大選。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794894-20250308.htm)
 
 ---

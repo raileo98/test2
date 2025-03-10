@@ -1,3 +1,50 @@
+# 本港暫停英國赫里福德郡禽肉及禽類產品入口
+
+  
+
+食物安全中心表示，因應世界動物衞生組織通報，英國赫里福德郡爆發H5N1禽流感，中心即時指示業界暫停從該地區進口禽肉及禽類產品，包括禽蛋，保障本港公眾健康。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm)
+
+---
+
+# 九倉置業去年收入及營業盈利均跌3%
+
+![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_1_20250310125758.jpg&q=75)
+  
+
+九龍倉置業全年收入按年減少3%至129.12億元，營業盈利亦跌3%至96.91億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm)
+
+---
+
 # 九龍倉置業去年盈利挫81%　基礎淨盈利升2%
 
 ![九龍倉置業去年盈利8.9億元，按年大減81%，基礎淨盈利增加2%至約61.4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795089_1_20250310125139.jpg&q=90)
@@ -1387,54 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm)
-
----
-
-# 馮德萊恩：歐盟仍視美國為盟友　安全保障是優先事項
-
-![馮德萊恩強調，歐盟仍然視美國為盟友。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795017_1_20250309225853.jpg&q=90)
-  
-
-歐盟委員會主席馮德萊恩說，安全保障仍是歐盟目前的優先事項，經濟和創新潛力是保障歐盟安全的資產。她提出，「重新武裝歐洲」計劃將增強歐盟的防務和單一市場，歐盟將於本月推出一項新的、適用於歐盟國防工業的簡化方案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm)
-
----
-
-# 菲律賓前總統杜特爾特與女兒到港爭取支持並為所屬政黨候選人拉票
-
-![杜特爾特表示，聽聞國際刑事法院已經對他發出逮捕令的消息，強調自己沒有做錯事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795013_1_20250309214714.jpg&q=75)
-![杜特爾特在灣仔出席活動，大批菲傭到場支持。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795013_2_20250309214714.jpg&q=40)
-  
-
-菲律賓前總統杜特爾特與女兒、現任副總統莎拉，到香港出席活動，爭取在港的菲傭支持，並為所屬政黨的參議員候選人拉票。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm)
 
 ---
