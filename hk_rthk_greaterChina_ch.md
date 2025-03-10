@@ -1,3 +1,27 @@
+# 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
+
+![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=70)
+  
+
+在北京，外交部發言人毛寧說，中方對敘利亞境內發生武裝衝突造成大量人員傷亡感到擔憂，呼籲有關方面立即停止武裝衝突和敵對行動，切實保護平民安全，尊重並堅持包容性原則，通過對話找到符合敘利亞人民意願的重建國家方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm)
+
+---
+
 # 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
 
 ![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794886-20250308.htm)
-
----
-
-# 全國兩會 | 麥美娟稱致力向社會尤其青年傳達兩會精神
-
-![麥美娟說，民青團隊會承擔起一國兩制實踐的重要使命，繼續團結社會各界力量。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794885_1_20250308133047.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟說，會帶領民青團隊深入學習貫徹國家主席習近平重要講話精神以及兩會精神，全面配合行政長官施政，提升政策目標、工具、時機、力度、節奏的匹配度，特別在地區治理工作上不斷創新和完善，連同區議員和關愛隊，堅持和發展新時代「楓橋經驗」，加強矛盾糾紛排查化解，將矛盾糾紛化解在基層、化解在萌芽狀態。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm)
 
 ---

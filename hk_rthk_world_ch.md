@@ -1,3 +1,27 @@
+# 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
+
+![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=70)
+  
+
+在北京，外交部發言人毛寧說，中方對敘利亞境內發生武裝衝突造成大量人員傷亡感到擔憂，呼籲有關方面立即停止武裝衝突和敵對行動，切實保護平民安全，尊重並堅持包容性原則，通過對話找到符合敘利亞人民意願的重建國家方案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm)
+
+---
+
 # 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
 
 ![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm)
-
----
-
-# 德國聯盟黨與社民黨就組建聯合政府達初步協議　提出具體政策設想
-
-![默茨在當地星期六與社會民主黨方面進行探索式會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794940_1_20250309021249.jpg&q=85)
-  
-
-德國聯盟黨與社會民主黨，就組建聯合政府達成初步協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794940-20250309.htm)
 
 ---

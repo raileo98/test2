@@ -22,12 +22,12 @@ A deputy director of the Hong Kong and Macau Affairs Office on Monday said he do
 
 ---
 
-# Deliveroo to exit HK, sell some assets to foodpanda
+# Deliveroo to exit HK, sack 200 staff
 
 ![Deliveroo says its service platform will operate until April 7. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795116_1_20250310160730.jpg&q=85)
   
 
-Online food delivery firm Deliveroo said on Monday it is leaving Hong Kong for financial reasons, after operating in the SAR for nine years.
+Online food delivery firm Deliveroo said on Monday it is exiting Hong Kong for financial reasons, after operating in the SAR for nine years.
 
   
 
