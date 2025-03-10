@@ -1,3 +1,27 @@
+# 沙特王儲會見澤連斯基　強調支持為解決危機和實現和平的努力
+
+![穆罕默德為澤連斯基舉行歡迎儀式。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795185_1_20250311065703.jpg&q=90)
+  
+
+沙特王儲兼首相穆罕默德在吉達會見到訪的烏克蘭總統澤連斯基，強調沙特支持一切為解決危機、致力於實現和平的努力。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795185-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795185-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795185-20250311.htm)
+
+---
+
 # 道指曾挫逾千點　3大指數低收2%至4%　Tesla跌15%
 
 ![憂慮美國經濟陷入衰退，美股3大指數急瀉2%至4%，標普500指數及納指創半年收市新低。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795176_1_20250311053617.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm)
-
----
-
-# 加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布
-
-![加拿大執政自由黨新黨魁選舉共有4名候選人競逐。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794997_1_20250309171207.jpg&q=90)
-  
-
-加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布，勝出者將會與現任總理杜魯多交接，並成為加拿大新總理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm)
 
 ---
