@@ -1,3 +1,27 @@
+# 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
+
+![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
+
+---
+
 # 全國兩會｜文化和旅遊部料有更多文化產業或產品引入香港
 
 ![李群希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795097_1_20250310141516.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794860-20250308.htm)
-
----
-
-# 全國兩會 | 趙樂際 ：今年將制定民營經濟促進法等法律
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794859_1_20250308104828.jpg&q=45)
-  
-
-在北京，全國人大會議第二次全體會議正在舉行。全國人大常委會委員長趙樂際表示，今年要高質量推進立法工作，落實深化立法領域改革要求，預安排審議34件法律案，包括制定民營經濟促進法、民族團結進步促進法、對外貿易法、國家賠償法等；亦要啟動法律清理工作、圍繞大局做好監督工作等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794859-20250308.htm)
 
 ---

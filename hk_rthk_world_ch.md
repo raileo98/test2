@@ -1,3 +1,27 @@
+# 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
+
+![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
+
+---
+
 # 泰航本月15日起禁止在航班使用充電寶或備用電池
 
 ![泰航本月15日起禁止在航班使用充電寶或備用電池。（泰航官方微博截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795109_1_20250310153442.jpg&q=90)
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm)
-
----
-
-# 南韓總統尹錫悅離開首爾拘留所　將在非拘留狀態繼續接受審訊
-
-![尹錫悅在首爾拘留所外向支持者揮手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794916_1_20250308172251.jpg&q=75)
-![尹錫悅在首爾拘留所外向支持者鞠躬致意。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794916_2_20250308172251.jpg&q=90)
-  
-
-南韓檢察機關決定，不就法院批准取消拘留總統尹錫悅提出上訴，尹錫悅其後離開首爾拘留所。他在今年1月15日被捕至今日上午，已滿52天。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794916-20250308.htm)
 
 ---

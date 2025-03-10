@@ -1,3 +1,27 @@
+# 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
+
+![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
+  
+
+加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
+
+---
+
 # 泰航本月15日起禁止在航班使用充電寶或備用電池
 
 ![泰航本月15日起禁止在航班使用充電寶或備用電池。（泰航官方微博截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795109_1_20250310153442.jpg&q=90)
