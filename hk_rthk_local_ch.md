@@ -1,3 +1,50 @@
+# 配合系統升級及維護工程　衞生署個別網上服務明晚起分別暫停
+
+  
+
+衞生署宣布，因進行系統升級及維謢工程，新冠疫苗接種系統、家庭健康服務季節性流感疫苗接種預約系統、以及「中央器官捐贈登記名冊」網頁要短暫停止服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795085-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795085-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795085-20250310.htm)
+
+---
+
+# 港股半日跌511點　晶片及軟件股沽壓大
+
+![恒生指數失守24000點關口，中午報23720點，跌511點，跌幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795082_1_20250310120903.jpg&q=80)
+  
+
+港股連續兩日向下，恒生指數失守24000點關口，中午收市報23720點，跌511點，跌幅2.1%，半日主板成交額約1779億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795082-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795082-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795082-20250310.htm)
+
+---
+
 # 陳茂波稱香港要在人工智能引領浪潮中把握機遇
 
   
@@ -1389,53 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794885-20250308.htm)
-
----
-
-# 全國兩會 | 羅淑佩稱通過多元化交流活動提升香港文化影響力
-
-![羅淑佩說，作為局長，深感使命重大，責任在肩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794884_1_20250308132910.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩在社交網站發帖文，指國務院總理李強在政府工作報告中，為香港在文化，體育及旅遊領域提供了重要指引，她說，作為局長，深感使命重大，責任在肩。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794884-20250308.htm)
-
----
-
-# 全國兩會 | 醫衞局稱利用一國兩制優勢建設國際醫療創新樞紐
-
-![醫務衞生局說，《施政報告》提出深化醫療體系改革亦必須「三醫聯動」，才能持續提升醫療質量及效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794883_1_20250308132556.jpg&q=85)
-  
-
-醫務衞生局在社交平台提到，中央政府依二十屆三中全會的《決定》作出部署，深化醫藥衞生體制改革，實施健康優先發展戰略，促進醫療、醫藥、醫保「三醫聯動」，協同發展和治理，對香港帶來重要啟示。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794883-20250308.htm)
 
 ---

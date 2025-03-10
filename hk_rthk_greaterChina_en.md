@@ -1,6 +1,6 @@
 # 'HK plays an important role in China's development'
 
-![CPPCC Standing Committee member Irons Sze says Hong Kong plays a vital role in the country's development.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795077_1_20250310114948.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795077_1_20250310114948.jpg&q=90)
   
 
 Businessman Irons Sze on Monday said Hong Kong's position as an international financial centre is attributed to China's reform and opening up and reinforced by the "One Country, Two Systems" principle.

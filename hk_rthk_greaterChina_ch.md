@@ -1,3 +1,49 @@
+# 全國兩會 | 全國政協會議閉幕　王滬寧：彰顯人民政協政治優勢
+
+  
+
+在北京，全國政協會議早上閉幕，全國政協主席王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm)
+
+---
+
+# 全國兩會 | 研究員相信中國半導體產業未來幾年將有不錯發展
+
+  
+
+中國人工智能大模型DeepSeek的出現，令國家科研創新能力成為熱話。不過，有網絡安全企業關注網絡攻擊風險。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm)
+
+---
+
 # 陳茂波稱香港要在人工智能引領浪潮中把握機遇
 
   
@@ -119,7 +165,7 @@
 
 # 全國兩會｜王滬寧宣布全國政協會議圓滿完成各項議程並閉幕
 
-![王滬寧宣布全國政協會議圓滿完成所有議程。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
   
 
 為期六日的全國政協十四屆三次會議今早在北京人民大會堂閉幕，中共中央總書記、國家主席習近平等黨和國家領導人出席。
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
-
----
-
-# 中國對加拿大菜子油、油渣餅及豌豆加徵100%關稅
-
-![國務院關稅稅則委員會發公布，向加拿大部分農產品及食品加徵關稅。（相關公告網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794854_1_20250308095726.jpg&q=90)
-  
-
-國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
-
----
-
-# 全國兩會 | 中國天主教主教團副主席：全國教友為教宗祈禱
-
-![房興耀透露，多次努力向中央領導提出中梵建交的意見和建議。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794853_1_20250308095612.jpg&q=90)
-  
-
-教宗方濟各因肺炎住院。在北京，全國政協常委、中國天主教主教團副主席房興耀表示，期盼教宗早日健康，全國教友都為他祈禱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794853-20250308.htm)
 
 ---
