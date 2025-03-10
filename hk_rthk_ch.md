@@ -1,3 +1,51 @@
+# 中信銀行：呂天貴因工作調整辭去副行長職務
+
+![中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795151_1_20250310202728.jpg&q=85)
+  
+
+中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm)
+
+---
+
+# 中國恒大：有關清盤法院裁決結果將適時另行公布
+
+![中國恒大公布有關清盤的進一步消息，指押後聆訊已於2月27日舉行，有關法院的裁決結果將於適當時候另行公布。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795153_1_20250310203537.jpg&q=90)
+  
+
+中國恒大公布有關清盤的進一步消息，指押後聆訊已於2月27日舉行，有關法院的裁決結果將於適當時候另行公布。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm)
+
+---
+
 # 瑪麗醫院重申周天瑜事件不涉及醫療事故
 
 ![醫院重申，事件不屬於「醫療風險警示事件」或「重要風險事件」，亦不涉及醫療事故。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795150_1_20250310195249.jpg&q=85)

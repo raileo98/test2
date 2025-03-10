@@ -1,3 +1,27 @@
+# Israeli team due in Qatar for Gaza truce talks
+
+![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=75)
+  
+
+Israel is due to send a delegation to Qatar on Monday for a fresh round of talks on extending a fragile ceasefire in Gaza, after cutting off the electricity supply to the besieged enclave.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm)
+
+---
+
 # Russia expels two British 'diplomats' on spy charges
 
 ![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=60)
@@ -1416,29 +1440,5 @@ Israel on Sunday blocked aid flowing into Gaza, where a six-week truce enabled t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793937-20250303.htm)
-
----
-
-# Kyiv's allies embrace Zelensky at crisis talks
-
-![Leaders gather at Lancaster House in London to discuss European security and Ukraine. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793931_1_20250303083142.jpg&q=70)
-  
-
-European leaders closed ranks on Sunday in support of Kyiv at a London summit, where they pledged to spend more on security and assemble a coalition to defend any truce in Ukraine.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793931-20250303.htm)
 
 ---

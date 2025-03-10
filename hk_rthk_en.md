@@ -1,3 +1,27 @@
+# Israeli team due in Qatar for Gaza truce talks
+
+![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=75)
+  
+
+Israel is due to send a delegation to Qatar on Monday for a fresh round of talks on extending a fragile ceasefire in Gaza, after cutting off the electricity supply to the besieged enclave.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm)
+
+---
+
 # Russia expels two British 'diplomats' on spy charges
 
 ![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=60)
@@ -1413,29 +1437,5 @@ The Commerce Ministry on Saturday announced that it will impose additional tarif
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm)
-
----
-
-# 'HK can't stop residential and industrial land sale'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=85)
-  
-
-The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not in a position to stop selling residential and industrial land.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm)
 
 ---

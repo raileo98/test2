@@ -1,3 +1,51 @@
+# 中信銀行：呂天貴因工作調整辭去副行長職務
+
+![中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795151_1_20250310202728.jpg&q=85)
+  
+
+中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm)
+
+---
+
+# 中國恒大：有關清盤法院裁決結果將適時另行公布
+
+![中國恒大公布有關清盤的進一步消息，指押後聆訊已於2月27日舉行，有關法院的裁決結果將於適當時候另行公布。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795153_1_20250310203537.jpg&q=90)
+  
+
+中國恒大公布有關清盤的進一步消息，指押後聆訊已於2月27日舉行，有關法院的裁決結果將於適當時候另行公布。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm)
+
+---
+
 # 麥萃才相信外賣平台面對挑戰包括假日不留港消費市民增加
 
 ![戶戶送Deliveroo宣布撤出香港市場。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795148_1_20250310192201.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm)
-
----
-
-# 日股初段變動不大
-
-![日經指數較早時報36870點，跌16點，跌幅0.04%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795040_1_20250310080855.jpg&q=75)
-  
-
-日股初段變動不大，日經指數較早時報36870點，跌16點，跌幅0.04%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm)
-
----
-
-# 全國兩會｜邱達昌：盛事經濟成效需時　啟德體育園可帶動旅遊業
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795039_2_20250310141539.jpg&q=80)
-  
-
-全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，香港發展「盛事經濟」路線正確，但成效需時。他說，公司旗下在港酒店經營改善很多，入住率高，但房價較疫情前水平增幅不多，反而歐洲及澳洲酒店表現較好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm)
 
 ---
