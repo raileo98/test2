@@ -1,3 +1,27 @@
+# 英超紐卡素挫韋斯咸　西甲愛斯賓奴與基羅納和氣收場
+
+![般奴古馬雷斯近門撞射入網。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795187_1_20250311072445.jpg&q=75)
+  
+
+英超紐卡素作客一球小勝韋斯咸。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm)
+
+---
+
 # 西甲皇馬2:1挫華歷簡奴　馬體會1:2不敵基達菲
 
 ![麥巴比為皇馬攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_1_20250310071437.jpg&q=85)
@@ -1425,29 +1449,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793806-20250301.htm)
-
----
-
-# 觀眾接受安檢進入啟德體育園主場館　有人攜帶水樽被收走
-
-![市民陸續經安檢後入場。（伍思平攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793802_1_20250301174455.jpg&q=75)
-  
-
-啟德體育園傍晚6時半舉行開幕禮，觀眾陸續入場，近5時人流越來越多，場地設有不少安檢櫃台。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793802-20250301.htm)
 
 ---
