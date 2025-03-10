@@ -1,3 +1,26 @@
+# 藍田興田邨美田樓有單位疑漏煤氣及爆炸　男住戶被捕准保釋候查
+
+  
+
+藍田興田邨美田樓一個單位上星期懷疑洩漏煤氣及發生爆炸，觀塘警區重案組人員經調查後，相信其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。他已獲准保候查，須於4月上旬向警方報到。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm)
+
+---
+
 # 中旅料去年盈利按年跌最少40%
 
 ![香港中旅預計去年度少賺最少40%，主要由於投資性物業公允價值下跌。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795137_1_20250310173054.jpg&q=85)

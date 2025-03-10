@@ -1,3 +1,26 @@
+# 藍田興田邨美田樓有單位疑漏煤氣及爆炸　男住戶被捕准保釋候查
+
+  
+
+藍田興田邨美田樓一個單位上星期懷疑洩漏煤氣及發生爆炸，觀塘警區重案組人員經調查後，相信其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。他已獲准保候查，須於4月上旬向警方報到。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm)
+
+---
+
 # 丘應樺鼓勵在廣東省港商積極在內地創新創業
 
 ![丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795136_1_20250310173906.jpg&q=90)
@@ -1412,29 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm)
-
----
-
-# 陳翊庭︰港股今年平均每日成交額暫破2千億　「遺址論」不攻自破
-
-![陳翊庭說，「遺址論」已不攻自破，不管新股市場、交易量均可見完全推翻有關說法。（本台節目《舊日的足跡》）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794960_1_20250309102619.jpg&q=80)
-  
-
-港交所行政總裁陳翊庭表示，去年本港共有71間公司新上市，融資額達880億元，較2023年增加約9成。而由年初至3月，已有11宗新股上市，同時有百多間公司排隊上市。她又說，港股成交額在過去一年亦有很大進步，由23年平均每日成交金額大約1000億元，升至去年的1320億元，而在今年暫時已突破2000億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794960-20250309.htm)
 
 ---
