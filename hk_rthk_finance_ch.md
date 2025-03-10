@@ -1,3 +1,27 @@
+# 全國兩會｜邱達昌︰本港樓市應已見底　樓價將平穩發展
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795141_1_20250310182453.jpg&q=75)
+  
+
+全國政協常委邱達昌說，本港樓市應該已見底，預計樓價將平穩發展。他又指，高息環境，加上有存貨，發展商寧願蝕本賣樓套現，並買入更平的土地。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm)
+
+---
+
 # 萊爾斯丹料去年度虧損最多擴大至1.15億元人民幣
 
 ![萊爾斯丹預計，去年度虧損將擴大至介乎9300萬至1.15億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795138_1_20250310174150.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm)
-
----
-
-# 中原周末10大屋苑交投升至7宗　美聯維持8宗
-
-![在剛過去的周末，中原10大屋苑二手成交升至7宗，美聯維持8宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795036_1_20250310072302.jpg&q=75)
-  
-
-在剛過去的周末，中原地產10大屋苑二手成交有7宗，按星期回升1宗。零成交屋苑減少1個，減至6個。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795036-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795036-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795036-20250310.htm)
 
 ---

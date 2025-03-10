@@ -1,3 +1,27 @@
+# InnoHK獲2億元捐款　陳茂波︰建立大模型「港話通」服務
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795130_1_20250310182434.jpg&q=90)
+  
+
+InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心，獲捐贈2億元。財政司司長陳茂波說，今次捐贈，將支持中心建立服務平台，為市民提供港產大模型「港話通」服務。這是業界基於首個將DeepSeek系統本地化模型所提供的服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm)
+
+---
+
 # 建造業議會稱政府資助2500個在職培訓名額足以照顧市場需要
 
 ![何安誠（左）表示，去年全港已有六成地盤取得「安全智慧工地系統標籤」。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795142_1_20250310181404.jpg&q=80)
@@ -792,7 +816,7 @@
 
 # 歐家榮稱近月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
 
-![歐家榮說，諾如病毒傳染性非常高，即使一個人接觸很少量的病毒，都有機會受到感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795064_1_20250310110103.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795064_1_20250310110103.jpg&q=80)
   
 
 日本由上月起錄得多宗因進食受污染食物而感染諾如病毒個案，衞生防護中心傳染病處主任歐家榮說，本港近3個月院舍或學校呈報的急性腸胃炎爆發，絕大部分是由諾如病毒引起，由去年12月至今年2月錄得有87宗院舍爆發，每宗爆發個案受影響人士介乎3至39人，有些個案比較大型，這87院舍爆發合共影響近千人，有六成個案來自安老院舍，其次來自殘疾人士院舍、小學、幼稚園和幼兒中心等。
@@ -1412,29 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
-
----
-
-# 陳美寶︰與的士業界幾乎共識一致　盡快強制安裝獨立監測系統
-
-![陳美寶說，的士安裝獨立監測系統能為乘客及司機提供更好保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794965_1_20250309111757.jpg&q=80)
-  
-
-政府建議立法規定所有的士必須安裝車廂攝錄機、行車紀錄儀及全球衞星導航系統，運輸及物流局局長陳美寶表示，最近與業界溝通，已幾乎達到一致共識要盡快推行，強制在全港18000輛的士裝設獨立監測系統。她說安裝系統是希望為乘客及司機提供更好保障，以免發生爭拗時「口同鼻拗」，她好有信心，當法例完成修訂，的士裝設好系統後，涉及的士的投訴可以大降。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm)
 
 ---

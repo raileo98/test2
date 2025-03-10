@@ -1,3 +1,51 @@
+# 全國兩會｜邱達昌︰本港樓市應已見底　樓價將平穩發展
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795141_1_20250310182453.jpg&q=75)
+  
+
+全國政協常委邱達昌說，本港樓市應該已見底，預計樓價將平穩發展。他又指，高息環境，加上有存貨，發展商寧願蝕本賣樓套現，並買入更平的土地。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm)
+
+---
+
+# InnoHK獲2億元捐款　陳茂波︰建立大模型「港話通」服務
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795130_1_20250310182434.jpg&q=90)
+  
+
+InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心，獲捐贈2億元。財政司司長陳茂波說，今次捐贈，將支持中心建立服務平台，為市民提供港產大模型「港話通」服務。這是業界基於首個將DeepSeek系統本地化模型所提供的服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm)
+
+---
+
 # 萊爾斯丹料去年度虧損最多擴大至1.15億元人民幣
 
 ![萊爾斯丹預計，去年度虧損將擴大至介乎9300萬至1.15億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795138_1_20250310174150.jpg&q=85)
@@ -1199,7 +1247,7 @@
 
 # 全國兩會 | 全國政協會議閉幕　王滬寧：彰顯人民政協政治優勢
 
-![王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795084_2_20250310123241.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795084_2_20250310123241.jpg&q=80)
   
 
 在北京，全國政協會議早上閉幕，全國政協主席王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。
@@ -1583,7 +1631,7 @@
 
 # 歐家榮稱近月院舍或學校急性腸胃炎絕大部分由諾如病毒引致
 
-![歐家榮說，諾如病毒傳染性非常高，即使一個人接觸很少量的病毒，都有機會受到感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795064_1_20250310110103.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795064_1_20250310110103.jpg&q=80)
   
 
 日本由上月起錄得多宗因進食受污染食物而感染諾如病毒個案，衞生防護中心傳染病處主任歐家榮說，本港近3個月院舍或學校呈報的急性腸胃炎爆發，絕大部分是由諾如病毒引起，由去年12月至今年2月錄得有87宗院舍爆發，每宗爆發個案受影響人士介乎3至39人，有些個案比較大型，這87院舍爆發合共影響近千人，有六成個案來自安老院舍，其次來自殘疾人士院舍、小學、幼稚園和幼兒中心等。

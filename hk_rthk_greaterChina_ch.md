@@ -288,7 +288,7 @@
 
 # 全國兩會 | 全國政協會議閉幕　王滬寧：彰顯人民政協政治優勢
 
-![王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795084_2_20250310123241.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795084_2_20250310123241.jpg&q=80)
   
 
 在北京，全國政協會議早上閉幕，全國政協主席王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。
