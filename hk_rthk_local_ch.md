@@ -1,3 +1,49 @@
+# 過去兩星期警方接獲490宗網購騙案涉款逾1300萬元
+
+  
+
+警方在過去兩星期接獲490宗網購騙案，涉款超過1300萬元。其中一名37歲本地女子在網上拍賣平台購買名牌手袋，付款後貨不到手，騙徒亦失去聯絡，共損失超過7萬元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm)
+
+---
+
+# 孫東稱人工智能為香港關鍵產業　政府會繼續支持及投入
+
+  
+
+黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。創新科技及工業局局長孫東說，捐贈主要用於研發中心，盡快建立服務平台，為市民推出港產大模型講話通服務手機版。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm)
+
+---
+
 # 全國兩會｜仇鴻指赤字是香港前進過程挑戰　齊心協力情況越來越好
 
 ![仇鴻說，香港的管治權應該牢牢掌握在愛國愛港人士的手裡。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795086_1_20250310124530.jpg&q=90)
@@ -1390,53 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794893-20250308.htm)
-
----
-
-# 屯門男子踏單車被的士撞倒搶救不治　73歲的士司機被捕
-
-![73歲的士司機涉嫌危險駕駛引致他人死亡被捕，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794888_1_20250308140304.jpg&q=85)
-  
-
-屯門早上發生致命交通意外，一名騎單車的68歲男子死亡。73歲的士司機涉嫌危險駕駛引致他人死亡被捕，現正被扣留調查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794888-20250308.htm)
-
----
-
-# 財政預算案2025 | 孫玉菡：削資導致數千人手流失說法誤導
-
-![孫玉菡說，大多數社福機構都很珍惜員工，預期多數的機構都會想辦法留低員工。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794887_1_20250308140200.jpg&q=90)
-  
-
-預算案提出節省政府經常開支，2027至28年度的累計減幅為7%。勞工及福利局局長孫玉菡在一個電視節目表示，日前與170多間社福機構代表見面，交代要在資源效率優化計劃下削減開支，他認為會面氣氛友善，大家都基本明白政府的狀況，想辦法應對。他說，在僅有資源下，當局會盡量協助中小型的社福機構，但他們仍要承擔3%的削減。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794887-20250308.htm)
 
 ---

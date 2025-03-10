@@ -1,3 +1,26 @@
+# 孫東稱人工智能為香港關鍵產業　政府會繼續支持及投入
+
+  
+
+黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。創新科技及工業局局長孫東說，捐贈主要用於研發中心，盡快建立服務平台，為市民推出港產大模型講話通服務手機版。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm)
+
+---
+
 # 全國兩會｜仇鴻指赤字是香港前進過程挑戰　齊心協力情況越來越好
 
 ![仇鴻說，香港的管治權應該牢牢掌握在愛國愛港人士的手裡。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795086_1_20250310124530.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm)
-
----
-
-# 哈馬斯證實與美國人質事務特使舉行數次會談
-
-![哈馬斯證實近期與美國總統人質事務特使伯勒爾（圖）舉行了數次會談。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795012_1_20250309212454.jpg&q=90)
-  
-
-巴勒斯坦武裝組織哈馬斯高級成員塔希爾努努證實，哈馬斯多位領導人近期與美國總統人質事務特使伯勒爾在多哈舉行了數次會談，重點討論釋放其中一名有雙重國籍的被扣押人員。他說，哈馬斯採取了積極、靈活的處理方式，符合巴勒斯坦人的利益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm)
 
 ---
