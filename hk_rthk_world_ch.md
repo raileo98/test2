@@ -1,3 +1,26 @@
+# 澤連斯基抵達沙特阿拉伯　將與沙特王儲會面
+
+  
+
+烏克蘭總統澤連斯基抵達沙特阿拉伯，將會與沙特王儲穆罕默德會面。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm)
+
+---
+
 # 美中東特使料本周與鳥克蘭談判將取得實質性進展
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794954-20250309.htm)
-
----
-
-# 男子手持巴勒斯坦旗幟爬上倫敦大笨鐘鐘樓　十多小時後下來
-
-![男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，事件擾攘十多小時。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794953_1_20250309085956.jpg&q=75)
-  
-
-英國倫敦一名男子手持巴勒斯坦旗幟，爬上倫敦大笨鐘鐘樓，經過16個小時後下來。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794953-20250309.htm)
 
 ---
