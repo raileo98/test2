@@ -1,3 +1,99 @@
+# 韓股早段跌逾0.2%
+
+![首爾綜合指數較早時報2557點，跌5點，跌幅0.22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795041_1_20250310080944.jpg&q=80)
+  
+
+南韓股市早段偏軟，首爾綜合指數較早時報2557點，跌5點，跌幅0.22%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm)
+
+---
+
+# 日股初段變動不大
+
+![日經指數較早時報36870點，跌16點，跌幅0.04%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795040_1_20250310080855.jpg&q=75)
+  
+
+日股初段變動不大，日經指數較早時報36870點，跌16點，跌幅0.04%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm)
+
+---
+
+# 全國兩會｜邱達昌：盛事經濟成效需時　啟德體育園可帶動旅遊業
+
+![邱達昌表示，啟德體育園開幕令該區酒店受惠，亦有利帶動本港旅遊業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795039_1_20250310080730.jpg&q=65)
+  
+
+全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，香港發展「盛事經濟」路線正確，但成效需時。他說，公司旗下在港酒店經營改善很多，入住率高，但房價較疫情前水平增幅不多，反而歐洲及澳洲酒店表現較好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm)
+
+---
+
+# 全國兩會｜邱達昌料樓市應已見底　發展商多存貨冀套現買平地
+
+![邱達昌表示，考慮到高息環境及存貨，發展商寧願蝕本賣部分樓盤套現，並買入更便宜的土地。（容上智攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795038_1_20250310080433.jpg&q=80)
+  
+
+全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，相信樓市應該已見底，預計樓價將平穩發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm)
+
+---
+
 # 中原周末10大屋苑交投升至7宗　美聯維持8宗
 
 ![在剛過去的周末，中原10大屋苑二手成交升至7宗，美聯維持8宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795036_1_20250310072302.jpg&q=75)
@@ -1340,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794736-20250307.htm)
-
----
-
-# 韓股低收約0.5%
-
-![首爾綜合指數收報2563點，跌12點，跌幅0.49%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794734_1_20250307144613.jpg&q=85)
-  
-
-南韓股市偏軟，首爾綜合指數收報2563點，跌12點，跌幅0.49%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794734-20250307.htm)
-
----
-
-# 日股低收約2.2%　失守37000點
-
-![日股失守37000點水平，日經指數收報36887點，跌幅2.17%，創近半年新低。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794733_1_20250307144215.jpg&q=90)
-  
-
-日股失守37000點水平，創近半年新低。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794733-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794733-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794733-20250307.htm)
-
----
-
-# 台股低收逾0.6%　本周累計跌逾2%
-
-![台灣加權指數收市報22576點，跌139點，跌幅0.61%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794729_1_20250307142044.jpg&q=90)
-  
-
-台灣股市下跌，加權指數收市報22576點，跌139點，跌幅0.61%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794729-20250307.htm)
-
----
-
-# 特朗普：可能延長TikTok賣盤截止期限
-
-![特朗普說，對TikTok有很大興趣。如果需要，他可能會延長TikTok賣盤的截止期限。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794730_1_20250307142757.jpg&q=90)
-  
-
-美國總統特朗普表示，如果限期屆滿時仍未達成交易，他可能延長短片分享平台TikTok賣盤的截止期限。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794730-20250307.htm)
 
 ---

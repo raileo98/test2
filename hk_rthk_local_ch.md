@@ -1,3 +1,51 @@
+# 全國兩會｜邱達昌：盛事經濟成效需時　啟德體育園可帶動旅遊業
+
+![邱達昌表示，啟德體育園開幕令該區酒店受惠，亦有利帶動本港旅遊業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795039_1_20250310080730.jpg&q=65)
+  
+
+全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，香港發展「盛事經濟」路線正確，但成效需時。他說，公司旗下在港酒店經營改善很多，入住率高，但房價較疫情前水平增幅不多，反而歐洲及澳洲酒店表現較好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm)
+
+---
+
+# 全國兩會｜邱達昌料樓市應已見底　發展商多存貨冀套現買平地
+
+![邱達昌表示，考慮到高息環境及存貨，發展商寧願蝕本賣部分樓盤套現，並買入更便宜的土地。（容上智攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795038_1_20250310080433.jpg&q=80)
+  
+
+全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，相信樓市應該已見底，預計樓價將平穩發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm)
+
+---
+
 # 主辦方稱按既定程序申請在球員比賽範圍及貴賓席放膠樽裝飲料
 
 ![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795018_1_20250309234709.jpg&q=90)
@@ -1388,54 +1436,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794862-20250308.htm)
-
----
-
-# 全國兩會 | 公安部副部長：中泰聯手在緬甸妙瓦底行動成功
-
-![許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_3_20250308114839.jpg&q=90)
-![羅照輝說，電訊詐騙令人神共憤，中國政府有很多工作堅決打擊。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794856_2_20250308114839.jpg&q=90)
-  
-
-再有6名被誘騙到緬甸的香港人獲救。在北京，全國人大代表、公安部副部長許甘露表示，中國和泰國聯手在緬甸妙瓦底行動取得很大成功，通過開展國際合作狠狠打擊，希望更多被詐騙到當地的受困人士趕快回到家人身邊，中國公安機關會與外國警方密切合作，盡快解救更多受害人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
-
----
-
-# 支聯會拒交資料案　張國鈞：因應判決審視國安法執行機制
-
-![張國鈞形容，有關國家安全的法例是「沒有完成式，只有進行式」。（任順熙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794855_1_20250308111924.jpg&q=85)
-  
-
-已解散的支聯會前副主席鄒幸彤及兩名前常委，沒有應警方國安處要求提交資料，早前被裁定沒有遵從通知規定提供資料罪成，三人獲終審法院裁定上訴得直。律政司副司長張國鈞表示，政府正審視案件判決，會因應判決審視執行機制。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794855-20250308.htm)
 
 ---

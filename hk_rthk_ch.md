@@ -1,3 +1,99 @@
+# 韓股早段跌逾0.2%
+
+![首爾綜合指數較早時報2557點，跌5點，跌幅0.22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795041_1_20250310080944.jpg&q=80)
+  
+
+南韓股市早段偏軟，首爾綜合指數較早時報2557點，跌5點，跌幅0.22%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795041-20250310.htm)
+
+---
+
+# 日股初段變動不大
+
+![日經指數較早時報36870點，跌16點，跌幅0.04%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795040_1_20250310080855.jpg&q=75)
+  
+
+日股初段變動不大，日經指數較早時報36870點，跌16點，跌幅0.04%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795040-20250310.htm)
+
+---
+
+# 全國兩會｜邱達昌：盛事經濟成效需時　啟德體育園可帶動旅遊業
+
+![邱達昌表示，啟德體育園開幕令該區酒店受惠，亦有利帶動本港旅遊業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795039_1_20250310080730.jpg&q=65)
+  
+
+全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，香港發展「盛事經濟」路線正確，但成效需時。他說，公司旗下在港酒店經營改善很多，入住率高，但房價較疫情前水平增幅不多，反而歐洲及澳洲酒店表現較好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm)
+
+---
+
+# 全國兩會｜邱達昌料樓市應已見底　發展商多存貨冀套現買平地
+
+![邱達昌表示，考慮到高息環境及存貨，發展商寧願蝕本賣部分樓盤套現，並買入更便宜的土地。（容上智攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795038_1_20250310080433.jpg&q=80)
+  
+
+全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，相信樓市應該已見底，預計樓價將平穩發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm)
+
+---
+
 # 加拿大候任總理卡尼：不能讓特朗普控制加拿大企圖得逞
 
 ![卡尼獲選為自由黨新黨魁後發表勝利演說。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795037_1_20250310075208.jpg&q=90)
@@ -1341,101 +1437,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794971-20250309.htm)
-
----
-
-# 全國兩會｜台聯陳雲英批台灣當局禁學生與三大陸學府交流或招不滿
-
-![在北京，台灣人大代表團舉行全體會議。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794970_1_20250309120720.jpg&q=75)
-  
-
-在北京，台灣人大代表團舉行全體會議，並接受傳媒提問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm)
-
----
-
-# 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
-
-![陳茂波說，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794967_1_20250309115602.jpg&q=90)
-  
-
-北京正舉行全國兩會，財政司司長陳茂波表示，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作，包括加速推動科技創新及應用創新，以增強經濟動力和提升發展質量；透過「打造體驗、確立主題」；並加強深化國際交往合作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
-
----
-
-# 陳美寶︰與的士業界幾乎共識一致　盡快強制安裝獨立監測系統
-
-![陳美寶說，的士安裝獨立監測系統能為乘客及司機提供更好保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794965_1_20250309111757.jpg&q=80)
-  
-
-政府建議立法規定所有的士必須安裝車廂攝錄機、行車紀錄儀及全球衞星導航系統，運輸及物流局局長陳美寶表示，最近與業界溝通，已幾乎達到一致共識要盡快推行，強制在全港18000輛的士裝設獨立監測系統。她說安裝系統是希望為乘客及司機提供更好保障，以免發生爭拗時「口同鼻拗」，她好有信心，當法例完成修訂，的士裝設好系統後，涉及的士的投訴可以大降。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794965-20250309.htm)
-
----
-
-# 全國兩會｜銀娛主席呂耀東冀澳門立法會換屆選出議員帶來新思維
-
-![呂耀東冀澳門立法會換屆選出議員，為促進經濟多元化帶來新思維。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794964_1_20250309110700.jpg&q=80)
-  
-
-澳門第八屆立法會選舉將於今年9月14日舉行，全國政協委員、銀河娛樂主席呂耀東期望，新一屆議員能在促進經濟多元化方面帶來新思維，在現有平台找到新的發展項目，特別是橫琴的發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm)
 
 ---
