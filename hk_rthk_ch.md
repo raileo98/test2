@@ -1,3 +1,26 @@
+# 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
+
+  
+
+醫務衞生局局長盧寵茂今日與正在訪問香港的世界衞生組織西太平洋區域主任Saia Ma’u Piukala醫生會面，就公共衞生相關議題作交流。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm)
+
+---
+
 # 廣華醫院有護士懷疑被非禮　一名男病人被捕
 
   

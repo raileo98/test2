@@ -1,3 +1,26 @@
+# 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
+
+  
+
+醫務衞生局局長盧寵茂今日與正在訪問香港的世界衞生組織西太平洋區域主任Saia Ma’u Piukala醫生會面，就公共衞生相關議題作交流。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm)
+
+---
+
 # 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
 
 ![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=70)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794942-20250309.htm)
-
----
-
-# 南非東部上月極端天氣最少22死　國家災難狀態助實施跨部門援助
-
-![誇祖盧納塔爾省在二月下半月持續落雨，出現洪水等自然災害。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794941_1_20250309022803.jpg&q=75)
-  
-
-南非東部誇祖盧納塔爾省近期遭遇極端天氣，省政府說最少22人死亡，南非災難管理中心已宣布該省進入國家災難狀態。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794941-20250309.htm)
 
 ---

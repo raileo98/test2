@@ -1,3 +1,26 @@
+# 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
+
+  
+
+醫務衞生局局長盧寵茂今日與正在訪問香港的世界衞生組織西太平洋區域主任Saia Ma’u Piukala醫生會面，就公共衞生相關議題作交流。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm)
+
+---
+
 # 廣華醫院有護士懷疑被非禮　一名男病人被捕
 
   
@@ -1411,29 +1434,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794986-20250309.htm)
-
----
-
-# 麥美娟︰本屆政府上任後青年宿舍宿位增至3千個
-
-![麥美娟說，擴大青年宿舍計劃至今已批出5個有關項目。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794985_1_20250309162502.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，今屆政府上任後，青年宿舍宿位由80個，增加至3千個。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794985-20250309.htm)
 
 ---
