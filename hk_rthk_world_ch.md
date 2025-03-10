@@ -1,3 +1,50 @@
+# 外交部：聯合國稱台灣為「中國台灣省」的立場一貫　有案可查
+
+![毛寧說，中方將採取一切必要措施捍衛國家主權和領土完整。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795119_1_20250310162532.jpg&q=90)
+  
+
+在北京，外長王毅日前表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm)
+
+---
+
+# 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
+
+  
+
+國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
+
+---
+
 # 外交部：美方徵收港口費等措施損人害己　促立即停止錯誤做法
 
 ![毛寧說，徵收港口費等措施損人害己，推高全球的海運成本，擾亂全球產供鏈穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795120_1_20250310163621.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794935-20250308.htm)
-
----
-
-# 阿根廷布蘭卡港暴雨成災至少10人死亡
-
-![布蘭卡港暴雨成災，部分地區變成澤國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794931_1_20250308213245.jpg&q=90)
-  
-
-阿根廷港口城市布蘭卡港暴雨成災，至少10人死亡，超過1千人疏散，當局又將一間醫院內的人員撤離。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794931-20250308.htm)
-
----
-
-# 法德意英支持阿拉伯國家提出的加沙重建計劃
-
-![由埃及提出的加沙重建計劃，將會分幾個階段實施，預計重建費用為530億美元。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794928_1_20250308204951.jpg&q=20)
-  
-
-法國、德國、意大利和英國的外長發表聯合聲明，支持阿拉伯國家提出的加沙重建計劃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794928-20250308.htm)
 
 ---

@@ -1,3 +1,72 @@
+# 7歲男童感染侵入性腦膜炎雙球菌現時情況穩定
+
+  
+
+一名7歲男童感染侵入性腦膜炎雙球菌，現時情況穩定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795123-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795123-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795123-20250310.htm)
+
+---
+
+# 全國兩會｜中山大學高等研究院落戶香港正開展課程註冊及評審
+
+  
+
+中山大學高等研究院去年10月落戶香港科學園，全國人大代表、中山大學校長高松表示，這是內地高校在港首個綜合研究機構，正開展課程註冊和評審，待相關辦學程序申辦完成後，研究院將先開展研究生招生，希望在不遠的時間內，按照非本地課程教育和專上院校教育模式在港招生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm)
+
+---
+
+# 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
+
+  
+
+國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
+
+---
+
 # 恒指低收447點　晶片及軟件股沽壓大
 
 ![恒生指數一度跌約600點，收市報23783點，跌447點，跌幅1.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795118_1_20250310161901.jpg&q=45)
@@ -1366,77 +1435,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm)
-
----
-
-# 往來峻巒至元朗站小巴獲批「紅轉綠」　明日投入服務
-
-![運輸署表示，由相關專線小巴路線轉乘港鐵或由港鐵轉乘相關路線，可享有5毫轉乘優惠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794936_1_20250308225949.jpg&q=90)
-  
-
-兩條紅色小巴路線的營辦商按「特選紅轉綠」計劃，轉為綠色專線小巴路線模式營運，其中往來元朗峻巒至元朗站朗明街的循環線，將於明日投入服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794936-20250308.htm)
-
----
-
-# 全國兩會｜鄭雁雄要求香港充分發揮一國兩制制度優勢
-
-![鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段。（中聯辦微信公眾號）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794934_1_20250308224742.jpg&q=90)
-  
-
-在北京，中聯辦主任鄭雁雄表示，推動今年香港經濟社會發展，要把握一國兩制實踐進入新階段，抓住發揮制度優勢、堅持改革創新、推動高質量發展、強化內聯外通、完善特區治理、高度警惕風險等六方面的重點工作，把握好香港與內地的異同點，做到充分發揮一國兩制的制度優勢，更有力有效推動香港加快實現由治及興。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm)
-
----
-
-# 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794930_1_20250308210834.jpg&q=85)
-  
-
-十四屆全國人大三次會議早上舉行第二次全體會議，聽取和審議全國人大常委會工作報告、最高人民法院和最高人民檢察院工作報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm)
 
 ---

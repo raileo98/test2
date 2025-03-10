@@ -1,3 +1,73 @@
+# 全國兩會｜中山大學高等研究院落戶香港正開展課程註冊及評審
+
+  
+
+中山大學高等研究院去年10月落戶香港科學園，全國人大代表、中山大學校長高松表示，這是內地高校在港首個綜合研究機構，正開展課程註冊和評審，待相關辦學程序申辦完成後，研究院將先開展研究生招生，希望在不遠的時間內，按照非本地課程教育和專上院校教育模式在港招生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm)
+
+---
+
+# 外交部：聯合國稱台灣為「中國台灣省」的立場一貫　有案可查
+
+![毛寧說，中方將採取一切必要措施捍衛國家主權和領土完整。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795119_1_20250310162532.jpg&q=90)
+  
+
+在北京，外長王毅日前表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm)
+
+---
+
+# 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
+
+  
+
+國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
+
+---
+
 # 外交部：美方徵收港口費等措施損人害己　促立即停止錯誤做法
 
 ![毛寧說，徵收港口費等措施損人害己，推高全球的海運成本，擾亂全球產供鏈穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795120_1_20250310163621.jpg&q=90)
@@ -1365,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794871-20250308.htm)
-
----
-
-# 全國兩會 | 最高人民檢察院稱依法嚴懲危害國家安全犯罪
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794869_1_20250308114347.jpg&q=90)
-  
-
-全國兩會正在北京舉行，最高人民檢察院檢察長應勇發表工作報告，提到今年要堅決維護國家安全和社會穩定，依法嚴懲危害國家安全犯罪、嚴重暴力犯罪、極端惡性犯罪，全力服務經濟社會高質量發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794869-20250308.htm)
-
----
-
-# 全國兩會 | 楊何蓓茵稱要發揮一國兩制優勢公務員須貢獻力量
-
-![楊何蓓茵說，公務員要進一步善用科技，加快探索應用人工智能在日常工作上，提升工作成效和效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794866_1_20250308111731.jpg&q=85)
-  
-
-全國兩會正在北京舉行，國務院副總理丁薛祥昨日上午，分別參加來自香港的全國人大代表團、來自澳門的全國人大代表團的審議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794866-20250308.htm)
-
----
-
-# 全國兩會 | 曾國衞稱中央對港澳特區高度重視及真切關懷
-
-![曾國衞認為，工作報告有關香港的部分，凸顯中央考慮香港的事情從來都是站在國家的戰略高度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794863_1_20250308111540.jpg&q=75)
-  
-
-政制及內地事務局局長曾國衞在社交平台表示，全國兩會在北京舉行，國務院總理李強發表了政府工作報告，副總理丁薛祥分別參加了港澳地區全國政協委員聯組會和全國人大香港代表團審議，體現中央對港澳特區的高度重視及對港澳同胞的真切關懷，更充分反映「一國兩制」事業在國家的整體佈局中所佔有的重要地位。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794863-20250308.htm)
 
 ---

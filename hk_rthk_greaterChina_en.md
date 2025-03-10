@@ -1,3 +1,27 @@
+# Deficit not a big problem for HK: Wang Linggui
+
+![Wang Linggui says he believes the fiscal deficit is not a big problem for Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795110_1_20250310154314.jpg&q=85)
+  
+
+The deputy director of the Hong Kong and Macau Affairs Office on Monday said he does not believe the SAR's fiscal deficit is a major concern, citing the size of the city's economy.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm)
+
+---
+
 # Unity key to tackling HK's fiscal deficit: Qiu Hong
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795114_1_20250310160227.jpg&q=85)
@@ -1413,29 +1437,5 @@ The president of the Peking Union Medical College Hospital on Tuesday said she h
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794137-20250304.htm)
-
----
-
-# 'Individual Visit Scheme going well in Qingdao'
-
-![Officials in Qingdao say the scheme for individual travellers was proceeding well. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794143_1_20250304140512.jpg&q=40)
-  
-
-The secretary of the Qingdao Municipal Party Committee, and also a delegate to the National People's Congress, on Tuesday said the expansion of the Individual Visit Scheme to Qingdao provided great convenience for exchanges between Qingdao and the two SARs.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794143-20250304.htm)
 
 ---
