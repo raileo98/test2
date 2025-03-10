@@ -1,3 +1,74 @@
+# 港股曾跌逾400點　失守24000點
+
+![港股跌幅一度擴大至逾400點，恒生指數失守24000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795073_1_20250310111137.jpg&q=5)
+  
+
+港股跌幅一度擴大至逾400點，恒生指數失守24000點水平，低見23781點，較早時報23837點，跌394點，跌幅1.63%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm)
+
+---
+
+# 南韓戰機誤炸民居　空軍參謀總長再次致歉稱負全責
+
+![兩架戰機本月6日在京畿道抱川市參加射擊演習時，誤投合共8枚炸彈到射擊場外的民居。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795072_1_20250310110741.jpg&q=90)
+  
+
+南韓空軍參謀總長李英秀就空軍戰機參加演習誤炸民居再次致歉，強調將深刻汲取教訓，防範類似事件重演。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm)
+
+---
+
+# 城門隧道凌晨三車相撞四人受傷　其中一名私家車司機逃去
+
+  
+
+城門隧道發生交通意外，涉及兩輛私家車及一輛的士，有四人受傷，其中一名私家車司機逃去。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795071-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795071-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795071-20250310.htm)
+
+---
+
 # 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
 
 ![王靈桂說，香港在全球發達經濟體當中並不弱。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795068_1_20250310105925.jpg&q=85)
@@ -48,6 +119,7 @@
 
 # 金融科技周及StartmeupHK創業節11月舉行
 
+![慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795066_1_20250310110740.jpg&q=90)
   
 
 投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
@@ -167,7 +239,7 @@
 
 # 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
 
-![王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
   
 
 在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
@@ -1367,77 +1439,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795001-20250309.htm)
-
----
-
-# 加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布
-
-![加拿大執政自由黨新黨魁選舉共有4名候選人競逐。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794997_1_20250309171207.jpg&q=90)
-  
-
-加拿大執政自由黨新黨魁選舉結果將於當地星期日稍後公布，勝出者將會與現任總理杜魯多交接，並成為加拿大新總理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794997-20250309.htm)
-
----
-
-# 全國兩會｜倪虹︰建設好房子關係到獲得感與幸福感
-
-![倪虹說，要積極推動全屋智能。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794996_1_20250309174056.jpg&q=75)
-  
-
-在北京，住建部部長倪虹表示，當前房地產市場供求關係發生重大變化，民眾住房需求開始從「有沒有」轉向「好不好」。他說，建設好房子，關係到民眾的獲得感和幸福感；住房發展的目的，歸根到底是要適應民眾對高品質住房需要。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm)
-
----
-
-# 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
-
-![羅淑佩說，正與LIV Golf主辦方密切聯繫，目標雙方能建立長期合作關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794993_1_20250309172626.jpg&q=60)
-  
-
-文化體育及旅遊局局長羅淑佩表示，正與LIV Golf的主辦方密切聯繫，並非常接近達成協議，目標是雙方能夠建立長期合作關係，令主辦方能夠每年都將賽事帶來香港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794993-20250309.htm)
 
 ---

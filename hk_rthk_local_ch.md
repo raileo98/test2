@@ -1,3 +1,50 @@
+# 港股曾跌逾400點　失守24000點
+
+![港股跌幅一度擴大至逾400點，恒生指數失守24000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795073_1_20250310111137.jpg&q=5)
+  
+
+港股跌幅一度擴大至逾400點，恒生指數失守24000點水平，低見23781點，較早時報23837點，跌394點，跌幅1.63%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm)
+
+---
+
+# 城門隧道凌晨三車相撞四人受傷　其中一名私家車司機逃去
+
+  
+
+城門隧道發生交通意外，涉及兩輛私家車及一輛的士，有四人受傷，其中一名私家車司機逃去。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795071-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795071-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795071-20250310.htm)
+
+---
+
 # 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
 
 ![王靈桂說，香港在全球發達經濟體當中並不弱。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795068_1_20250310105925.jpg&q=85)
@@ -24,6 +71,7 @@
 
 # 金融科技周及StartmeupHK創業節11月舉行
 
+![慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795066_1_20250310110740.jpg&q=90)
   
 
 投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
@@ -95,7 +143,7 @@
 
 # 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
 
-![王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
   
 
 在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
@@ -1390,53 +1438,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794882-20250308.htm)
-
----
-
-# 甯漢豪：視乎市場意向調查結果　北都片區招標條款或會更進取
-
-![甯漢豪說，有內地開發商提出平整片區產業地後，興建並營運園區，政府會檢視是否屬主流意見，日後招標條款或會更加進取。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794880_1_20250308130001.jpg&q=75)
-  
-
-政府正就北部都會區三個片區開發試點做市場意向調查，本月底完結。發展局局長甯漢豪說，有內地開發商提出平整片區產業地後，興建並營運園區，政府會檢視是否屬主流意見，日後招標條款或會更加進取。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794880-20250308.htm)
-
----
-
-# 愛秩序灣遊樂場有銅喉被偷走　警列盜竊及刑毀案跟進
-
-![警方到場調查，暫時未有人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794878_1_20250308122756.jpg&q=30)
-  
-
-筲箕灣南安街的愛秩序灣遊樂場有銅喉被偷走。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794878-20250308.htm)
 
 ---

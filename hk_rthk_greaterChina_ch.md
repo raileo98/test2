@@ -24,6 +24,7 @@
 
 # 金融科技周及StartmeupHK創業節11月舉行
 
+![慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795066_1_20250310110740.jpg&q=90)
   
 
 投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
@@ -47,7 +48,7 @@
 
 # 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
 
-![王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
   
 
 在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。

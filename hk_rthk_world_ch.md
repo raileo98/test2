@@ -1,3 +1,27 @@
+# 南韓戰機誤炸民居　空軍參謀總長再次致歉稱負全責
+
+![兩架戰機本月6日在京畿道抱川市參加射擊演習時，誤投合共8枚炸彈到射擊場外的民居。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795072_1_20250310110741.jpg&q=90)
+  
+
+南韓空軍參謀總長李英秀就空軍戰機參加演習誤炸民居再次致歉，強調將深刻汲取教訓，防範類似事件重演。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm)
+
+---
+
 # 韓美展開大規模聯合軍演　北韓譴責把局勢推向極限
 
 ![韓美軍演還包括覆蓋陸海空、網絡、太空等全領域的聯合野外機動訓練。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795067_1_20250310105023.jpg&q=80)
@@ -24,6 +48,7 @@
 
 # 金融科技周及StartmeupHK創業節11月舉行
 
+![慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795066_1_20250310110740.jpg&q=90)
   
 
 投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
@@ -71,7 +96,7 @@
 
 # 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
 
-![王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
   
 
 在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794856-20250308.htm)
-
----
-
-# 中國對加拿大菜子油、油渣餅及豌豆加徵100%關稅
-
-![國務院關稅稅則委員會發公布，向加拿大部分農產品及食品加徵關稅。（相關公告網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794854_1_20250308095726.jpg&q=90)
-  
-
-國務院關稅稅則委員會發布公告，經國務院批准，自本月20日起，對原產於加拿大的菜子油、油渣餅、豌豆加徵100%關稅；對原產於加拿大的水產品、豬肉加徵25%關稅。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794854-20250308.htm)
 
 ---

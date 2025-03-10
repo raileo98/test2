@@ -1,3 +1,27 @@
+# CPPCC session ends with call to focus on 'big picture'
+
+![Senior state leader Wang Huning says the meetings have achieved fruitful results. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=75)
+  
+
+The third annual session of the country's top advisory body has concluded in Beijing, with a senior state leader calling on members to focus on the "big picture" and deepen unity.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm)
+
+---
+
 # China to provide global trade stability: analyst
 
 ![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
@@ -1413,29 +1437,5 @@ Authorities in the capital have stepped up security ahead of the annual “Two S
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1793999-20250304.htm)
-
----
-
-# China warns of countermeasures against new US tariffs
-
-![China urges the US to immediately withdraw its unilateral tariff measures, calling them "unreasonable and groundless". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794108_1_20250304100322.jpg&q=80)
-  
-
-The Commerce Ministry on Tuesday vowed to retaliate against fresh US import tariffs set to take effect later in the day, reiterating its stance that the Trump administration was trying to "shift the blame" and "bully" Beijing over fentanyl flows.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794108-20250304.htm)
 
 ---
