@@ -1,3 +1,26 @@
+# 格陵蘭總理：美國不尊重格陵蘭島且極其不可預測
+
+  
+
+格陵蘭自治政府總理埃格德表示，美國並未給予格陵蘭人民應有的尊重，又說美國正處於一個極其不可預測的總統任期，令人感到不安。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm)
+
+---
+
 # 加拿大安大略省向輸美電力徵收25%附加費
 
 ![福特表示，如果貿易戰持續下去，他將毫不猶豫提高收費，甚至完全切斷電力出口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795173_1_20250311020802.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794975-20250309.htm)
-
----
-
-# 中伊俄海軍本月上中旬在恰巴哈爾港附近區域聯合演習
-
-![中國、伊朗及俄羅斯海軍去年3月在阿曼灣組織實施有關聯合演習。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794973_1_20250309131226.jpg&q=80)
-  
-
-中國、伊朗、俄羅斯三國海軍將於本月上中旬，在伊朗恰巴哈爾港附近區域組織實施「安全紐帶-2025」聯合演習。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm)
 
 ---
