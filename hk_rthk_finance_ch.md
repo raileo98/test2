@@ -1,3 +1,27 @@
+# 美國國家經濟委員會料關稅問題將於下月解決　本季GDP正增長
+
+![美國國家經濟委員會主任哈西特預計，關稅政策的不確定性將於下月得到解決，並預測今年首季GDP將實現正增長，但幅度不大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795167_1_20250310230309.jpg&q=60)
+  
+
+美國國家經濟委員會主任哈西特預計，總統特朗普貿易政策的不確定性將在下月得到解決，並預測今年首季國內生產總值(GDP)將實現正增長，但幅度不大。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm)
+
+---
+
 # 美股初段跌逾1%至2%　大型科技股下跌
 
 ![道瓊斯指數較早時報42325點，跌476點，跌幅1.11%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795160_1_20250310213802.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm)
-
----
-
-# 台股初段窄幅上落
-
-![加權指數較早時報22596點，升20點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795046_1_20250310090236.jpg&q=90)
-  
-
-台股初段靠穩，加權指數較早時報22596點，升20點，升幅0.09%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795046-20250310.htm)
 
 ---
