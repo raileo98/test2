@@ -1,3 +1,27 @@
+# 俄羅斯指英國大使館兩人員從事間諜活動威脅安全　勒令兩周內離境
+
+![佩斯科夫表示，情報部門正盡一切努力維護國家安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795164_1_20250310223930.jpg&q=90)
+  
+
+俄羅斯指控英國駐莫斯科大使館有兩名外交人員從事間諜活動，他們的偵察和破壞活動威脅俄羅斯聯邦安全，宣布剝奪兩人的派駐資格，勒令在兩星期內離境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm)
+
+---
+
 # 日本有研究發現北海道千島海溝已累積巨大能量或足以引發9級地震
 
 ![日本311大地震奪走多條性命，不少民眾每年都會舉行活動悼念。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795159_1_20250310213026.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794945-20250309.htm)
-
----
-
-# 以色列接受斡旋方邀請將派代表團赴多哈尋求談判取得進展
-
-![以色列總理內塔尼亞胡辦公室表示，以色列於星期一派遣代表團前往多哈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794944_1_20250309061454.jpg&q=85)
-  
-
-以色列總理辦公室發聲明表示，以色列接受斡旋方邀請，將於星期一派遣一個代表團前往卡塔爾首都多哈，尋求談判取得進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm)
 
 ---

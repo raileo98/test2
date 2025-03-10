@@ -1,5 +1,30 @@
+# 俄羅斯指英國大使館兩人員從事間諜活動威脅安全　勒令兩周內離境
+
+![佩斯科夫表示，情報部門正盡一切努力維護國家安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795164_1_20250310223930.jpg&q=90)
+  
+
+俄羅斯指控英國駐莫斯科大使館有兩名外交人員從事間諜活動，他們的偵察和破壞活動威脅俄羅斯聯邦安全，宣布剝奪兩人的派駐資格，勒令在兩星期內離境。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm)
+
+---
+
 # 20多名中學生韶關交流回港後嘔吐及腹瀉等不適　全部人毋須入院
 
+![中心表示，正從不同方向調查源頭，包括經人傳人、或受污染的食物或環境傳播的可能性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795163_1_20250310224045.jpg&q=80)
   
 
 沙田官立中學多名學生參加內地交流團返港後，出現腸胃炎徵狀。
