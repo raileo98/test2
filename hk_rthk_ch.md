@@ -1,3 +1,27 @@
+# 日本有研究發現北海道千島海溝已累積巨大能量或足以引發9級地震
+
+![日本311大地震奪走多條性命，不少民眾每年都會舉行活動悼念。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795159_1_20250310213026.jpg&q=90)
+  
+
+日本有研究發現，北海道附近的千島海溝已經累積巨大能量，可能足以引發黎克特制9級規模的大地震
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm)
+
+---
+
 # 王文濤：貿易戰沒有贏家　保護主義沒有出路
 
 ![王文濤與百時美施貴寶公司董事會主席兼執行官博科思會面。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795158_1_20250310212211.jpg&q=90)

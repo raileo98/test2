@@ -1,3 +1,27 @@
+# 日本有研究發現北海道千島海溝已累積巨大能量或足以引發9級地震
+
+![日本311大地震奪走多條性命，不少民眾每年都會舉行活動悼念。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795159_1_20250310213026.jpg&q=90)
+  
+
+日本有研究發現，北海道附近的千島海溝已經累積巨大能量，可能足以引發黎克特制9級規模的大地震
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm)
+
+---
+
 # 王文濤：貿易戰沒有贏家　保護主義沒有出路
 
 ![王文濤與百時美施貴寶公司董事會主席兼執行官博科思會面。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795158_1_20250310212211.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794944-20250309.htm)
-
----
-
-# 美眾議長公布政府資金臨時法案盼避免停擺　消息指爭取周二表決
-
-![約翰遜日前指法案是一項持續決議，將繼續以目前的水平為政府提供資金。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794943_1_20250309045615.jpg&q=90)
-  
-
-美國國會眾議院議長約翰遜正式公布一項希望可持續至9月30日的政府資金臨時法案，避免聯邦政府可能於本月14日停擺。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794943-20250309.htm)
 
 ---
