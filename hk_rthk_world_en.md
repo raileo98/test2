@@ -1,3 +1,27 @@
+# N Korea fires missiles as South begins drills with US
+
+![Seoul says the south's military will bolster surveillance and maintain a full readiness posture. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795098_1_20250310141933.jpg&q=90)
+  
+
+North Korea fired "multiple unidentified ballistic missiles" on Monday, South Korea's military said, the same day Seoul and Washington began a major annual joint military drill known as Freedom Shield.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm)
+
+---
+
 # China to provide global trade stability: analyst
 
 ![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
@@ -1416,29 +1440,5 @@ The ministry of health in Hamas-run Gaza said four people were killed and six ot
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793904-20250302.htm)
-
----
-
-# Ailing Pope hails faithful's 'support' and 'affection'
-
-![Tourists and pilgrims visit St Peter's Square in the Vatican as Pope Francis is still hospitalised with pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793898_1_20250302202730.jpg&q=60)
-  
-
-Pope Francis, hospitalised for more than two weeks with double pneumonia, on Sunday thanked believers around the world for their "support" and "affection" as he missed delivering a third straight Angelus prayer in person.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793898-20250302.htm)
 
 ---

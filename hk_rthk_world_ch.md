@@ -48,7 +48,7 @@
 
 # 特朗普拒絕排除美國經濟因關稅措施陷入衰退可能
 
-![特朗普在空軍一號專機上再次回應有關經濟衰退的問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795081_1_20250310115716.jpg&q=90)
+![特朗普在「空軍一號」專機上再次回應有關經濟衰退的問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795081_1_20250310115716.jpg&q=90)
   
 
 美國總統特朗普接受傳媒訪問時，為政府關稅政策辯護，拒絕排除美國經濟因此陷入衰退的可能。

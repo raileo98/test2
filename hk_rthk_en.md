@@ -1,3 +1,27 @@
+# N Korea fires missiles as South begins drills with US
+
+![Seoul says the south's military will bolster surveillance and maintain a full readiness posture. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795098_1_20250310141933.jpg&q=90)
+  
+
+North Korea fired "multiple unidentified ballistic missiles" on Monday, South Korea's military said, the same day Seoul and Washington began a major annual joint military drill known as Freedom Shield.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm)
+
+---
+
 # Driver flees after three-vehicle collision
 
 ![Two private cars and a taxi are severely damaged after a collision in Shing Mun Tunnel. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795078_1_20250310115428.jpg&q=85)
@@ -1413,29 +1437,5 @@ A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm)
-
----
-
-# Eurostar passengers stranded by WWII bomb in Paris
-
-![The Gare du Nord station lies in northern Paris and is the country's busiest train hub. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794795_1_20250307191100.jpg&q=75)
-  
-
-Thousands of passengers in Paris and London were stranded on Friday, after the discovery of a World War II bomb on tracks leading to the Gare du Nord station halted traffic at France's busiest railway terminus.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm)
 
 ---
