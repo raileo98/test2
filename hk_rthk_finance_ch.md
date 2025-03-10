@@ -1,3 +1,27 @@
+# 美元兌日圓曾失守147關口　比特幣創4個月新低
+
+![美元兌日圓曾跌穿147關口，跌至146.6附近，是去年10月初以來最低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795183_1_20250311061741.jpg&q=80)
+  
+
+憂慮美國經濟放緩，加上美股被拋售，資金流入日圓及瑞士法郎避險。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm)
+
+---
+
 # 港股美國預託證券普遍跌1%至逾4%
 
 ![港股美國預託證券急挫，比本港昨日收市價普遍跌1%至逾4%，阿里巴巴表現最差。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795181_1_20250311060150.jpg&q=60)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm)
-
----
-
-# 滬深股市早段窄幅上落
-
-![內地股市早段窄幅上落，上證指數較早時報3371點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795057_1_20250310094030.jpg&q=80)
-  
-
-內地股市早段窄幅上落。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795057-20250310.htm)
 
 ---
