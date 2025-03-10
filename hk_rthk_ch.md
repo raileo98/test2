@@ -1,3 +1,27 @@
+# 滬股半日跌約0.6%　創業板指數失守2200點
+
+![上證指數半日收報3352點，跌19點，跌幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795075_1_20250310113626.jpg&q=90)
+  
+
+內地股市3大指數半日下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm)
+
+---
+
 # 赤峰黃金：收購是未來發展非常重要動力
 
 ![楊宜方（中）稱股份下限定價因考慮到A股上漲不少，參考其他A+H股折讓後期望為股東提供增長空間。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795074_1_20250310112824.jpg&q=85)
@@ -1415,29 +1439,5 @@ M+博物館為迎接「香港藝術三月」，今日免費開放標準門票展
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795000-20250309.htm)
-
----
-
-# 全國兩會｜住建部︰今年初房地產市場保持止跌回穩積極勢頭
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794999_1_20250309182945.jpg&q=90)
-  
-
-在全國人大會議關於民生的記者會上，住房和城鄉建設部部長倪虹說，中央去年為促進房地產市場止跌回穩，推出組合拳，房地產市場已出現了正面變化，今年首兩個月，保持止跌回穩的積極勢頭，會重點在四方面，堅持長短結合、標本兼治，堅決穩住樓市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794999-20250309.htm)
 
 ---
