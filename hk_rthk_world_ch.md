@@ -1,5 +1,30 @@
+# 加拿大安大略省向輸美電力徵收25%附加費
+
+![福特表示，如果貿易戰持續下去，他將毫不猶豫提高收費，甚至完全切斷電力出口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795173_1_20250311020802.jpg&q=80)
+  
+
+加拿大安大略省當地星期一宣布，即日起對輸往美國的電力徵收25%附加費，作為對美國總統特朗普對加拿大商品徵收關稅的報復措施之一。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm)
+
+---
+
 # 以色列談判代表團啟程往卡塔爾　推進停火第二階段談判
 
+![加沙停火協議第二階段停火談判原定上月開始，但以哈雙方一直未舉行實質性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795172_1_20250311020917.jpg&q=40)
   
 
 以色列談判代表團啟程前往卡塔爾首都多哈，以推進加沙停火協議第二階段談判。
@@ -23,6 +48,7 @@
 
 # 澤連斯基抵達沙特阿拉伯　將與沙特王儲會面
 
+![澤連斯基抵達沙特阿拉伯，與當地官員會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795170_1_20250311021007.jpg&q=30)
   
 
 烏克蘭總統澤連斯基抵達沙特阿拉伯，將會與沙特王儲穆罕默德會面。
@@ -46,6 +72,7 @@
 
 # 美中東特使料本周與鳥克蘭談判將取得實質性進展
 
+![威特科夫預計本周美國與烏克蘭的談判將取得實質性進展。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795169_1_20250311021048.jpg&q=90)
   
 
 美國中東問題特使威特科夫表示，預計本周美國與烏克蘭的談判將取得實質性進展，希望能與烏克蘭簽署礦產協議。
@@ -1409,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm)
-
----
-
-# 美國民主黨反對共和黨提出臨時撥款法案
-
-![共和黨籍的眾議院議長約翰遜希望星期二就法案投票。民主黨反對法案削減非國防支出。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794961_1_20250309103550.jpg&q=80)
-  
-
-美國眾議院共和黨公布一項為期6個月的臨時撥款法案，避免本月14日聯邦政府停擺。民主黨反對法案削減非國防支出、賦予行政部門過大權力，以及缺乏對社保、醫保等民生項目的保障。眾議院少數黨領袖傑弗里斯表示，共和黨此舉等同放棄通過全年撥款法案協助中產階層和保障國家安全的談判機會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794961-20250309.htm)
 
 ---

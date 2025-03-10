@@ -1,5 +1,30 @@
+# 加拿大安大略省向輸美電力徵收25%附加費
+
+![福特表示，如果貿易戰持續下去，他將毫不猶豫提高收費，甚至完全切斷電力出口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795173_1_20250311020802.jpg&q=80)
+  
+
+加拿大安大略省當地星期一宣布，即日起對輸往美國的電力徵收25%附加費，作為對美國總統特朗普對加拿大商品徵收關稅的報復措施之一。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm)
+
+---
+
 # 以色列談判代表團啟程往卡塔爾　推進停火第二階段談判
 
+![加沙停火協議第二階段停火談判原定上月開始，但以哈雙方一直未舉行實質性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795172_1_20250311020917.jpg&q=40)
   
 
 以色列談判代表團啟程前往卡塔爾首都多哈，以推進加沙停火協議第二階段談判。
@@ -23,6 +48,7 @@
 
 # 澤連斯基抵達沙特阿拉伯　將與沙特王儲會面
 
+![澤連斯基抵達沙特阿拉伯，與當地官員會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795170_1_20250311021007.jpg&q=30)
   
 
 烏克蘭總統澤連斯基抵達沙特阿拉伯，將會與沙特王儲穆罕默德會面。
@@ -46,6 +72,7 @@
 
 # 美中東特使料本周與鳥克蘭談判將取得實質性進展
 
+![威特科夫預計本周美國與烏克蘭的談判將取得實質性進展。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795169_1_20250311021048.jpg&q=90)
   
 
 美國中東問題特使威特科夫表示，預計本周美國與烏克蘭的談判將取得實質性進展，希望能與烏克蘭簽署礦產協議。
@@ -1408,29 +1435,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm)
-
----
-
-# 東京大空襲發生80周年　約160人參與追悼法事
-
-![遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795104_1_20250310150257.jpg&q=90)
-  
-
-今日是日本東京大空襲發生80周年，遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事，大約160人參加，包括日皇德仁的胞弟、秋篠宮文仁親王伉儷，以及東京都知事小池百合子。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm)
 
 ---
