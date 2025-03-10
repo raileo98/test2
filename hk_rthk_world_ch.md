@@ -1,3 +1,51 @@
+# 外交部：反對泛化國家安全概念　將堅定維護中國企業合法權益
+
+![毛寧表示，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795113_1_20250310160037.jpg&q=90)
+  
+
+路透社引述消息人士報道，美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm)
+
+---
+
+# 南韓戰機誤炸民居事件　初步調查確認飛行員錯誤輸入座標導致
+
+![南韓空軍兩架戰機日前在演習時誤投炸彈，造成房屋受損。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795115_1_20250310160257.jpg&q=50)
+  
+
+南韓空軍公布日前京畿道抱川市兩架參與演習戰機誤投炸彈、造成33人受傷事故的初步調查結果，重申事故是飛行員錯誤輸入座標導致。飛行員亦未有在準備飛行、起飛前及投彈前，正確執行3次確認座標的流程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm)
+
+---
+
 # 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
 
 ![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794927-20250308.htm)
-
----
-
-# 澳洲東部受熱帶氣旋吹襲至少一死　兩輛協助救災軍車相撞36傷
-
-![在黃金海岸，有帆船被大浪沖到岸邊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794925_1_20250308195330.jpg&q=80)
-  
-
-澳洲東部遭受熱帶氣旋吹襲，至少一人死亡，新南威爾士州有兩輛協助救災的軍車相撞，最少36人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794925-20250308.htm)
-
----
-
-# 巴黎當局在鐵路附近拆除戰時炸彈　估計60萬人受列車停運影響
-
-![施工人員在巴黎一條鐵路線上發現一枚二戰時期炸彈。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794924_1_20250308193940.jpg&q=85)
-  
-
-法國巴黎北站附近路軌在施工過程中發現一枚未引爆的二戰時期炸彈，導致進出巴黎北站的列車全面暫停，巴黎往返倫敦的歐洲之星列車亦全部停運。當局其後將炸彈拆除，受影響路線逐步恢復運作。事件導致鐵路服務癱瘓大約14小時，官員估計，大約500班列車和60萬人受到影響。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794924-20250308.htm)
 
 ---

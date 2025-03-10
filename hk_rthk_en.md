@@ -1,3 +1,27 @@
+# Unity key to tackling HK's fiscal deficit: Qiu Hong
+
+![Qiu Hong says unity is key to improving the economy. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795114_1_20250310160227.jpg&q=85)
+  
+
+Hong Kong will improve as long as everyone works together to tackle the fiscal deficit, a former deputy director of Beijing's liaison office in the SAR said on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm)
+
+---
+
 # Govt welcomes HK$200m donation to support AI
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795099_1_20250310143309.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong Customs intensified enforcement at the international airport and uncov
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm)
-
----
-
-# Trump threatens new Russia sanctions over Ukraine
-
-![Last month, Trump spoke by telephone with Russian President Vladimir Putin about undoing sweeping sanctions imposed under former president Joe Biden. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794817_1_20250307225043.jpg&q=90)
-  
-
-President Donald Trump on Friday threatened new sanctions and tariffs on Russia over its bombardments of Ukraine, after previously suspending US aid to Kyiv in a stated bid to encourage diplomacy.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm)
 
 ---

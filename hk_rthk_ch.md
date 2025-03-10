@@ -1,3 +1,98 @@
+# 未經同意披露客戶個人資料　女子被私隱公署拘捕保釋候查
+
+  
+
+私隱專員公署在新界區拘捕一名31歲女子，涉嫌違反《私隱條例》，在未經客戶的同意下披露對方的個人資料。被捕女子獲准保釋，公署會繼續調查案件。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795117-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795117-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795117-20250310.htm)
+
+---
+
+# 外交部：反對泛化國家安全概念　將堅定維護中國企業合法權益
+
+![毛寧表示，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795113_1_20250310160037.jpg&q=90)
+  
+
+路透社引述消息人士報道，美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm)
+
+---
+
+# 南韓戰機誤炸民居事件　初步調查確認飛行員錯誤輸入座標導致
+
+![南韓空軍兩架戰機日前在演習時誤投炸彈，造成房屋受損。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795115_1_20250310160257.jpg&q=50)
+  
+
+南韓空軍公布日前京畿道抱川市兩架參與演習戰機誤投炸彈、造成33人受傷事故的初步調查結果，重申事故是飛行員錯誤輸入座標導致。飛行員亦未有在準備飛行、起飛前及投彈前，正確執行3次確認座標的流程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm)
+
+---
+
+# 港交所：新股發行人及保薦人有責任剔除重覆認購申請
+
+![交易所表示，FINI可提升新股重複認購辨識能力，但作為平台，無責任幫助發行人等剔除重複申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795112_1_20250310155436.jpg&q=5)
+  
+
+有傳媒報道，近日懷疑有內地投資者在香港以不同身分證明文件，如內地身分證、香港身分證及護照等，在不同證券行認購新股，最終未有被識別為重複認購。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm)
+
+---
+
 # 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
 
 ![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
