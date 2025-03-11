@@ -1,3 +1,50 @@
+# 杜特爾特被捕　質疑當局逮捕自己法理依據
+
+![杜特爾特被菲律賓警方逮捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795288_1_20250311182302.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特被菲律賓警方逮捕。現任總統辦公室表示，是執行國際刑事法院的逮捕令，杜特爾特的健康狀況良好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm)
+
+---
+
+# 全國兩會｜張素心稱要紮實做好國產晶片把技術做得更好
+
+  
+
+全國人大代表、半導體企業華虹集團前董事長張素心，在北京出席全國兩會期間接受本台訪問時說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm)
+
+---
+
 # 陳茂波：考慮稅制必要考慮競爭力　現時未必合適作稅務調升
 
   
@@ -46,6 +93,7 @@
 
 # 全國兩會｜人大會議閉幕　李鴻忠：為實現十五五良好開局打牢基礎
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795289_1_20250311184728.jpg&q=65)
   
 
 十四屆全國人大三次會議在北京閉幕，會議表決通過了所有決議草案及決定草案。
@@ -69,6 +117,7 @@
 
 # 陳茂波籲人工智能等企業來港上市
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795291_1_20250311184725.jpg&q=90)
   
 
 財政司司長陳茂波說，香港在數據同人才方面都有優勢，呼籲人工智能等公司來港上市。
@@ -1150,7 +1199,7 @@
 
 # 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
 
-![Deliveroo撤出香港市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795234_1_20250311130828.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795234_1_20250311130828.jpg&q=90)
   
 
 外賣平台戶戶送Deliveroo撤出香港市場。

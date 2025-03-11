@@ -1,5 +1,6 @@
 # 陳茂波籲人工智能等企業來港上市
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795291_1_20250311184725.jpg&q=90)
   
 
 財政司司長陳茂波說，香港在數據同人才方面都有優勢，呼籲人工智能等公司來港上市。
@@ -572,30 +573,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm)
-
----
-
-# 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
-
-![Deliveroo撤出香港市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795234_1_20250311130828.jpg&q=90)
-  
-
-外賣平台戶戶送Deliveroo撤出香港市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm)
 
 ---
 
@@ -1436,5 +1413,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
+
+---
+
+# 草姬集團料去年盈利按年最少跌67%
+
+![草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795157_2_20250311062331.jpg&q=85)
+  
+
+草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Man United announce plans for new 100,000-seat stadium
+
+![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=80)
+  
+
+Manchester United on Tuesday announced plans to build a new 100,000-capacity stadium that co-owner Jim Ratcliffe said would be the "world's greatest" football ground.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm)
+
+---
+
 # 'China changing course of economic development'
 
 ![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
@@ -1412,29 +1436,5 @@ Financial Secretary Paul Chan said on Sunday that Hong Kong must closely link it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm)
-
----
-
-# 'Each Legco election should be better than the last’
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794968_1_20250309114238.jpg&q=75)
-  
-
-Each Legislative Council election should be better than the previous one, according to a senior Beijing official overseeing Hong Kong affairs, who also stressed the SAR needs “capable, responsible and accomplished” individuals to serve the city.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm)
 
 ---

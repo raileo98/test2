@@ -1,5 +1,29 @@
+# 全國兩會｜張素心稱要紮實做好國產晶片把技術做得更好
+
+  
+
+全國人大代表、半導體企業華虹集團前董事長張素心，在北京出席全國兩會期間接受本台訪問時說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm)
+
+---
+
 # 全國兩會｜人大會議閉幕　李鴻忠：為實現十五五良好開局打牢基礎
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795289_1_20250311184728.jpg&q=65)
   
 
 十四屆全國人大三次會議在北京閉幕，會議表決通過了所有決議草案及決定草案。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm)
-
----
-
-# 全國兩會｜陸治原︰要順應群眾需求變化　逐步擴大民生保障政策
-
-![陸治原表示，要逐步擴大民生保障政策覆蓋面。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794987_1_20250309164917.jpg&q=90)
-  
-
-在北京，民政部部長陸治原表示，要順應群眾需求變化，逐步擴大民生保障政策覆蓋面，有序推進民政民生保障由兜底性、基礎性向普惠性發展。他表示，中國人口發展呈現老齡化、高齡化、少子化等特點，傳統家庭養老功能正在弱化，越來越多老年人對社會養老服務提出需求，要推動養老服務由過去的「三無」老年人為主，向全體老年人拓展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm)
 
 ---

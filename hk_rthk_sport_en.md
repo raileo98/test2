@@ -1,3 +1,27 @@
+# Man United announce plans for new 100,000-seat stadium
+
+![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=80)
+  
+
+Manchester United on Tuesday announced plans to build a new 100,000-capacity stadium that co-owner Jim Ratcliffe said would be the "world's greatest" football ground.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm)
+
+---
+
 # 'Snooker hiccup not a problem for National Games'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=85)
@@ -1421,30 +1445,5 @@ Athletes participating in a handball test event for the National Games on Saturd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm)
-
----
-
-# Cavs crush Knicks in battle of NBA East, Thunder roll
-
-![Jarrett Allen scored 10 points for the Cavaliers before departing in the third quarter with an injury. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792749_2_20250222162608.jpg&q=85)
-![Jalen Green scored 35 points for the Houston Rockets in a 121-115 victory over the Minnesota Timberwolves. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792749_1_20250222162216.jpg&q=80)
-  
-
-The Cleveland Cavaliers boosted their NBA-best record with a 142-105 romp past the New York Knicks on Friday, tightening their grip on the Eastern Conference lead with an all-around dominant display.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm)
 
 ---
