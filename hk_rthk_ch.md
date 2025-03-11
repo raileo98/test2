@@ -70,6 +70,7 @@
 
 # 港鐵今年或凍結票價　有議員料減票價機會不大
 
+![金澤培表示，估計今年港鐵票價可能凍結。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795290_1_20250311190056.jpg&q=75)
   
 
 港鐵行政總裁金澤培表示，估計今年港鐵票價可能凍結。
