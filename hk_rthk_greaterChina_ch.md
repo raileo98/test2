@@ -1,6 +1,57 @@
+# 全國兩會｜小鵬汽車冀旗下飛行汽車成為全球首款規模化量產交付
+
+![何小鵬稱分體式飛行汽車去年完成全球首次公開飛行，全面進入適航審定階段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795252_1_20250311152140.jpg&q=90)
+  
+
+小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm)
+
+---
+
+# 陳茂波稱香港將利用北部都會區加強與深圳科研合作
+
+![陳茂波重申現時未必合適作稅務調升，希望讓企業及個人重整資產負債表以面對未來挑戰。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
+  
+
+財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，本港亦會利用北部都會區，加強與深圳在科研方面的合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
+
+---
+
 # 全國兩會｜全國人大會議舉行閉幕會
 
   
+
+十四屆全國人大三次會議下午3時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人在主席台就座。
+
   
 
 
@@ -1386,54 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794952-20250309.htm)
-
----
-
-# 全國兩會｜港區人大冼漢迪稱將公布人工智能資助計劃首批機構名單
-
-![冼漢迪透露，「人工智能資助計劃」首批資助機構名單即將公布。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794951_1_20250309085405.jpg&q=90)
-  
-
-全國兩會正在北京召開，政府工作報告提出持續推進「人工智能+」行動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794951-20250309.htm)
-
----
-
-# 全國兩會 | 青海研增往來西寧香港航班　內蒙古拓高鐵旅遊專列
-
-![青海省省長羅東川上表示，今年會大力推進、採取更多措施與香港對接。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_1_20250309075331.jpg&q=90)
-![內蒙古文化和旅遊廳黨組書記張銳，將會開通香港西九龍經停鄭州前往呼和浩特的高鐵旅遊專列，為香港旅客提供更多入境旅遊選擇。（受訪者提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794950_2_20250309075331.jpg&q=90)
-  
-
-青海省西寧市和內蒙古自治區呼和浩特市，去年5月納入簽發往來港澳「個人遊」簽注城市，青海省省長羅東川上月曾訪港與行政長官李家超會面。身兼全國人大代表的羅東川在兩會期間接受本台訪問，指今年會大力推進、採取更多措施與香港對接，希望同時有更多港人到青海看看，相信隨著居民生活水平越來越高，將來也會組織更多雙向交流活動。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794950-20250309.htm)
 
 ---

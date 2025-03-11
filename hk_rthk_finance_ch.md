@@ -1,6 +1,81 @@
+# 全國兩會｜小鵬汽車冀旗下飛行汽車成為全球首款規模化量產交付
+
+![何小鵬稱分體式飛行汽車去年完成全球首次公開飛行，全面進入適航審定階段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795252_1_20250311152140.jpg&q=90)
+  
+
+小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm)
+
+---
+
+# 內地股市午後轉　滬股全日升逾0.4%
+
+![內地股市下午轉強，上證綜合指數收市報3379點，升13點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795251_1_20250311151313.jpg&q=90)
+  
+
+內地股市下午轉強，扭轉早前跌勢。軍工、白酒及養殖相關股份向好；工程機械及醫療服務等股份表現較遜色。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm)
+
+---
+
+# 陳茂波稱香港將利用北部都會區加強與深圳科研合作
+
+![陳茂波重申現時未必合適作稅務調升，希望讓企業及個人重整資產負債表以面對未來挑戰。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
+  
+
+財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，本港亦會利用北部都會區，加強與深圳在科研方面的合作。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
+
+---
+
 # 全國兩會｜全國人大會議舉行閉幕會
 
   
+
+十四屆全國人大三次會議下午3時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人在主席台就座。
+
   
 
 
@@ -1361,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm)
-
----
-
-# 戶戶送將撤出香港　勞聯正接觸部分受影響前線員工
-
-![戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795131_1_20250310173159.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm)
-
----
-
-# 聯交所將泰國證券交易所納入認可證券交易所名單
-
-![聯交所新增泰國證券交易所為證券交易所，當地主市場主要上市的公司可申請香港第二上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795126_1_20250310171004.jpg&q=90)
-  
-
-香港交易所旗下聯交所宣布，已新增泰國證券交易所（The Stock Exchange of Thailand）為認可證券交易所，在泰國證券交易所主市場主要上市的公司，可以在香港申請第二上市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm)
-
----
-
-# 貿發局：香港中小企可特別留意泰國和印尼電商市場
-
-![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
-  
-
-貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。貿發局將於下周三舉行的亞洲品牌及營銷論壇，以及亞洲電子商貿論壇上，發表完整報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm)
 
 ---
