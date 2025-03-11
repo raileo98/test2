@@ -1,3 +1,28 @@
+# 醫管局分階段減少配藥　本月24日起每次最多配24周藥物
+
+![醫管局聯網服務總監鄧耀鏗（右）指，醫管局在本月24日起，會分階段更改配藥安排。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_1_20250312071709.jpg&q=85)
+![醫管局認為社會可以討論藥費有否有調整空間。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_2_20250312071709.jpg&q=85)
+  
+
+醫管局本月24日起更改配藥安排，希望減少浪費，包括每次最多只向病人配發24個星期、即相當於大約6個月的藥物，若病情需要處方多過24星期的藥物，便要安排第二次取藥。至於有需要時才服用的藥物，例如止痛藥、藥膏等，如果醫生處方多過28日，病人會獲派發25%的份量，有需要時醫生可按臨床需要作出調整。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm)
+
+---
+
 # 資深藝人夏春秋逝世終年93歲
 
 ![資深藝人夏春秋逝世，終年93歲。（香港演藝人協會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795325_1_20250311230205.jpg&q=90)
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
-
----
-
-# 九倉置業對上半年前景不感樂觀
-
-![吳天海稱今年以來旗下商業物業及酒店業務仍趨向下行，對上半年前景不感樂觀。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795143_1_20250310183206.jpg&q=65)
-  
-
-九龍倉置業去年盈利8.9億元，按年大減81%。撇除投資物業重估減值淨額56.2億元及金融工具按市價計值影響，去年基礎淨盈利增加2%至約61.4億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm)
 
 ---

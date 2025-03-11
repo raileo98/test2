@@ -1,3 +1,53 @@
+# 醫管局分階段減少配藥　本月24日起每次最多配24周藥物
+
+![醫管局聯網服務總監鄧耀鏗（右）指，醫管局在本月24日起，會分階段更改配藥安排。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_1_20250312071709.jpg&q=85)
+![醫管局認為社會可以討論藥費有否有調整空間。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_2_20250312071709.jpg&q=85)
+  
+
+醫管局本月24日起更改配藥安排，希望減少浪費，包括每次最多只向病人配發24個星期、即相當於大約6個月的藥物，若病情需要處方多過24星期的藥物，便要安排第二次取藥。至於有需要時才服用的藥物，例如止痛藥、藥膏等，如果醫生處方多過28日，病人會獲派發25%的份量，有需要時醫生可按臨床需要作出調整。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm)
+
+---
+
+# 歐聯16強次回合　利物浦互射12碼被巴黎聖日耳門淘汰
+
+![利物浦互射12碼被巴黎聖日耳門，歐聯16強出局。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_1_20250312070830.jpg&q=80)
+![拜仁強勢殺入歐聯8強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_2_20250312071003.jpg&q=50)
+  
+
+歐聯16強次回合，利物浦0:1不敵巴黎聖日耳門，奧斯文丹比利12分鐘射入全場唯一入球。兩回合計踢成1:1，兩隊加時亦無法分出勝負，要互射12碼。利物浦只有沙拿射入，紐尼斯和居迪斯鍾斯射失，巴黎聖日耳門首四輪全部射入，以4:1淘汰利物浦晉級。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm)
+
+---
+
 # 巴基斯坦武裝分子挾持火車乘客　威脅殺死人質
 
 ![醫護人員在火車站為乘客治療。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795349_1_20250312065251.jpg&q=90)
@@ -1391,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm)
-
----
-
-# 人民幣兌美元升至近4個月高位收市
-
-![人民幣收市報7.2306兌1美元，較上日收市升343點子，創近4個月高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795271_1_20250311170625.jpg&q=70)
-  
-
-人民幣兌美元收市升至近4個月高位，報7.2306兌1美元，較上日收市升343點子，因美元指數下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm)
-
----
-
-# 俄羅斯稱擊落337架烏克蘭無人機　莫斯科州長稱襲擊致2死多傷
-
-![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=60)
-  
-
-俄羅斯國防部表示，防空部隊一夜之間擊落337架烏克蘭無人機，在莫斯科州上空，有91架無人機被摧毀。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm)
 
 ---
