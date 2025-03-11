@@ -1,3 +1,27 @@
+# 港股下午初段跌逾200點
+
+![港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795237_1_20250311131342.jpg&q=20)
+  
+
+港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm)
+
+---
+
 # 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm)
-
----
-
-# 內地股市微跌　連跌兩個交易日
-
-![內地股市3大指數收市跌近0.2%或以上，連跌兩個交易日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795105_1_20250310151000.jpg&q=85)
-  
-
-滬深股市連跌兩個交易日。人工智能相關股份下跌；醫藥商業、培育鑽石及光伏概念股向上。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm)
 
 ---
