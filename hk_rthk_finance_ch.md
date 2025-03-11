@@ -1,3 +1,51 @@
+# 金管局：去年下半年認可機構分配予收數公司帳戶增加
+
+![金管局通告指，去年下半年，有33間認可機構使用收數公司的服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795314_1_20250311215309.jpg&q=80)
+  
+
+金管局向銀行發通告指，去年下半年，有33間認可機構使用收數公司的服務，向21間收數公司分配近54.9萬個帳戶，帳戶數目較去年上半年增加近26%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm)
+
+---
+
+# 美國1月JOLTs職位空缺增至774萬個多過預期
+
+![JOLTs調查顯示，美國1月職位空缺增至774萬個，多過市場預期的763萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795316_1_20250311221436.jpg&q=90)
+  
+
+美國勞工部公布職位空缺及勞動力流動調查(JOLTs)顯示，美國1月職位空缺增加23.2萬個，增至774萬個，多過去年12月的750.8萬個，亦多過市場預期的763萬個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm)
+
+---
+
 # 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
 
 ![葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795317_1_20250311223158.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm)
-
----
-
-# 油價低收1.5%　布蘭特期油失守70美元
-
-![英美期油低收1.5%，倫敦布蘭特期油跌穿70美元一桶，收報69.28美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795179_1_20250311055037.jpg&q=90)
-  
-
-英美期油低收1.5%，由於憂慮美國對加拿大、墨西哥及中國徵收關稅，將導致全球經濟放緩，抑制石油需求。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795179-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795179-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795179-20250311.htm)
-
----
-
-# 英法德股市低收近1%或以上　科技股捱沽
-
-![歐洲主要股市跌近1%或以上，美國關稅持續不確定，環球科技股出現拋售潮。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795177_1_20250311054207.jpg&q=90)
-  
-
-歐洲主要股市跌近1%或以上，美國關稅持續不確定，環球科技股出現拋售潮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm)
 
 ---

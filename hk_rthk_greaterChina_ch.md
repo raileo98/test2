@@ -1,6 +1,6 @@
 # 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
 
-![吳秋北（中）表示，一眾港區人大代表必定會不負市民期望，不負作為人大代表的角色。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=90)
   
 
 港區全國人大代表團出席全國人大會議後，由北京返抵本港。

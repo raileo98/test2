@@ -1,3 +1,51 @@
+# 金管局：去年下半年認可機構分配予收數公司帳戶增加
+
+![金管局通告指，去年下半年，有33間認可機構使用收數公司的服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795314_1_20250311215309.jpg&q=80)
+  
+
+金管局向銀行發通告指，去年下半年，有33間認可機構使用收數公司的服務，向21間收數公司分配近54.9萬個帳戶，帳戶數目較去年上半年增加近26%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm)
+
+---
+
+# 美國1月JOLTs職位空缺增至774萬個多過預期
+
+![JOLTs調查顯示，美國1月職位空缺增至774萬個，多過市場預期的763萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795316_1_20250311221436.jpg&q=90)
+  
+
+美國勞工部公布職位空缺及勞動力流動調查(JOLTs)顯示，美國1月職位空缺增加23.2萬個，增至774萬個，多過去年12月的750.8萬個，亦多過市場預期的763萬個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm)
+
+---
+
 # 杜特爾特據報正被帶往海牙國際刑事法院　律師入稟法院尋求阻止
 
 ![杜特爾特的女兒說，父親被帶上飛機，但不知道被帶往何處。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795315_1_20250311221658.jpg&q=90)
@@ -48,7 +96,7 @@
 
 # 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
 
-![吳秋北（中）表示，一眾港區人大代表必定會不負市民期望，不負作為人大代表的角色。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=90)
   
 
 港區全國人大代表團出席全國人大會議後，由北京返抵本港。
