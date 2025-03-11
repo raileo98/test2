@@ -1,3 +1,49 @@
+# 旺角瘋狂駕駛案　有私家車撞向警方衝鋒車及另外3輛私家車
+
+  
+
+旺角有人駕駛私家車涉嫌瘋狂駕駛，撞到一輛警方衝鋒車及三輛私家車，無人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm)
+
+---
+
+# 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
+
+  
+
+全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
+
+---
+
 # 星島料去年度虧損擴大至約8500萬元
 
 ![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=75)
@@ -1390,53 +1436,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm)
-
----
-
-# 丘應樺鼓勵在廣東省港商積極在內地創新創業
-
-![丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795136_2_20250310192635.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。為配合國家發展新質生產力，政府會致力發揮內聯外通的角色，打造香港成跨國供應鏈管理中心，吸引更多內地生產企業在港落戶，並建立管理離岸貿易和供應鏈的國際或區域總部。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm)
-
----
-
-# 上訴庭指原審量刑有誤　承認暴動男子獲減刑改判監四年
-
-![上訴庭今日裁定原審法官做法有錯，被告上訴得直，減刑3個月，改判4年監禁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795134_1_20250310172544.jpg&q=90)
-  
-
-逾500人在2019年9月29日於金鐘政府總部外參與暴動，5男子早前被裁定暴動罪成，判囚4年至5年3個月不等，他們不服定罪和刑罰上訴。其中1人最早表明認罪，求情時指被追捕警員用警棍毆打頭部等，原審法官鄭紀航質疑誣蔑警方濫用武力，下調被告的認罪刑期折扣。上訴庭今日裁定原審法官做法有錯，被告上訴得直，減刑3個月，改判4年監禁。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795134-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795134-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795134-20250310.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
+
+  
+
+全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
+
+---
+
 # 美股初段個別發展
 
 ![道瓊斯指數較早時報41752點，跌158點，跌幅0.38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795312_1_20250311214253.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795177-20250311.htm)
-
----
-
-# 道指曾挫逾千點　3大指數低收2%至4%　Tesla跌15%
-
-![憂慮美國經濟陷入衰退，美股3大指數急瀉2%至4%，標普500指數及納指創半年收市新低。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795176_1_20250311053617.jpg&q=90)
-  
-
-美股3大指數急瀉2%至4%，關稅措施不確定及聯邦政府可能停擺，引發市場擔憂美國經濟陷入衰退。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm)
 
 ---

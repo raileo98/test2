@@ -1,3 +1,26 @@
+# 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
+
+  
+
+全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
+
+---
+
 # 多兩中學韶關交流有師生腸胃炎累計52人不適　曾到相同餐廳用膳
 
 ![再多兩間參與廣東韶關交流團的中學師生，出現腸胃炎徵狀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795309_1_20250311212434.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm)
-
----
-
-# 全國兩會｜創科成熱話　政協認為發展人工智能需謀劃勿人云亦云
-
-![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795047_1_20250310090600.jpg&q=90)
-  
-
-中國人工智能大模型DeepSeek的出現，在北京兩會期間令國家科研創新能力成為熱烈話題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm)
 
 ---

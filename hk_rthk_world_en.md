@@ -1,3 +1,27 @@
+# Ukraine, US discuss partial truce as drones hit Russia
+
+![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=85)
+  
+
+Ukraine said talks with the United States in Saudi Arabia began "very constructively" on Tuesday, with a partial ceasefire with Russia on the table hours after Kyiv conducted its largest drone attack on Moscow in three years of war.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm)
+
+---
+
 # South Africa bus crash toll climbs to 16
 
 ![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=45)
@@ -1411,29 +1435,5 @@ EU chief Ursula von der Leyen on Tuesday presented a five-part plan to mobilise 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794224-20250304.htm)
-
----
-
-# China to 'fight to the end' against US tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794183_1_20250304171121.jpg&q=90)
-  
-
-China vowed on Tuesday to fight to the "bitter end" if the United States pushes a trade war, after Washington and Beijing exchanged a salvo of tariffs.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
 
 ---

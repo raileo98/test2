@@ -1,3 +1,27 @@
+# Ukraine, US discuss partial truce as drones hit Russia
+
+![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=85)
+  
+
+Ukraine said talks with the United States in Saudi Arabia began "very constructively" on Tuesday, with a partial ceasefire with Russia on the table hours after Kyiv conducted its largest drone attack on Moscow in three years of war.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm)
+
+---
+
 # 52 students, teachers contract gastroenteritis
 
 ![The Centre for Health Protection has said the affected teachers and students participated in exchange tours in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795311_1_20250311213838.jpg&q=90)
@@ -1412,29 +1436,5 @@ Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm)
-
----
-
-# Fleet taxis do not have to charge by meter: govt
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=70)
-  
-
-Commuters who reserve a ride from a licensed taxi fleet will have the option of negotiating a fare with the driver and not pay by the meter, according to the transport chief.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm)
 
 ---
