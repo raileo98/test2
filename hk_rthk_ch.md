@@ -1,5 +1,30 @@
+# 李強向奧地利新任總理施托克爾致賀電
+
+![李強表示，奧地利是中國在歐洲的重要夥伴。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795299_1_20250311192827.jpg&q=90)
+  
+
+國務院總理李強向施托克爾致賀電，祝賀他就任奧地利總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm)
+
+---
+
 # 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
 
+![徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795298_1_20250311193628.jpg&q=90)
   
 
 陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
