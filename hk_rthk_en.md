@@ -1,3 +1,27 @@
+# Ex-Philippine president Duterte bound for The Hague
+
+![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=85)
+  
+
+A plane carrying former Filipino president Rodrigo Duterte left the Philippine capital bound for The Hague on Tuesday following his arrest on an International Criminal Court (ICC) warrant stemming from his deadly crackdown on drugs, Manila said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm)
+
+---
+
 # Separatists attack train in Pakistan carrying hundreds
 
 ![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=55)
@@ -1412,29 +1436,5 @@ Seventeen large cruise ships will visit Hong Kong this month, according to Secre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm)
-
----
-
-# China's job market to be stable this year: official
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
-  
-
-Beijing officials on Sunday said it is not easy to stabilise and expand the job market, but they expect there will be good outcomes with high-quality development.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm)
 
 ---

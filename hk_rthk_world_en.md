@@ -1,3 +1,27 @@
+# Ex-Philippine president Duterte bound for The Hague
+
+![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=85)
+  
+
+A plane carrying former Filipino president Rodrigo Duterte left the Philippine capital bound for The Hague on Tuesday following his arrest on an International Criminal Court (ICC) warrant stemming from his deadly crackdown on drugs, Manila said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm)
+
+---
+
 # Separatists attack train in Pakistan carrying hundreds
 
 ![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=55)
@@ -1411,29 +1435,5 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
-
----
-
-# Zelensky says he will work with Trump
-
-![In his first public comments since Trump halted US military aid to Ukraine, Zelensky said his public bust-up with Trump last week was "regrettable". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794263_1_20250305061826.jpg&q=90)
-  
-
-President Volodymyr Zelensky on Tuesday said he wanted to "make things right" with Donald Trump and work under the US president's "strong leadership" to secure a lasting peace in Ukraine.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
 
 ---
