@@ -1,5 +1,75 @@
+# 大埔醫院內科及老人科病房多一名病人帶有耳念珠菌
+
+  
+
+大埔醫院早前公布有病人帶有耳念珠菌，經接觸追蹤調查，再發現內科及老人科病房多一名63歲男病人帶有耳念珠菌但並無感染徵狀。該名病人早前已經出院。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm)
+
+---
+
+# 廉署籲公眾提防寄件人為「ICAC」Hotmail偽冒電郵
+
+  
+
+廉政公署呼籲公眾提高警覺，提防由寄件人為「“ICAC”」Hotmail電郵帳戶發出的偽冒廉署電郵。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795285-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795285-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795285-20250311.htm)
+
+---
+
+# 全國兩會｜馬逢國認為趙樂際因病請假屬嚴謹做法
+
+  
+
+十四屆全國人大三次會議在北京人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm)
+
+---
+
 # 出口日本空運貨物企圖走私金條　海關檢懷疑金條約值4600萬元
 
+![海關檢獲約64公斤懷疑金條，估計市值約4600萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795282_1_20250311181118.jpg&q=85)
   
 
 海關在香港機場偵破一宗空運走私懷疑金條案件，檢獲約64公斤懷疑金條，估計市值約4600萬元。案中檢獲走私金條的重量及市值，是海關有紀錄以來最大宗走私金條案件。
@@ -23,6 +93,7 @@
 
 # 醫學會下月舉辦「春耕行動」步行活動提升市民對器官捐贈認識
 
+![醫學會將於下月13日舉辦名為「春耕行動」的步行推廣活動，提升市民對器官捐贈認識。（香港醫學會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795281_1_20250311181058.jpg&q=75)
   
 
 醫學會將於下月13日舉辦名為「春耕行動」的步行推廣活動，提升市民對器官捐贈認識，亦希望藉此機會，讓家人及朋友一同參與及討論，加深認識彼此對器官捐贈的意願。
@@ -46,6 +117,7 @@
 
 # 本港暫停從波蘭及英國個別地區進口禽肉及禽類產品
 
+![中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795280_1_20250311181032.jpg&q=80)
   
 
 食物安全中心宣布，因應世界動物衞生組織通報，指波蘭大波蘭省Chodzież區及英國德文郡Torbay區爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。
@@ -69,6 +141,7 @@
 
 # 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
 
+![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=80)
   
 
 十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結行程時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
@@ -92,6 +165,7 @@
 
 # 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
 
+![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=85)
   
 
 十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
@@ -286,7 +360,7 @@
 ![暫委法官鍾明新裁定陳虹秀暴動罪成，需要還押。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795249_2_20250311151637.jpg&q=75)
   
 
-5年前灣仔軒尼詩道發生非法集結，多名身穿黑衣人士拆除鐵欄，向警方投擲磚頭及汽油彈等。曾被捕的社工陳虹秀經審訊後，被裁定罪脫，其後律政司上訴得直，案件發還重審，陳虹秀早前否認暴動罪開審。暫委法官鍾明新今日在區域法院裁定被告暴動罪成，需要還押。案件押後至下月3日求情，下月9日判刑，屆時將連同案其他被告的判刑一併處理。
+2019年8月灣仔軒尼詩道發生非法集結，多名身穿黑衣人士拆除鐵欄，向警方投擲磚頭及汽油彈等。曾被捕的社工陳虹秀經審訊後，被裁定罪脫，其後律政司上訴得直，案件發還重審，陳虹秀早前否認暴動罪開審。暫委法官鍾明新今日在區域法院裁定被告暴動罪成，需要還押。案件押後至下月3日求情，下月9日判刑，屆時將連同案其他被告的判刑一併處理。
 
   
 
@@ -1361,77 +1435,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm)
-
----
-
-# 外賣平台「戶戶送」撤出香港市場　運作至4月7日
-
-![戶戶送香港平台將繼續運行至4月7日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795107_1_20250310152224.jpg&q=85)
-  
-
-戶戶送Deliveroo宣布，決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
-
----
-
-# 口岸爆炸案警長以專家證人身分解釋手機應用通訊程式運作
-
-![口岸爆炸案高等法院踏入第67天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795103_1_20250310145411.jpg&q=90)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第67天審訊。控方傳召網罪科警長吳曉羲以專家證人身分作供解釋Telegram運作，警長表示，曾經進行測試，確認能夠以兩部不同的手提電話登入同一個帳戶，當使用其中一者發送訊息，另一部手機亦能同樣地瀏覽到訊息記錄。發送訊息的顯示時間會依照手機設定時間，但接收訊息一方的顯示時間則會依照Telegram伺服器時間。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795103-20250310.htm)
-
----
-
-# 貿發局研究發現香港企業在東盟電商市場有優勢
-
-![貿發局研究發現，約70%受訪者過去12個月至少網購過一件來自香港的產品。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795102_1_20250310164122.jpg&q=90)
-  
-
-貿易發展局發布有關「東盟電商機遇：消費行為與香港產品定位」的研究，顯示香港企業在東盟市場具有優勢，認為可借助新一份財政預算案有關推動電子商貿發展的政策，在東盟開拓商機。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm)
 
 ---
