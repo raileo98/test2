@@ -1,3 +1,27 @@
+# 中美據報擬磋商習近平與特朗普6月會面　中方稱沒信息可發布
+
+![中美據報就習近平與特朗普6月會面進行前期磋商。圖為兩人2019年在日本大阪出席二十國集團峰會期間會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795267_1_20250311164357.jpg&q=90)
+  
+
+美國傳媒報道，中美正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm)
+
+---
+
 # 丘應樺籲港商借鑑發展內地電商市場經驗　把握跨境電商無限商機
 
   

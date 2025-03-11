@@ -1,3 +1,27 @@
+# 'No plans for a comprehensive tax-regime review'
+
+![Paul Chan says the government can make extra cash in the coming financial year if the stock market continues to climb. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795259_1_20250311161557.jpg&q=90)
+  
+
+Financial Secretary Paul Chan on Tuesday said the government does not plan to conduct a comprehensive review on the SAR's tax regime in the near term, despite calls to introduce new sources of revenue to tackle the city’s deficit.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm)
+
+---
+
 # Man jailed for three months over fake qualifications
 
 ![The Shatin Court says the defendant was being unrealistic in seeking a community service order for his crime. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795242_1_20250311143749.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong and Macau will always have the central government's backing in terms o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm)
-
----
-
-# More spectators expected at this year's LIV Golf HK
-
-![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=85)
-  
-
-Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm)
 
 ---

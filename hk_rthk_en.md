@@ -1,3 +1,27 @@
+# 'No plans for a comprehensive tax-regime review'
+
+![Paul Chan says the government can make extra cash in the coming financial year if the stock market continues to climb. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795259_1_20250311161557.jpg&q=90)
+  
+
+Financial Secretary Paul Chan on Tuesday said the government does not plan to conduct a comprehensive review on the SAR's tax regime in the near term, despite calls to introduce new sources of revenue to tackle the city’s deficit.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm)
+
+---
+
 # NPC concludes annual session with call for unity
 
 ![NPC Standing Committee vice-chairman Li Hongzhong presided over the meeting, after chairman Zhao Leji took a leave of absence. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_1_20250311163103.jpg&q=90)
@@ -1413,29 +1437,5 @@ Premier League leaders Liverpool needed two Mohamed Salah penalties to beat bott
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm)
-
----
-
-# Hudson-Odoi strikes late as Forest edge City
-
-![Callum Hudson-Odoi, (far right), beats Ederson at his near post from a very tight angle. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794933_1_20250308223542.jpg&q=60)
-  
-
-Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win over Manchester City in the Premier League on Saturday and keep them on track for a top-four finish and prized place in next year's Champions League.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm)
 
 ---
