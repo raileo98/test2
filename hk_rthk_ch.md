@@ -1,3 +1,47 @@
+# 參與灣仔非法集結原審脫罪　案件重審陳虹秀被判暴動罪成
+
+![暫委法官鍾明新裁定陳虹秀暴動罪成，需要還押。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795249_1_20250311150824.jpg&q=55)
+  
+
+五年前灣仔軒尼詩道發生非法集結，多名身穿黑衣人士拆除鐵欄，向警方投擲磚頭及汽油彈等。曾被捕的陳虹秀經審訊後，獲判無罪，其後律政司上訴得直，案件發還重審，陳虹秀早前否認暴動罪開審，暫委法官鍾明新今日在區域法院裁定陳虹秀暴動罪成，需要還押。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm)
+
+---
+
+# 全國兩會｜全國人大會議舉行閉幕會
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm)
+
+---
+
 # 與母爭執及被拒門外放火燒雜物　思覺失調女子承認縱火判囚一年
 
 ![法庭考慮到女被告已賠償母親3000元及已獲母親原諒，最終判女被告監禁一年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795247_1_20250311145915.jpg&q=85)
