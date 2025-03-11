@@ -1,3 +1,51 @@
+# 韓股初段跌約2%
+
+![首爾綜合指數較早時報2524點，跌45點，跌幅1.78%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795190_1_20250311080519.jpg&q=75)
+  
+
+南韓股市早段沽壓大，首爾綜合指數較早時報2524點，跌45點，跌幅1.78%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795190-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795190-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795190-20250311.htm)
+
+---
+
+# 日股初段跌近700點
+
+![日經指數較早時報36360點，跌667點，跌幅1.8%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795189_1_20250311080430.jpg&q=85)
+  
+
+日股跟隨隔晚美股下挫，日經指數較早時報36360點，跌667點，跌幅1.8%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm)
+
+---
+
 # 美元兌日圓曾失守147關口　比特幣創4個月新低
 
 ![美元兌日圓曾跌穿147關口，跌至146.6附近，是去年10月初以來最低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795183_1_20250311061741.jpg&q=80)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm)
-
----
-
-# 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795058_1_20250310103005.jpg&q=75)
-  
-
-在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm)
-
----
-
-# 人行逆回購965億元人民幣　連續6日淨回籠
-
-![人行逆回購965億元人民幣，連續6日錄得淨回籠，但單日淨回籠僅5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795056_1_20250310093848.jpg&q=65)
-  
-
-人民銀行公開市場開展965億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠5億元，連續6日淨回籠。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795056-20250310.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 伊朗稱不接受基於恐嚇與威脅談判提議　指未收到美方信件
+
+  
+
+伊朗外交部發言人巴加埃表示，伊朗從未關閉談判大門，但不接受基於恐嚇與威脅、基本上毫無意義的談判提議，又指德黑蘭方面未收到來自美國的任何信件。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795192-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795192-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795192-20250311.htm)
+
+---
+
 # 《環看天下》：加尼出任加拿大新總理　同時應對中美關稅勢成考驗
 
 ![卡尼當選執政加拿大自由黨新黨魁，將成為加拿大新任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795188_1_20250311073323.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm)
-
----
-
-# 日本大船渡市長稱當地山火火勢已減弱
-
-![當局加緊撲救大船渡市的山火。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795004_1_20250309185315.jpg&q=80)
-  
-
-日本岩手縣大船渡市市長說，當地持續一個多星期的山火火勢已經減弱，不再有進一步蔓延的風險。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795004-20250309.htm)
 
 ---
