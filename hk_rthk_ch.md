@@ -1,3 +1,146 @@
+# 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
+
+![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=90)
+  
+
+為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
+
+---
+
+# 警試點計劃威靈頓街設臨時過海的士站　的士大使協助乘客記錄資料
+
+  
+
+警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。警方將推行試點計劃，本月15至16日，以及本月22至23日，一連兩個週末，由午夜零時30分至清晨5時，於威靈頓街32號對開，設置臨時過海的士站。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm)
+
+---
+
+# 巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質
+
+![巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795304_1_20250311203644.jpg&q=90)
+  
+
+巴基斯坦軍方消息人士向新華社證實，巴基斯坦西南部俾路支省境內一列載有超過400名乘客的列車遇襲，武裝分子挾持部分乘客作為人質。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm)
+
+---
+
+# 「戶戶送」將撤出香港　消委會暫接6宗投訴涉及1800元
+
+![消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795303_1_20250311203715.jpg&q=90)
+  
+
+戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台Foodpanda，及結束其他業務，現有客戶和送遞員會被轉至Foodpanda。消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元，金額最高一宗為534元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm)
+
+---
+
+# 全國兩會｜習近平離開人大會場時與梁振英及何厚鏵打招呼
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795302_1_20250311204512.jpg&q=80)
+  
+
+十四屆全國人大三次會議下午在北京閉幕，出席閉幕會的國家主席習近平離開會場時，一度停步與兩名全國政協副主席、香港前行政長官梁振英及澳門前行政長官何厚鏵打招呼，梁振英及何厚鏵均點頭回應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm)
+
+---
+
+# 美烏代表沙特會談　烏方：會議開始得非常有建設性
+
+![葉爾馬克在社交平台發文說，與美國團隊的會議開始得非常有建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795301_1_20250311201833.jpg&q=85)
+  
+
+美國和烏克蘭代表團在沙特阿拉伯城市吉達，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm)
+
+---
+
 # 外交部：英方應尊重中方在南海領土主權和海洋權益
 
 ![毛寧說，作為域外國家，英方應尊重中方在南海的領土主權和海洋權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795300_1_20250311194238.jpg&q=90)

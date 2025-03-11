@@ -1,3 +1,51 @@
+# 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
+
+![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=90)
+  
+
+為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
+
+---
+
+# 全國兩會｜習近平離開人大會場時與梁振英及何厚鏵打招呼
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795302_1_20250311204512.jpg&q=80)
+  
+
+十四屆全國人大三次會議下午在北京閉幕，出席閉幕會的國家主席習近平離開會場時，一度停步與兩名全國政協副主席、香港前行政長官梁振英及澳門前行政長官何厚鏵打招呼，梁振英及何厚鏵均點頭回應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm)
+
+---
+
 # 外交部：英方應尊重中方在南海領土主權和海洋權益
 
 ![毛寧說，作為域外國家，英方應尊重中方在南海的領土主權和海洋權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795300_1_20250311194238.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm)
-
----
-
-# 內地2月CPI按年跌0.7%　13個月以來首次轉跌
-
-![內地2月CPI按年轉跌0.7%，是13個月以來首次下跌。核心CPI亦跌0.1%，逾4年來首次下跌。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795026_1_20250310052735.jpg&q=80)
-  
-
-內地2月居民消費價格指數(CPI)按年跌0.7%，是13個月以來首次轉跌；1月是升0.5%。上月CPI按月亦跌0.2%，創3個月新低，按月及按年跌幅都超出市場預期。今年首兩個月CPI按年跌0.1%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795026-20250310.htm)
-
----
-
-# 中國成功發射通信技術試驗衛星十五號
-
-![通信技術試驗衛星十五號成功發射升空。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795022_1_20250310022450.jpg&q=90)
-  
-
-中國在西昌衛星發射中心使用長征三號乙運載火箭，在凌晨1時17分，成功將通信技術試驗衛星十五號發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795022-20250310.htm)
 
 ---

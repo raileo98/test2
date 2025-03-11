@@ -1,3 +1,51 @@
+# 巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質
+
+![巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795304_1_20250311203644.jpg&q=90)
+  
+
+巴基斯坦軍方消息人士向新華社證實，巴基斯坦西南部俾路支省境內一列載有超過400名乘客的列車遇襲，武裝分子挾持部分乘客作為人質。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm)
+
+---
+
+# 美烏代表沙特會談　烏方：會議開始得非常有建設性
+
+![葉爾馬克在社交平台發文說，與美國團隊的會議開始得非常有建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795301_1_20250311201833.jpg&q=85)
+  
+
+美國和烏克蘭代表團在沙特阿拉伯城市吉達，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm)
+
+---
+
 # 外交部：英方應尊重中方在南海領土主權和海洋權益
 
 ![毛寧說，作為域外國家，英方應尊重中方在南海的領土主權和海洋權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795300_1_20250311194238.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm)
-
----
-
-# 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
-  
-
-在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm)
-
----
-
-# 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795058_1_20250310103005.jpg&q=75)
-  
-
-在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm)
 
 ---

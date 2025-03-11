@@ -1,3 +1,98 @@
+# 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
+
+![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=90)
+  
+
+為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
+
+---
+
+# 警試點計劃威靈頓街設臨時過海的士站　的士大使協助乘客記錄資料
+
+  
+
+警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。警方將推行試點計劃，本月15至16日，以及本月22至23日，一連兩個週末，由午夜零時30分至清晨5時，於威靈頓街32號對開，設置臨時過海的士站。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm)
+
+---
+
+# 「戶戶送」將撤出香港　消委會暫接6宗投訴涉及1800元
+
+![消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795303_1_20250311203715.jpg&q=90)
+  
+
+戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台Foodpanda，及結束其他業務，現有客戶和送遞員會被轉至Foodpanda。消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元，金額最高一宗為534元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm)
+
+---
+
+# 全國兩會｜習近平離開人大會場時與梁振英及何厚鏵打招呼
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795302_1_20250311204512.jpg&q=80)
+  
+
+十四屆全國人大三次會議下午在北京閉幕，出席閉幕會的國家主席習近平離開會場時，一度停步與兩名全國政協副主席、香港前行政長官梁振英及澳門前行政長官何厚鏵打招呼，梁振英及何厚鏵均點頭回應。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm)
+
+---
+
 # 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
 
 ![徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795298_1_20250311193628.jpg&q=90)
@@ -1342,101 +1437,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm)
-
----
-
-# 逾期居留十多年花光積蓄　75歲新加坡籍男子承認打劫還押候判
-
-![高等法院將案件押後至明日判刑，期間被告還押看管。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795125_1_20250310165943.jpg&q=90)
-  
-
-75歲新加坡籍男子逾期居留10多年，花光積蓄後財困，2020年7月用清水佯裝電油，恫嚇一間連鎖店的職員但事敗。他於2022年4月中，再闖入油麻地彌敦道一間銀行，劫走14000元現金後逃去。他在高等法院承認1項企圖搶劫罪及1項搶劫罪，案件押後至明日判刑，期間被告還押看管。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm)
-
----
-
-# 貿發局：香港中小企可特別留意泰國和印尼電商市場
-
-![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
-  
-
-貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。貿發局將於下周三舉行的亞洲品牌及營銷論壇，以及亞洲電子商貿論壇上，發表完整報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm)
-
----
-
-# 7歲男童感染侵入性腦膜炎雙球菌現時情況穩定
-
-![男童的腦脊液樣本經化驗後，證實對腦膜炎雙球菌呈陽性反應，臨床診斷為腦膜炎。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795123_1_20250310173137.jpg&q=80)
-  
-
-一名7歲男童感染侵入性腦膜炎雙球菌，現時情況穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795123-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795123-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795123-20250310.htm)
-
----
-
-# 全國兩會｜中山大學高等研究院落戶香港正開展課程註冊及評審
-
-![高松認為，校方在港設立機構，為大灣區建設世界重要人才中心和創新高地貢獻力量。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795122_1_20250310173057.jpg&q=90)
-  
-
-中山大學高等研究院去年10月落戶香港科學園，全國人大代表、中山大學校長高松表示，這是內地高校在港首個綜合研究機構，正開展課程註冊和評審，待相關辦學程序申辦完成後，研究院將先開展研究生招生，希望在不遠的時間內，按照非本地課程教育和專上院校教育模式在港招生。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm)
 
 ---

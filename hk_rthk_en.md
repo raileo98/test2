@@ -1,3 +1,27 @@
+# South Africa bus crash toll climbs to 16
+
+![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=45)
+  
+
+A bus overturned in an area of Johannesburg near South Africa's main airport early on Tuesday, killing at least 16 people, city officials said, with dozens more injured.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm)
+
+---
+
 # Man United announce plans for new 100,000-seat stadium
 
 ![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=80)
@@ -1412,29 +1436,5 @@ Argentina's port city of Bahia Blanca has been "destroyed" after being pummelled
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794956-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794956-20250309.htm)
-
----
-
-# Link HK closely to national development, says FS
-
-![Paul Chan says Hong Kong needs to integrate the spirit of the Two Sessions into its development. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794969_1_20250309120252.jpg&q=85)
-  
-
-Financial Secretary Paul Chan said on Sunday that Hong Kong must closely link its development with that of the country's, as the SAR actively integrates into the nation's growth.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm)
 
 ---
