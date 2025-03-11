@@ -24,6 +24,10 @@
 
 # 全國兩會｜張素心稱要紮實做好國產晶片把技術做得更好
 
+![張素心說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_1_20250311191036.jpg&q=80)
+![劉繼忠表示，天問三號火星採樣任務的進展很順利。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_2_20250311191036.jpg&q=75)
+![賴如鑫被問到將來會否有國防新科技在香港展出時說，不接受採訪。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_3_20250311191036.jpg&q=80)
+![董軍沒有回應有關今年國防預算增幅的提問。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_4_20250311191036.jpg&q=75)
   
 
 全國人大代表、半導體企業華虹集團前董事長張素心，在北京出席全國兩會期間接受本台訪問時說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。
@@ -45,8 +49,9 @@
 
 ---
 
-# 陳茂波：考慮稅制必要考慮競爭力　現時未必合適作稅務調升
+# 財政預算案2025 | 陳茂波：現時未必合適作稅務調升
 
+![陳茂波說，考慮稅制必定要考慮競爭力，因為要與鄰近地區爭投資、爭人才，因此要相當謹慎，重申現時未必合適作稅務調升。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795292_1_20250311190645.jpg&q=90)
   
 
 財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，而本港擁有多項優勢，包括能吸引外國人才等。
@@ -548,9 +553,9 @@
 
 ---
 
-# 陳茂波稱綠色科技樞紐可容納約200間綠色企業提供無限機會
+# 財政預算案2025｜陳茂波稱綠色科技樞紐可容納二百間綠色企業
 
-![陳茂波說，新設立的綠色科技樞紐將容納約200間綠色企業，聚集綠色產業的創新者。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=30)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=30)
   
 
 財政司司長陳茂波說，透過結合綠色科技和綠色金融，除了為全球綠色進程作出貢獻，亦為香港經濟發展創造新動力。財政預算案提出科技園成立的「綠色科技樞紐」是相關願景的基石。
@@ -860,7 +865,7 @@
 
 ---
 
-# 陳茂波稱香港將利用北部都會區加強與深圳科研合作
+# 財政預算案2025｜陳茂波稱香港利用北都加強與深圳科研合作
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
   

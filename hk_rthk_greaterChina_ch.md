@@ -1,5 +1,9 @@
 # 全國兩會｜張素心稱要紮實做好國產晶片把技術做得更好
 
+![張素心說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_1_20250311191036.jpg&q=80)
+![劉繼忠表示，天問三號火星採樣任務的進展很順利。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_2_20250311191036.jpg&q=75)
+![賴如鑫被問到將來會否有國防新科技在香港展出時說，不接受採訪。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_3_20250311191036.jpg&q=80)
+![董軍沒有回應有關今年國防預算增幅的提問。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_4_20250311191036.jpg&q=75)
   
 
 全國人大代表、半導體企業華虹集團前董事長張素心，在北京出席全國兩會期間接受本台訪問時說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。
@@ -333,7 +337,7 @@
 
 ---
 
-# 陳茂波稱香港將利用北部都會區加強與深圳科研合作
+# 財政預算案2025｜陳茂波稱香港利用北都加強與深圳科研合作
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
   
