@@ -1,3 +1,27 @@
+# 烏克蘭外長：烏美會談具有「建設性氣氛」
+
+![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795328_1_20250312004312.jpg&q=85)
+  
+
+美國與烏克蘭官員在沙特阿拉伯城市吉達會談。有份參加會談的烏克蘭外長瑟比加在社交媒體說，烏方視吉達會談為推動和平和發展烏美戰略伙伴關係的重要機遇，會談的「建設性氣氛」將證明烏方可以利用這個機遇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm)
+
+---
+
 # 菲總統證實杜特爾特正被送往海牙
 
 ![支持者在馬尼拉集會聲援杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_1_20250312001059.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm)
-
----
-
-# 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
-  
-
-在北京，十四屆全國人大三次會議下午在人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm)
 
 ---
