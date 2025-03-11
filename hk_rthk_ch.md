@@ -46,6 +46,7 @@
 
 # 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
 
+![Deliveroo撤出香港市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795234_1_20250311130828.jpg&q=90)
   
 
 外賣平台戶戶送Deliveroo撤出香港市場。
