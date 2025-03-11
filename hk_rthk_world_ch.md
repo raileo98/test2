@@ -1,3 +1,27 @@
+# 特朗普：或重新考慮對加拿大鋼鋁關稅增加一倍的決定
+
+![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=75)
+  
+
+美國總統特朗普宣布大幅提高對加拿大鋼鋁關稅後表示，很可能會重新考慮這個決定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm)
+
+---
+
 # 俄外交部：不排除最近幾天與美方溝通
 
 ![扎哈羅娃表示，俄方不排除最近幾天與美國代表溝通的可能性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795339_1_20250312042116.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm)
-
----
-
-# 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
-
-![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
-  
-
-加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
 
 ---
