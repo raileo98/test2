@@ -575,6 +575,30 @@
 
 ---
 
+# 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
+
+![Deliveroo撤出香港市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795234_1_20250311130828.jpg&q=90)
+  
+
+外賣平台戶戶送Deliveroo撤出香港市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm)
+
+---
+
 # 港股半日跌221點　金融股普遍向下
 
 ![港股早段曾跌逾540點，隨後跌幅逐步收窄，中午報23562點，跌221點，跌幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795230_1_20250311121209.jpg&q=50)
@@ -1009,7 +1033,7 @@
 
 # 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
 
-![五位分別來自肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
   
 
 全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
-
----
-
-# 草姬集團料去年盈利按年最少跌67%
-
-![草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795157_2_20250311062331.jpg&q=85)
-  
-
-草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm)
 
 ---

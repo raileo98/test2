@@ -1,3 +1,49 @@
+# 陳茂波：考慮稅制必要考慮競爭力　現時未必合適作稅務調升
+
+  
+
+財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，而本港擁有多項優勢，包括能吸引外國人才等。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm)
+
+---
+
+# 港鐵今年或凍結票價　有議員料減票價機會不大
+
+  
+
+港鐵行政總裁金澤培表示，估計今年港鐵票價可能凍結。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm)
+
+---
+
 # 全國兩會｜人大會議閉幕　李鴻忠：為實現十五五良好開局打牢基礎
 
   
@@ -46,6 +92,7 @@
 
 # 全國兩會｜自然資源部增加優質耕地比例　讓中國飯碗更穩更牢
 
+![關志鷗表示，今年政府工作報告和中央一號文件對耕地保護提出了明確要求，當局會重點做好三件事，包括要穩數量、強監管；提質量、優佈局；亦要優生態、惠民生。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795287_1_20250311184333.jpg&q=90)
   
 
 在北京，自然資源部部長關志鷗表示，今年政府工作報告和中央一號文件對耕地保護提出了明確要求，當局會重點做好三件事，包括要穩數量、強監管；提質量、優佈局；亦要優生態、惠民生。
@@ -1800,7 +1847,7 @@
 
 # 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
 
-![五位分別來自肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
   
 
 全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
