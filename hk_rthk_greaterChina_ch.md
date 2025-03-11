@@ -1,4 +1,27 @@
-# 全國兩會｜劉兆佳稱香港不能只等中央發號司令需主動籌劃發展路向
+# 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
+
+  
+
+十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結行程時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm)
+
+---
+
+# 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
 
   
 
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794976-20250309.htm)
-
----
-
-# 中伊俄海軍本月上中旬在恰巴哈爾港附近區域聯合演習
-
-![中國、伊朗及俄羅斯海軍去年3月在阿曼灣組織實施有關聯合演習。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794973_1_20250309131226.jpg&q=80)
-  
-
-中國、伊朗、俄羅斯三國海軍將於本月上中旬，在伊朗恰巴哈爾港附近區域組織實施「安全紐帶-2025」聯合演習。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm)
 
 ---

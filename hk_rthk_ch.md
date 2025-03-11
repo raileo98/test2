@@ -1,4 +1,51 @@
-# 全國兩會｜劉兆佳稱香港不能只等中央發號司令需主動籌劃發展路向
+# 俄羅斯稱擊落337架烏克蘭無人機　莫斯科州長稱襲擊致2死多傷
+
+![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=60)
+  
+
+俄羅斯國防部表示，防空部隊一夜之間擊落337架烏克蘭無人機，在莫斯科州上空，有91架無人機被摧毀。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm)
+
+---
+
+# 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
+
+  
+
+十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結行程時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm)
+
+---
+
+# 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
 
   
 
@@ -23,6 +70,7 @@
 
 # 黎智英案於8月14日開始結案陳詞　為期8日
 
+![各方討論後，決定將於8月14日開始，暫定為期8日的結案陳詞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795274_1_20250311172023.jpg&q=80)
   
 
 壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方已完成舉證，3名法官杜麗冰、李素蘭、李運騰與控辯雙方今日開庭，討論有關結案陳詞所涉範疇及適當日子，各方討論後，決定將於8月14日開始，暫定為期8日的結案陳詞。

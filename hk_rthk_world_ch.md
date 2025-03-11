@@ -1,4 +1,28 @@
-# 全國兩會｜劉兆佳稱香港不能只等中央發號司令需主動籌劃發展路向
+# 俄羅斯稱擊落337架烏克蘭無人機　莫斯科州長稱襲擊致2死多傷
+
+![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=60)
+  
+
+俄羅斯國防部表示，防空部隊一夜之間擊落337架烏克蘭無人機，在莫斯科州上空，有91架無人機被摧毀。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm)
+
+---
+
+# 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
 
   
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm)
-
----
-
-# 馬斯克稱不會切斷對烏克蘭「星鏈」服務
-
-![馬斯克說，不會切斷對烏克蘭的「星鏈」衛星網絡服務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795025_1_20250310053705.jpg&q=90)
-  
-
-美國太空探索技術公司行政總裁馬斯克透過社交網站澄清，無論他多麼不同意烏克蘭的政策，都不會切斷對烏克蘭的「星鏈」衛星網絡服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm)
 
 ---

@@ -1,6 +1,5 @@
 # NPC concludes annual session with call for unity
 
-![NPC Standing Committee vice-chairman Li Hongzhong presided over the meeting, after chairman Zhao Leji took a leave of absence. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_1_20250311163103.jpg&q=90)
 ![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=35)
   
 
