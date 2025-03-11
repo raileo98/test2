@@ -1,3 +1,28 @@
+# PSG dump Liverpool out Champions League
+
+![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=85)
+![Liverpool were only able to convert on one of their penalty kicks. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_2_20250312072008.jpg&q=45)
+  
+
+Paris Saint-Germain produced a historic turnaround to progress to the Champions League quarter-finals at Liverpool's expense as they triumphed 4-1 on penalties after a 1-0 second leg win at Anfield.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm)
+
+---
+
 # Barca sink Benfica; reach Champions League last eight
 
 ![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=85)
@@ -1422,29 +1447,5 @@ Hong Kong racing royalty Romantic Warrior has come up just short in the world's 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm)
-
----
-
-# Doncic dominates as Lakers rout Nuggets
-
-![Luka Doncic finished with 32 points, 10 rebounds and seven assists. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792827_1_20250223135007.jpg&q=90)
-  
-
-Luka Doncic delivered a dominant 32-point performance as the Los Angeles Lakers snapped the Denver Nuggets' nine-game winning streak on Saturday with an impressive 123-100 victory on the road in Colorado.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm)
 
 ---
