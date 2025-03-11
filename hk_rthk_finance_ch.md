@@ -1,3 +1,27 @@
+# 人民幣兌美元升至近4個月高位收市
+
+![人民幣收市報7.2306兌1美元，較上日收市升343點子，創近4個月高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795271_1_20250311170625.jpg&q=70)
+  
+
+人民幣兌美元收市升至近4個月高位，報7.2306兌1美元，較上日收市升343點子，因美元指數下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm)
+
+---
+
 # 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795154-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795154-20250310.htm)
-
----
-
-# 中信銀行：呂天貴因工作調整辭去副行長職務
-
-![中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795151_1_20250310202728.jpg&q=85)
-  
-
-中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm)
 
 ---

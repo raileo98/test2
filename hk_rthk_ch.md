@@ -1,3 +1,27 @@
+# 人民幣兌美元升至近4個月高位收市
+
+![人民幣收市報7.2306兌1美元，較上日收市升343點子，創近4個月高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795271_1_20250311170625.jpg&q=70)
+  
+
+人民幣兌美元收市升至近4個月高位，報7.2306兌1美元，較上日收市升343點子，因美元指數下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm)
+
+---
+
 # 俄羅斯稱擊落337架烏克蘭無人機　莫斯科州長稱襲擊致2死多傷
 
 ![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=60)
