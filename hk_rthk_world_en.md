@@ -1,3 +1,27 @@
+# Beijing hopes for 'just solution' to Ukraine war
+
+![Foreign Ministry spokeswoman Mao Ning says China supports all efforts that contribute to a peaceful resolution of the Ukraine crisis. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795258_1_20250311160751.jpg&q=90)
+  
+
+China said on Tuesday it hoped a "just and lasting solution" can be found to the three-year war between Ukraine and Russia, ahead of talks that will involve Ukrainian and US officials in Saudi Arabia.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm)
+
+---
+
 # Arab nations condemn Israel's Gaza electricity cut
 
 ![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=60)
@@ -1411,29 +1435,5 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
-
----
-
-# US 'pauses' military aid to Ukraine
-
-![US President Donald Trump suspended military aid to Ukraine, a White House official said, sharply escalating pressure on Kyiv to agree to peace talks with Russia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794138_1_20250304131236.jpg&q=90)
-  
-
-US President Donald Trump has paused military aid to Ukraine following his clash with Ukrainian President Volodymyr Zelensky last week, a White House official said, deepening the fissure that has opened between the two one-time allies.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm)
 
 ---

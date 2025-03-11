@@ -1,3 +1,27 @@
+# Beijing hopes for 'just solution' to Ukraine war
+
+![Foreign Ministry spokeswoman Mao Ning says China supports all efforts that contribute to a peaceful resolution of the Ukraine crisis. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795258_1_20250311160751.jpg&q=90)
+  
+
+China said on Tuesday it hoped a "just and lasting solution" can be found to the three-year war between Ukraine and Russia, ahead of talks that will involve Ukrainian and US officials in Saudi Arabia.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm)
+
+---
+
 # Arab nations condemn Israel's Gaza electricity cut
 
 ![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=60)
@@ -1412,29 +1436,5 @@ The director of the central government's liaison office, Zheng Yanxiong, on Satu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm)
-
----
-
-# Pope doing physiotherapy in hospital after quiet night
-
-![Italian Cardinal Pietro Parolin reads aloud a message on the pope's behalf during a mass in St Peter's Basilica on Saturday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794926_1_20250308200342.jpg&q=70)
-  
-
-Pope Francis was doing physiotherapy on Saturday after passing a quiet night, the Vatican said, as the 88-year-old head of the global Catholic Church battles pneumonia.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm)
 
 ---

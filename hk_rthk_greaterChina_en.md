@@ -1,3 +1,27 @@
+# Beijing hopes for 'just solution' to Ukraine war
+
+![Foreign Ministry spokeswoman Mao Ning says China supports all efforts that contribute to a peaceful resolution of the Ukraine crisis. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795258_1_20250311160751.jpg&q=90)
+  
+
+China said on Tuesday it hoped a "just and lasting solution" can be found to the three-year war between Ukraine and Russia, ahead of talks that will involve Ukrainian and US officials in Saudi Arabia.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm)
+
+---
+
 # 'President Xi gave reassurance to private enterprises'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
@@ -1413,29 +1437,5 @@ China vowed on Tuesday to fight to the "bitter end" if the United States pushes 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794183-20250304.htm)
-
----
-
-# CPPCC outlines modernisation push and self-improvement
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794177_1_20250304165718.jpg&q=90)
-  
-
-The chairman of the Chinese People's Political Consultative Conference (CPPCC) outlined efforts to advance Chinese modernisation and refine standards and procedures at the start of the top political advisory body's annual session in Beijing on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794177-20250304.htm)
 
 ---
