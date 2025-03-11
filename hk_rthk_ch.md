@@ -1,3 +1,50 @@
+# 瑞銀：內地龍頭科技股估值增長有利港股表現
+
+![房東明稱，DeepSeek引發人工智能題材，相關股份估值增長，港股有力跑贏全球股市。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795264_1_20250311163557.jpg&q=85)
+  
+
+美股3大指數隔晚急瀉2%至4%，市場擔憂美國經濟陷入衰退。瑞銀全球金融市場部中國主管房東明表示，美股估值和資本流入均出現輪動情況，從長年期債息下跌可見，資金從股票轉到債券，即從風險較高資產轉移到風險相對低的資產。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm)
+
+---
+
+# 黃大仙下邨火警女住戶死亡　初步調查指煙頭意外點燃床墊所致
+
+  
+
+黃大仙下邨早上發生火警，一名女住戶死亡，消防及警方經初步調查，相信上址一間睡房有煙頭意外點燃床墊引致火警。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm)
+
+---
+
 # 中美據報擬磋商習近平與特朗普6月會面　中方稱沒信息可發布
 
 ![中美據報就習近平與特朗普6月會面進行前期磋商。圖為兩人2019年在日本大阪出席二十國集團峰會期間會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795267_1_20250311164357.jpg&q=90)

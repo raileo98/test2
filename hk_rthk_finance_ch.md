@@ -1,3 +1,27 @@
+# 瑞銀：內地龍頭科技股估值增長有利港股表現
+
+![房東明稱，DeepSeek引發人工智能題材，相關股份估值增長，港股有力跑贏全球股市。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795264_1_20250311163557.jpg&q=85)
+  
+
+美股3大指數隔晚急瀉2%至4%，市場擔憂美國經濟陷入衰退。瑞銀全球金融市場部中國主管房東明表示，美股估值和資本流入均出現輪動情況，從長年期債息下跌可見，資金從股票轉到債券，即從風險較高資產轉移到風險相對低的資產。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm)
+
+---
+
 # 丘應樺籲港商借鑑發展內地電商市場經驗　把握跨境電商無限商機
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm)
-
----
-
-# 建造業議會稱政府資助2500個在職培訓名額足以照顧市場需要
-
-![何安誠（左）表示，去年全港已有六成地盤取得「安全智慧工地系統標籤」。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795142_1_20250310181404.jpg&q=80)
-  
-
-財政預算案提出建造業議會將出資約1.5億元，資助業界為合共2500名工程、建築、測量、規劃及園境的學位課程畢業生，提供在職培訓，協助更多青年獲取專業資格。建造業議會執行總監鄭定寕表示，相信有關名額已足夠照顧市場需要，並且具有一定影響力，又希望外界不要太斟酌數字的多寡，因今次資助是希望令僱主對行業有信心，並在艱難時期為他們提供支援，令公司能夠留得住年青人才。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm)
 
 ---

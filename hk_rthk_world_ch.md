@@ -1,3 +1,27 @@
+# 中美據報擬磋商習近平與特朗普6月會面　中方稱沒信息可發布
+
+![中美據報就習近平與特朗普6月會面進行前期磋商。圖為兩人2019年在日本大阪出席二十國集團峰會期間會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795267_1_20250311164357.jpg&q=90)
+  
+
+美國傳媒報道，中美正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm)
+
+---
+
 # 俄羅斯莫斯科州遭大規模無人機襲擊1死3傷
 
 ![莫斯科州遭受無人機襲擊，有住宅大廈受損。 （路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795262_1_20250311162626.jpg&q=65)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm)
-
----
-
-# 哈馬斯稱切斷加沙供電證實以方堅持用饑餓政策完成種族滅絕
-
-![哈馬斯表示，實際上以色列自2023年10月、今輪衝突爆發以來，就切斷對加沙的電力供應。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795023_1_20250310053912.jpg&q=20)
-  
-
-巴勒斯坦武裝組織哈馬斯表示，以色列宣布切斷電力供應的行為，證實以方堅持透過使用饑餓政策來完成對加沙的種族滅絕，明顯無視所有國際法準則。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm)
 
 ---
