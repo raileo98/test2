@@ -1,3 +1,27 @@
+# 美股初段個別發展
+
+![道瓊斯指數較早時報41752點，跌158點，跌幅0.38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795312_1_20250311214253.jpg&q=90)
+  
+
+美股在開市初段個別發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm)
+
+---
+
 # 星島料去年度虧損擴大至約8500萬元
 
 ![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm)
-
----
-
-# 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
-
-![美國經濟衰退風險上升引發市場嚴重擔憂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795175_1_20250311051543.jpg&q=90)
-  
-
-由於美國經濟衰退風險上升引發市場嚴重擔憂，紐約股市三大指數低開低走。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm)
 
 ---
