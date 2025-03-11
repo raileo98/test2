@@ -1,3 +1,27 @@
+# 巴基斯坦武裝分子挾持火車乘客　威脅殺死人質
+
+![醫護人員在火車站為乘客治療。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795349_1_20250312065251.jpg&q=90)
+  
+
+巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm)
+
+---
+
 # 現貨金曾升逾1%　重上2900美元
 
 ![現貨金重上2900美元關口，最高升至每盎司2921.93美元，升1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795345_1_20250312055525.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm)
-
----
-
-# 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
-
-![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=80)
-  
-
-十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm)
 
 ---

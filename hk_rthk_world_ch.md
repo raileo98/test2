@@ -1,3 +1,27 @@
+# 巴基斯坦武裝分子挾持火車乘客　威脅殺死人質
+
+![醫護人員在火車站為乘客治療。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795349_1_20250312065251.jpg&q=90)
+  
+
+巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm)
+
+---
+
 # 安省暫緩對輸美電力徵收附加費　白宮不向加國鋼鋁加倍徵關稅
 
 ![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm)
-
----
-
-# 南韓戰機誤炸民居事件　初步調查確認飛行員錯誤輸入座標導致
-
-![南韓空軍兩架戰機日前在演習時誤投炸彈，造成房屋受損。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795115_1_20250310160257.jpg&q=50)
-  
-
-南韓空軍公布日前京畿道抱川市兩架參與演習戰機誤投炸彈、造成33人受傷事故的初步調查結果，重申事故是飛行員錯誤輸入座標導致。飛行員亦未有在準備飛行、起飛前及投彈前，正確執行3次確認座標的流程。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795115-20250310.htm)
 
 ---
