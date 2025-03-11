@@ -1,3 +1,27 @@
+# 白宮：特朗普尚未與加國候任總理卡尼交談
+
+![萊維特說，特朗普的電話始終對希望與他交談的領導人保持開放。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795332_1_20250312023548.jpg&q=90)
+  
+
+美國總統特朗普宣布，將對從加拿大進口的鋼鋁產品，額外徵收25%的關稅，令關稅水平提高至50%，以報復加拿大安大略省對輸送到美國的電力徵收附加費。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm)
+
+---
+
 # 以色列與黎巴嫩同意談判陸路邊界問題
 
 ![以色列稱，各方同意成立三個小組討論以黎陸路邊界問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795331_1_20250312021002.jpg&q=60)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm)
-
----
-
-# 南韓軍方稱北韓向黃海發射數枚導彈
-
-![北韓向黃海發射數枚導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795093_1_20250310135058.jpg&q=90)
-  
-
-在美韓啟動代號「自由護盾」的年度大型聯合軍演之際，北韓發射多枚彈道導彈。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795093-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795093-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795093-20250310.htm)
 
 ---
