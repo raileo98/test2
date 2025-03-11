@@ -1,3 +1,27 @@
+# 美股連跌兩日　道指低收478點　標普500指數跌約0.8%
+
+![美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795342_1_20250312053710.jpg&q=90)
+  
+
+美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm)
+
+---
+
 # 道指跌幅曾擴大至逾600點
 
 ![道瓊斯指數一度跌逾600點，早段低見41278點，較早時報41341點，跌570點，跌幅1.36%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795326_1_20250311230811.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm)
-
----
-
-# 港股美國預託證券普遍跌1%至逾4%
-
-![港股美國預託證券急挫，比本港昨日收市價普遍跌1%至逾4%，阿里巴巴表現最差。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795181_1_20250311060150.jpg&q=60)
-  
-
-港股美國預託證券(ADR)急挫，比本港昨日收市價普遍跌1%至逾4%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm)
 
 ---

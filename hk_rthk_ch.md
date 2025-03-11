@@ -1,3 +1,27 @@
+# 美股連跌兩日　道指低收478點　標普500指數跌約0.8%
+
+![美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795342_1_20250312053710.jpg&q=90)
+  
+
+美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm)
+
+---
+
 # 安省暫緩對輸美電力徵收附加費　白宮撤銷加倍向加國徵鋼鋁關稅
 
 ![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm)
-
----
-
-# 保薦人主管協會：應上調新股公開發售部分回撥機制觸發條件
-
-![鄧澔暐指出，回撥機制行之有效，認為無需大改變，但應上調回撥機制觸發條件。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795270_1_20250311183728.jpg&q=90)
-  
-
-港交所正為優化首次公開招股市場定價及公開市場規定諮詢市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm)
 
 ---
