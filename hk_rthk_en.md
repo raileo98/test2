@@ -1,3 +1,27 @@
+# Ex-Philippine president Duterte arrested in Manila
+
+![Former Philippine president Rodrigo Duterte was arrested after landing in Manila from Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795225_1_20250311113948.jpg&q=90)
+  
+
+Former Philippine president Rodrigo Duterte was arrested by police at Manila's international airport on Tuesday on the order of the International Criminal Court (ICC) in connection with a case of crime against humanity filed against him, the Philippine government said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm)
+
+---
+
 # 'Restaurants may need to pay more to delivery firms'
 
 ![Marketing professor, Kenneth Kwong, thinks Deliveroo made the decision to exit the Hong Kong market purely on commercial considerations. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795218_1_20250311104506.jpg&q=90)
@@ -1412,29 +1436,5 @@ Impeached South Korean President Yoon Suk Yeol was released from detention on Sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm)
-
----
-
-# Robertson reaches final of World Snooker Grand Prix
-
-![Shaun Murphy, (left), congratulates Neil Robertson after a thrilling battle on the baize. Photo courtesy of the World Snooker Tour's Facebook page.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794915_1_20250308173327.jpg&q=90)
-  
-
-Two former world champions, Shaun Murphy of England and Neil Robertson of Australia, put on a show for fans at the Kai Tak Arena on Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
 
 ---

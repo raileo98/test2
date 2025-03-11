@@ -1,4 +1,4 @@
-# 滬股半日跌約0.5%　創業板跌近0.8%
+# 滬股半日跌約0.5%　創業板指數跌近0.8%
 
 ![上證指數半日收報3350點，跌15點，跌幅0.47%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795224_1_20250311113344.jpg&q=90)
   

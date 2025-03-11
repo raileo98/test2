@@ -1,3 +1,27 @@
+# Ex-Philippine president Duterte arrested in Manila
+
+![Former Philippine president Rodrigo Duterte was arrested after landing in Manila from Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795225_1_20250311113948.jpg&q=90)
+  
+
+Former Philippine president Rodrigo Duterte was arrested by police at Manila's international airport on Tuesday on the order of the International Criminal Court (ICC) in connection with a case of crime against humanity filed against him, the Philippine government said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm)
+
+---
+
 # Carney vows 'quick' transition to new government
 
 ![Former Bank of Canada and Bank of England governor Mark Carney will succeed Justin Trudeau as Canadian PM later this week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795221_1_20250311110611.jpg&q=90)
@@ -1411,29 +1435,5 @@ Elon Musk's SpaceX called off the latest test flight of its Starship rocket just
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm)
-
----
-
-# UN sets new date for talks on global plastics treaty
-
-![Previous talks on a legally binding treaty broke down in December following opposition from a bloc of mainly oil-producing countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794100_2_20250304101336.jpg&q=85)
-  
-
-A new round of negotiations for an international treaty on reducing global plastics pollution will be held in Geneva in August, the United Nations Environment Programme (Unep) said on Monday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm)
 
 ---
