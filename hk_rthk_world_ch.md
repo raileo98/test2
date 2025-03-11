@@ -1,3 +1,27 @@
+# 日本311大地震14周年　逾2萬福島居民仍未能返回家園
+
+![日本311大地震14周年，東京街上有民眾默哀悼念死難者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795255_1_20250311152845.jpg&q=90)
+  
+
+日本311大地震14周年，在岩手、宮城、福島3縣，民眾從清晨就開始悼念遇難者，全國多處亦有悼念活動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm)
+
+---
+
 # 日本東京街頭一名女子遇襲身亡　疑兇被捕
 
 ![日本東京街頭一名女子遇襲身亡　疑兇被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795243_1_20250311144208.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm)
-
----
-
-# 敘利亞成立國家委員會調查西部襲擊和衝突事件
-
-![敘利亞安全部隊成員在拉塔基亞核查車上人員身分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795020_1_20250310022247.jpg&q=75)
-  
-
-敘利亞總統府宣布，成立一個獨立的國家委員會，調查上星期四以來西部沿海地區發生的襲擊和衝突事件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm)
 
 ---
