@@ -1,3 +1,49 @@
+# 慢性疾病共同治理先導計劃將分階段擴展至醫管局門診診所
+
+  
+
+醫務衞生局公布，本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，首階段將於7間普通科門診診所試行，6月底前再增加另外6間，為弱勢社群提供預防篩查及護理服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm)
+
+---
+
+# 余寶美稱擬重啟新界豁免管制屋宇僭建物申報　但嚴重僭建仍會執法
+
+  
+
+屋宇署於2012年透過新界豁免管制屋宇的僭建物申報計劃，對於無申報的僭建物，署方會逐步採取執法行動予以取締，並會在清理首輪取締目標僭建物後，分階段逐步取締違例情況較輕及潛在風險較低的現存僭建物。屋宇署署長余寶美說，當局計劃重啟新界豁免管制屋宇僭建物申報計劃，期望於今年底可以落實，並鼓勵住戶使用電子方式申報，讓住戶每五年申報一次的過程較簡單。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm)
+
+---
+
 # 滬股半日跌約0.5%　創業板指數跌近0.8%
 
 ![上證指數半日收報3350點，跌15點，跌幅0.47%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795224_1_20250311113344.jpg&q=90)
@@ -1385,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm)
-
----
-
-# 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
-
-![丘應樺（左）拜會廣東省商務廳廳長張勁松（右），就深化粵港兩地的經貿合作包括招商引資交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795149_1_20250310195225.jpg&q=65)
-  
-
-商務及經濟發展局局長丘應樺抵達廣州，展開訪問行程。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm)
-
----
-
-# 麥萃才相信外賣平台面對挑戰包括假日不留港消費市民增加
-
-![戶戶送Deliveroo宣布撤出香港市場。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795148_1_20250310192201.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場。浸會大學會計、經濟及金融學系副教授麥萃才相信，當中涉及的挑戰包括因為疫情過去，假日時多了市民不留港消費；即使在香港，外出吃飯亦很方便。加上早前有內地外賣平台進駐香港，提供了不少優惠活動；而本港工資水平較高，送外賣需時，未必容易聘請到送餐員，導致營運成本高居不下。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm)
 
 ---

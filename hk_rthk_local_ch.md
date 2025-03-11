@@ -1,3 +1,49 @@
+# 慢性疾病共同治理先導計劃將分階段擴展至醫管局門診診所
+
+  
+
+醫務衞生局公布，本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，首階段將於7間普通科門診診所試行，6月底前再增加另外6間，為弱勢社群提供預防篩查及護理服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm)
+
+---
+
+# 余寶美稱擬重啟新界豁免管制屋宇僭建物申報　但嚴重僭建仍會執法
+
+  
+
+屋宇署於2012年透過新界豁免管制屋宇的僭建物申報計劃，對於無申報的僭建物，署方會逐步採取執法行動予以取締，並會在清理首輪取締目標僭建物後，分階段逐步取締違例情況較輕及潛在風險較低的現存僭建物。屋宇署署長余寶美說，當局計劃重啟新界豁免管制屋宇僭建物申報計劃，期望於今年底可以落實，並鼓勵住戶使用電子方式申報，讓住戶每五年申報一次的過程較簡單。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm)
+
+---
+
 # 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
 
   
@@ -1385,53 +1431,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795039-20250310.htm)
-
----
-
-# 全國兩會｜邱達昌料樓市應已見底　發展商冀套現低價買地
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795038_1_20250310080433.jpg&q=80)
-  
-
-全國政協常委、遠東發展主席邱達昌，在北京接受本台專訪時表示，相信樓市應該已見底，預計樓價將平穩發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795038-20250310.htm)
-
----
-
-# 主辦方稱按既定程序申請在球員比賽範圍及貴賓席放膠樽裝飲料
-
-![綠色和平發現貴賓沙發席上，觀眾獲派連蓋的膠樽水，與場館規定不相符。（綠色和平提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795018_1_20250309234709.jpg&q=90)
-  
-
-環保組織綠色和平在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，拍攝到觀眾席上，有預設擺放連蓋的膠樽水；亦有觀眾將自備杯帶入場內，認為有違場館規定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm)
 
 ---

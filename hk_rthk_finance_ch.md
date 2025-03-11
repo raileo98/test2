@@ -1,3 +1,49 @@
+# 慢性疾病共同治理先導計劃將分階段擴展至醫管局門診診所
+
+  
+
+醫務衞生局公布，本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，首階段將於7間普通科門診診所試行，6月底前再增加另外6間，為弱勢社群提供預防篩查及護理服務。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795228-20250311.htm)
+
+---
+
+# 余寶美稱擬重啟新界豁免管制屋宇僭建物申報　但嚴重僭建仍會執法
+
+  
+
+屋宇署於2012年透過新界豁免管制屋宇的僭建物申報計劃，對於無申報的僭建物，署方會逐步採取執法行動予以取締，並會在清理首輪取締目標僭建物後，分階段逐步取締違例情況較輕及潛在風險較低的現存僭建物。屋宇署署長余寶美說，當局計劃重啟新界豁免管制屋宇僭建物申報計劃，期望於今年底可以落實，並鼓勵住戶使用電子方式申報，讓住戶每五年申報一次的過程較簡單。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm)
+
+---
+
 # 滬股半日跌約0.5%　創業板指數跌近0.8%
 
 ![上證指數半日收報3350點，跌15點，跌幅0.47%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795224_1_20250311113344.jpg&q=90)
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
-
----
-
-# 貿發局研究發現香港企業在東盟電商市場有優勢
-
-![貿發局研究發現，約70%受訪者過去12個月至少網購過一件來自香港的產品。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795102_1_20250310164122.jpg&q=90)
-  
-
-貿易發展局發布有關「東盟電商機遇：消費行為與香港產品定位」的研究，顯示香港企業在東盟市場具有優勢，認為可借助新一份財政預算案有關推動電子商貿發展的政策，在東盟開拓商機。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm)
-
----
-
-# 韓股收市靠穩
-
-![首爾綜合指數收市報2570點，升6點，升幅0.27%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795101_1_20250310143607.jpg&q=75)
-  
-
-南韓股市靠穩，首爾綜合指數收市報2570點，升6點，升幅0.27%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm)
 
 ---
