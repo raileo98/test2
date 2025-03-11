@@ -1,5 +1,52 @@
+# 全國兩會｜劉兆佳稱香港不能只等中央發號司令需主動籌劃發展路向
+
+  
+
+十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
+
+---
+
+# 黎智英案於8月14日開始結案陳詞　為期8日
+
+  
+
+壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方已完成舉證，3名法官杜麗冰、李素蘭、李運騰與控辯雙方今日開庭，討論有關結案陳詞所涉範疇及適當日子，各方討論後，決定將於8月14日開始，暫定為期8日的結案陳詞。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795274-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795274-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795274-20250311.htm)
+
+---
+
 # 陳茂波稱綠色科技樞紐可容納約200間綠色企業提供無限機會
 
+![陳茂波說，新設立的綠色科技樞紐將容納約200間綠色企業，聚集綠色產業的創新者。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=30)
   
 
 財政司司長陳茂波說，透過結合綠色科技和綠色金融，除了為全球綠色進程作出貢獻，亦為香港經濟發展創造新動力。財政預算案提出科技園成立的「綠色科技樞紐」是相關願景的基石。
@@ -1389,53 +1436,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm)
-
----
-
-# 本港暫停英國赫里福德郡禽肉及禽類產品入口
-
-![中心即時指示業界暫停從英國赫里福德郡進口禽肉及禽類產品，包括禽蛋。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795091_1_20250310131723.jpg&q=90)
-  
-
-食物安全中心表示，因應世界動物衞生組織通報，英國赫里福德郡爆發H5N1禽流感，中心即時指示業界暫停從該地區進口禽肉及禽類產品，包括禽蛋，保障本港公眾健康。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm)
-
----
-
-# 九倉置業去年收入及營業盈利均跌3%
-
-![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_2_20250310131010.jpg&q=85)
-  
-
-九龍倉置業全年收入按年減少3%至129.12億元，營業盈利亦跌3%至96.91億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm)
 
 ---

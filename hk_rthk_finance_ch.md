@@ -1,3 +1,72 @@
+# 全國兩會｜劉兆佳稱香港不能只等中央發號司令需主動籌劃發展路向
+
+  
+
+十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
+
+---
+
+# 全國兩會｜文旅部部長稱只要有好產品就不愁沒有消費
+
+  
+
+文化和旅遊部部長孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。去年國內旅遊規模達56億人次，消費57000億元，按年增長17%。入境遊達1.32億人次，相關旅客在國內花費亦超過900多億美元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm)
+
+---
+
+# 保薦人主管協會：應上調新股公開發售股份回撥機制觸發條件
+
+  
+
+港交所正為優化首次公開招股市場定價及公開市場規定諮詢市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm)
+
+---
+
 # 中汽協：內地2月新能源車銷量按年增長逾87%
 
 ![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=30)
@@ -24,6 +93,7 @@
 
 # 陳茂波稱綠色科技樞紐可容納約200間綠色企業提供無限機會
 
+![陳茂波說，新設立的綠色科技樞紐將容納約200間綠色企業，聚集綠色產業的創新者。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=30)
   
 
 財政司司長陳茂波說，透過結合綠色科技和綠色金融，除了為全球綠色進程作出貢獻，亦為香港經濟發展創造新動力。財政預算案提出科技園成立的「綠色科技樞紐」是相關願景的基石。
@@ -119,7 +189,7 @@
 
 # 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
 
-![受大會主席團委託，李鴻忠主持會議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
   
 
 在北京，十四屆全國人大三次會議下午在人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
@@ -1364,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm)
-
----
-
-# 麥萃才相信外賣平台面對挑戰包括假日不留港消費市民增加
-
-![戶戶送Deliveroo宣布撤出香港市場。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795148_1_20250310192201.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場。浸會大學會計、經濟及金融學系副教授麥萃才相信，當中涉及的挑戰包括因為疫情過去，假日時多了市民不留港消費；即使在香港，外出吃飯亦很方便。加上早前有內地外賣平台進駐香港，提供了不少優惠活動；而本港工資水平較高，送外賣需時，未必容易聘請到送餐員，導致營運成本高居不下。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm)
-
----
-
-# 九倉置業對上半年前景不感樂觀
-
-![吳天海稱今年以來旗下商業物業及酒店業務仍趨向下行，對上半年前景不感樂觀。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795143_1_20250310183206.jpg&q=65)
-  
-
-九龍倉置業去年盈利8.9億元，按年大減81%。撇除投資物業重估減值淨額56.2億元及金融工具按市價計值影響，去年基礎淨盈利增加2%至約61.4億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm)
-
----
-
-# 全國兩會｜邱達昌︰本港樓市應已見底　樓價將平穩發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795141_1_20250310182453.jpg&q=75)
-  
-
-全國政協常委邱達昌說，本港樓市應該已見底，預計樓價將平穩發展。他又指，高息環境，加上有存貨，發展商寧願蝕本賣樓套現，並買入更平的土地。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm)
 
 ---

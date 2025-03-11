@@ -1,3 +1,72 @@
+# 全國兩會｜劉兆佳稱香港不能只等中央發號司令需主動籌劃發展路向
+
+  
+
+十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
+
+---
+
+# 全國兩會｜高志丹：要在2035年建成體育強國目標再接再厲
+
+  
+
+在北京，國家體育總局局長高志丹表示，國家隊在巴黎奧運會上取得境外參與最好成績，運動員亦展現優異的體育精神文化素養和個人魅力，印證出國運興則體育興、國家強則體育強。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm)
+
+---
+
+# 全國兩會｜文旅部部長稱只要有好產品就不愁沒有消費
+
+  
+
+文化和旅遊部部長孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。去年國內旅遊規模達56億人次，消費57000億元，按年增長17%。入境遊達1.32億人次，相關旅客在國內花費亦超過900多億美元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm)
+
+---
+
 # 中汽協：內地2月新能源車銷量按年增長逾87%
 
 ![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=30)
@@ -72,7 +141,7 @@
 
 # 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
 
-![受大會主席團委託，李鴻忠主持會議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
   
 
 在北京，十四屆全國人大三次會議下午在人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
@@ -1365,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794973-20250309.htm)
-
----
-
-# 全國兩會 |吳謙：解放軍一向是打「獨」促統行動派
-
-![吳謙正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794972_1_20250309124931.jpg&q=90)
-  
-
-全國人大三次會議解放軍和武警部隊代表團新聞發言人吳謙強調，祖國必然統一，這是大勢所趨、道義所在，既是實力使然、更是民心所向，解放軍一向是打「獨」促統的行動派，近年繞島巡航、軍事懾壓已成常態。「台獨」分子鬧得越歡，脖子上的繩索就會勒得越緊，頭頂上的利劍就會愈加鋒利，正告民進黨當局，懸崖勒馬回頭是岸，執迷不悟死路一條。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794972-20250309.htm)
-
----
-
-# 全國兩會｜台聯陳雲英批台灣當局禁學生與三大陸學府交流或招不滿
-
-![在北京，台灣人大代表團舉行全體會議。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794970_1_20250309120720.jpg&q=75)
-  
-
-在北京，台灣人大代表團舉行全體會議，並接受傳媒提問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794970-20250309.htm)
-
----
-
-# 陳茂波︰緊扣國家發展方向　加速推動創科增強經濟動力
-
-![陳茂波說，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794967_1_20250309115602.jpg&q=90)
-  
-
-北京正舉行全國兩會，財政司司長陳茂波表示，要緊扣國家發展的方向及路徑，循三方面加速推進自身發展工作，包括加速推動科技創新及應用創新，以增強經濟動力和提升發展質量；透過「打造體驗、確立主題」；並加強深化國際交往合作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
 
 ---

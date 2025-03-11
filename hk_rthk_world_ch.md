@@ -1,3 +1,26 @@
+# 全國兩會｜劉兆佳稱香港不能只等中央發號司令需主動籌劃發展路向
+
+  
+
+十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
+
+---
+
 # 中美據報擬磋商習近平與特朗普6月會面　中方稱沒信息可發布
 
 ![中美據報就習近平與特朗普6月會面進行前期磋商。圖為兩人2019年在日本大阪出席二十國集團峰會期間會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795267_1_20250311164357.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795025-20250310.htm)
-
----
-
-# 敘利亞過渡總統指責巴沙爾支持者及外國勢力試圖煽動動亂
-
-![沙拉強調，所有傷害平民的人都將被追究責任。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795024_1_20250310053752.jpg&q=90)
-  
-
-敘利亞過渡政府安全部隊與效忠前總統巴沙爾的武裝分子在沿海地區爆發衝突，總部設在英國的「敘利亞人權觀察組織」最新表示，衝突已造成過千人死亡，包括830名平民。敘利亞總統府宣布，成立一個獨立的國家委員會調查事件，30天內向總統府提交報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795024-20250310.htm)
 
 ---
