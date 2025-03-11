@@ -1,3 +1,27 @@
+# 中證監：全力鞏固市場回穩向好勢頭　支持優質未有盈利科企上市
+
+![中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，支持優質未有盈利科技企業發行上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795308_1_20250311205821.jpg&q=85)
+  
+
+中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，更大力度推動中長期資金入市指導意見及實施方案落實落地；增強制度包容性、適應性，支持優質未有盈利科技企業發行上市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm)
+
+---
+
 # 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
 
 ![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 警試點計劃威靈頓街設臨時過海的士站　的士大使協助乘客記錄資料
 
+![警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795305_1_20250311205648.jpg&q=80)
   
 
 警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。警方將推行試點計劃，本月15至16日，以及本月22至23日，一連兩個週末，由午夜零時30分至清晨5時，於威靈頓街32號對開，設置臨時過海的士站。
