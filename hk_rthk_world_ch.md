@@ -1,3 +1,26 @@
+# 菲總統證實杜特爾特正被送往海牙
+
+  
+
+菲律賓前總統杜特爾特被捕後，正被送國際刑事法院總部所在地荷蘭海牙。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm)
+
+---
+
 # 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
 
 ![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm)
-
----
-
-# 南韓戰機誤炸民居　空軍參謀總長再次致歉稱負全責
-
-![兩架戰機本月6日在京畿道抱川市參加射擊演習時，誤投合共8枚炸彈到射擊場外的民居。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795072_1_20250310110741.jpg&q=90)
-  
-
-南韓空軍參謀總長李英秀就空軍戰機參加演習誤炸民居再次致歉，強調將深刻汲取教訓，防範類似事件重演。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 菲總統證實杜特爾特正被送往海牙
+
+  
+
+菲律賓前總統杜特爾特被捕後，正被送國際刑事法院總部所在地荷蘭海牙。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm)
+
+---
+
 # 道指跌幅曾擴大至逾600點
 
 ![道瓊斯指數一度跌逾600點，早段低見41278點，較早時報41341點，跌570點，跌幅1.36%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795326_1_20250311230811.jpg&q=90)
