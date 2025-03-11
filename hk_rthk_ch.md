@@ -1,3 +1,27 @@
+# 港股半日跌221點　金融股普遍向下
+
+![港股早段曾跌逾540點，隨後跌幅逐步收窄，中午報23562點，跌221點，跌幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795230_1_20250311121209.jpg&q=50)
+  
+
+港股早段曾跌逾540點，恒生指數低見23238點，隨後跌幅逐步收窄，中午收市報23562點，跌221點，跌幅0.93%，半日主板成交額1770億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm)
+
+---
+
 # 分析：貿易政策變化是影響美股走勢關鍵
 
   
@@ -1405,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795154-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795154-20250310.htm)
-
----
-
-# 中信銀行：呂天貴因工作調整辭去副行長職務
-
-![中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795151_1_20250310202728.jpg&q=85)
-  
-
-中信銀行表示，呂天貴因工作調整，辭去該行副行長職務，今日起生效。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm)
 
 ---

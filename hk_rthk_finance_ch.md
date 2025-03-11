@@ -1,3 +1,27 @@
+# 港股半日跌221點　金融股普遍向下
+
+![港股早段曾跌逾540點，隨後跌幅逐步收窄，中午報23562點，跌221點，跌幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795230_1_20250311121209.jpg&q=50)
+  
+
+港股早段曾跌逾540點，恒生指數低見23238點，隨後跌幅逐步收窄，中午收市報23562點，跌221點，跌幅0.93%，半日主板成交額1770億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm)
+
+---
+
 # 分析：貿易政策變化是影響美股走勢關鍵
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
-
----
-
-# 貿發局研究發現香港企業在東盟電商市場有優勢
-
-![貿發局研究發現，約70%受訪者過去12個月至少網購過一件來自香港的產品。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795102_1_20250310164122.jpg&q=90)
-  
-
-貿易發展局發布有關「東盟電商機遇：消費行為與香港產品定位」的研究，顯示香港企業在東盟市場具有優勢，認為可借助新一份財政預算案有關推動電子商貿發展的政策，在東盟開拓商機。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795102-20250310.htm)
 
 ---
