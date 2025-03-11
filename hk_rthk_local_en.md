@@ -1,3 +1,27 @@
+# 52 students, teachers contract gastroenteritis
+
+![The Centre for Health Protection has said the affected teachers and students participated in exchange tours in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795311_1_20250311213838.jpg&q=90)
+  
+
+The Centre for Health Protection (CHP) on Tuesday said it is investigating a cluster of gastroenteritis involving 52 teachers and students who participated in exchange tours to Shaoguan in Guangdong province earlier this month.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm)
+
+---
+
 # 'China changing course of economic development'
 
 ![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
@@ -1413,29 +1437,5 @@ Hong Kong and Macau have the full backing of the central government in integrati
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
-
----
-
-# Indian festival to hit streets of Lan Kwai Fong
-
-![The "Incredible India Festival" will be held on March 15 and 16 at Lan Kwai Fong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794437_1_20250305203811.jpg&q=75)
-  
-
-A vibrant festival celebrating Indian culture through dance, music and cuisine, is set to brighten up the streets of Lan Kwai Fong later this month.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm)
 
 ---

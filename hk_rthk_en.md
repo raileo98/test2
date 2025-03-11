@@ -1,3 +1,27 @@
+# 52 students, teachers contract gastroenteritis
+
+![The Centre for Health Protection has said the affected teachers and students participated in exchange tours in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795311_1_20250311213838.jpg&q=90)
+  
+
+The Centre for Health Protection (CHP) on Tuesday said it is investigating a cluster of gastroenteritis involving 52 teachers and students who participated in exchange tours to Shaoguan in Guangdong province earlier this month.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm)
+
+---
+
 # South Africa bus crash toll climbs to 16
 
 ![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=45)
@@ -1412,29 +1436,5 @@ Commuters who reserve a ride from a licensed taxi fleet will have the option of 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm)
-
----
-
-# Argentine city hit by a year's worth of rain in hours
-
-![Rescuers wade through flooded streets in Bahia Blance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794956_1_20250309124021.jpg&q=70)
-  
-
-Argentina's port city of Bahia Blanca has been "destroyed" after being pummelled by a year's worth of rain in a matter of hours, killing 13 and driving hundreds from their homes, authorities said Saturday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794956-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794956-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794956-20250309.htm)
 
 ---
