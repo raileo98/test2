@@ -1,3 +1,27 @@
+# 馬克龍呼籲為烏克蘭確定可靠安全保障
+
+![馬克龍與歐洲及北約國家的軍方首腦會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795338_1_20250312035223.jpg&q=90)
+  
+
+法國總統埃馬克龍呼籲歐洲和北約的軍事首腦制定一項計劃，以便在實現俄烏停火的情況下以「可靠的安全保障」 保護烏克蘭。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm)
+
+---
+
 # 澤連斯基：美方要說服俄羅斯接受30天停火建議
 
 ![澤連斯基在晚間講話中表示，烏克蘭歡迎這個建議，認為具有積極意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795334_1_20250312032443.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm)
-
----
-
-# 外賣平台「戶戶送」撤出香港市場　運作至4月7日
-
-![戶戶送香港平台將繼續運行至4月7日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795107_1_20250310152224.jpg&q=85)
-  
-
-戶戶送Deliveroo宣布，決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
 
 ---

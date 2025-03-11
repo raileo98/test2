@@ -1,3 +1,27 @@
+# 馬克龍呼籲為烏克蘭確定可靠安全保障
+
+![馬克龍與歐洲及北約國家的軍方首腦會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795338_1_20250312035223.jpg&q=90)
+  
+
+法國總統埃馬克龍呼籲歐洲和北約的軍事首腦制定一項計劃，以便在實現俄烏停火的情況下以「可靠的安全保障」 保護烏克蘭。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm)
+
+---
+
 # 澤連斯基：美方要說服俄羅斯接受30天停火建議
 
 ![澤連斯基在晚間講話中表示，烏克蘭歡迎這個建議，認為具有積極意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795334_1_20250312032443.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm)
-
----
-
-# 瑞銀：內地龍頭科技股估值增長有利港股表現
-
-![房東明稱，DeepSeek引發人工智能題材，相關股份估值增長，港股有力跑贏全球股市。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795264_1_20250311163557.jpg&q=85)
-  
-
-美股3大指數隔晚急瀉2%至4%，市場擔憂美國經濟陷入衰退。瑞銀全球金融市場部中國主管房東明表示，美股估值和資本流入均出現輪動情況，從長年期債息下跌可見，資金從股票轉到債券，即從風險較高資產轉移到風險相對低的資產。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm)
 
 ---
