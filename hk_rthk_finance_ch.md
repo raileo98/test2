@@ -1,3 +1,27 @@
+# 美元兌加元曾升穿1.45　歐元兌美元創5個月新高
+
+![美國威脅對加拿大鋼鋁進一步加徵關稅，美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795350_1_20250312070229.jpg&q=90)
+  
+
+美國總統特朗普威脅對加拿大鋼鋁進一步加徵關稅，但關稅措施仍不確定。美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高，較早時回順至1.443附近。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm)
+
+---
+
 # 現貨金曾升逾1%　重上2900美元
 
 ![現貨金重上2900美元關口，最高升至每盎司2921.93美元，升1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795345_1_20250312055525.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm)
-
----
-
-# 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
-  
-
-全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm)
 
 ---

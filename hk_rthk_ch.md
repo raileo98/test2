@@ -1,3 +1,27 @@
+# 美元兌加元曾升穿1.45　歐元兌美元創5個月新高
+
+![美國威脅對加拿大鋼鋁進一步加徵關稅，美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795350_1_20250312070229.jpg&q=90)
+  
+
+美國總統特朗普威脅對加拿大鋼鋁進一步加徵關稅，但關稅措施仍不確定。美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高，較早時回順至1.443附近。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm)
+
+---
+
 # 公院本月24日起每次最多配24周藥物　醫管局料可省數以千萬元
 
 ![醫管局聯網服務總監鄧耀鏗（右）指，醫管局在本月24日起，會分階段更改配藥安排。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_1_20250312071709.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm)
-
----
-
-# 本港暫停從波蘭及英國個別地區進口禽肉及禽類產品
-
-![中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795280_1_20250311181032.jpg&q=80)
-  
-
-食物安全中心宣布，因應世界動物衞生組織通報，指波蘭大波蘭省Chodzież區及英國德文郡Torbay區爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm)
 
 ---
