@@ -1,3 +1,26 @@
+# 4學校參與安徽黃山考察團13師生腸胃炎　當中9人感染諾如病毒
+
+  
+
+4間學校的師生參與同一個安徽黃山考察團，期間有13名師生出現急性腸胃炎徵狀，10人曾到醫院求醫，9名學生對諾如病毒呈陽性反應。衞生防護中心相信，有關爆發個案由諾如病毒經人傳人或受污染環境傳播，並不涉及當地食肆。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm)
+
+---
+
 # 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
 
 ![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=85)
