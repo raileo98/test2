@@ -1,3 +1,27 @@
+# 港股下午初段跌逾200點
+
+![港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795237_1_20250311131342.jpg&q=20)
+  
+
+港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm)
+
+---
+
 # 黃大仙下邨龍禧樓單位火警一名女子死亡
 
   
@@ -23,6 +47,7 @@
 
 # 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795235_1_20250311132348.jpg&q=60)
   
 
 深水埗區議會討論民政處計劃在興華街、欽州街 、南昌街、大埔道等一帶推行「聯廈聯管」試驗計劃。多名區議員均表示歡迎，認為對區內舊樓的維修保養，以及改善環境衛生等方面都有正面作用。
@@ -70,6 +95,7 @@
 
 # 全國兩會｜有民企高層稱習近平講話如定心丸　提供報效國家的平台
 
+![李登海建議，加快修改種業公司注冊標準。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795233_1_20250311131810.jpg&q=75)
   
 
 國家主席習近平上月在北京人民大會堂，出席民營企業座談會並發表重要講話，是中央時隔6年多再度召開民營企業座談會。
@@ -1409,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm)
-
----
-
-# 日本有研究發現北海道千島海溝已累積巨大能量或足以引發9級地震
-
-![日本311大地震奪走多條性命，不少民眾每年都會舉行活動悼念。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795159_1_20250310213026.jpg&q=90)
-  
-
-日本有研究發現，北海道附近的千島海溝已經累積巨大能量，可能足以引發黎克特制9級規模的大地震。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm)
 
 ---
