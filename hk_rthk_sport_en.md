@@ -1,3 +1,28 @@
+# Barca sink Benfica; reach Champions League last eight
+
+![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=85)
+![Raphina scored twice in the first half for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_2_20250312061710.jpg&q=90)
+  
+
+Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the Champions League quarter-finals 4-1 on aggregate.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
+
+---
+
 # Man United announce plans for new 100,000-seat stadium
 
 ![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=80)
@@ -1421,29 +1446,5 @@ Luka Doncic delivered a dominant 32-point performance as the Los Angeles Lakers 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792827-20250223.htm)
-
----
-
-# Handball players happy with Kai Tak test event
-
-![The men's handball test event is underway at the Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792765_1_20250222180132.jpg&q=15)
-  
-
-Athletes participating in a handball test event for the National Games on Saturday said they were happy with the atmosphere and facilities at the Kai Tak Sports Park.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792765-20250222.htm)
 
 ---

@@ -1,3 +1,52 @@
+# Barca sink Benfica; reach Champions League last eight
+
+![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=85)
+![Raphina scored twice in the first half for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_2_20250312061710.jpg&q=90)
+  
+
+Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the Champions League quarter-finals 4-1 on aggregate.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
+
+---
+
+# US stocks finish lower after volatile trading day
+
+![Days of back-and-forth on tariff hikes against some of the United States' closest trading partners have worn heavily on markets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795347_1_20250312061323.jpg&q=90)
+  
+
+Wall Street stocks finished lower on Tuesday on uncertainty surrounding President Donald Trump's tariff threats, just one day after taking a dramatic plunge on the back of recession fears.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
+
+---
+
 # Ukraine backs ceasefire as US ends aid freeze
 
 ![US Secretary of State Marco Rubio speaks with the media following meetings with a Ukrainian delegation in Jeddah. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795341_1_20250312052757.jpg&q=90)
@@ -1388,53 +1437,5 @@ Spectators were immersed in what felt like a party-like atmosphere on the third 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm)
-
----
-
-# Spain's Garcia claims LIV Golf HK crown
-
-![Fireballs GC came out on top in the team standings. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_2_20250310070148.jpg&q=75)
-  
-
-Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Golf Hong Kong tournament crown in Fanling, as the 45-year-old claimed his second career individual title on the men's golf tour.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
-
----
-
-# 'Reduce waste by allowing water bottles into venues'
-
-![A number of spectators were seen with bottled water next to their seats during Sunday's World Snooker Grand Prix final at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794990_1_20250309170511.jpg&q=85)
-  
-
-A rule banning spectators from bringing water bottles into competition venues at Kai Tak Sports Park should be relaxed to reduce waste, a green group said, after noticing exemptions were given to certain guests.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm)
 
 ---
