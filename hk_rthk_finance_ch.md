@@ -1,3 +1,26 @@
+# 涉借出戶口處理逾4000萬元騙款　73名傀儡戶口持有人被捕
+
+  
+
+警方採取打擊詐騙及洗黑錢行動，偵破53宗案件，拘捕73名傀儡戶口持有人，涉及款項超過4100萬元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm)
+
+---
+
 # 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm)
-
----
-
-# 人民幣兌美元收市創近1周低位
-
-![在岸人民幣收市報7.2649兌1美元，較上交易日跌267點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795133_1_20250310172448.jpg&q=75)
-  
-
-在岸人民幣兌美元收市價及中間價均創近1星期新低，收市報7.2649兌1美元，較上交易日跌267點子；中間價跌至7.1733兌1美元，與市場預測偏離逾600點子。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm)
 
 ---

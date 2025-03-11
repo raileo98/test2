@@ -1,3 +1,26 @@
+# 涉借出戶口處理逾4000萬元騙款　73名傀儡戶口持有人被捕
+
+  
+
+警方採取打擊詐騙及洗黑錢行動，偵破53宗案件，拘捕73名傀儡戶口持有人，涉及款項超過4100萬元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm)
+
+---
+
 # 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
 
   
