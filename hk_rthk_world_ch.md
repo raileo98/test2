@@ -1,3 +1,27 @@
+# 俄外交部：不排除最近幾天與美方溝通
+
+![扎哈羅娃表示，俄方不排除最近幾天與美國代表溝通的可能性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795339_1_20250312042116.jpg&q=90)
+  
+
+俄羅斯外交部發言人扎哈羅娃表示，俄方不排除最近幾天與美國代表溝通的可能性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm)
+
+---
+
 # 馬克龍呼籲為烏克蘭確定可靠安全保障
 
 ![馬克龍與歐洲及北約國家的軍方首腦會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795338_1_20250312035223.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
-
----
-
-# 泰航本月15日起禁止在航班使用充電寶或備用電池
-
-![泰航本月15日起禁止在航班使用充電寶或備用電池。（泰航官方微博截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795109_1_20250310153442.jpg&q=90)
-  
-
-泰國航空表示，本月15日起，所有泰航航班將禁止使用充電寶或備用電池，同時也禁止在航班上為充電寶或備用電池充電。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795109-20250310.htm)
 
 ---

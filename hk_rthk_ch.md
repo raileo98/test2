@@ -1,3 +1,27 @@
+# 俄外交部：不排除最近幾天與美方溝通
+
+![扎哈羅娃表示，俄方不排除最近幾天與美國代表溝通的可能性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795339_1_20250312042116.jpg&q=90)
+  
+
+俄羅斯外交部發言人扎哈羅娃表示，俄方不排除最近幾天與美國代表溝通的可能性。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm)
+
+---
+
 # 馬克龍呼籲為烏克蘭確定可靠安全保障
 
 ![馬克龍與歐洲及北約國家的軍方首腦會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795338_1_20250312035223.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱綠色科技樞紐可容納二百間綠色企業
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=30)
-  
-
-財政司司長陳茂波說，透過結合綠色科技和綠色金融，除了為全球綠色進程作出貢獻，亦為香港經濟發展創造新動力。財政預算案提出科技園成立的「綠色科技樞紐」是相關願景的基石。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm)
 
 ---
