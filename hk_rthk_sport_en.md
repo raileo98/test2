@@ -1,3 +1,27 @@
+# 'Snooker hiccup not a problem for National Games'
+
+![Herman Hu believes the Kai Tak Sports Park is "already ready" for the National Games. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=85)
+  
+
+A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
+
+---
+
 # Pelicans to become first NBA team to play in Australia
 
 ![Pelicans star Zion Williamson will be among the big names appearing in Australia this October. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795220_1_20250311105931.jpg&q=90)
@@ -1422,29 +1446,5 @@ The Cleveland Cavaliers boosted their NBA-best record with a 142-105 romp past t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm](https://news.rthk.hk/rthk/en/component/k2/1792749-20250222.htm)
-
----
-
-# Liverpool to play PSG in Champions League last 16
-
-![Friday's draw pits holders Real Madrid against city rivals Atletico Madrid in a repeat of the finals of 2014 and 2016. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792676_1_20250221202411.jpg&q=80)
-  
-
-Liverpool will take on Paris Saint-Germain in one of the standout ties in the last 16 of this season's Champions League after the teams were paired together in Friday's draw.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm)
 
 ---

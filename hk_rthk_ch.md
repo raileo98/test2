@@ -1,3 +1,27 @@
+# 滬股半日跌約0.5%　創業板跌近0.8%
+
+![上證指數半日收報3350點，跌15點，跌幅0.47%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795224_1_20250311113344.jpg&q=90)
+  
+
+內地股市向下，工程機械、汽車產業鏈股份下跌；軍工、國資雲概念股逆市上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm)
+
+---
+
 # 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm)
-
----
-
-# 清遠和佛山旅行團再多兩名團友感染退伍軍人病
-
-![中心接獲首宗通報後調查和跟進，聯絡與首名感染者參加同一團，及參與另外兩個行程及入住酒店相同的旅行團人士，並發現最新兩宗個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795147_1_20250310191613.jpg&q=90)
-  
-
-「領華旅遊社」清遠和佛山旅行團，再有兩名男團友感染退伍軍人病，連同之前已經公布的6宗個案，相關旅行團至今已有8人感染退伍軍人病。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm)
 
 ---

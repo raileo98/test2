@@ -1,3 +1,27 @@
+# 滬股半日跌約0.5%　創業板指數跌近0.8%
+
+![上證指數半日收報3350點，跌15點，跌幅0.47%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795224_1_20250311113344.jpg&q=90)
+  
+
+內地股市向下，工程機械、汽車產業鏈股份下跌；軍工、國資雲概念股逆市上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm)
+
+---
+
 # 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795101-20250310.htm)
-
----
-
-# 日股高收近0.4%
-
-![日經平均指數收市報37028點，升141點，升幅0.38%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795100_1_20250310143343.jpg&q=80)
-  
-
-日本股市收市上升，日經平均指數報37028點，升141點，升幅0.38%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm)
 
 ---
