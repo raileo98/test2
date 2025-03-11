@@ -1,3 +1,27 @@
+# US stocks finish lower after volatile trading day
+
+![Days of back-and-forth on tariff hikes against some of the United States' closest trading partners have worn heavily on markets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795347_1_20250312061323.jpg&q=90)
+  
+
+Wall Street stocks finished lower on Tuesday on uncertainty surrounding President Donald Trump's tariff threats, just one day after taking a dramatic plunge on the back of recession fears.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
+
+---
+
 # HSI flat after Wall Street rout
 
 ![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=35)
@@ -1411,29 +1435,5 @@ A hospitality expert on Wednesday said Hong Kong Disneylands’s performance is 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm)
-
----
-
-# Wall Street falls amid pessimistic consumer sentiment
-
-![A report on Tuesday shows confidence among US consumers is falling by more than economists expected. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793174_2_20250226071332.jpg&q=90)
-  
-
-Some of Wall Street’s brightest stars lost more of their shine on Tuesday after another report said US households are getting more pessimistic about the economy.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793174-20250226.htm)
 
 ---
