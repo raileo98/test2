@@ -1,3 +1,26 @@
+# 菲律賓警方根據國際刑事法院逮捕令拘捕前總統杜特爾特
+
+  
+
+菲律賓總統辦公室表示，警方對已返抵首都馬尼拉國際機場的前總統杜特爾特，執行國際刑事法院的逮捕令，杜特爾特已被拘留，健康狀況良好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm)
+
+---
+
 # 慢性疾病共同治理先導計劃將分階段擴展至醫管局門診診所
 
   
@@ -1407,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm)
-
----
-
-# 瑪麗醫院重申周天瑜事件不涉及醫療事故
-
-![醫院重申，事件不屬於「醫療風險警示事件」或「重要風險事件」，亦不涉及醫療事故。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795150_1_20250310195249.jpg&q=85)
-  
-
-因手術期間懷疑發生醫療事故，最終成為植物人的女童周天瑜，去年3月離世。周天瑜的父親要求警方交代事件的調查方向，不要放棄任何釐清事實的機會，希望知道真相。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm)
 
 ---
