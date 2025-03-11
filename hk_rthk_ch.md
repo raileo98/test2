@@ -1,3 +1,26 @@
+# 分析：貿易政策變化是影響美股走勢關鍵
+
+  
+
+美股踏入夏令時間首個交易日，3大指數急瀉2%至4%收市，3大股指期貨在亞洲時段窄幅上落。關稅措施不確定、聯邦政府可能停擺，美國經濟或陷入衰退，都觸動投資者神經。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm)
+
+---
+
 # 菲律賓警方根據國際刑事法院逮捕令拘捕前總統杜特爾特
 
   
@@ -1406,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795151-20250310.htm)
-
----
-
-# 中國恒大：有關清盤法院裁決結果將適時另行公布
-
-![中國恒大公布有關清盤的進一步消息，指押後聆訊已於2月27日舉行，有關法院的裁決結果將於適當時候另行公布。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795153_1_20250310203537.jpg&q=90)
-  
-
-中國恒大公布有關清盤的進一步消息，指押後聆訊已於2月27日舉行，有關法院的裁決結果將於適當時候另行公布。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795153-20250310.htm)
 
 ---
