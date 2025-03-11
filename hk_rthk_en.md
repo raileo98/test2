@@ -27,7 +27,7 @@ A senior member of a leading national think tank on Tuesday said the annual "Two
 ![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=35)
   
 
-Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down 1 point to close at 23,782.
+Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down one point to close at 23,782.
 
   
 

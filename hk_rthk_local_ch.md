@@ -23,6 +23,7 @@
 
 # 廉署籲公眾提防寄件人為「ICAC」Hotmail偽冒電郵
 
+![廉政公署呼籲公眾提高警覺，提防由寄件人為「“ICAC”」Hotmail電郵帳戶發出的偽冒廉署電郵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795285_1_20250311181714.jpg&q=80)
   
 
 廉政公署呼籲公眾提高警覺，提防由寄件人為「“ICAC”」Hotmail電郵帳戶發出的偽冒廉署電郵。
@@ -46,6 +47,7 @@
 
 # 全國兩會｜馬逢國認為趙樂際因病請假屬嚴謹做法
 
+![人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795284_1_20250311181644.jpg&q=85)
   
 
 十四屆全國人大三次會議在北京人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。

@@ -1,5 +1,29 @@
+# 全國兩會｜自然資源部增加優質耕地比例　讓中國飯碗更穩更牢
+
+  
+
+在北京，自然資源部部長關志鷗表示，今年政府工作報告和中央一號文件對耕地保護提出了明確要求，當局會重點做好三件事，包括要穩數量、強監管；提質量、優佈局；亦要優生態、惠民生。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm)
+
+---
+
 # 全國兩會｜馬逢國認為趙樂際因病請假屬嚴謹做法
 
+![人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795284_1_20250311181644.jpg&q=85)
   
 
 十四屆全國人大三次會議在北京人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm)
-
----
-
-# 全國兩會｜駐日大使吳江浩稱關稅上中日有共同語言　冀建穩定環境
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794981_1_20250309155127.jpg&q=85)
-  
-
-全國政協委員、中國駐日本大使吳江浩接受本台訪問說，日本經濟界對美國加徵關稅的做法非常緊張，難以估計美國總統特朗普的計劃。他相信，這方面中日雙方有共同語言，都是希望建立穩定的經濟環境，有利各方發展，即使中國與日本官方未談上開展合作應對關稅問題，企業之間的合作過程也會考慮到相關問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794981-20250309.htm)
 
 ---
