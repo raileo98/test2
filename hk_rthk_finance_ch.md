@@ -1,3 +1,27 @@
+# 恒指跌1點收市　科指升逾1%
+
+![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=45)
+  
+
+港股先低後高，恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。主板成交額逾3070億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm)
+
+---
+
 # 涉借出戶口處理逾4000萬元騙款　73名傀儡戶口持有人被捕
 
 ![警方表示，相關案件涉及的騙案，包括電話騙案和網上騙案等，提醒長者要妥善保管戶口，不要向人借出戶口。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795257_1_20250311161403.jpg&q=90)
@@ -120,7 +144,7 @@
 
 # 陳茂波稱香港將利用北部都會區加強與深圳科研合作
 
-![陳茂波重申現時未必合適作稅務調升，希望讓企業及個人重整資產負債表以面對未來挑戰。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
   
 
 財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，本港亦會利用北部都會區，加強與深圳在科研方面的合作。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm)
-
----
-
-# 中旅料去年盈利按年跌最少40%
-
-![香港中旅預計去年度少賺最少40%，主要由於投資性物業公允價值下跌。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795137_1_20250310173054.jpg&q=85)
-  
-
-香港中旅預計，去年度盈利按年最少跌40%，前年度盈利為2.4億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm)
 
 ---

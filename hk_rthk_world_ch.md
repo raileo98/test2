@@ -1,3 +1,27 @@
+# 俄羅斯莫斯科州遭大規模無人機襲擊1死3傷
+
+![莫斯科州遭受無人機襲擊，有住宅大廈受損。 （路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795262_1_20250311162626.jpg&q=65)
+  
+
+俄羅斯莫斯科州州長沃羅比約夫說，當地星期二凌晨4時開始，莫斯科州遭受大規模無人機襲擊，已造成1人死亡，3人受傷。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm)
+
+---
+
 # 日本311大地震14周年　逾2萬福島居民仍未能返回家園
 
 ![日本311大地震14周年，東京街上有民眾默哀悼念死難者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795255_1_20250311152845.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795023-20250310.htm)
-
----
-
-# 伊朗稱企圖廢除伊朗和平核計劃的談判將永遠不會發生
-
-![伊朗說，如果談判的目的是廢除伊朗的和平核計劃，談判將永遠不會發生。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795021_1_20250310022522.jpg&q=90)
-  
-
-伊朗駐聯合國代表團說，如果談判的目的是廢除伊朗的和平核計劃，談判將永遠不會發生。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795021-20250310.htm)
 
 ---
