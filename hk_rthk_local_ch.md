@@ -1,3 +1,26 @@
+# 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
+
+  
+
+深水埗區議會討論民政處計劃在興華街、欽州街 、南昌街、大埔道等一帶推行「聯廈聯管」試驗計劃。多名區議員均表示歡迎，認為對區內舊樓的維修保養，以及改善環境衛生等方面都有正面作用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm)
+
+---
+
 # 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
 
   
@@ -1411,29 +1434,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm)
-
----
-
-# 全國兩會｜王靈桂相信香港有更大作為　加強與世界聯繫
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795059_1_20250310103052.jpg&q=85)
-  
-
-在國務院總理李強的政府工作報告中有關港澳的部分，提及支持香港和澳門「深化國際交往合作」。在北京，全國政協委員、港澳辦副主任王靈桂說，香港作為超級聯繫人，一直發揮聯通世界作用，下一步在背靠祖國方面一定會有更大作為，同時進一步加強與世界各地的聯繫。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm)
 
 ---

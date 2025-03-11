@@ -1,3 +1,26 @@
+# 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
+
+  
+
+深水埗區議會討論民政處計劃在興華街、欽州街 、南昌街、大埔道等一帶推行「聯廈聯管」試驗計劃。多名區議員均表示歡迎，認為對區內舊樓的維修保養，以及改善環境衛生等方面都有正面作用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm)
+
+---
+
 # 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
 
   
@@ -119,6 +142,7 @@
 
 # 菲律賓警方根據國際刑事法院逮捕令拘捕前總統杜特爾特
 
+![大批警員在機場的入境大堂等候杜特爾特返菲律賓。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795226_1_20250311124328.jpg&q=85)
   
 
 菲律賓總統辦公室表示，警方對已返抵首都馬尼拉國際機場的前總統杜特爾特，執行國際刑事法院的逮捕令。他已被拘留，健康狀況良好。杜特爾特的前法律顧問表示逮捕是非法，又指警方不容許律師在機場與杜特爾特會面。
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
-
----
-
-# 草姬集團料去年盈利按年最少跌67%
-
-![草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795157_2_20250311062331.jpg&q=85)
-  
-
-草姬集團預計，去年度盈利將介乎1100萬至1300萬元，較前年度盈利3950萬元減少67%至72%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm)
 
 ---

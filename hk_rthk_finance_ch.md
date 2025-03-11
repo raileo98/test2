@@ -1,3 +1,26 @@
+# 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
+
+  
+
+深水埗區議會討論民政處計劃在興華街、欽州街 、南昌街、大埔道等一帶推行「聯廈聯管」試驗計劃。多名區議員均表示歡迎，認為對區內舊樓的維修保養，以及改善環境衛生等方面都有正面作用。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm)
+
+---
+
 # 港股半日跌221點　金融股普遍向下
 
 ![港股早段曾跌逾540點，隨後跌幅逐步收窄，中午報23562點，跌221點，跌幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795230_1_20250311121209.jpg&q=50)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795105-20250310.htm)
-
----
-
-# 外賣平台「戶戶送」撤出香港市場　運作至4月7日
-
-![戶戶送香港平台將繼續運行至4月7日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795107_1_20250310152224.jpg&q=85)
-  
-
-戶戶送Deliveroo宣布，決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795107-20250310.htm)
 
 ---
