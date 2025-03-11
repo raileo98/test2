@@ -1,5 +1,26 @@
+# 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm)
+
+---
+
 # 全國兩會｜小鵬汽車於人型機器人或投入上千億元人民幣
 
+![何小鵬表示，期望明年率先量產面向工業的L3級別人形機器人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795241_1_20250311153322.jpg&q=90)
   
 
 小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm)
-
----
-
-# 全國兩會｜統戰部王瑞軍稱今年工作以凝聚人心匯聚力量為主
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794955_1_20250309093653.jpg&q=75)
-  
-
-在北京，全國政協委員、中央統戰部副部長王瑞軍，回應台海會否發生戰爭的可能性時表示，今次政府工作報告講得很明確，要按照中央的大政方針、政府工作報告闡明的施政方向做好工作。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794955-20250309.htm)
 
 ---

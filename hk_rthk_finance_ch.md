@@ -1,5 +1,26 @@
+# 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
+
+  
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm)
+
+---
+
 # 全國兩會｜小鵬汽車於人型機器人或投入上千億元人民幣
 
+![何小鵬表示，期望明年率先量產面向工業的L3級別人形機器人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795241_1_20250311153322.jpg&q=90)
   
 
 小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm)
-
----
-
-# 丘應樺鼓勵在廣東省港商積極在內地創新創業
-
-![丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795136_2_20250310192635.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。為配合國家發展新質生產力，政府會致力發揮內聯外通的角色，打造香港成跨國供應鏈管理中心，吸引更多內地生產企業在港落戶，並建立管理離岸貿易和供應鏈的國際或區域總部。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm)
 
 ---
