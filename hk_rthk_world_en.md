@@ -1,3 +1,27 @@
+# Arab nations condemn Israel's Gaza electricity cut
+
+![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=60)
+  
+
+Saudi Arabia, Qatar and Jordan on Tuesday condemned Israel's decision to cut electricity supply to the war-battered Gaza Strip, calling in separate statements for the international community to take action.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm)
+
+---
+
 # Ex-Philippine president Duterte arrested in Manila
 
 ![Former Philippine president Rodrigo Duterte was arrested after landing in Manila from Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795225_1_20250311113948.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump has paused military aid to Ukraine following his clash
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794138-20250304.htm)
-
----
-
-# SpaceX calls off Starship test flight at last minute
-
-![The latest test flight was to include another attempt to catch the booster stage using the launch tower's "chopstick" arms. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794109_1_20250304101337.jpg&q=90)
-  
-
-Elon Musk's SpaceX called off the latest test flight of its Starship rocket just before its scheduled launch on Monday, citing an unspecified problem with the behemoth spacecraft.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794109-20250304.htm)
 
 ---
