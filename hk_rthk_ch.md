@@ -1,3 +1,27 @@
+# 韓股低收1.3%
+
+![首爾綜合指數收市報2537點，跌32點，跌幅1.28%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795245_1_20250311144500.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數收市報2537點，跌32點，跌幅1.28%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795245-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795245-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795245-20250311.htm)
+
+---
+
 # 日股低收逾0.6%
 
 ![日經指數收市報36793點，跌235點，跌幅0.64%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795244_1_20250311144325.jpg&q=50)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm)
-
----
-
-# 美國國家經濟委員會料關稅問題將於下月解決　本季GDP正增長
-
-![美國國家經濟委員會主任哈西特預計，關稅政策的不確定性將於下月得到解決，並預測今年首季GDP將實現正增長，但幅度不大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795167_1_20250310230309.jpg&q=60)
-  
-
-美國國家經濟委員會主任哈西特預計，總統特朗普貿易政策的不確定性將在下月得到解決，並預測今年首季國內生產總值(GDP)將實現正增長，但幅度不大。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm)
 
 ---

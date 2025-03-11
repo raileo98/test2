@@ -1,3 +1,27 @@
+# 韓股低收1.3%
+
+![首爾綜合指數收市報2537點，跌32點，跌幅1.28%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795245_1_20250311144500.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數收市報2537點，跌32點，跌幅1.28%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795245-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795245-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795245-20250311.htm)
+
+---
+
 # 日股低收逾0.6%
 
 ![日經指數收市報36793點，跌235點，跌幅0.64%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795244_1_20250311144325.jpg&q=50)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
-
----
-
-# 外交部：美方徵收港口費等措施損人害己　促立即停止錯誤做法
-
-![毛寧說，徵收港口費等措施損人害己，推高全球的海運成本，擾亂全球產供鏈穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795120_1_20250310163621.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美國正考慮對在中國建造或註冊的船隻徵收港口停靠費時表示，中方敦促美方尊重事實和多邊規則，立即停止錯誤做法，中方將採取必要措施捍衛自身的合法權益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm)
 
 ---
