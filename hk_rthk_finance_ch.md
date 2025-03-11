@@ -1,3 +1,26 @@
+# 陳茂波籲人工智能等企業來港上市
+
+  
+
+財政司司長陳茂波說，香港在數據同人才方面都有優勢，呼籲人工智能等公司來港上市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm)
+
+---
+
 # 人民幣兌美元升至近4個月高位收市
 
 ![人民幣收市報7.2306兌1美元，較上日收市升343點子，創近4個月高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795271_1_20250311170625.jpg&q=70)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm)
-
----
-
-# 歐央行管委：減息與否須持開放態度　視乎數據作出決定
-
-![歐洲央行管委卡日米爾表示，通脹風險仍傾向於上行，歐洲央行需要保持靈活性，並按照數據表現作出決定。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795154_1_20250310205331.jpg&q=90)
-  
-
-斯洛伐克央行總裁暨歐洲央行管委卡日米爾表示，歐元區通脹仍存在大量上行風險，因此歐洲央行必須在是否繼續減息或暫停減息上保持開放態度。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795154-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795154-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795154-20250310.htm)
 
 ---

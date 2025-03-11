@@ -1,3 +1,26 @@
+# 陳茂波籲人工智能等企業來港上市
+
+  
+
+財政司司長陳茂波說，香港在數據同人才方面都有優勢，呼籲人工智能等公司來港上市。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm)
+
+---
+
 # 全國兩會｜自然資源部增加優質耕地比例　讓中國飯碗更穩更牢
 
   
@@ -23,6 +46,7 @@
 
 # 大埔醫院內科及老人科病房多一名病人帶有耳念珠菌
 
+![院方說，會根據既定指引，繼續對病人的緊密接觸者展開追蹤篩查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795286_1_20250311183554.jpg&q=60)
   
 
 大埔醫院早前公布有病人帶有耳念珠菌，經接觸追蹤調查，再發現內科及老人科病房多一名63歲男病人帶有耳念珠菌但並無感染徵狀。該名病人早前已經出院。
