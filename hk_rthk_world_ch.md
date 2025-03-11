@@ -1,3 +1,27 @@
+# 巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件
+
+![巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795322_1_20250311223658.jpg&q=90)
+  
+
+巴基斯坦一列載有400多人的火車在西南部俾路支省受到襲擊，武裝分子挾持乘客做人質，聲稱當中包括軍方人員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm)
+
+---
+
 # 巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質
 
 ![巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795304_1_20250311203644.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm)
-
----
-
-# 卡尼：加拿大將保持對美報復性關稅措施　不會讓特朗普得逞
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795063_1_20250310102749.jpg&q=90)
-  
-
-加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。卡尼向黨內支持者發表勝利演說時警告，美國想要加拿大的資源、水、土地甚至國家，一旦得逞，將摧毀加拿大人的生活。他又說，美國總統特朗普向加拿大開徵不合理的關稅，攻擊美國的家庭、工人和企業，加拿大不會讓他得逞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm)
 
 ---

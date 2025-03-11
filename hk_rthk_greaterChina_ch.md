@@ -1,5 +1,30 @@
+# 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
+
+![吳秋北（中）表示，一眾港區人大代表必定會不負市民期望，不負作為人大代表的角色。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=90)
+  
+
+港區全國人大代表團出席全國人大會議後，由北京返抵本港。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
+
+---
+
 # 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
 
+![葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795317_1_20250311223158.jpg&q=90)
   
 
 全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm)
-
----
-
-# 全國兩會｜全國政協會議今早閉幕　王滬寧主持會議
-
-![王滬寧宣布，會議應出席委員2154人，實到2082人，符合規定人數。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795048_1_20250310092311.jpg&q=90)
-  
-
-全國政協十四屆三次會議今早9時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795048-20250310.htm)
 
 ---

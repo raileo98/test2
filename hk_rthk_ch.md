@@ -1,5 +1,54 @@
+# 巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件
+
+![巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795322_1_20250311223658.jpg&q=90)
+  
+
+巴基斯坦一列載有400多人的火車在西南部俾路支省受到襲擊，武裝分子挾持乘客做人質，聲稱當中包括軍方人員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm)
+
+---
+
+# 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
+
+![吳秋北（中）表示，一眾港區人大代表必定會不負市民期望，不負作為人大代表的角色。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=90)
+  
+
+港區全國人大代表團出席全國人大會議後，由北京返抵本港。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
+
+---
+
 # 旺角瘋狂駕駛案　有私家車撞向警方衝鋒車及另外3輛私家車
 
+![旺角有人駕駛私家車涉嫌瘋狂駕駛，撞到一輛警方衝鋒車及三輛私家車。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795318_1_20250311223222.jpg&q=45)
   
 
 旺角有人駕駛私家車涉嫌瘋狂駕駛，撞到一輛警方衝鋒車及三輛私家車，無人受傷。
@@ -23,6 +72,7 @@
 
 # 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
 
+![葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795317_1_20250311223158.jpg&q=90)
   
 
 全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。

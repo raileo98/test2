@@ -1,3 +1,27 @@
+# Trump to double Canada steel, aluminium tariff rate
+
+![US president Donald Trump has threatened to "substantially increase" tariffs on cars coming into the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795320_1_20250311223214.jpg&q=90)
+  
+
+US President Donald Trump on Tuesday said that he would double incoming steel and aluminium tariffs on Canadian imports from 25 percent to 50 percent, adding that these would take effect "tomorrow morning".
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm)
+
+---
+
 # Ukraine, US discuss partial truce as drones hit Russia
 
 ![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=85)
@@ -1412,29 +1436,5 @@ Two patients' groups on Sunday gave their thoughts on the city's future medical 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm)
-
----
-
-# 'Non-recurrent social welfare spending can be reduced'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794974_1_20250309150059.jpg&q=90)
-  
-
-Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent social welfare expenditure to go down.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm)
 
 ---
