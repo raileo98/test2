@@ -1,3 +1,27 @@
+# 美烏會談結束　烏克蘭接受與俄羅斯停火30天提議
+
+![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795333_1_20250312031759.jpg&q=65)
+  
+
+美國和烏克蘭代表團結束在沙特阿拉伯城市吉達舉行的會談。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm)
+
+---
+
 # 白宮：特朗普尚未與加國候任總理卡尼交談
 
 ![萊維特說，特朗普的電話始終對希望與他交談的領導人保持開放。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795332_1_20250312023548.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm)
-
----
-
-# 中美據報擬磋商習近平與特朗普6月會面　中方稱沒信息可發布
-
-![中美據報就習近平與特朗普6月會面進行前期磋商。圖為兩人2019年在日本大阪出席二十國集團峰會期間會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795267_1_20250311164357.jpg&q=90)
-  
-
-美國傳媒報道，中美正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm)
 
 ---

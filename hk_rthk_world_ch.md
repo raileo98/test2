@@ -1,3 +1,27 @@
+# 美烏會談結束　烏克蘭接受與俄羅斯停火30天提議
+
+![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795333_1_20250312031759.jpg&q=65)
+  
+
+美國和烏克蘭代表團結束在沙特阿拉伯城市吉達舉行的會談。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm)
+
+---
+
 # 白宮：特朗普尚未與加國候任總理卡尼交談
 
 ![萊維特說，特朗普的電話始終對希望與他交談的領導人保持開放。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795332_1_20250312023548.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795106-20250310.htm)
-
----
-
-# 東京大空襲發生80周年　約160人參與追悼法事
-
-![遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795104_1_20250310150257.jpg&q=90)
-  
-
-今日是日本東京大空襲發生80周年，遇難者家屬在安放遇難者遺骸的東京都慰靈堂舉行追悼法事，大約160人參加，包括日皇德仁的胞弟、秋篠宮文仁親王伉儷，以及東京都知事小池百合子。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795104-20250310.htm)
 
 ---
