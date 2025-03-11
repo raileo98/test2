@@ -1,3 +1,27 @@
+# 澤連斯基：美方要說服俄羅斯接受30天停火建議
+
+![澤連斯基在晚間講話中表示，烏克蘭歡迎這個建議，認為具有積極意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795334_1_20250312032443.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，美國需要 「說服 」俄羅斯接受華盛頓提出停火30天的建議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm)
+
+---
+
 # 美烏會談結束　烏克蘭接受與俄羅斯停火30天提議
 
 ![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795333_1_20250312031759.jpg&q=65)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm)
-
----
-
-# 黃大仙下邨火警女住戶死亡　初步調查指煙頭意外點燃床墊所致
-
-![消防及警方經初步調查，相信上址一間睡房有煙頭意外點燃床墊引致火警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795268_1_20250311165457.jpg&q=90)
-  
-
-黃大仙下邨早上發生火警，一名女住戶死亡，消防及警方經初步調查，相信上址一間睡房有煙頭意外點燃床墊引致火警。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm)
 
 ---
