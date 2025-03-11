@@ -70,7 +70,7 @@
 
 ---
 
-# 白宮：特朗普尚未與加國候任總理卡尼交談
+# 美國向加國鋼鋁產品加倍徵稅　白宮：特朗普尚未與卡尼交談
 
 ![萊維特說，特朗普的電話始終對希望與他交談的領導人保持開放。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795332_1_20250312023548.jpg&q=90)
   
@@ -144,7 +144,7 @@
 
 # 巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全
 
-![巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_1_20250312013515.jpg&q=90)
+![巴基斯坦派出士兵到火車站處理人質事件。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_2_20250312041423.jpg&q=85)
   
 
 巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質，聲稱人質包括休假的巴基斯坦軍人和其他安全官員。
