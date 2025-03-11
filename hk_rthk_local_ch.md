@@ -23,6 +23,7 @@
 
 # 黃大仙下邨火警女住戶死亡　初步調查指煙頭意外點燃床墊所致
 
+![消防及警方經初步調查，相信上址一間睡房有煙頭意外點燃床墊引致火警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795268_1_20250311165457.jpg&q=90)
   
 
 黃大仙下邨早上發生火警，一名女住戶死亡，消防及警方經初步調查，相信上址一間睡房有煙頭意外點燃床墊引致火警。
@@ -44,8 +45,9 @@
 
 ---
 
-# 丘應樺籲港商借鑑發展內地電商市場經驗　把握跨境電商無限商機
+# 丘應樺籲港商借鑑內地經驗　把握跨境電商無限商機
 
+![丘應樺（左一）參觀該處的電子商貿直播中心，了解利用電子商貿及直播帶貨的過程和營銷策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795266_1_20250311165427.jpg&q=75)
   
 
 商務及經濟發展局局長丘應樺由廣州轉往東莞繼續訪問行程。
@@ -64,6 +66,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
+
+---
+
+# 恒指跌1點收市　科指升逾1%　汽車股表現較好
+
+![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=45)
+  
+
+港股收市收復大部分失地，恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。主板成交額逾3070億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm)
 
 ---
 
@@ -120,7 +146,7 @@
 ![暫委法官鍾明新裁定陳虹秀暴動罪成，需要還押。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795249_2_20250311151637.jpg&q=75)
   
 
-五年前灣仔軒尼詩道發生非法集結，多名身穿黑衣人士拆除鐵欄，向警方投擲磚頭及汽油彈等。曾被捕的社工陳虹秀經審訊後，獲判無罪，其後律政司上訴得直，案件發還重審，陳虹秀早前否認暴動罪開審，暫委法官鍾明新今日在區域法院裁定陳虹秀暴動罪成，需要還押。
+5年前灣仔軒尼詩道發生非法集結，多名身穿黑衣人士拆除鐵欄，向警方投擲磚頭及汽油彈等。曾被捕的社工陳虹秀經審訊後，被裁定罪脫，其後律政司上訴得直，案件發還重審，陳虹秀早前否認暴動罪開審。暫委法官鍾明新今日在區域法院裁定被告暴動罪成，需要還押。案件押後至下月3日求情，下月9日判刑，屆時將連同案其他被告的判刑一併處理。
 
   
 
@@ -1411,29 +1437,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm)
-
----
-
-# 過去兩星期警方接獲490宗網購騙案涉款逾1300萬元
-
-![警方呼籲公眾網購前要查證，了解清楚賣家的專頁，光顧信譽良好的賣家，盡量選擇當面交收。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795088_1_20250310131756.jpg&q=85)
-  
-
-警方在過去兩星期接獲490宗網購騙案，涉款超過1300萬元。其中一名37歲本地女子在網上拍賣平台購買名牌手袋，付款後貨不到手，騙徒亦失去聯絡，共損失超過7萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795088-20250310.htm)
 
 ---
