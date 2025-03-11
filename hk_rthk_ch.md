@@ -1,3 +1,27 @@
+# 承認企圖打劫連鎖店及行劫銀行　逾期居留新加坡籍老翁判囚11年
+
+![法官將兩罪部分刑期同期執行，因被告被捕後與警方合作，減刑3個月，最終判囚11年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795238_1_20250311135556.jpg&q=90)
+  
+
+一名73歲新加坡籍男子逾期居留10多年，花光數十萬元積蓄後財困，2020年企圖打劫一間連鎖店，2022年持氣槍打劫一間銀行劫走約14000元。他昨日承認一項企圖搶劫罪及一項搶劫罪，在高等法院被判入獄11年。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm)
+
+---
+
 # 港股下午初段跌逾200點
 
 ![港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795237_1_20250311131342.jpg&q=20)
@@ -24,6 +48,7 @@
 
 # 黃大仙下邨龍禧樓單位火警一名女子死亡
 
+![消防處接報到場，動用一條喉及一隊煙帽隊，約26分鐘將火救熄，並救出一名年約60歲女子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795236_1_20250311135645.jpg&q=85)
   
 
 黃大仙下邨龍禧樓有單位上午發生火警，一名女子送院後死亡。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm)
-
----
-
-# 美股初段跌逾1%至2%　大型科技股下跌
-
-![道瓊斯指數較早時報42325點，跌476點，跌幅1.11%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795160_1_20250310213802.jpg&q=90)
-  
-
-美股3大指數在開市初段跌逾1%至逾2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm)
 
 ---

@@ -1,6 +1,6 @@
 # 'Restaurants may need to pay more to delivery firms'
 
-![Marketing professor, Kenneth Kwong, thinks Deliveroo made the decision to exit the Hong Kong market purely on commercial considerations. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795218_1_20250311104506.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795218_1_20250311104506.jpg&q=90)
   
 
 A catering sector representative on Tuesday said he was concerned restaurants would need to pay higher fees for using delivery platforms in future.
