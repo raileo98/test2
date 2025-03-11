@@ -1,3 +1,26 @@
+# 美國和烏克蘭代表團在沙特就俄烏戰事舉行會談
+
+  
+
+美國和烏克蘭代表團在沙特阿拉伯城市吉達一間酒店，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm)
+
+---
+
 # 本港暫停從波蘭及英國個別地區進口禽肉及禽類產品
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795037-20250310.htm)
-
----
-
-# 卡尼贏得黨內選舉　成為加拿大自由黨新黨魁
-
-![卡尼勝出自由黨黨魁，將成為加拿大新總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795032_1_20250310071448.jpg&q=90)
-  
-
-加拿大執政黨自由黨選舉新黨魁，由被稱為「政治素人」的前央行行長卡尼勝出，他將與現任總理杜魯多交接，並成為加拿大新總理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm)
 
 ---
