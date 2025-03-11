@@ -1,5 +1,8 @@
 # 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
 
+![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=65)
+![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=75)
+![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
   
 
 投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。

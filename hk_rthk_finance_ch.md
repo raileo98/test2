@@ -1,5 +1,32 @@
+# 日股低收逾0.6%
+
+![日經指數收市報36793點，跌235點，跌幅0.64%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795244_1_20250311144325.jpg&q=50)
+  
+
+東京股市下跌。日經指數收市報36793點，跌235點，跌幅0.64%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm)
+
+---
+
 # 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
 
+![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=65)
+![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=75)
+![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
   
 
 投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
@@ -1410,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm)
-
----
-
-# 恒指低收447點　晶片及軟件股沽壓大
-
-![恒生指數一度跌約600點，收市報23783點，跌447點，跌幅1.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795118_1_20250310161901.jpg&q=45)
-  
-
-港股連跌兩個交易日，恒生指數失守24000點關口，低見23632點，跌約600點，收市報23783點，跌447點，跌幅1.8%，全日主板成交額逾3018億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm)
 
 ---

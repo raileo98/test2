@@ -1,5 +1,32 @@
+# 日本東京街頭一名女子遇襲身亡　疑兇被捕
+
+![日本東京街頭一名女子遇襲身亡　疑兇被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795243_1_20250311144208.jpg&q=90)
+  
+
+日本東京街頭發生命案，一名女子遇襲身亡，疑兇當場被捕，警方正調查犯案動機。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm)
+
+---
+
 # 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
 
+![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=65)
+![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=75)
+![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
   
 
 投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
@@ -1410,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795020-20250310.htm)
-
----
-
-# 以色列切斷加沙供電　迫使哈馬斯釋放被扣押人員
-
-![以方表示，將使用一切可用手段讓被扣押人員獲釋。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795019_1_20250310022603.jpg&q=40)
-  
-
-以色列宣布切斷加沙地帶供電，藉此向巴勒斯坦武裝組織哈馬斯施壓，迫使哈馬斯釋放被扣押在加沙的人員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm)
 
 ---

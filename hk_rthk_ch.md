@@ -1,5 +1,56 @@
+# 日股低收逾0.6%
+
+![日經指數收市報36793點，跌235點，跌幅0.64%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795244_1_20250311144325.jpg&q=50)
+  
+
+東京股市下跌。日經指數收市報36793點，跌235點，跌幅0.64%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm)
+
+---
+
+# 日本東京街頭一名女子遇襲身亡　疑兇被捕
+
+![日本東京街頭一名女子遇襲身亡　疑兇被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795243_1_20250311144208.jpg&q=90)
+  
+
+日本東京街頭發生命案，一名女子遇襲身亡，疑兇當場被捕，警方正調查犯案動機。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm)
+
+---
+
 # 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
 
+![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=65)
+![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=75)
+![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
   
 
 投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
@@ -1387,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm)
-
----
-
-# 旺角新寶戲院將於4月1日結業
-
-![旺角新寶戲院將於4月1日結業。（新寶戲院社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795166_1_20250310224754.jpg&q=90)
-  
-
-旺角新寶戲院將於4月1日結業。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm)
-
----
-
-# 城隧凌晨車禍有私家車不顧而去　司機涉意外後沒有停車被捕
-
-![警方經調查後，在荃灣區拘捕34歲私家車司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795165_1_20250310224842.jpg&q=85)
-  
-
-城門隧道凌晨發生交通意外，涉及兩輛私家車及一輛的士，有4人受傷，其中1名私家車司機逃去。警方經調查後，今日下午在荃灣區拘捕這名34歲私家車司機，他涉嫌「危險駕駛引致他人身體受嚴重傷害」、「意外後沒有停車」及「意外後沒有報案」，正被扣查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm)
 
 ---
