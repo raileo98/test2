@@ -1,3 +1,27 @@
+# 白宮：特朗普尚未與加國候任總理卡尼交談
+
+![萊維特說，特朗普的電話始終對希望與他交談的領導人保持開放。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795332_1_20250312023548.jpg&q=90)
+  
+
+美國總統特朗普宣布，將對從加拿大進口的鋼鋁產品，額外徵收25%的關稅，令關稅水平提高至50%，當地周三生效，以報復加拿大安大略省對輸送到美國的電力徵收附加費。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm)
+
+---
+
 # 以色列與黎巴嫩同意談判陸路邊界問題
 
 ![以色列稱，各方同意成立三個小組討論以黎陸路邊界問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795331_1_20250312021002.jpg&q=60)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm)
-
----
-
-# 丘應樺籲港商借鑑內地經驗　把握跨境電商無限商機
-
-![丘應樺（左一）參觀該處的電子商貿直播中心，了解利用電子商貿及直播帶貨的過程和營銷策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795266_1_20250311165427.jpg&q=75)
-  
-
-商務及經濟發展局局長丘應樺由廣州轉往東莞繼續訪問行程。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
 
 ---
