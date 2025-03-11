@@ -1,3 +1,51 @@
+# Pelicans to become first NBA team to play in Australia
+
+![Pelicans star Zion Williamson will be among the big names appearing in Australia this October. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795220_1_20250311105931.jpg&q=90)
+  
+
+The New Orleans Pelicans will become the first NBA team to play in Australia when they tip off in two pre-season games in October, organisers said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm)
+
+---
+
+# Arrest of pro-Palestinian student sparks outrage
+
+![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=85)
+  
+
+Protesters in New York and rights groups expressed outrage on Monday over the arrest of a leader of pro-Palestinian demonstrations at Columbia University, as President Donald Trump vowed further crackdowns.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm)
+
+---
+
 # Hang Seng Index sees sell-off after Wall Street rout
 
 ![The Hang Seng Index open over 2 percent lower. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795211_1_20250311095307.jpg&q=75)
@@ -1389,53 +1437,5 @@ Hong Kong officials on Saturday said they will learn from the spirit of "Two Ses
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm)
-
----
-
-# ‘HK, mainland should join hands to tackle scams’
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
-  
-
-Mainland authorities on Saturday said Hong Kong and the mainland should work together to tackle cross-border scams, after six more SAR residents were released from scam farms in Myanmar.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm)
-
----
-
-# Six people arrested over assault of girl, 14
-
-![Police said the teenage girl and the attackers had argued over "an attitude problem and trivial matters.”  File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794902_1_20250308155807.jpg&q=40)
-  
-
-Police on Saturday said they have arrested six people for allegedly assaulting a 14-year-old girl in Mong Kok last August.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794902-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794902-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794902-20250308.htm)
 
 ---

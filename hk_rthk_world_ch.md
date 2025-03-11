@@ -1,3 +1,27 @@
+# 美官員指烏克蘭須作領土讓步　澤連斯基冀烏美會談有實質成果
+
+![澤連斯基強調烏克蘭的談判立場完全具建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795216_1_20250311103456.jpg&q=90)
+  
+
+美國及烏克蘭代表團將在沙特阿拉伯港口城市吉達，就俄烏戰事舉行會談。美方官員說在未來可能達成的任何和平協議中，烏克蘭都必須作出領土讓步。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm)
+
+---
+
 # 311大地震14周年　災區有悼念遇難者活動
 
 ![有民眾上午到海邊悼念當年地震及海嘯遇難者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795212_1_20250311100258.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795013-20250309.htm)
-
----
-
-# 澳洲遭熱帶氣旋吹襲　東部廣泛地區停電
-
-![熱帶氣旋「阿爾弗雷德」吹襲澳洲，有樹木倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795015_1_20250309215121.jpg&q=55)
-  
-
-熱帶氣旋「阿爾弗雷德」減弱為熱帶低氣壓，在澳洲東海岸登陸。「阿爾弗雷德」吹襲澳洲期間，帶來狂風暴雨，至少1人死亡，部分地區停電，學校關閉，有樹木倒塌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Arrest of pro-Palestinian student sparks outrage
+
+![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=85)
+  
+
+Protesters in New York and rights groups expressed outrage on Monday over the arrest of a leader of pro-Palestinian demonstrations at Columbia University, as President Donald Trump vowed further crackdowns.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm)
+
+---
+
 # Search ends for missing crew after North Sea collision
 
 ![Footage shows flames and smoke rising from a collision between an oil tanker and a cargo ship off the northeastern coast of England. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795210_1_20250311093602.jpg&q=90)
@@ -1411,29 +1435,5 @@ Nearly 60 percent of all adults and a third of all children in the world will be
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
-
----
-
-# Tariffs to go ahead on Mexican and Canadian imports
-
-![Trump's new tariffs are also set to tax Canadian energy products, such as oil and electricity, at a lower 10 per cent rate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794093_1_20250304083830.jpg&q=55)
-  
-
-US President Donald Trump said on Monday that 25 percent taxes on imports from Mexico and Canada would start on Tuesday, sparking renewed fears of a North American trade war that already showed signs of pushing up inflation and hindering growth.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794093-20250304.htm)
 
 ---

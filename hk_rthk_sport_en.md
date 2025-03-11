@@ -1,3 +1,27 @@
+# Pelicans to become first NBA team to play in Australia
+
+![Pelicans star Zion Williamson will be among the big names appearing in Australia this October. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795220_1_20250311105931.jpg&q=90)
+  
+
+The New Orleans Pelicans will become the first NBA team to play in Australia when they tip off in two pre-season games in October, organisers said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm)
+
+---
+
 # Newcastle sink West Ham to boost top four bid
 
 ![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=35)
@@ -1422,29 +1446,5 @@ Liverpool will take on Paris Saint-Germain in one of the standout ties in the la
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792676-20250221.htm)
-
----
-
-# Canada beats USA to win Four Nations Face-Off final
-
-![Fans arrive before the big game in Boston. Canada eventually defeated the USA to win the Four Nations Face-Off ice hockey title. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792599_1_20250221130605.jpg&q=70)
-  
-
-In an ice hockey grudge match of border rivals fuelled by political tensions, "51st state" Canada defeated the United States 3-2 in overtime on Thursday to win the Four Nations Face-Off final.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm](https://news.rthk.hk/rthk/en/component/k2/1792599-20250221.htm)
 
 ---

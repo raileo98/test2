@@ -1,8 +1,9 @@
-# 涉攜未完稅日本煙入境　近兩星期21名內地人於機場被捕
+# 日股曾跌逾千點　半日跌幅收窄至645點
 
+![日經指數一度跌逾千點，於36000點失而復得，半日報36382點，跌645點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795217_1_20250311103451.jpg&q=90)
   
 
-因應有內地旅客攜帶未完稅日本煙入境香港，海關過去兩星期加強執法，在機場破獲20宗有關案件，共拘捕21名內地人士。
+日股沽壓大，指數於36000點失而復得。
 
   
 
@@ -10,14 +11,14 @@
 ---
 
 原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm>
 
 © rthk.hk
 
 電子郵件 Email:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm)
 
 ---
 
@@ -334,7 +335,7 @@
 
 # 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
 
-![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+![五位分別來自肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
   
 
 全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。

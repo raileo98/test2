@@ -1,3 +1,51 @@
+# 日股曾跌逾千點　半日跌幅收窄至645點
+
+![日經指數一度跌逾千點，於36000點失而復得，半日報36382點，跌645點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795217_1_20250311103451.jpg&q=90)
+  
+
+日股沽壓大，指數於36000點失而復得。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm)
+
+---
+
+# 美官員指烏克蘭須作領土讓步　澤連斯基冀烏美會談有實質成果
+
+![澤連斯基強調烏克蘭的談判立場完全具建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795216_1_20250311103456.jpg&q=90)
+  
+
+美國及烏克蘭代表團將在沙特阿拉伯港口城市吉達，就俄烏戰事舉行會談。美方官員說在未來可能達成的任何和平協議中，烏克蘭都必須作出領土讓步。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm)
+
+---
+
 # 涉攜未完稅日本煙入境　近兩星期21名內地人於機場被捕
 
   
@@ -382,7 +430,7 @@
 
 # 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
 
-![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+![五位分別來自肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
   
 
 全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
-
----
-
-# 九倉置業對上半年前景不感樂觀
-
-![吳天海稱今年以來旗下商業物業及酒店業務仍趨向下行，對上半年前景不感樂觀。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795143_1_20250310183206.jpg&q=65)
-  
-
-九龍倉置業去年盈利8.9億元，按年大減81%。撇除投資物業重估減值淨額56.2億元及金融工具按市價計值影響，去年基礎淨盈利增加2%至約61.4億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm)
-
----
-
-# 全國兩會｜邱達昌︰本港樓市應已見底　樓價將平穩發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795141_1_20250310182453.jpg&q=75)
-  
-
-全國政協常委邱達昌說，本港樓市應該已見底，預計樓價將平穩發展。他又指，高息環境，加上有存貨，發展商寧願蝕本賣樓套現，並買入更平的土地。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm)
 
 ---
