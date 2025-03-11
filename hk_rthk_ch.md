@@ -1,3 +1,26 @@
+# 全國兩會｜人大會議閉幕　李鴻忠：為實現十五五良好開局打牢基礎
+
+  
+
+十四屆全國人大三次會議在北京閉幕，會議表決通過了所有決議草案及決定草案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm)
+
+---
+
 # 陳茂波籲人工智能等企業來港上市
 
   
@@ -118,6 +141,7 @@
 
 # 美國和烏克蘭代表團在沙特就俄烏戰事舉行會談
 
+![美國和烏克蘭代表團在吉達就俄烏戰事舉行會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795283_1_20250311184048.jpg&q=90)
   
 
 美國和烏克蘭代表團在沙特阿拉伯城市吉達一間酒店，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
@@ -381,6 +405,7 @@
 
 # 保薦人主管協會：應上調新股公開發售部分回撥機制觸發條件
 
+![鄧澔暐指出，回撥機制行之有效，認為無需大改變，但應上調回撥機制觸發條件。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795270_1_20250311183728.jpg&q=90)
   
 
 港交所正為優化首次公開招股市場定價及公開市場規定諮詢市場。

@@ -1,3 +1,26 @@
+# 全國兩會｜人大會議閉幕　李鴻忠：為實現十五五良好開局打牢基礎
+
+  
+
+十四屆全國人大三次會議在北京閉幕，會議表決通過了所有決議草案及決定草案。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm)
+
+---
+
 # 全國兩會｜自然資源部增加優質耕地比例　讓中國飯碗更穩更牢
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794987-20250309.htm)
-
----
-
-# 全國兩會｜王曉萍形容穩定和擴大就業任務繁重　總體態勢向好
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794984_1_20250309155750.jpg&q=90)
-  
-
-在北京，人力資源和社會保障部部長王曉萍表示，今年國家就業形勢總體穩定，並呈向好態勢，但擴大就業任務繁重，仍有大量農村轉移勞動力需要穩定就業，群眾就業增收面臨壓力，同時外部環境更趨複雜嚴峻，國內經濟回升向好基礎仍未穩固，可能會對就業產生一定影響。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794984-20250309.htm)
 
 ---
