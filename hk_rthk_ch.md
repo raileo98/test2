@@ -1,3 +1,27 @@
+# 巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全
+
+![巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_1_20250312013515.jpg&q=90)
+  
+
+巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質，聲稱人質包括休假的巴基斯坦軍人和其他安全官員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm)
+
+---
+
 # 烏克蘭外長：烏美會談具有「建設性氣氛」
 
 ![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795328_1_20250312004312.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm)
-
----
-
-# 涉借出戶口處理逾4000萬元騙款　73名傀儡戶口持有人被捕
-
-![警方表示，相關案件涉及的騙案，包括電話騙案和網上騙案等，提醒長者要妥善保管戶口，不要向人借出戶口。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795257_1_20250311161403.jpg&q=90)
-  
-
-警方採取打擊詐騙及洗黑錢行動，偵破53宗案件，拘捕73名傀儡戶口持有人，涉及款項超過4100萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm)
 
 ---

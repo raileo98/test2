@@ -1,3 +1,27 @@
+# 巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全
+
+![巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_1_20250312013515.jpg&q=90)
+  
+
+巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質，聲稱人質包括休假的巴基斯坦軍人和其他安全官員。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm)
+
+---
+
 # 烏克蘭外長：烏美會談具有「建設性氣氛」
 
 ![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795328_1_20250312004312.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm)
-
----
-
-# 日本大船渡市政府解除受山火影響全部地區避難指示
-
-![日本大船渡市政府解除受山火影響全部地區的避難指示。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795080_1_20250310123322.jpg&q=85)
-  
-
-日本岩手縣大船渡市政府宣布，解除受山火影響全部地區的避難指示。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795080-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795080-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795080-20250310.htm)
 
 ---
