@@ -1,3 +1,27 @@
+# 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
+
+![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=85)
+  
+
+美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
+
+---
+
 # 杜特爾特據報正被帶往海牙國際刑事法院　律師入稟法院尋求阻止
 
 ![杜特爾特的女兒說，父親被帶上飛機，但不知道被帶往何處。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795315_1_20250311221658.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795072-20250310.htm)
-
----
-
-# 韓美展開大規模聯合軍演　北韓譴責把局勢推向極限
-
-![韓美軍演還包括覆蓋陸海空、網絡、太空等全領域的聯合野外機動訓練。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795067_1_20250310105023.jpg&q=80)
-  
-
-南韓與美國正式啟動代號「自由護盾」的年度例行聯合軍演，為期11天。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795067-20250310.htm)
 
 ---

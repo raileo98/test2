@@ -1,3 +1,27 @@
+# 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
+
+![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=85)
+  
+
+美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
+
+---
+
 # 金管局：去年下半年認可機構分配予收數公司帳戶增加
 
 ![金管局通告指，去年下半年，有33間認可機構使用收數公司的服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795314_1_20250311215309.jpg&q=80)
