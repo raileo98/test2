@@ -1,3 +1,51 @@
+# 與母爭執及被拒門外放火燒雜物　思覺失調女子承認縱火判囚一年
+
+![法庭考慮到女被告已賠償母親3000元及已獲母親原諒，最終判女被告監禁一年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795247_1_20250311145915.jpg&q=85)
+  
+
+一名患有思覺失調的女子，因家用問題與母親發生爭執，前往獨居母親單位遭拒於門外，遂用打火機燃燒雜物。涉案女子早前承認縱火罪，區域法院法官陳廣池考慮她已賠償3000元，女被告的母親亦願意原諒女被告，判女被告監禁1年。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm)
+
+---
+
+# 瑞銀：內地對今年經濟增長等目標均符合預期　相對積極和務實
+
+![瑞銀全球金融市場部中國主管房東明認為，內地對今年經濟增長、通脹和赤字率目標均符合預期，亦是相對積極和務實的目標。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795246_1_20250311145742.jpg&q=85)
+  
+
+內地提出目標今年國內生產總值(GDP)增長5%左右，居民消費價格升幅2%左右，以及赤字率按約4%安排。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795246-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795246-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795246-20250311.htm)
+
+---
+
 # 韓股低收1.3%
 
 ![首爾綜合指數收市報2537點，跌32點，跌幅1.28%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795245_1_20250311144500.jpg&q=90)

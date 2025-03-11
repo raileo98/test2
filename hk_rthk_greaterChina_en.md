@@ -1,6 +1,6 @@
 # 'President Xi gave reassurance to private enterprises'
 
-![Li Denghai says the president's pledge to support the non-public sector economy boosts confidence among private businesses. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
   
 
 An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds said President Xi Jinping's speech at a symposium last month provided much-needed reassurance to the nation's private enterprises.

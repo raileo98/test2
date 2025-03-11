@@ -1,6 +1,30 @@
+# Man jailed for three months over fake qualifications
+
+![The Shatin Court says the defendant was being unrealistic in seeking a community service order for his crime. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795242_1_20250311143749.jpg&q=90)
+  
+
+A mainland man was jailed for three months on Tuesday, after pleading guilty to using fake academic qualifications to gain a spot in a Chinese University (CUHK) postgraduate programme.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm)
+
+---
+
 # 'President Xi gave reassurance to private enterprises'
 
-![Li Denghai says the president's pledge to support the non-public sector economy boosts confidence among private businesses. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
   
 
 An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds said President Xi Jinping's speech at a symposium last month provided much-needed reassurance to the nation's private enterprises.
@@ -1412,29 +1436,5 @@ The Organisation of Islamic Cooperation (OIC) formally adopted early on Saturday
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm)
-
----
-
-# Three-way tie after Day 2 of LIV Golf Hong Kong event
-
-![Three players finished on top after the second round of the LIV Golf Hong Kong tournament. Image courtesy of LIV Golf.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794917_1_20250308173011.jpg&q=85)
-  
-
-It’s a three-way tie at the top of the leaderboard of the LIV Golf Hong Kong tournament in Fanling going into the final round on Sunday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm)
 
 ---
