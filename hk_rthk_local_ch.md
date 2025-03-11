@@ -1,5 +1,30 @@
+# 資深藝人夏春秋逝世終年93歲
+
+![資深藝人夏春秋逝世，終年93歲。（香港演藝人協會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795325_1_20250311230205.jpg&q=90)
+  
+
+資深藝人夏春秋逝世，終年93歲。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm)
+
+---
+
 # 4學校參與安徽黃山考察團13師生腸胃炎　當中9人感染諾如病毒
 
+![中心相信，有關爆發個案由諾如病毒經人傳人或受污染環境傳播，並不涉及當地食肆。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795324_1_20250311230355.jpg&q=80)
   
 
 4間學校的師生參與同一個安徽黃山考察團，期間有13名師生出現急性腸胃炎徵狀，10人曾到醫院求醫，9名學生對諾如病毒呈陽性反應。衞生防護中心相信，有關爆發個案由諾如病毒經人傳人或受污染環境傳播，並不涉及當地食肆。
@@ -47,7 +72,7 @@
 
 # 旺角瘋狂駕駛案　有私家車撞向警方衝鋒車及另外3輛私家車
 
-![旺角有人駕駛私家車涉嫌瘋狂駕駛，撞到一輛警方衝鋒車及三輛私家車。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795318_1_20250311223222.jpg&q=45)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795318_1_20250311223222.jpg&q=45)
   
 
 旺角有人駕駛私家車涉嫌瘋狂駕駛，撞到一輛警方衝鋒車及三輛私家車，無人受傷。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795143-20250310.htm)
-
----
-
-# InnoHK獲2億元捐款　陳茂波︰建立大模型「港話通」服務
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795130_1_20250310182434.jpg&q=90)
-  
-
-InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心，獲捐贈2億元。財政司司長陳茂波說，今次捐贈，將支持中心建立服務平台，為市民提供港產大模型「港話通」服務。這是業界基於首個將DeepSeek系統本地化模型所提供的服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm)
 
 ---

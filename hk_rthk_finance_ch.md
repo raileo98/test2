@@ -1,3 +1,27 @@
+# 道指跌幅曾擴大至逾600點
+
+![道瓊斯指數一度跌逾600點，早段低見41278點，較早時報41341點，跌570點，跌幅1.36%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795326_1_20250311230811.jpg&q=90)
+  
+
+美股跌幅擴大，道瓊斯指數一度跌逾600點。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm)
+
+---
+
 # 金管局：去年下半年認可機構分配予收數公司帳戶增加
 
 ![金管局通告指，去年下半年，有33間認可機構使用收數公司的服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795314_1_20250311215309.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795181-20250311.htm)
-
----
-
-# 現貨金跌逾1%　失守2900美元
-
-![現貨金失守每盎司2900美元，低見2879.99美元，跌約1.1%，創1星期低位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795180_1_20250311055520.jpg&q=80)
-  
-
-金價受壓，失守每盎司2900美元。投資者沽貨鎖定利潤，抵銷地緣政治不確定帶來的避險需求支撐，市場亦正觀望本周公布的美國通脹數據。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795180-20250311.htm)
 
 ---
