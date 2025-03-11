@@ -1,3 +1,27 @@
+# 杜特爾特據報正被帶往海牙國際刑事法院　律師入稟法院尋求阻止
+
+![杜特爾特的女兒說，父親被帶上飛機，但不知道被帶往何處。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795315_1_20250311221658.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特被菲律賓警方逮捕。現任總統辦公室表示，是執行國際刑事法院的逮捕令，杜特爾特的健康狀況良好。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm)
+
+---
+
 # 巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件
 
 ![巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795322_1_20250311223658.jpg&q=90)

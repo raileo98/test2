@@ -1,3 +1,27 @@
+# Separatists attack train in Pakistan carrying hundreds
+
+![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=55)
+  
+
+Pakistani insurgents attacked a passenger train in a tunnel and claimed to have taken over 100 hostages on Tuesday, as authorities struggled to reach the remote area. The fate of the estimated 500 people aboard was not immediately clear.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm)
+
+---
+
 # Trump to double Canada steel, aluminium tariff rate
 
 ![US president Donald Trump has threatened to "substantially increase" tariffs on cars coming into the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795320_1_20250311223214.jpg&q=90)
@@ -1411,29 +1435,5 @@ President Volodymyr Zelensky on Tuesday said he wanted to "make things right" wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794263-20250305.htm)
-
----
-
-# CK Hutchison to sell Panama unit after Trump pressure
-
-![The sale to a BlackRock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=45)
-  
-
-Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama Canal port operator to a BlackRock Inc-backed consortium, following intense pressure from US President Donald Trump.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
 
 ---

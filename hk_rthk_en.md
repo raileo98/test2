@@ -1,3 +1,27 @@
+# Separatists attack train in Pakistan carrying hundreds
+
+![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=55)
+  
+
+Pakistani insurgents attacked a passenger train in a tunnel and claimed to have taken over 100 hostages on Tuesday, as authorities struggled to reach the remote area. The fate of the estimated 500 people aboard was not immediately clear.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm)
+
+---
+
 # Trump to double Canada steel, aluminium tariff rate
 
 ![US president Donald Trump has threatened to "substantially increase" tariffs on cars coming into the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795320_1_20250311223214.jpg&q=90)
@@ -1412,29 +1436,5 @@ Beijing officials on Sunday said it is not easy to stabilise and expand the job 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm)
-
----
-
-# 'Improve doctors' training at new medical school'
-
-![Two patients' groups unveil findings of their survey on Hong Kong's third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794994_1_20250309165758.jpg&q=75)
-  
-
-Two patients' groups on Sunday gave their thoughts on the city's future medical school, hoping it would improve training for doctors and minimise the risk of mishaps.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm)
 
 ---
