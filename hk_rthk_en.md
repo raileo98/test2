@@ -1,3 +1,28 @@
+# NPC concludes annual session with call for unity
+
+![NPC Standing Committee vice-chairman Li Hongzhong presided over the meeting, after chairman Zhao Leji took a leave of absence. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_1_20250311163103.jpg&q=90)
+![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=35)
+  
+
+The third annual session of the 14th National People’s Congress (NPC) concluded in Beijing on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm)
+
+---
+
 # Beijing hopes for 'just solution' to Ukraine war
 
 ![Foreign Ministry spokeswoman Mao Ning says China supports all efforts that contribute to a peaceful resolution of the Ukraine crisis. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795258_1_20250311160751.jpg&q=90)
@@ -1412,29 +1437,5 @@ Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win ov
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm)
-
----
-
-# 'HK should take One Country, Two Systems to new level'
-
-![Zheng Yanxiong says Hong Kong should speed up the process of advancing to prosperity. Photo courtesy of the liaison office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794932_1_20250308214630.jpg&q=90)
-  
-
-The director of the central government's liaison office, Zheng Yanxiong, on Saturday said Hong Kong should take the “One Country, Two Systems” principle to a new level, and strive for better development.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm)
 
 ---

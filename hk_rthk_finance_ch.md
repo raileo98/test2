@@ -1,3 +1,26 @@
+# 丘應樺籲港商借鑑發展內地電商市場經驗　把握跨境電商無限商機
+
+  
+
+商務及經濟發展局局長丘應樺由廣州轉往東莞繼續訪問行程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
+
+---
+
 # 恒指跌1點收市　科指升逾1%
 
 ![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=45)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm)
-
----
-
-# 內地2月乘用車市場零售按年升26%　新能源車按年升近80%
-
-![中國乘聯會公布，內地2月狹義乘用車市場零售按年增加26%，新能源車按年升近80%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795127_1_20250310171219.jpg&q=90)
-  
-
-中國乘用車市場信息聯席會公布，內地2月狹義乘用車市場零售138.6萬輛，按年增加26%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 丘應樺籲港商借鑑發展內地電商市場經驗　把握跨境電商無限商機
+
+  
+
+商務及經濟發展局局長丘應樺由廣州轉往東莞繼續訪問行程。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
+
+---
+
 # 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
 
 ![受大會主席團委託，李鴻忠主持會議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794962-20250309.htm)
-
----
-
-# 全國兩會｜政協屠海鳴稱要深化一國兩制認識　提升社會責任感
-
-![政協屠海鳴稱近年香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794958_1_20250309101721.jpg&q=85)
-  
-
-在北京，全國政協港澳台僑委員會副主任屠海鳴表示，近年來，香港的喜人變化有目共睹，但社會對一國兩制認知還有差距。有人認為一國兩制只是解決歷史遺留問題的權宜之計；有人認為一國兩制事關香港，與內地發展、強國建設、民族復興關聯不大；還有人對一國兩制的價值理念認識不深。他認為，要深化一國兩制實踐教育，提升文化自信和國家認同。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794958-20250309.htm)
 
 ---
