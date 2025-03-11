@@ -1,3 +1,27 @@
+# 'China changing course of economic development'
+
+![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
+  
+
+A senior member of a leading national think tank on Tuesday said the annual "Two Sessions" which just wrapped up in Beijing showed China's emphasis on the economy and innovation amid Sino-US tensions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
+
+---
+
 # HSI flat after Wall Street rout
 
 ![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=35)
@@ -1412,29 +1436,5 @@ Each Legislative Council election should be better than the previous one, accord
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm)
-
----
-
-# 'Capitalise on One Country, Two Systems'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_2_20250309115720.jpg&q=75)
-  
-
-Hong Kong and Macau delegates to the country's top political advisory body said the two SARs should make good use of their advantages under the One Country, Two Systems principle.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm)
 
 ---

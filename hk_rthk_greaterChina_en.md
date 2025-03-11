@@ -1,3 +1,27 @@
+# 'China changing course of economic development'
+
+![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
+  
+
+A senior member of a leading national think tank on Tuesday said the annual "Two Sessions" which just wrapped up in Beijing showed China's emphasis on the economy and innovation amid Sino-US tensions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
+
+---
+
 # NPC concludes annual session with call for unity
 
 ![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=35)
@@ -1413,29 +1437,5 @@ Beijing said on Tuesday it had filed a complaint with the World Trade Organizati
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm)
-
----
-
-# China to firmly defend its interests: ambassador
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794184_1_20250304171254.jpg&q=85)
-  
-
-China's ambassador to the United States says while China needs to firmly defend its interests, it will continue to handle Sino-US relations based on mutual respect, peaceful coexistence, and win-win cooperation.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794184-20250304.htm)
 
 ---

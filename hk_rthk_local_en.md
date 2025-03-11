@@ -1,3 +1,27 @@
+# 'China changing course of economic development'
+
+![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
+  
+
+A senior member of a leading national think tank on Tuesday said the annual "Two Sessions" which just wrapped up in Beijing showed China's emphasis on the economy and innovation amid Sino-US tensions.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
+
+---
+
 # HK's top court to webcast some hearings from April
 
 ![The judiciary says people, including the media, must not record the Court of Final Appeal's online webcasts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795261_1_20250311162436.jpg&q=70)
@@ -1413,29 +1437,5 @@ A vibrant festival celebrating Indian culture through dance, music and cuisine, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794437-20250305.htm)
-
----
-
-# Air passenger departure tax to go up from Oct 1
-
-![The air passenger departure tax will be increased from HK$120 to HK$200 on October 1. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794422_1_20250306110817.jpg&q=75)
-  
-
-Travellers purchasing a plane ticket to fly out of Hong Kong from October 1 will have to pay HK$200 in air passenger departure tax (APDT) instead of the current HK$120, the government announced on Wednesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794422-20250305.htm)
 
 ---
