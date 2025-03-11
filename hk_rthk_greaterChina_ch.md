@@ -1,3 +1,26 @@
+# 再有兩中學韶關交流後29名師生腸胃炎　全部人曾到相同餐廳用膳
+
+  
+
+再多兩間參與廣東韶關交流團的中學、29名師生，出現腸胃炎徵狀。3間學校、共52名師生於本月3日至10日期間出現急性腸胃炎徵狀，16人已求醫，全部毋須入院。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm)
+
+---
+
 # 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
 
 ![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795047-20250310.htm)
-
----
-
-# 內地2月PPI按年及按月跌幅收窄　統計局：宏觀政策效果漸顯現
-
-![國家統計局指出，隨著宏觀政策效果逐步顯現，部分行業生產需求增加，帶動上月PPI跌幅收窄。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795027_1_20250310053724.jpg&q=30)
-  
-
-內地2月工業生產者出廠價格指數(PPI)按年跌2.2%，跌幅輕微收窄0.1個百分點，是半年以來最小跌幅，但仍略差於預期。PPI按月跌0.1%，跌幅亦收窄0.1個百分點。今年首兩個月PPI按年跌2.2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795027-20250310.htm)
 
 ---

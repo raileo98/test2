@@ -1,3 +1,50 @@
+# 星島料去年度虧損擴大至約8500萬元
+
+![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=75)
+  
+
+星島新聞集團預計，去年度將錄得虧損約8500萬元，較前年度約4900萬元虧損擴大73%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm)
+
+---
+
+# 再有兩中學韶關交流後29名師生腸胃炎　全部人曾到相同餐廳用膳
+
+  
+
+再多兩間參與廣東韶關交流團的中學、29名師生，出現腸胃炎徵狀。3間學校、共52名師生於本月3日至10日期間出現急性腸胃炎徵狀，16人已求醫，全部毋須入院。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm)
+
+---
+
 # 中證監：全力鞏固市場回穩向好勢頭　支持優質未有盈利科企上市
 
 ![中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，支持優質未有盈利科技企業發行上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795308_1_20250311205821.jpg&q=85)

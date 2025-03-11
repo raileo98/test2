@@ -1,3 +1,27 @@
+# 星島料去年度虧損擴大至約8500萬元
+
+![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=75)
+  
+
+星島新聞集團預計，去年度將錄得虧損約8500萬元，較前年度約4900萬元虧損擴大73%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm)
+
+---
+
 # 中證監：全力鞏固市場回穩向好勢頭　支持優質未有盈利科企上市
 
 ![中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，支持優質未有盈利科技企業發行上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795308_1_20250311205821.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm)
-
----
-
-# 格陵蘭總理：美國不尊重格陵蘭島且極其不可預測
-
-![格陵蘭星期二將舉行自治議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795171_1_20250311055259.jpg&q=90)
-  
-
-格陵蘭自治政府總理埃格德表示，美國並未給予格陵蘭人民應有的尊重，又說美國正處於一個極其不可預測的總統任期，令人感到不安。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm)
 
 ---
