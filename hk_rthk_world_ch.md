@@ -120,7 +120,8 @@
 
 # 菲總統證實杜特爾特正被送往海牙
 
-![支持者在馬尼拉集會聲援杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_1_20250312001059.jpg&q=75)
+![總統小馬可斯召開記者會，證實載著杜特爾特的飛機已於晚上大約11時起飛。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_2_20250312025249.jpg&q=90)
+![支持者在馬尼拉集會聲援杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_3_20250312025249.jpg&q=75)
   
 
 菲律賓前總統杜特爾特被捕後，正被送往國際刑事法院總部所在地荷蘭海牙。
