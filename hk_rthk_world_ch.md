@@ -1,3 +1,26 @@
+# 本港暫停從波蘭及英國個別地區進口禽肉及禽類產品
+
+  
+
+食物安全中心宣布，因應世界動物衞生組織通報，指波蘭大波蘭省Chodzież區及英國德文郡Torbay區爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm)
+
+---
+
 # 俄羅斯稱擊落337架烏克蘭無人機　莫斯科州長稱襲擊致2死多傷
 
 ![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=60)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795032-20250310.htm)
-
----
-
-# 加拿大執政黨自由黨選舉新黨魁　報道指卡尼獲議會過半黨員支持
-
-![加拿大前央行行長卡尼在黨內支持率持續領先。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795031_1_20250310071536.jpg&q=85)
-  
-
-加拿大執政黨自由黨選舉新黨魁，預料結果在當地星期日晚公布，新黨魁將與現任總理杜魯多交接，並成為加拿大新總理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795031-20250310.htm)
 
 ---

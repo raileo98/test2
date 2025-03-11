@@ -1,3 +1,49 @@
+# 醫學會下月舉辦「春耕行動」步行活動提升市民對器官捐贈認識
+
+  
+
+醫學會將於下月13日舉辦名為「春耕行動」的步行推廣活動，提升市民對器官捐贈認識，亦希望藉此機會，讓家人及朋友一同參與及討論，加深認識彼此對器官捐贈的意願。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm)
+
+---
+
+# 本港暫停從波蘭及英國個別地區進口禽肉及禽類產品
+
+  
+
+食物安全中心宣布，因應世界動物衞生組織通報，指波蘭大波蘭省Chodzież區及英國德文郡Torbay區爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm)
+
+---
+
 # 人民幣兌美元升至近4個月高位收市
 
 ![人民幣收市報7.2306兌1美元，較上日收市升343點子，創近4個月高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795271_1_20250311170625.jpg&q=70)
