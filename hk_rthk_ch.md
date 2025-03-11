@@ -1,3 +1,49 @@
+# 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
+
+  
+
+外賣平台戶戶送Deliveroo撤出香港市場。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm)
+
+---
+
+# 全國兩會｜有民企高層稱習近平講話如定心丸　提供報效國家的平台
+
+  
+
+國家主席習近平上月在北京人民大會堂，出席民營企業座談會並發表重要講話，是中央時隔6年多再度召開民營企業座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm)
+
+---
+
 # 承認以假學歷報讀中大碩士課程　30歲內地男子判囚3個月
 
 ![被告承認一項以欺騙手段取得服務罪，另一項為取得入境證而安排作出虛假申述罪則獲撤控，判監禁3個月。
@@ -75,7 +121,7 @@
 
   
 
-菲律賓總統辦公室表示，警方對已返抵首都馬尼拉國際機場的前總統杜特爾特，執行國際刑事法院的逮捕令，杜特爾特已被拘留，健康狀況良好。
+菲律賓總統辦公室表示，警方對已返抵首都馬尼拉國際機場的前總統杜特爾特，執行國際刑事法院的逮捕令。他已被拘留，健康狀況良好。杜特爾特的前法律顧問表示逮捕是非法，又指警方不容許律師在機場與杜特爾特會面。
 
   
 
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795157-20250310.htm)
-
----
-
-# 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
-
-![盧寵茂與正在訪問香港的世界衞生組織西太平洋區域主任（前排右二）會面，就公共衞生相關議題作交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795156_1_20250310211737.jpg&q=85)
-  
-
-醫務衞生局局長盧寵茂今日與正在訪問香港的世界衞生組織西太平洋區域主任Saia Ma’u Piukala醫生會面，就公共衞生相關議題作交流。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm)
-
----
-
-# 廣華醫院有護士懷疑被非禮　一名男病人被捕
-
-![院方接獲報告後，隨即報警，警方及後在急症室拘捕一名男病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795155_1_20250310211632.jpg&q=80)
-  
-
-廣華醫院發生護士懷疑被非禮的事件，院方表示，今日上午一名護士在急症室護士站工作期間，懷疑被人非禮。院方接獲報告後，隨即報警，警方及後在急症室拘捕一名男病人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm)
 
 ---

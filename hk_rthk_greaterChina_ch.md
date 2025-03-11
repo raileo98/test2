@@ -1,3 +1,26 @@
+# 全國兩會｜有民企高層稱習近平講話如定心丸　提供報效國家的平台
+
+  
+
+國家主席習近平上月在北京人民大會堂，出席民營企業座談會並發表重要講話，是中央時隔6年多再度召開民營企業座談會。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm)
+
+---
+
 # 全國兩會｜牧原實業秦英林稱民營經濟促進法明確民企重要地位
 
 ![秦英林說，首次通過立法明確民營經濟在社會主義市場經濟中的重要地位，充分體現中央對民營經濟的高度重視和關心支持。（人民網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795205_2_20250311100923.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm)
-
----
-
-# 全國兩會｜張軍稱要加強涉外法治建設　依法反制非法制裁
-
-![張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794921_1_20250308195840.jpg&q=35)
-  
-
-在北京，最高人民法院院長張軍的工作報告指出，今年要依法平等保護國有、民營、外資等企業的產權和自主經營權、促進法治經濟，亦要加強涉外法治建設，依法反制非法制裁和「長臂管轄」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm)
 
 ---

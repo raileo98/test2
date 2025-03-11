@@ -1,3 +1,27 @@
+# 'President Xi gave reassurance to private enterprises'
+
+![Li Denghai says the president's pledge to support the non-public sector economy boosts confidence among private businesses. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
+  
+
+An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds said President Xi Jinping's speech at a symposium last month provided much-needed reassurance to the nation's private enterprises.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm)
+
+---
+
 # Ex-Philippine president Duterte arrested in Manila
 
 ![Former Philippine president Rodrigo Duterte was arrested after landing in Manila from Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795225_1_20250311113948.jpg&q=90)
@@ -1412,29 +1436,5 @@ It’s a three-way tie at the top of the leaderboard of the LIV Golf Hong Kong t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm)
-
----
-
-# S Korea's impeached President Yoon released
-
-![Impeached South Korean President Yoon Suk Yeol bows to his supporters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794922_1_20250308181642.jpg&q=75)
-  
-
-Impeached South Korean President Yoon Suk Yeol was released from detention on Saturday after a court voided his arrest on procedural grounds – but he remains under investigation over his declaration of martial law.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm)
 
 ---
