@@ -1,3 +1,26 @@
+# 黃大仙下邨龍禧樓單位火警一名女子死亡
+
+  
+
+黃大仙下邨龍禧樓有單位上午發生火警，一名女子送院後死亡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795236-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795236-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795236-20250311.htm)
+
+---
+
 # 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
 
   
@@ -1410,29 +1433,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795064-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795064-20250310.htm)
-
----
-
-# 梁子穎指上調公屋入息限額建議未符現實　梁文廣促平衡及取捨
-
-![梁子穎（左）說，新門檻將令部分全職工作申請人寧願辭職或「打散」工作；梁文廣（右）認為，在現時公屋供應不足的情況下，要先照顧最有需要的一群。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795060_1_20250310102936.jpg&q=85)
-  
-
-房委會完成公屋入息及資產限額檢討，建議下年度上調公屋入息限額，平均加幅1.7%。其中2人家庭建議加幅最多，達2.5%，入息限額由19730元增至20230元。房委會資助房屋小組委員會委員、工聯會立法會議員梁子穎認為，這次上調水平未能符合現實，因為現時一些清潔工人和保安入息水平已超過最低工資水平，新門檻將令部分全職工作申請人寧願辭職或「打散」工作，令入息不超過水平，才可保留申請公屋資格。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm)
 
 ---
