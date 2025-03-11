@@ -1,3 +1,27 @@
+# 法國召集逾30國軍方首腦開會　商討向烏克蘭派遣部隊
+
+![法國召集30多個國家的軍方首腦在巴黎舉行會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795330_1_20250312014357.jpg&q=85)
+  
+
+法國召集30多個國家的軍方首腦在巴黎舉行會議，討論若烏克蘭與俄羅斯達成停火協議，各國願意為烏克蘭的安全保障作出貢獻，特別是為烏克蘭組建一支國際安全部隊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm)
+
+---
+
 # 巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全
 
 ![巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_1_20250312013515.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795091-20250310.htm)
-
----
-
-# 特朗普拒絕排除美國經濟因關稅措施陷入衰退可能
-
-![特朗普在「空軍一號」專機上再次回應有關經濟衰退的問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795081_1_20250310115716.jpg&q=90)
-  
-
-美國總統特朗普接受傳媒訪問時，為政府關稅政策辯護，拒絕排除美國經濟因此陷入衰退的可能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm)
 
 ---

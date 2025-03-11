@@ -1,3 +1,27 @@
+# 法國召集逾30國軍方首腦開會　商討向烏克蘭派遣部隊
+
+![法國召集30多個國家的軍方首腦在巴黎舉行會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795330_1_20250312014357.jpg&q=85)
+  
+
+法國召集30多個國家的軍方首腦在巴黎舉行會議，討論若烏克蘭與俄羅斯達成停火協議，各國願意為烏克蘭的安全保障作出貢獻，特別是為烏克蘭組建一支國際安全部隊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm)
+
+---
+
 # 巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全
 
 ![巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_1_20250312013515.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm)
-
----
-
-# 恒指跌1點收市　科指升逾1%　汽車股表現較好
-
-![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=45)
-  
-
-港股收市收復大部分失地，恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。主板成交額逾3070億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm)
 
 ---
