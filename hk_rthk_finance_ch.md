@@ -1,3 +1,99 @@
+# 現貨金曾升逾1%　重上2900美元
+
+![現貨金重上2900美元關口，最高升至每盎司2921.93美元，升1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795345_1_20250312055525.jpg&q=85)
+  
+
+金價回升，收復2900美元關口。美元疲弱，加上關稅戰引發經濟放緩擔憂，資金流向黃金避險。投資者亦正注視美國通脹數據，以判斷利率走勢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm)
+
+---
+
+# 港股美國預託證券個別發展
+
+![港股美國預託證券（ADR）個別發展，美團及京東ADR跌逾1%，阿里巴巴、滙控ADR則升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795346_1_20250312060103.jpg&q=85)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm)
+
+---
+
+# 油價觸及約1星期新低後回升　布蘭特期油高收0.4%
+
+![英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795344_1_20250312055150.jpg&q=80)
+  
+
+英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。美元偏軟支撐油價表現，但市場對美國經濟放緩、關稅拖累全球經濟表現等擔憂加劇，限制油價全日升幅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm)
+
+---
+
+# 歐洲股市低收逾1%　憂美國關稅威脅拖累經濟
+
+![歐洲主要股市跌逾1%，市場憂慮美國貿易政策或會抑制經濟增長。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795343_1_20250312054440.jpg&q=90)
+  
+
+歐洲主要股市跌逾1%，美國威脅對加拿大鋼鋁進一步加徵關稅，市場憂慮美國貿易政策或會抑制經濟增長。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm)
+
+---
+
 # 美股連跌兩日　道指低收478點　標普500指數跌約0.8%
 
 ![美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795342_1_20250312053710.jpg&q=90)
@@ -1341,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm)
-
----
-
-# 韓股初段跌約2%
-
-![首爾綜合指數較早時報2524點，跌45點，跌幅1.78%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795190_1_20250311080519.jpg&q=75)
-  
-
-南韓股市早段沽壓大，首爾綜合指數較早時報2524點，跌45點，跌幅1.78%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795190-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795190-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795190-20250311.htm)
-
----
-
-# 日股初段跌近700點
-
-![日經指數較早時報36360點，跌667點，跌幅1.8%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795189_1_20250311080430.jpg&q=85)
-  
-
-日股跟隨隔晚美股下挫，日經指數較早時報36360點，跌667點，跌幅1.8%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm)
-
----
-
-# 《環看天下》：卡尼出任加拿大新總理　同時應對中美關稅勢成考驗
-
-![卡尼當選執政加拿大自由黨新黨魁，將成為加拿大新任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795188_1_20250311073323.jpg&q=90)
-  
-
-加拿大執政自由黨選出新黨魁，由被形容為「政治素人」的加拿大央行前行長卡尼勝出，將會接替杜魯多成為新總理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm)
-
----
-
-# 美元兌日圓曾失守147關口　比特幣創4個月新低
-
-![美元兌日圓曾跌穿147關口，跌至146.6附近，是去年10月初以來最低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795183_1_20250311061741.jpg&q=80)
-  
-
-憂慮美國經濟放緩，加上美股被拋售，資金流入日圓及瑞士法郎避險。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795183-20250311.htm)
 
 ---

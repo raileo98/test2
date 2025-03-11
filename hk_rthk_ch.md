@@ -1,3 +1,99 @@
+# 現貨金曾升逾1%　重上2900美元
+
+![現貨金重上2900美元關口，最高升至每盎司2921.93美元，升1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795345_1_20250312055525.jpg&q=85)
+  
+
+金價回升，收復2900美元關口。美元疲弱，加上關稅戰引發經濟放緩擔憂，資金流向黃金避險。投資者亦正注視美國通脹數據，以判斷利率走勢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm)
+
+---
+
+# 港股美國預託證券個別發展
+
+![港股美國預託證券（ADR）個別發展，美團及京東ADR跌逾1%，阿里巴巴、滙控ADR則升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795346_1_20250312060103.jpg&q=85)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm)
+
+---
+
+# 油價觸及約1星期新低後回升　布蘭特期油高收0.4%
+
+![英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795344_1_20250312055150.jpg&q=80)
+  
+
+英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。美元偏軟支撐油價表現，但市場對美國經濟放緩、關稅拖累全球經濟表現等擔憂加劇，限制油價全日升幅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm)
+
+---
+
+# 歐洲股市低收逾1%　憂美國關稅威脅拖累經濟
+
+![歐洲主要股市跌逾1%，市場憂慮美國貿易政策或會抑制經濟增長。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795343_1_20250312054440.jpg&q=90)
+  
+
+歐洲主要股市跌逾1%，美國威脅對加拿大鋼鋁進一步加徵關稅，市場憂慮美國貿易政策或會抑制經濟增長。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm)
+
+---
+
 # 美股連跌兩日　道指低收478點　標普500指數跌約0.8%
 
 ![美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795342_1_20250312053710.jpg&q=90)
@@ -75,7 +171,7 @@
 ![馬克龍與歐洲及北約國家的軍方首腦會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795338_1_20250312035223.jpg&q=90)
   
 
-法國總統埃馬克龍呼籲歐洲和北約的軍事首腦制定一項計劃，以便在實現俄烏停火的情況下以「可靠的安全保障」 保護烏克蘭。
+法國總統馬克龍呼籲歐洲和北約的軍事首腦制定一項計劃，以便在實現俄烏停火的情況下以「可靠的安全保障」 保護烏克蘭。
 
   
 
@@ -1343,101 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm)
-
----
-
-# 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
-
-![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=85)
-  
-
-十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
-
----
-
-# 黎智英案控辯雙方於8月14日開始結案陳詞　為期8日
-
-![控辯雙方於8月14日開始結案陳詞，暫定為期8日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795274_1_20250311172023.jpg&q=80)
-  
-
-壹傳媒集團創辦人黎智英與《蘋果日報》3間公司涉嫌串謀勾結外國勢力案，法官早前裁定表證成立。控辯雙方已完成舉證，3名法官杜麗冰、李素蘭、李運騰與控辯雙方今日開庭，討論有關結案陳詞所涉範疇及適當日子，各方討論後，決定將於8月14日開始，暫定為期8日的結案陳詞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795274-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795274-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795274-20250311.htm)
-
----
-
-# 全國兩會｜高志丹：要在2035年建成體育強國目標再接再厲
-
-![高志丹表示，要在2035年建成體育強國的目標再接再厲。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795273_1_20250311180915.jpg&q=90)
-  
-
-在北京，國家體育總局局長高志丹表示，國家隊在巴黎奧運會上取得境外參與最好成績，運動員亦展現優異的體育精神文化素養和個人魅力，印證出國運興則體育興、國家強則體育強。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm)
-
----
-
-# 全國兩會｜文旅部部長稱只要有好產品就不愁沒有消費
-
-![孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795272_1_20250311180851.jpg&q=90)
-  
-
-文化和旅遊部部長孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。去年國內旅遊規模達56億人次，消費57000億元，按年增長17%。入境遊達1.32億人次，相關旅客在國內花費亦超過900多億美元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm)
 
 ---
