@@ -1,3 +1,75 @@
+# 'Restaurants may need to pay more to delivery firms'
+
+![Marketing professor, Kenneth Kwong, thinks Deliveroo made the decision to exit the Hong Kong market purely on commercial considerations. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795218_1_20250311104506.jpg&q=90)
+  
+
+A catering sector representative on Tuesday said he was concerned restaurants would need to pay higher fees for using delivery platforms in future.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm)
+
+---
+
+# 'Snooker hiccup not a problem for National Games'
+
+![Herman Hu believes the Kai Tak Sports Park is "already ready" for the National Games. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=85)
+  
+
+A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
+
+---
+
+# Carney vows 'quick' transition to new government
+
+![Former Bank of Canada and Bank of England governor Mark Carney will succeed Justin Trudeau as Canadian PM later this week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795221_1_20250311110611.jpg&q=90)
+  
+
+Canada's incoming prime minister Mark Carney has promised a "smooth" and "quick" transition from Justin Trudeau after his convincing win in the ruling Liberal Party's leadership race.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm)
+
+---
+
 # Pelicans to become first NBA team to play in Australia
 
 ![Pelicans star Zion Williamson will be among the big names appearing in Australia this October. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795220_1_20250311105931.jpg&q=90)
@@ -120,7 +192,7 @@ Japan's economy expanded in the October-December quarter at a slower pace than i
 
 # 25 dead in two Mexican bus crashes
 
-![11 people died when a bus flipped over along a highway in Oaxaca state, Mexico. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=20)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=20)
   
 
 At least 25 people were killed in two separate bus crashes in Mexico on Monday, authorities said.
@@ -240,7 +312,7 @@ Wall Street stocks fell sharply on Monday as investors fretted that uncertainty 
 
 # New Canada PM 'should be pragmatic in China policy'
 
-![Mao Ning says China and Canada should develop bilateral ties on the basis of mutual respect, equality and mutual benefit. Photo: Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795162_1_20250310215514.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795162_1_20250310215514.jpg&q=90)
   
 
 China hopes that the incoming government in Canada will adopt a positive and pragmatic approach towards Beijing, Foreign Ministry spokeswoman Mao Ning said on Monday after Mark Carney's victory in the leadership race for Canada's ruling party, paving the way for him to succeed Justin Trudeau as prime minister.
@@ -264,7 +336,7 @@ China hopes that the incoming government in Canada will adopt a positive and pra
 
 # EU says US not engaging to make deal to avoid tariffs
 
-![The EU's trade chief Maros Sefcovic said Washington does not seem to be engaging to make a deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
   
 
 The United States does not appear to want to make a deal with Brussels to avoid hefty tariffs against the EU, the bloc's trade chief said on Monday, days before US steel and aluminium levies kick in.
@@ -1364,78 +1436,5 @@ Two former world champions, Shaun Murphy of England and Neil Robertson of Austra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
-
----
-
-# Cavs survive Hornets scare, Jokic makes history
-
-![Three-time NBA MVP Nikola Jokic has become the first player ever to score more than 30 points, 20 rebounds and 20 assists in a single game. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794896_1_20250308153519.jpg&q=85)
-  
-
-The Cleveland Cavaliers staged a dramatic late rally to stretch their unbeaten streak to 13 games with a nail-biting 118-117 over the lowly Charlotte Hornets in the NBA on Friday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm)
-
----
-
-# 'Private enterprises need innovation to thrive'
-
-![Dong Mingzhu says private enterprises need continuous innovation and technological investment to thrive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_1_20250308164432.jpg&q=85)
-![Xiang Wenbo says it's a good timing to list in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_2_20250308164432.jpg&q=85)
-  
-
-The chairwoman of Gree Electrics on Saturday said private enterprises need continuous innovation and technological investment to thrive.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm)
-
----
-
-# HK officials pledge to implement Two Sessions spirit
-
-![Hong Kong officials pledge to implement the spirit of "Two Sessions". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794903_1_20250308160513.jpg&q=70)
-  
-
-Hong Kong officials on Saturday said they will learn from the spirit of "Two Sessions" and stressed the importance of unity in advancing the SAR's development.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm)
 
 ---

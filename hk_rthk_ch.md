@@ -1,3 +1,49 @@
+# 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
+
+  
+
+港鐵行政總裁金澤培在報章專欄撰文表示，今年的票價調整尚待政府公布最後一項數據，現時看來今年票價按機制大概會維持不變，他說，今年的票價可能凍結，亦是政府與港鐵訂定的票價調整機制下的結果，又指乘客期望票價越低越好，港鐵員工期望薪酬越高越好，公司努力做到平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm)
+
+---
+
+# 司法機構下月先導計劃直播終審法院實質上訴案件法庭程序
+
+  
+
+司法機構宣布，將於下月1日推行為期兩年的先導計劃，現場直播終審法院實質上訴案件的法庭程序。在維護司法公義的大前提下，在法院大樓外現場直播司法程序，可增加法庭程序的透明度及加強公眾對司法程序的信心。首兩宗作現場直播的終審法院案件將於下月1日和7日進行聆訊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm)
+
+---
+
 # 日股曾跌逾千點　半日跌幅收窄至645點
 
 ![日經指數一度跌逾千點，於36000點失而復得，半日報36382點，跌645點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795217_1_20250311103451.jpg&q=90)
@@ -48,6 +94,7 @@
 
 # 涉攜未完稅日本煙入境　近兩星期21名內地人於機場被捕
 
+![海關過去兩星期加強執法，在機場破獲20宗內地旅客攜帶未完稅日本煙入境香港案件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795215_1_20250311111815.jpg&q=50)
   
 
 因應有內地旅客攜帶未完稅日本煙入境香港，海關過去兩星期加強執法，在機場破獲20宗有關案件，共拘捕21名內地人士。
@@ -95,6 +142,7 @@
 
 # 學者指兩至三間外送平台已飽和　餐飲業稱有競爭但可找到平衡點
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795213_1_20250311111459.jpg&q=85)
   
 
 戶戶送Deliveroo宣布撤出香港市場，平台將繼續運行至4月7日。
@@ -334,7 +382,7 @@
 
 # 全國兩會｜李登海稱習近平講話提出民營經濟遵循原則增強民企信心
 
-![李登海表示，企業要做大、做強、做優，必須提升創新研發能力。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
   
 
 國家主席習近平上月在北京出席民營企業座談會，並發表重要講話，有超過30名民企代表參與，當中包括山東登海種業公司名譽董事長李登海。
@@ -742,7 +790,7 @@
 
 # 英國附近海域油輪與貨船相撞　貨船船主稱1名船員失蹤
 
-![兩艘船相撞後起火，冒出大量濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795178_1_20250311062425.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795178_1_20250311062425.jpg&q=90)
   
 
 英國英格蘭東北部附近海域發生油輪和貨船相撞事故，涉事油輪事後起火。英國傳媒報道，兩艘船共30多人被安全救上岸，貨船船主就說，一名船員失蹤。
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm)
-
----
-
-# 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
-
-![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=70)
-  
-
-在北京，外交部發言人毛寧說，中方對敘利亞境內發生武裝衝突造成大量人員傷亡感到擔憂，呼籲有關方面立即停止武裝衝突和敵對行動，切實保護平民安全，尊重並堅持包容性原則，通過對話找到符合敘利亞人民意願的重建國家方案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm)
-
----
-
-# 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
-
-![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
-  
-
-外交部駐港派員公署發言人就菲律賓前總統杜特爾特訪港回應記者提問，發言人說，據了解，杜特爾特及女兒莎拉此次來港是私人度假行程。有關菲律賓公民在港舉行的集會已根據特區法律法規事先提出申請。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Carney vows 'quick' transition to new government
+
+![Former Bank of Canada and Bank of England governor Mark Carney will succeed Justin Trudeau as Canadian PM later this week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795221_1_20250311110611.jpg&q=90)
+  
+
+Canada's incoming prime minister Mark Carney has promised a "smooth" and "quick" transition from Justin Trudeau after his convincing win in the ruling Liberal Party's leadership race.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm)
+
+---
+
 # Arrest of pro-Palestinian student sparks outrage
 
 ![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=85)
@@ -48,7 +72,7 @@ The UK coastguard ended the search for a missing crew member after a cargo ship 
 
 # 25 dead in two Mexican bus crashes
 
-![11 people died when a bus flipped over along a highway in Oaxaca state, Mexico. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=20)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=20)
   
 
 At least 25 people were killed in two separate bus crashes in Mexico on Monday, authorities said.
@@ -96,7 +120,7 @@ Elon Musk said his social media platform, X, has been targeted in a “massive c
 
 # EU says US not engaging to make deal to avoid tariffs
 
-![The EU's trade chief Maros Sefcovic said Washington does not seem to be engaging to make a deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
   
 
 The United States does not appear to want to make a deal with Brussels to avoid hefty tariffs against the EU, the bloc's trade chief said on Monday, days before US steel and aluminium levies kick in.
@@ -1411,29 +1435,5 @@ A new round of negotiations for an international treaty on reducing global plast
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794100-20250304.htm)
-
----
-
-# Study paints grim picture of obesity
-
-![Researchers estimate that 3.8 billion adults will be overweight or obese in 15 years. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794096_1_20250304090417.jpg&q=85)
-  
-
-Nearly 60 percent of all adults and a third of all children in the world will be overweight or obese by 2050 unless governments take action, a large new study said on Tuesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794096-20250304.htm)
 
 ---

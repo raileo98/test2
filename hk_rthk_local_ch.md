@@ -1,5 +1,52 @@
+# 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
+
+  
+
+港鐵行政總裁金澤培在報章專欄撰文表示，今年的票價調整尚待政府公布最後一項數據，現時看來今年票價按機制大概會維持不變，他說，今年的票價可能凍結，亦是政府與港鐵訂定的票價調整機制下的結果，又指乘客期望票價越低越好，港鐵員工期望薪酬越高越好，公司努力做到平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm)
+
+---
+
+# 司法機構下月先導計劃直播終審法院實質上訴案件法庭程序
+
+  
+
+司法機構宣布，將於下月1日推行為期兩年的先導計劃，現場直播終審法院實質上訴案件的法庭程序。在維護司法公義的大前提下，在法院大樓外現場直播司法程序，可增加法庭程序的透明度及加強公眾對司法程序的信心。首兩宗作現場直播的終審法院案件將於下月1日和7日進行聆訊。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm)
+
+---
+
 # 涉攜未完稅日本煙入境　近兩星期21名內地人於機場被捕
 
+![海關過去兩星期加強執法，在機場破獲20宗內地旅客攜帶未完稅日本煙入境香港案件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795215_1_20250311111815.jpg&q=50)
   
 
 因應有內地旅客攜帶未完稅日本煙入境香港，海關過去兩星期加強執法，在機場破獲20宗有關案件，共拘捕21名內地人士。
@@ -47,6 +94,7 @@
 
 # 學者指兩至三間外送平台已飽和　餐飲業稱有競爭但可找到平衡點
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795213_1_20250311111459.jpg&q=85)
   
 
 戶戶送Deliveroo宣布撤出香港市場，平台將繼續運行至4月7日。
@@ -1385,54 +1433,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795018-20250309.htm)
-
----
-
-# 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
-
-![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
-  
-
-在啟德體藝館舉行的世界格蘭披治桌球大獎賽，澳洲球手羅拔臣於決賽以局數10:0擊敗英格蘭球手冰咸奪得冠軍。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
-
----
-
-# LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
-
-![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
-![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=85)
-  
-
-LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795011-20250309.htm)
 
 ---

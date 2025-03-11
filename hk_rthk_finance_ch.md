@@ -1,3 +1,26 @@
+# 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
+
+  
+
+港鐵行政總裁金澤培在報章專欄撰文表示，今年的票價調整尚待政府公布最後一項數據，現時看來今年票價按機制大概會維持不變，他說，今年的票價可能凍結，亦是政府與港鐵訂定的票價調整機制下的結果，又指乘客期望票價越低越好，港鐵員工期望薪酬越高越好，公司努力做到平衡。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm)
+
+---
+
 # 日股曾跌逾千點　半日跌幅收窄至645點
 
 ![日經指數一度跌逾千點，於36000點失而復得，半日報36382點，跌645點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795217_1_20250311103451.jpg&q=90)
@@ -48,6 +71,7 @@
 
 # 學者指兩至三間外送平台已飽和　餐飲業稱有競爭但可找到平衡點
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795213_1_20250311111459.jpg&q=85)
   
 
 戶戶送Deliveroo宣布撤出香港市場，平台將繼續運行至4月7日。
@@ -263,7 +287,7 @@
 
 # 全國兩會｜李登海稱習近平講話提出民營經濟遵循原則增強民企信心
 
-![李登海表示，企業要做大、做強、做優，必須提升創新研發能力。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
   
 
 國家主席習近平上月在北京出席民營企業座談會，並發表重要講話，有超過30名民企代表參與，當中包括山東登海種業公司名譽董事長李登海。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795100-20250310.htm)
-
----
-
-# 台股收市跌逾0.5%
-
-![台灣加權指數收市報22459點，跌116點，跌幅0.52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795095_1_20250310140739.jpg&q=85)
-  
-
-台灣股市下跌。加權指數收市報22459點，跌116點，跌幅0.52%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm)
 
 ---

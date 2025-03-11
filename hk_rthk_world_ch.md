@@ -192,7 +192,7 @@
 
 # 英國附近海域油輪與貨船相撞　貨船船主稱1名船員失蹤
 
-![兩艘船相撞後起火，冒出大量濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795178_1_20250311062425.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795178_1_20250311062425.jpg&q=90)
   
 
 英國英格蘭東北部附近海域發生油輪和貨船相撞事故，涉事油輪事後起火。英國傳媒報道，兩艘船共30多人被安全救上岸，貨船船主就說，一名船員失蹤。
