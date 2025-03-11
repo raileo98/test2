@@ -1,3 +1,26 @@
+# 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
+
+  
+
+投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
+
+---
+
 # 全國兩會｜有民企高層稱習近平講話如定心丸　提供報效國家的平台
 
 ![李登海建議，加快修改種業公司注冊標準。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795233_1_20250311131810.jpg&q=75)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794934-20250308.htm)
-
----
-
-# 全國兩會 | 有港區人大認為兩高報告對港澳台僑特別關注
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794930_1_20250308210834.jpg&q=85)
-  
-
-十四屆全國人大三次會議早上舉行第二次全體會議，聽取和審議全國人大常委會工作報告、最高人民法院和最高人民檢察院工作報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794930-20250308.htm)
 
 ---

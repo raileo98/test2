@@ -1,3 +1,26 @@
+# 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
+
+  
+
+投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
+
+---
+
 # 菲律賓警方根據國際刑事法院逮捕令拘捕前總統杜特爾特
 
 ![大批警員在機場的入境大堂等候杜特爾特返菲律賓。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795226_1_20250311124328.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795019-20250310.htm)
-
----
-
-# 馮德萊恩：歐盟仍視美國為盟友　安全保障是優先事項
-
-![馮德萊恩強調，歐盟仍然視美國為盟友。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795017_1_20250309225853.jpg&q=90)
-  
-
-歐盟委員會主席馮德萊恩說，安全保障仍是歐盟目前的優先事項，經濟和創新潛力是保障歐盟安全的資產。她提出，「重新武裝歐洲」計劃將增強歐盟的防務和單一市場，歐盟將於本月推出一項新的、適用於歐盟國防工業的簡化方案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795017-20250309.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
+
+  
+
+投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
+
+---
+
+# 台股收市跌逾1.7%
+
+![台灣加權指數收市報22071點，跌388點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795239_1_20250311141340.jpg&q=85)
+  
+
+台灣股市下跌。加權指數收市報22071點，跌388點，跌幅1.73%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795239-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795239-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795239-20250311.htm)
+
+---
+
 # 承認企圖打劫連鎖店及行劫銀行　逾期居留新加坡籍老翁判囚11年
 
 ![法官將兩罪部分刑期同期執行，因被告被捕後與警方合作，減刑3個月，最終判囚11年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795238_1_20250311135556.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm)
-
----
-
-# 俄羅斯指英國大使館兩人員從事間諜活動威脅安全　勒令兩周內離境
-
-![佩斯科夫表示，情報部門正盡一切努力維護國家安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795164_1_20250310223930.jpg&q=90)
-  
-
-俄羅斯指控英國駐莫斯科大使館有兩名外交人員從事間諜活動，他們的偵察和破壞活動威脅俄羅斯聯邦安全，宣布剝奪兩人的派駐資格，勒令在兩星期內離境。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm)
-
----
-
-# 20多名中學生韶關交流回港後嘔吐及腹瀉等不適　全部人毋須入院
-
-![中心表示，正從不同方向調查源頭，包括經人傳人、或受污染的食物或環境傳播的可能性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795163_1_20250310224045.jpg&q=80)
-  
-
-沙田官立中學多名學生參加內地交流團返港後，出現腸胃炎徵狀。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm)
 
 ---

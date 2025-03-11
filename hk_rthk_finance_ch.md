@@ -1,3 +1,50 @@
+# 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
+
+  
+
+投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
+
+---
+
+# 台股收市跌逾1.7%
+
+![台灣加權指數收市報22071點，跌388點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795239_1_20250311141340.jpg&q=85)
+  
+
+台灣股市下跌。加權指數收市報22071點，跌388點，跌幅1.73%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795239-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795239-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795239-20250311.htm)
+
+---
+
 # 港股下午初段跌逾200點
 
 ![港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795237_1_20250311131342.jpg&q=20)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795118-20250310.htm)
-
----
-
-# 港交所：發行人及保薦人有責任剔除新股重覆認購申請
-
-![交易所表示，FINI可提升新股重複認購辨識能力，但作為平台，無責任幫助發行人等剔除重複申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795112_1_20250310155436.jpg&q=5)
-  
-
-有傳媒報道，近日懷疑有內地投資者在香港以不同身分證明文件，如內地身分證、香港身分證及護照等，在不同證券行認購新股，最終未有被識別為重複認購。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795112-20250310.htm)
-
----
-
-# 「戶戶送」客戶及送遞員將導向至foodpanda平台
-
-![Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795108_1_20250310154011.jpg&q=85)
-  
-
-戶戶送Deliveroo決定撤出香港市場，並將出售部分資產予foodpanda以及結束其他業務。foodpanda的母公司Delivery Hero表示，已與Deliveroo簽署並達成協議，根據該協議，Deliveroo現時的客戶和送遞員將會被導向至foodpanda平台，而部份餐廳及生活百貨商戶亦將會進駐foodpanda。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795108-20250310.htm)
 
 ---
