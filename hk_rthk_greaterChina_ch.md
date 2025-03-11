@@ -1,6 +1,126 @@
+# 全國兩會｜牧原實業秦英林稱民營經濟促進法明確民企重要地位
+
+![秦英林說，首次通過立法明確民營經濟在社會主義市場經濟中的重要地位，充分體現中央對民營經濟的高度重視和關心支持。（人民網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795205_2_20250311100923.jpg&q=90)
+  
+
+全國人大常委會會議上月底二審《民營經濟促進法》草案，日前發表的人大常委會工作報告提出，今後一年的任務包括制定有關法律。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm)
+
+---
+
+# 全國兩會｜十四屆全國人大三次會議下午閉幕
+
+![為期七天的十四屆全國人大三次會議今日下午閉幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795204_2_20250311094947.jpg&q=35)
+  
+
+為期七天的十四屆全國人大三次會議今日下午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm)
+
+---
+
+# 全國兩會｜李登海稱習近平講話提出民營經濟遵循原則增強民企信心
+
+![李登海表示，企業要做大、做強、做優，必須提升創新研發能力。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
+  
+
+國家主席習近平上月在北京出席民營企業座談會，並發表重要講話，有超過30名民企代表參與，當中包括山東登海種業公司名譽董事長李登海。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm)
+
+---
+
+# 美媒指中美正就元首會晤前期磋商　形容若成事將是「生日峰會」
+
+![報道形容若會面成事將會是「生日峰會」，因為兩國元首都是在6月出生。 圖為習近平與特朗普幾年前會面的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795201_1_20250311090032.jpg&q=90)
+  
+
+美國華爾街日報引述知情人士報道，北京與華盛頓方面正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
+
+---
+
+# 全國兩會｜胡曉明稱桌球賽觀眾離場事件屬教訓　冀各方汲取經驗
+
+![胡曉明認為當局應善用未來數月，在香港地區舉辦更多與承辦全運會項目有關的賽事，讓市民有機會接觸，在社區更普及化。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795197_1_20250311084918.jpg&q=85)
+  
+
+全運會主場館、啟德體育園日前舉辦的桌球大獎賽，其中一晚賽事未完結就要求觀眾離場，事件引起爭議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm)
+
+---
+
 # 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
 
-![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）.JPG](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
   
 
 全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
@@ -1317,125 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794921-20250308.htm)
-
----
-
-# 全國兩會｜趙樂際稱今年工作任務包括制定民營經濟促進法
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794920_3_20250308224158.jpg&q=90)
-  
-
-在北京，全國人大委員長趙樂際發表工作報告，指去年工作取得新進展和成效，包括兩次審議民營經濟促進法草案，宣介「一國兩制」主張和成功實踐等，但工作仍存在一些差距和不足。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794920-20250308.htm)
-
----
-
-# 全國兩會｜最高人民法院：以嚴格公正司法維護國家安全和社會穩定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794919_1_20250308182808.jpg&q=80)
-  
-
-最高人民法院院長張軍發表工作報告，提到過去一年嚴厲打擊嚴重危害社會秩序犯罪，包括嚴懲涉及緬甸北部等跨境電信網絡詐騙犯罪，審結電信網絡詐騙案件4萬宗，涉及超過8萬多人，按年增長26.7%，以嚴格公正司法維護國家安全和社會穩定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794919-20250308.htm)
-
----
-
-# 全國兩會 | 國家鐵路集團稱適時優化京港滬港高鐵動卧列車
-
-![國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794918_1_20250308180346.jpg&q=90)
-  
-
-由香港西九龍出發至北京和上海的「夕發朝至」高鐵動卧列車，去年6月開通。全國人大代表、國家鐵路集團董事長劉振芳表示，去年10月起採用復興號智能動卧列車，車程時間壓縮對促進香港與內地人員、經貿和文化往來，推動香港更好融入國家發展大局具有重要作用，鐵路部門將密切關注京港、滬港之間高鐵動卧列車開行情況，根據客流需要和技術條件適時優化。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794918-20250308.htm)
-
----
-
-# 全國兩會 | 預算案倡研陸路邊境建設費　仇鴻稱可實施後看效果
-
-![仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794910_1_20250308164843.jpg&q=85)
-  
-
-在北京，全國政協委員、中聯辦前副主任仇鴻表示，相信特區政府一定已在想辦法，不斷減少財政赤字，大家應該對政府有信心。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794910-20250308.htm)
-
----
-
-# 全國兩會 | 趙樂際稱今年審議34件法律案　維護特區憲制秩序
-
-![趙樂際在工作報告指，過去一年各項工作取得新的進展和成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794907_1_20250308164711.jpg&q=90)
-  
-
-十四屆全國人大三次會議上午在北京人民大會堂舉行第二次全體會議，習近平等黨和國家領導人出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794907-20250308.htm)
 
 ---

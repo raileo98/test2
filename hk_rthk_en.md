@@ -1,3 +1,99 @@
+# Hang Seng Index sees sell-off after Wall Street rout
+
+![The Hang Seng Index open over 2 percent lower. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795211_1_20250311095307.jpg&q=75)
+  
+
+Hong Kong's Hang Seng Index fell 508.63 points, or 2.14 percent, to open at 23,274.86 points on Tuesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm)
+
+---
+
+# Search ends for missing crew after North Sea collision
+
+![Footage shows flames and smoke rising from a collision between an oil tanker and a cargo ship off the northeastern coast of England. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795210_1_20250311093602.jpg&q=90)
+  
+
+The UK coastguard ended the search for a missing crew member after a cargo ship ran into a US-military charted tanker carrying jet fuel in the North Sea on Monday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm)
+
+---
+
+# Japan revises Q4 annualised GDP growth estimate
+
+![Data shows on a seasonally adjusted, month-on-month basis, spending dropped 4.5 percent in the last quarter of 2024. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795200_1_20250311085336.jpg&q=45)
+  
+
+Japan's economy expanded in the October-December quarter at a slower pace than initially reported, government data showed on Tuesday, weighed by weaker consumption but still likely supporting the case for further interest rate hikes.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm)
+
+---
+
+# 25 dead in two Mexican bus crashes
+
+![11 people died when a bus flipped over along a highway in Oaxaca state, Mexico. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=20)
+  
+
+At least 25 people were killed in two separate bus crashes in Mexico on Monday, authorities said.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm)
+
+---
+
 # Musk claims X targeted in 'massive cyberattack'
 
 ![More than 40,000 users reported having no access to the platform, according to the tracking website Downdetector.com. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795191_1_20250311082846.jpg&q=90)
@@ -1341,101 +1437,5 @@ Police on Saturday said they have arrested six people for allegedly assaulting a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794902-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794902-20250308.htm)
-
----
-
-# Cyclist killed in Tuen Mun traffic accident
-
-![Police say a cyclist was killed in a traffic accident in Tuen Mun. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794889_1_20250308150057.jpg&q=85)
-  
-
-A cyclist died in a traffic accident in Tuen Mun on Saturday morning.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm)
-
----
-
-# Ex-Cyclone Alfred sparks flood warnings in Australia
-
-![Alfred has battered the coastline with gale-force winds that toppled trees. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794891_1_20250308152018.jpg&q=55)
-  
-
-Ex-Cyclone Alfred stalled off the rain- and wind-lashed coast of eastern Australia on Saturday, threatening to unleash floods after blacking out more than a quarter of a million homes and businesses.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm)
-
----
-
-# 'Govt will consider how to improve NSL enforcement'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=85)
-  
-
-Deputy Secretary for Justice Horace Cheung on Saturday said the government will think about how to enforce the national security law better.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm)
-
----
-
-# Catholics across China praying for Pope's recovery
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794877_2_20250308145523.jpg&q=90)
-  
-
-A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Saturday expressed hope for the speedy recovery of Pope Francis.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm)
 
 ---

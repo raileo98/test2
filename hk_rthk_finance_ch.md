@@ -1,6 +1,340 @@
+# 涉攜未完稅日本煙入境　近兩星期21名內地人於機場被捕
+
+  
+
+因應有內地旅客攜帶未完稅日本煙入境香港，海關過去兩星期加強執法，在機場破獲20宗有關案件，共拘捕21名內地人士。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm)
+
+---
+
+# 港股低開逾500點後跌幅收窄
+
+![港股低開逾500點後，恒生指數跌幅逐步收窄，較早時報23512點，跌271點，跌幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795214_1_20250311100409.jpg&q=20)
+  
+
+港股低開逾500點，恒生指數開市報23274點，隨後跌幅逐步收窄，較早時報23512點，跌271點，跌幅1.14%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm)
+
+---
+
+# 學者指兩至三間外送平台已飽和　餐飲業稱有競爭但可找到平衡點
+
+  
+
+戶戶送Deliveroo宣布撤出香港市場，平台將繼續運行至4月7日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm)
+
+---
+
+# 滬股初段跌約0.6%
+
+![滬深股市初段偏軟，上證指數較早時報3347點，跌18點，跌幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795209_1_20250311093426.jpg&q=75)
+  
+
+滬深股市初段偏軟。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm)
+
+---
+
+# 人行逆回購377億元人民幣　連續7日淨回籠
+
+![人民銀行公開市場開展377億元人民幣7天期逆回購操作，單日淨回籠5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795208_1_20250311093234.jpg&q=50)
+  
+
+人民銀行公開市場開展377億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠5億元，連續7日淨回籠。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm)
+
+---
+
+# 港股低開508點　科指跌約2.7%
+
+![恒生指數競價時段報23274點，跌508點，跌幅2.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795207_1_20250311092314.jpg&q=5)
+  
+
+港股承接隔晚美股、區內股市跌勢，恒生指數競價時段報23274點，跌508點，跌幅2.14%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm)
+
+---
+
+# 人民幣兌美元中間價跌8點子　創逾1星期新低
+
+![人民幣中間價報7.1741兌1美元，較昨日中間價跌8點子，創逾1星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795206_1_20250311091715.jpg&q=55)
+  
+
+人民幣中間價報7.1741兌1美元，較昨日中間價跌8點子，創逾1星期新低。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm)
+
+---
+
+# 全國兩會｜牧原實業秦英林稱民營經濟促進法明確民企重要地位
+
+![秦英林說，首次通過立法明確民營經濟在社會主義市場經濟中的重要地位，充分體現中央對民營經濟的高度重視和關心支持。（人民網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795205_2_20250311100923.jpg&q=90)
+  
+
+全國人大常委會會議上月底二審《民營經濟促進法》草案，日前發表的人大常委會工作報告提出，今後一年的任務包括制定有關法律。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm)
+
+---
+
+# 全國兩會｜十四屆全國人大三次會議下午閉幕
+
+![為期七天的十四屆全國人大三次會議今日下午閉幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795204_2_20250311094947.jpg&q=35)
+  
+
+為期七天的十四屆全國人大三次會議今日下午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm)
+
+---
+
+# 台股初段跌逾600點　失守22000點
+
+![台灣加權指數較早時報21823點，跌635點，跌幅2.83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795202_1_20250311090221.jpg&q=85)
+  
+
+台灣股市初段向下，失守22000點水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm)
+
+---
+
+# 日本上季經濟按季年率增長2.2%遜預期
+
+![日本去年第4季經濟按季年率增速向下修訂至2.2%，市場原先估計維持於2.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795198_1_20250311085200.jpg&q=75)
+  
+
+日本去年第4季經濟按季年率增速向下修訂至2.2%，市場原先估計維持於初值的2.8%，由於消費疲弱。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm)
+
+---
+
+# 全國兩會｜李登海稱習近平講話提出民營經濟遵循原則增強民企信心
+
+![李登海表示，企業要做大、做強、做優，必須提升創新研發能力。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
+  
+
+國家主席習近平上月在北京出席民營企業座談會，並發表重要講話，有超過30名民企代表參與，當中包括山東登海種業公司名譽董事長李登海。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm)
+
+---
+
+# 美媒指中美正就元首會晤前期磋商　形容若成事將是「生日峰會」
+
+![報道形容若會面成事將會是「生日峰會」，因為兩國元首都是在6月出生。 圖為習近平與特朗普幾年前會面的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795201_1_20250311090032.jpg&q=90)
+  
+
+美國華爾街日報引述知情人士報道，北京與華盛頓方面正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
+
+---
+
+# 全國兩會｜胡曉明稱桌球賽觀眾離場事件屬教訓　冀各方汲取經驗
+
+![胡曉明認為當局應善用未來數月，在香港地區舉辦更多與承辦全運會項目有關的賽事，讓市民有機會接觸，在社區更普及化。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795197_1_20250311084918.jpg&q=85)
+  
+
+全運會主場館、啟德體育園日前舉辦的桌球大獎賽，其中一晚賽事未完結就要求觀眾離場，事件引起爭議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm)
+
+---
+
 # 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
 
-![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）.JPG](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
   
 
 全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
@@ -67,6 +401,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795189-20250311.htm)
+
+---
+
+# 《環看天下》：卡尼出任加拿大新總理　同時應對中美關稅勢成考驗
+
+![卡尼當選執政加拿大自由黨新黨魁，將成為加拿大新任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795188_1_20250311073323.jpg&q=90)
+  
+
+加拿大執政自由黨選出新黨魁，由被形容為「政治素人」的加拿大央行前行長卡尼勝出，將會接替杜魯多成為新總理。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm)
 
 ---
 
@@ -238,6 +596,54 @@
 
 ---
 
+# 格陵蘭總理：美國不尊重格陵蘭島且極其不可預測
+
+![格陵蘭星期二將舉行自治議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795171_1_20250311055259.jpg&q=90)
+  
+
+格陵蘭自治政府總理埃格德表示，美國並未給予格陵蘭人民應有的尊重，又說美國正處於一個極其不可預測的總統任期，令人感到不安。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm)
+
+---
+
+# 加拿大安大略省向輸美電力徵收25%附加費
+
+![福特表示，如果貿易戰持續下去，他將毫不猶豫提高收費，甚至完全切斷電力出口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795173_1_20250311020802.jpg&q=80)
+  
+
+加拿大安大略省當地星期一宣布，即日起對輸往美國的電力徵收25%附加費，作為對美國總統特朗普對加拿大商品徵收關稅的報復措施之一。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm)
+
+---
+
 # 美國國家經濟委員會料關稅問題將於下月解決　本季GDP正增長
 
 ![美國國家經濟委員會主任哈西特預計，關稅政策的不確定性將於下月得到解決，並預測今年首季GDP將實現正增長，但幅度不大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795167_1_20250310230309.jpg&q=60)
@@ -262,6 +668,30 @@
 
 ---
 
+# 旺角新寶戲院將於4月1日結業
+
+![旺角新寶戲院將於4月1日結業。（新寶戲院社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795166_1_20250310224754.jpg&q=90)
+  
+
+旺角新寶戲院將於4月1日結業。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm)
+
+---
+
 # 美股初段跌逾1%至2%　大型科技股下跌
 
 ![道瓊斯指數較早時報42325點，跌476點，跌幅1.11%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795160_1_20250310213802.jpg&q=90)
@@ -283,6 +713,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm)
+
+---
+
+# 王文濤：貿易戰沒有贏家　保護主義沒有出路
+
+![王文濤與百時美施貴寶公司董事會主席兼執行官博科思會面。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795158_1_20250310212211.jpg&q=90)
+  
+
+商務部部長王文濤會見百時美施貴寶公司董事會主席兼執行官博科思，雙方就公司對華合作情況、中美經貿關係等議題交流。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
 
 ---
 
@@ -979,461 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795095-20250310.htm)
-
----
-
-# 全國兩會｜文化和旅遊部料有更多文化產業或產品引入香港
-
-![李群希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795097_1_20250310141516.jpg&q=90)
-  
-
-在北京，文化和旅遊部副部長、國家文物局局長李群接受本台訪問說，香港近年大力投入文化工作，啟用近三年的香港故宮文化博物館廣受歡迎，希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm)
-
----
-
-# 港股下午初段跌逾500點　科指挫逾3%
-
-![恒生指數較早時報23698點，跌532點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795092_1_20250310130518.jpg&q=20)
-  
-
-港股下午初段持續捱沽，恒生指數較早時報23698點，跌532點，跌幅2.2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795092-20250310.htm)
-
----
-
-# 九倉置業去年收入及營業盈利均跌3%
-
-![海港城去年總收入增加 2%，營業盈利增加0.4%，分別佔九倉置業收入70%及營業盈利74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795090_2_20250310131010.jpg&q=85)
-  
-
-九龍倉置業全年收入按年減少3%至129.12億元，營業盈利亦跌3%至96.91億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795090-20250310.htm)
-
----
-
-# 九龍倉置業去年盈利挫81%　基礎淨盈利升2%
-
-![九龍倉置業去年盈利8.9億元，按年大減81%，基礎淨盈利增加2%至約61.4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795089_1_20250310125139.jpg&q=90)
-  
-
-九龍倉置業去年盈利8.9億元，按年大減81%。派第2次中期股息每股0.6元；全年合共派息1.24元，按年減少約3%，佔香港投資物業及酒店基礎淨盈利的65%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795089-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795089-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795089-20250310.htm)
-
----
-
-# 孫東稱人工智能為香港關鍵產業　政府會繼續支持及投入
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795087_1_20250310131833.jpg&q=85)
-  
-
-黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。創新科技及工業局局長孫東說，捐贈主要用於研發中心，盡快建立服務平台，為市民推出港產大模型「港話通」服務手機版。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm)
-
----
-
-# 全國兩會｜仇鴻指赤字是香港前進過程挑戰　齊心協力情況越來越好
-
-![仇鴻說，香港的管治權應該牢牢掌握在愛國愛港人士的手裡。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795086_1_20250310124530.jpg&q=90)
-  
-
-在北京，全國政協委員、中聯辦前副主任仇鴻說，相信香港的情況會越來越好，她亦看到香港市民積極參與香港及國家的建設，為保持香港長期繁榮作出自己的貢獻。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm)
-
----
-
-# 全國兩會 | 研究員相信中國半導體產業未來幾年將有不錯發展
-
-![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795083_2_20250310122847.jpg&q=90)
-  
-
-中國人工智能大模型DeepSeek的出現，令國家科研創新能力成為熱話。不過，有網絡安全企業關注網絡攻擊風險。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm)
-
----
-
-# 港股半日跌511點　晶片及軟件股沽壓大
-
-![恒生指數失守24000點關口，中午報23720點，跌511點，跌幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795082_1_20250310120903.jpg&q=80)
-  
-
-港股連續兩日向下，恒生指數失守24000點關口，中午收市報23720點，跌511點，跌幅2.1%，半日主板成交額約1779億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795082-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795082-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795082-20250310.htm)
-
----
-
-# 特朗普拒絕排除美國經濟因關稅措施陷入衰退可能
-
-![特朗普在「空軍一號」專機上再次回應有關經濟衰退的問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795081_1_20250310115716.jpg&q=90)
-  
-
-美國總統特朗普接受傳媒訪問時，為政府關稅政策辯護，拒絕排除美國經濟因此陷入衰退的可能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795081-20250310.htm)
-
----
-
-# 陳茂波稱香港要在人工智能引領浪潮中把握機遇
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
-  
-
-黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm)
-
----
-
-# 找鋼：通過De-SPAC形式在港上市邁向新征程重要里程碑
-
-![王東稱，公司通過De-SPAC形式在香港上市，是內地鋼鐵產業互聯網平台邁向新階段標誌性事件。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795076_1_20250310114912.jpg&q=85)
-  
-
-香港特殊目的併購公司（SPAC）Aquila Acquisition早前與找鋼產業互聯集團一家全資附屬公司合併，找鋼產業互聯集團完成併購交易（De-SPAC）今日掛牌上市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795076-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795076-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795076-20250310.htm)
-
----
-
-# 滬股半日跌約0.6%　創業板指數失守2200點
-
-![上證指數半日收報3352點，跌19點，跌幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795075_1_20250310113626.jpg&q=90)
-  
-
-內地股市3大指數半日下跌。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795075-20250310.htm)
-
----
-
-# 赤峰黃金：收購是未來發展非常重要動力
-
-![楊宜方（中）稱股份下限定價因考慮到A股上漲不少，參考其他A+H股折讓後期望為股東提供增長空間。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795074_1_20250310112824.jpg&q=85)
-  
-
-內地黃金生產商赤峰黃金今日在港交所掛牌上市，開市報13.72元屬招股價，一度升至13.92元，隨後跌穿招股價，報13.54元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795074-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795074-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795074-20250310.htm)
-
----
-
-# 港股曾跌逾400點　失守24000點
-
-![港股跌幅一度擴大至逾400點，恒生指數失守24000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795073_1_20250310111137.jpg&q=5)
-  
-
-港股跌幅一度擴大至逾400點，恒生指數失守24000點水平，低見23781點，較早時報23837點，跌394點，跌幅1.63%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795073-20250310.htm)
-
----
-
-# 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
-
-![王靈桂說，香港在全球發達經濟體當中並不弱。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795068_1_20250310105925.jpg&q=85)
-  
-
-在北京，全國政協委員、港澳辦副主任王靈桂被問到本港經濟情況及特區政府面對財赤問題時表示，香港在全球發達經濟體當中並不弱，去年經濟增長有百分之二點幾，認為目前赤字數目對香港這麼大的經濟體而言應該不算甚麼，也不是問題。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm)
-
----
-
-# 金融科技周及StartmeupHK創業節11月舉行
-
-![慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795066_1_20250310110740.jpg&q=90)
-  
-
-投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm)
-
----
-
-# 日股反覆靠穩　重上37000點
-
-![日股重上37000點，半日收報37095點，升208點，升幅0.57%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795065_1_20250310103452.jpg&q=90)
-  
-
-日股半日反覆靠穩，重上37000點以上。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795065-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795065-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795065-20250310.htm)
-
----
-
-# 卡尼：加拿大將保持對美報復性關稅措施　不會讓特朗普得逞
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795063_1_20250310102749.jpg&q=90)
-  
-
-加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。卡尼向黨內支持者發表勝利演說時警告，美國想要加拿大的資源、水、土地甚至國家，一旦得逞，將摧毀加拿大人的生活。他又說，美國總統特朗普向加拿大開徵不合理的關稅，攻擊美國的家庭、工人和企業，加拿大不會讓他得逞。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795063-20250310.htm)
-
----
-
-# 梁子穎指上調公屋入息限額建議未符現實　梁文廣促平衡及取捨
-
-![梁子穎（左）說，新門檻將令部分全職工作申請人寧願辭職或「打散」工作；梁文廣（右）認為，在現時公屋供應不足的情況下，要先照顧最有需要的一群。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795060_1_20250310102936.jpg&q=85)
-  
-
-房委會完成公屋入息及資產限額檢討，建議下年度上調公屋入息限額，平均加幅1.7%。其中2人家庭建議加幅最多，達2.5%，入息限額由19730元增至20230元。房委會資助房屋小組委員會委員、工聯會立法會議員梁子穎認為，這次上調水平未能符合現實，因為現時一些清潔工人和保安入息水平已超過最低工資水平，新門檻將令部分全職工作申請人寧願辭職或「打散」工作，令入息不超過水平，才可保留申請公屋資格。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795060-20250310.htm)
 
 ---

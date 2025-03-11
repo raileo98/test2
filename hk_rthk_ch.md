@@ -1,5 +1,364 @@
+# 涉攜未完稅日本煙入境　近兩星期21名內地人於機場被捕
+
+  
+
+因應有內地旅客攜帶未完稅日本煙入境香港，海關過去兩星期加強執法，在機場破獲20宗有關案件，共拘捕21名內地人士。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm)
+
+---
+
+# 港股低開逾500點後跌幅收窄
+
+![港股低開逾500點後，恒生指數跌幅逐步收窄，較早時報23512點，跌271點，跌幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795214_1_20250311100409.jpg&q=20)
+  
+
+港股低開逾500點，恒生指數開市報23274點，隨後跌幅逐步收窄，較早時報23512點，跌271點，跌幅1.14%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm)
+
+---
+
+# 學者指兩至三間外送平台已飽和　餐飲業稱有競爭但可找到平衡點
+
+  
+
+戶戶送Deliveroo宣布撤出香港市場，平台將繼續運行至4月7日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm)
+
+---
+
+# 311大地震14周年　災區有悼念遇難者活動
+
+![有民眾上午到海邊悼念當年地震及海嘯遇難者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795212_1_20250311100258.jpg&q=90)
+  
+
+日本311大地震14周年。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm)
+
+---
+
+# 滬股初段跌約0.6%
+
+![滬深股市初段偏軟，上證指數較早時報3347點，跌18點，跌幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795209_1_20250311093426.jpg&q=75)
+  
+
+滬深股市初段偏軟。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm)
+
+---
+
+# 人行逆回購377億元人民幣　連續7日淨回籠
+
+![人民銀行公開市場開展377億元人民幣7天期逆回購操作，單日淨回籠5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795208_1_20250311093234.jpg&q=50)
+  
+
+人民銀行公開市場開展377億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠5億元，連續7日淨回籠。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm)
+
+---
+
+# 港股低開508點　科指跌約2.7%
+
+![恒生指數競價時段報23274點，跌508點，跌幅2.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795207_1_20250311092314.jpg&q=5)
+  
+
+港股承接隔晚美股、區內股市跌勢，恒生指數競價時段報23274點，跌508點，跌幅2.14%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm)
+
+---
+
+# 人民幣兌美元中間價跌8點子　創逾1星期新低
+
+![人民幣中間價報7.1741兌1美元，較昨日中間價跌8點子，創逾1星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795206_1_20250311091715.jpg&q=55)
+  
+
+人民幣中間價報7.1741兌1美元，較昨日中間價跌8點子，創逾1星期新低。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm)
+
+---
+
+# 全國兩會｜牧原實業秦英林稱民營經濟促進法明確民企重要地位
+
+![秦英林說，首次通過立法明確民營經濟在社會主義市場經濟中的重要地位，充分體現中央對民營經濟的高度重視和關心支持。（人民網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795205_2_20250311100923.jpg&q=90)
+  
+
+全國人大常委會會議上月底二審《民營經濟促進法》草案，日前發表的人大常委會工作報告提出，今後一年的任務包括制定有關法律。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm)
+
+---
+
+# 全國兩會｜十四屆全國人大三次會議下午閉幕
+
+![為期七天的十四屆全國人大三次會議今日下午閉幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795204_2_20250311094947.jpg&q=35)
+  
+
+為期七天的十四屆全國人大三次會議今日下午閉幕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm)
+
+---
+
+# 台股初段跌逾600點　失守22000點
+
+![台灣加權指數較早時報21823點，跌635點，跌幅2.83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795202_1_20250311090221.jpg&q=85)
+  
+
+台灣股市初段向下，失守22000點水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm)
+
+---
+
+# 日本上季經濟按季年率增長2.2%遜預期
+
+![日本去年第4季經濟按季年率增速向下修訂至2.2%，市場原先估計維持於2.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795198_1_20250311085200.jpg&q=75)
+  
+
+日本去年第4季經濟按季年率增速向下修訂至2.2%，市場原先估計維持於初值的2.8%，由於消費疲弱。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm)
+
+---
+
+# 全國兩會｜李登海稱習近平講話提出民營經濟遵循原則增強民企信心
+
+![李登海表示，企業要做大、做強、做優，必須提升創新研發能力。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
+  
+
+國家主席習近平上月在北京出席民營企業座談會，並發表重要講話，有超過30名民企代表參與，當中包括山東登海種業公司名譽董事長李登海。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm)
+
+---
+
+# 美媒指中美正就元首會晤前期磋商　形容若成事將是「生日峰會」
+
+![報道形容若會面成事將會是「生日峰會」，因為兩國元首都是在6月出生。 圖為習近平與特朗普幾年前會面的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795201_1_20250311090032.jpg&q=90)
+  
+
+美國華爾街日報引述知情人士報道，北京與華盛頓方面正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
+
+---
+
+# 全國兩會｜胡曉明稱桌球賽觀眾離場事件屬教訓　冀各方汲取經驗
+
+![胡曉明認為當局應善用未來數月，在香港地區舉辦更多與承辦全運會項目有關的賽事，讓市民有機會接觸，在社區更普及化。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795197_1_20250311084918.jpg&q=85)
+  
+
+全運會主場館、啟德體育園日前舉辦的桌球大獎賽，其中一晚賽事未完結就要求觀眾離場，事件引起爭議。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm)
+
+---
+
 # 敘過渡政府與敘利亞民主力量簽協議同意整合國家機關並實現停火
 
+![民眾上街慶祝過渡政府與敘利亞民主力量簽署協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795196_1_20250311090644.jpg&q=85)
   
 
 敘利亞總統府宣布，過渡政府與敘利亞庫爾德武裝組織主導的「敘利亞民主力量」簽署協議，同意將「敘利亞民主力量」整合到國家機關。
@@ -23,7 +382,7 @@
 
 # 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
 
-![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）.JPG](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
   
 
 全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
@@ -117,7 +476,7 @@
 
 ---
 
-# 《環看天下》：加尼出任加拿大新總理　同時應對中美關稅勢成考驗
+# 《環看天下》：卡尼出任加拿大新總理　同時應對中美關稅勢成考驗
 
 ![卡尼當選執政加拿大自由黨新黨魁，將成為加拿大新任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795188_1_20250311073323.jpg&q=90)
   
@@ -1074,365 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm)
-
----
-
-# InnoHK獲2億元捐款　陳茂波︰建立大模型「港話通」服務
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795130_1_20250310182434.jpg&q=90)
-  
-
-InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心，獲捐贈2億元。財政司司長陳茂波說，今次捐贈，將支持中心建立服務平台，為市民提供港產大模型「港話通」服務。這是業界基於首個將DeepSeek系統本地化模型所提供的服務。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795130-20250310.htm)
-
----
-
-# 萊爾斯丹料去年度虧損最多擴大至1.15億元人民幣
-
-![萊爾斯丹預計，去年度虧損將擴大至介乎9300萬至1.15億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795138_1_20250310174150.jpg&q=85)
-  
-
-萊爾斯丹（LE SAUNDA） 預計，截至2月底去年度虧損將擴大至介乎9300萬元至1.15億元人民幣，按年擴大近3倍至4倍，主要由於內地零售市場遲緩拖累總銷售下跌、公司提供較高折扣以清理存貨令毛利率顯著向下、關閉低效實體零售店及優化後勤行政人員而產生一次過僱員賠償費用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm)
-
----
-
-# 建造業議會稱政府資助2500個在職培訓名額足以照顧市場需要
-
-![何安誠（左）表示，去年全港已有六成地盤取得「安全智慧工地系統標籤」。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795142_1_20250310181404.jpg&q=80)
-  
-
-財政預算案提出建造業議會將出資約1.5億元，資助業界為合共2500名工程、建築、測量、規劃及園境的學位課程畢業生，提供在職培訓，協助更多青年獲取專業資格。建造業議會執行總監鄭定寕表示，相信有關名額已足夠照顧市場需要，並且具有一定影響力，又希望外界不要太斟酌數字的多寡，因今次資助是希望令僱主對行業有信心，並在艱難時期為他們提供支援，令公司能夠留得住年青人才。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795142-20250310.htm)
-
----
-
-# 內地2月乘用車市場零售按年升26%　新能源車按年升近80%
-
-![中國乘聯會公布，內地2月狹義乘用車市場零售按年增加26%，新能源車按年升近80%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795127_1_20250310171219.jpg&q=90)
-  
-
-中國乘用車市場信息聯席會公布，內地2月狹義乘用車市場零售138.6萬輛，按年增加26%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm)
-
----
-
-# 藍田興田邨美田樓有單位疑漏煤氣及爆炸　男住戶被捕准保釋候查
-
-![警方調查後，相信與其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795140_1_20250310181143.jpg&q=30)
-  
-
-藍田興田邨美田樓一個單位上星期懷疑洩漏煤氣及發生爆炸，觀塘警區重案組人員經調查後，相信其中一名52歲男住戶與案有關，以涉嫌「導致相當可能會危害生命或財產的爆炸」將他拘捕。他已獲准保釋候查，須於4月上旬向警方報到。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795140-20250310.htm)
-
----
-
-# 中旅料去年盈利按年跌最少40%
-
-![香港中旅預計去年度少賺最少40%，主要由於投資性物業公允價值下跌。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795137_1_20250310173054.jpg&q=85)
-  
-
-香港中旅預計，去年度盈利按年最少跌40%，前年度盈利為2.4億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795137-20250310.htm)
-
----
-
-# 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
-
-![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
-  
-
-南韓聯合參謀本部表示，北韓下午向西部海域方向發射多枚型號不明的彈道導彈，飛行距離60至100公里，推斷可能是近程彈道導彈。韓方與美方緊密合作，保持高度戒備。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm)
-
----
-
-# 人民幣兌美元收市創近1周低位
-
-![在岸人民幣收市報7.2649兌1美元，較上交易日跌267點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795133_1_20250310172448.jpg&q=75)
-  
-
-在岸人民幣兌美元收市價及中間價均創近1星期新低，收市報7.2649兌1美元，較上交易日跌267點子；中間價跌至7.1733兌1美元，與市場預測偏離逾600點子。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795133-20250310.htm)
-
----
-
-# 丘應樺鼓勵在廣東省港商積極在內地創新創業
-
-![丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795136_2_20250310192635.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，香港作為國際金融、貿易和創新中心，擁有背靠祖國、聯通世界的獨特優勢。為配合國家發展新質生產力，政府會致力發揮內聯外通的角色，打造香港成跨國供應鏈管理中心，吸引更多內地生產企業在港落戶，並建立管理離岸貿易和供應鏈的國際或區域總部。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm)
-
----
-
-# 舜宇光學2月手機攝像模組出貨量按年跌逾32%
-
-![舜宇上月手機攝像模組出貨量按年跌32.1%因公司更多專注中高端訂單，產品結構較去年同期改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795135_1_20250310172832.jpg&q=90)
-  
-
-舜宇光學科技上月手機鏡頭出貨量約9717萬件，按年跌6.9%，按月跌8.2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795135-20250310.htm)
-
----
-
-# 上訴庭指原審量刑有誤　承認暴動男子獲減刑改判監四年
-
-![上訴庭今日裁定原審法官做法有錯，被告上訴得直，減刑3個月，改判4年監禁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795134_1_20250310172544.jpg&q=90)
-  
-
-逾500人在2019年9月29日於金鐘政府總部外參與暴動，5男子早前被裁定暴動罪成，判囚4年至5年3個月不等，他們不服定罪和刑罰上訴。其中1人最早表明認罪，求情時指被追捕警員用警棍毆打頭部等，原審法官鄭紀航質疑誣蔑警方濫用武力，下調被告的認罪刑期折扣。上訴庭今日裁定原審法官做法有錯，被告上訴得直，減刑3個月，改判4年監禁。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795134-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795134-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795134-20250310.htm)
-
----
-
-# 戶戶送將撤出香港　勞聯正接觸部分受影響前線員工
-
-![戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795131_1_20250310173159.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予foodpanda及結束其他業務。戶戶送香港平台將繼續運行至4月7日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795131-20250310.htm)
-
----
-
-# 聯交所將泰國證券交易所納入認可證券交易所名單
-
-![聯交所新增泰國證券交易所為證券交易所，當地主市場主要上市的公司可申請香港第二上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795126_1_20250310171004.jpg&q=90)
-  
-
-香港交易所旗下聯交所宣布，已新增泰國證券交易所（The Stock Exchange of Thailand）為認可證券交易所，在泰國證券交易所主市場主要上市的公司，可以在香港申請第二上市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795126-20250310.htm)
-
----
-
-# 5男女涉暴動其中3人認罪　法庭待同案2人審結後再處理
-
-![暫委法官高偉雄將案件押後至6月25日判刑，待同案另2名被告結束審訊後處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795129_1_20250310171525.jpg&q=90)
-  
-
-5年前灣仔示威衝突，3男2女被裁定暴動罪名不成立，律政司早前上訴得直，上訴庭撤銷5人的無罪裁決，再次恢復審訊。其中1男2女在區域法院承認暴動罪，餘下2人否認控罪並開審，暫委法官高偉雄將案件押後至6月25日判刑，待同案另2名被告結束審訊後處理，期間認罪被告須還押候懲。辯方求情指本案存在延誤，影響被告的更生，但他們沒有自暴自棄，一直做義工服務貢獻社會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795129-20250310.htm)
-
----
-
-# 特朗普︰與四組買家商討洽售TikTok料很快達成協議
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795128_1_20250310182615.jpg&q=90)
-  
-
-美國總統特朗普說，他的團隊就短片分享平台TikTok出售事宜，和四組不同買家接觸，又說很快就會達成協議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm)
 
 ---

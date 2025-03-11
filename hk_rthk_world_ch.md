@@ -1,5 +1,54 @@
+# 311大地震14周年　災區有悼念遇難者活動
+
+![有民眾上午到海邊悼念當年地震及海嘯遇難者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795212_1_20250311100258.jpg&q=90)
+  
+
+日本311大地震14周年。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm)
+
+---
+
+# 美媒指中美正就元首會晤前期磋商　形容若成事將是「生日峰會」
+
+![報道形容若會面成事將會是「生日峰會」，因為兩國元首都是在6月出生。 圖為習近平與特朗普幾年前會面的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795201_1_20250311090032.jpg&q=90)
+  
+
+美國華爾街日報引述知情人士報道，北京與華盛頓方面正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
+
+---
+
 # 敘過渡政府與敘利亞民主力量簽協議同意整合國家機關並實現停火
 
+![民眾上街慶祝過渡政府與敘利亞民主力量簽署協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795196_1_20250311090644.jpg&q=85)
   
 
 敘利亞總統府宣布，過渡政府與敘利亞庫爾德武裝組織主導的「敘利亞民主力量」簽署協議，同意將「敘利亞民主力量」整合到國家機關。
@@ -45,7 +94,7 @@
 
 ---
 
-# 《環看天下》：加尼出任加拿大新總理　同時應對中美關稅勢成考驗
+# 《環看天下》：卡尼出任加拿大新總理　同時應對中美關稅勢成考驗
 
 ![卡尼當選執政加拿大自由黨新黨魁，將成為加拿大新任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795188_1_20250311073323.jpg&q=90)
   
@@ -1387,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795015-20250309.htm)
-
----
-
-# 哈馬斯證實與美國人質事務特使舉行數次會談
-
-![哈馬斯證實近期與美國總統人質事務特使伯勒爾（圖）舉行了數次會談。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795012_1_20250309212454.jpg&q=90)
-  
-
-巴勒斯坦武裝組織哈馬斯高級成員塔希爾努努證實，哈馬斯多位領導人近期與美國總統人質事務特使伯勒爾在多哈舉行了數次會談，重點討論釋放其中一名有雙重國籍的被扣押人員。他說，哈馬斯採取了積極、靈活的處理方式，符合巴勒斯坦人的利益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795012-20250309.htm)
-
----
-
-# 美國特勤局人員在白宮附近開槍擊中一名持槍男子
-
-![特勤局人員在白宮附近，開槍擊中一名持槍男子。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795010_1_20250309204036.jpg&q=75)
-  
-
-美國特勤局人員在白宮附近，開槍擊中一名持槍男子，總統特朗普當時不在白宮。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm)
 
 ---
