@@ -1,3 +1,50 @@
+# 中汽協：內地2月新能源車銷量按年增長逾87%
+
+![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=30)
+  
+
+中國汽車工業協會公布，2月內地汽車銷量212.9萬輛，按年增長34.4%，按月下跌12.2%。今年1-2月汽車總銷量455.2萬輛，按年增長13.1%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm)
+
+---
+
+# 陳茂波稱綠色科技樞紐可容納約200間綠色企業提供無限機會
+
+  
+
+財政司司長陳茂波說，透過結合綠色科技和綠色金融，除了為全球綠色進程作出貢獻，亦為香港經濟發展創造新動力。財政預算案提出科技園成立的「綠色科技樞紐」是相關願景的基石。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm)
+
+---
+
 # 瑞銀：內地龍頭科技股估值增長有利港股表現
 
 ![房東明稱，DeepSeek引發人工智能題材，相關股份估值增長，港股有力跑贏全球股市。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795264_1_20250311163557.jpg&q=85)
@@ -69,30 +116,6 @@
 
 ---
 
-# 涉借出戶口處理逾4000萬元騙款　73名傀儡戶口持有人被捕
-
-![警方表示，相關案件涉及的騙案，包括電話騙案和網上騙案等，提醒長者要妥善保管戶口，不要向人借出戶口。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795257_1_20250311161403.jpg&q=90)
-  
-
-警方採取打擊詐騙及洗黑錢行動，偵破53宗案件，拘捕73名傀儡戶口持有人，涉及款項超過4100萬元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm)
-
----
-
 # 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
 
 ![受大會主席團委託，李鴻忠主持會議。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
@@ -122,7 +145,7 @@
 ![何小鵬表示，期望明年率先量產面向工業的L3級別人形機器人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795241_1_20250311153322.jpg&q=90)
   
 
-小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
+全國人大代表、小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
 
   
 
@@ -146,7 +169,7 @@
 ![何小鵬稱分體式飛行汽車去年完成全球首次公開飛行，全面進入適航審定階段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795252_1_20250311152140.jpg&q=90)
   
 
-小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
+全國人大代表、小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
 
   
 
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795141-20250310.htm)
-
----
-
-# 萊爾斯丹料去年度虧損最多擴大至1.15億元人民幣
-
-![萊爾斯丹預計，去年度虧損將擴大至介乎9300萬至1.15億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795138_1_20250310174150.jpg&q=85)
-  
-
-萊爾斯丹（LE SAUNDA） 預計，截至2月底去年度虧損將擴大至介乎9300萬元至1.15億元人民幣，按年擴大近3倍至4倍，主要由於內地零售市場遲緩拖累總銷售下跌、公司提供較高折扣以清理存貨令毛利率顯著向下、關閉低效實體零售店及優化後勤行政人員而產生一次過僱員賠償費用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795138-20250310.htm)
 
 ---

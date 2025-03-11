@@ -1,3 +1,27 @@
+# 中汽協：內地2月新能源車銷量按年增長逾87%
+
+![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=30)
+  
+
+中國汽車工業協會公布，2月內地汽車銷量212.9萬輛，按年增長34.4%，按月下跌12.2%。今年1-2月汽車總銷量455.2萬輛，按年增長13.1%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm)
+
+---
+
 # 中美據報擬磋商習近平與特朗普6月會面　中方稱沒信息可發布
 
 ![中美據報就習近平與特朗普6月會面進行前期磋商。圖為兩人2019年在日本大阪出席二十國集團峰會期間會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795267_1_20250311164357.jpg&q=90)
@@ -74,7 +98,7 @@
 ![何小鵬表示，期望明年率先量產面向工業的L3級別人形機器人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795241_1_20250311153322.jpg&q=90)
   
 
-小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
+全國人大代表、小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
 
   
 
@@ -98,7 +122,7 @@
 ![何小鵬稱分體式飛行汽車去年完成全球首次公開飛行，全面進入適航審定階段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795252_1_20250311152140.jpg&q=90)
   
 
-小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
+全國人大代表、小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
 
   
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794967-20250309.htm)
-
----
-
-# 全國兩會｜銀娛主席呂耀東冀澳門立法會換屆選出議員帶來新思維
-
-![呂耀東冀澳門立法會換屆選出議員，為促進經濟多元化帶來新思維。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794964_1_20250309110700.jpg&q=80)
-  
-
-澳門第八屆立法會選舉將於今年9月14日舉行，全國政協委員、銀河娛樂主席呂耀東期望，新一屆議員能在促進經濟多元化方面帶來新思維，在現有平台找到新的發展項目，特別是橫琴的發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794964-20250309.htm)
 
 ---
