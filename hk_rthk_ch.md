@@ -1,5 +1,53 @@
+# 敘過渡政府與敘利亞民主力量簽協議同意整合國家機關並實現停火
+
+  
+
+敘利亞總統府宣布，過渡政府與敘利亞庫爾德武裝組織主導的「敘利亞民主力量」簽署協議，同意將「敘利亞民主力量」整合到國家機關。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm)
+
+---
+
+# 全國兩會｜全運會有市長稱全力推進籌備工作　料經濟效益顯著
+
+![五位分別來看肇慶、汕尾、汕頭、江門、佛山的市長都表示，有關全運會的籌備工作進展順利。（新華社資料圖片）.JPG](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795194_1_20250311084320.jpg&q=30)
+  
+
+全運會將在粵港澳三地舉行，廣東省其中五個賽區、五位身兼全國人大的市長，於全國兩會期間以書面接受本台訪問。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795194-20250311.htm)
+
+---
+
 # 伊朗稱不接受基於恐嚇與威脅談判提議　指未收到美方信件
 
+![哈梅內伊早前不點名指一些國家堅持談判的目的，是通過談判將其意願強加於人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795192_1_20250311083731.jpg&q=90)
   
 
 伊朗外交部發言人巴加埃表示，伊朗從未關閉談判大門，但不接受基於恐嚇與威脅、基本上毫無意義的談判提議，又指德黑蘭方面未收到來自美國的任何信件。
@@ -1386,53 +1434,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm)
-
----
-
-# 逾期居留十多年花光積蓄　75歲新加坡籍男子承認打劫還押候判
-
-![高等法院將案件押後至明日判刑，期間被告還押看管。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795125_1_20250310165943.jpg&q=90)
-  
-
-75歲新加坡籍男子逾期居留10多年，花光積蓄後財困，2020年7月用清水佯裝電油，恫嚇一間連鎖店的職員但事敗。他於2022年4月中，再闖入油麻地彌敦道一間銀行，劫走14000元現金後逃去。他在高等法院承認1項企圖搶劫罪及1項搶劫罪，案件押後至明日判刑，期間被告還押看管。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795125-20250310.htm)
-
----
-
-# 貿發局：香港中小企可特別留意泰國和印尼電商市場
-
-![貿發局稱團隊將籌備與東盟相關電商活動，邀請在東盟市場經營的公司分享經驗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795124_1_20250310165845.jpg&q=80)
-  
-
-貿發局發布「東盟電商機遇：消費行為與香港產品定位」研究，顯示香港企業在東盟市場具有優勢，認為香港中小企可特別留意泰國和印尼市場，兩地消費者對香港產品評價都很高。貿發局將於下周三舉行的亞洲品牌及營銷論壇，以及亞洲電子商貿論壇上，發表完整報告。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795124-20250310.htm)
 
 ---

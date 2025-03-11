@@ -1,3 +1,27 @@
+# Musk claims X targeted in 'massive cyberattack'
+
+![More than 40,000 users reported having no access to the platform, according to the tracking website Downdetector.com. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795191_1_20250311082846.jpg&q=90)
+  
+
+Elon Musk said his social media platform, X, has been targeted in a “massive cyberattack", hours after a series of outages on Monday left it unavailable to thousands of users.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm)
+
+---
+
 # EU says US not engaging to make deal to avoid tariffs
 
 ![The EU's trade chief Maros Sefcovic said Washington does not seem to be engaging to make a deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
@@ -1411,34 +1435,5 @@ Israel's police said the perpetrator of a stabbing attack in the northern city o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794029-20250303.htm)
-
----
-
-# 'Anora' the big winner with 5 Oscars
-
-![“Anora” won best director, best picture, best actress and other Academy Awards at the Oscars on Sunday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_1_20250303124425.jpg&q=80)
-![Sean Baker claimed four of the five Oscars attributed to "Anora". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_2_20250303124425.jpg&q=90)
-![Actress Mikey Madison helped complete a dominant performance for "Anora" at the Academy Awards. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_3_20250303124425.jpg&q=90)
-![Adrian Brody won the second Oscar of his career for his role in "The Brutalist". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_4_20250303124425.jpg&q=90)
-![Zoe Saldaña earned her first Academy Award for best supporting actress in “Emilia Pérez”. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_5_20250303124425.jpg&q=90)
-![Kieran Culkin received the best supporting actor award for playing one of two cousins who travel to Poland to study their family's roots in "A Real Pain". Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793973_6_20250303124425.jpg&q=90)
-  
-
-"Anora", the story of a sex worker who gets a chance at a new life when she marries a wealthy client on a whim, won five Academy Awards on Sunday, including the coveted best picture Oscar.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793973-20250303.htm)
 
 ---

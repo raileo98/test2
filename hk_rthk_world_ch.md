@@ -1,5 +1,29 @@
+# 敘過渡政府與敘利亞民主力量簽協議同意整合國家機關並實現停火
+
+  
+
+敘利亞總統府宣布，過渡政府與敘利亞庫爾德武裝組織主導的「敘利亞民主力量」簽署協議，同意將「敘利亞民主力量」整合到國家機關。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm)
+
+---
+
 # 伊朗稱不接受基於恐嚇與威脅談判提議　指未收到美方信件
 
+![哈梅內伊早前不點名指一些國家堅持談判的目的，是通過談判將其意願強加於人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795192_1_20250311083731.jpg&q=90)
   
 
 伊朗外交部發言人巴加埃表示，伊朗從未關閉談判大門，但不接受基於恐嚇與威脅、基本上毫無意義的談判提議，又指德黑蘭方面未收到來自美國的任何信件。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795010-20250309.htm)
-
----
-
-# 匈牙利外長：歐盟峰會支持烏克蘭的政治聲明沒有法律意義
-
-![西雅爾多說，歐盟特別峰會上發表支持烏克蘭的政治聲明沒有法律意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795009_1_20250309202820.jpg&q=85)
-  
-
-匈牙利外長西雅爾多在首都布達佩斯表示，歐盟特別峰會上發表支持烏克蘭的政治聲明沒有法律意義，只是一個政治觀點。在外交和安全政策領域，歐盟只有在所有27個成員國一致同意的情況下，才能作出決定。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795009-20250309.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Musk claims X targeted in 'massive cyberattack'
+
+![More than 40,000 users reported having no access to the platform, according to the tracking website Downdetector.com. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795191_1_20250311082846.jpg&q=90)
+  
+
+Elon Musk said his social media platform, X, has been targeted in a “massive cyberattack", hours after a series of outages on Monday left it unavailable to thousands of users.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm)
+
+---
+
 # Newcastle sink West Ham to boost top four bid
 
 ![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=35)
@@ -1413,29 +1437,5 @@ A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm)
-
----
-
-# China's top judge vows sanction countermeasures
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
-  
-
-The country’s most senior judge has promised to take steps to counter unlawful sanctions and long-arm jurisdiction to safeguard national security.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm)
 
 ---
