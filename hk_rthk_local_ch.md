@@ -1,3 +1,26 @@
+# 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
+
+  
+
+陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
+
+---
+
 # 財政預算案2025 | 陳茂波：現時未必合適作稅務調升
 
 ![陳茂波說，考慮稅制必定要考慮競爭力，因為要與鄰近地區爭投資、爭人才，因此要相當謹慎，重申現時未必合適作稅務調升。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795292_1_20250311190645.jpg&q=90)
@@ -144,7 +167,7 @@
 
 # 出口日本空運貨物企圖走私金條　海關檢懷疑金條約值4600萬元
 
-![海關檢獲約64公斤懷疑金條，估計市值約4600萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795282_1_20250311181118.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795282_1_20250311181118.jpg&q=85)
   
 
 海關在香港機場偵破一宗空運走私懷疑金條案件，檢獲約64公斤懷疑金條，估計市值約4600萬元。案中檢獲走私金條的重量及市值，是海關有紀錄以來最大宗走私金條案件。
@@ -219,7 +242,7 @@
 ![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=80)
   
 
-十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結行程時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
+十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
 
   
 
@@ -1414,29 +1437,5 @@ InnoHK創新香港研發平台旗下的香港生成式人工智能研發中心�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm)
-
----
-
-# 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
-
-![趙東說，C919飛機進入國際市場是時間問題，要取得不同認證，有一定過程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795121_1_20250310173033.jpg&q=90)
-  
-
-國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
 
 ---

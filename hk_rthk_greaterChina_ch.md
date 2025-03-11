@@ -1,3 +1,50 @@
+# 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
+
+  
+
+陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
+
+---
+
+# 毛寧：杜特爾特被捕是重要突發事件　中方密切關注事態發展
+
+![毛寧說，杜特爾特被捕是重要的突發事件，中方密切關注事態發展。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795297_1_20250311191448.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特在馬尼拉被捕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm)
+
+---
+
 # 全國兩會｜張素心稱要紮實做好國產晶片把技術做得更好
 
 ![張素心說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_1_20250311191036.jpg&q=80)
@@ -102,7 +149,7 @@
 ![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=80)
   
 
-十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結行程時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
+十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
 
   
 
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794996-20250309.htm)
-
----
-
-# 全國兩會｜倪虹︰要鞏固房地產政策組合拳效果　將減息等效應釋放
-
-![倪虹說，未來要改革完善商品房開發等制度， 促進市場平穩健康發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794991_1_20250309165358.jpg&q=90)
-  
-
-在北京，住建部部長倪虹表示，未來要鞏固房地產政策組合拳的效果，將減息、增貸等政策效應充分釋放，亦要加大房地產項目白名單貸款投放力度，按照「應貸盡貸」等要求，將符合條件的房地產項目全部納入白名單，並提供有力的融資支持，充分保障交付。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794991-20250309.htm)
-
----
-
-# 全國兩會｜倪虹稱將會同部門堅持長短結合　堅決穩住樓市
-
-![倪虹說，中央高度重視房地產市場健康發展。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794988_1_20250309165217.jpg&q=90)
-  
-
-在北京，住建部部長倪虹表示，今年首2個月內地房地產市場保持止跌回穩的積極勢頭，去年第4季新建商品房銷售面積及銷售額都錄得正增長。今年政府工作報告提及要穩定樓市，未來會與相關部門持續以長短措施結合，堅決穩住樓市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1794988-20250309.htm)
 
 ---

@@ -1,3 +1,74 @@
+# 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
+
+  
+
+陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
+
+---
+
+# 比亞迪股份：成功配發約1.3億股新H股　所得淨額約434億元
+
+![比亞迪股份公布，成功按每股335.2元配發約1.3億股新H股，所得款項淨額約為433.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795295_1_20250311185055.jpg&q=85)
+  
+
+比亞迪股份公布，公司成功按配售價每股335.2元向不少於6名承配人配發，及發行合共約1.3億股新H股，約佔經擴大已發行H股總數的10.57%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm)
+
+---
+
+# 調查：美國上月小企業信心連跌3個月
+
+![全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795296_1_20250311191237.jpg&q=85)
+  
+
+全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月，反映消費者和企業信心下跌，以及股市向下。不確定性指數升至104，是有紀錄以來第2高，反映市場對貿易政策的憂慮加劇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm)
+
+---
+
 # 財政預算案2025 | 陳茂波：現時未必合適作稅務調升
 
 ![陳茂波說，考慮稅制必定要考慮競爭力，因為要與鄰近地區爭投資、爭人才，因此要相當謹慎，重申現時未必合適作稅務調升。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795292_1_20250311190645.jpg&q=90)
@@ -75,7 +146,7 @@
 ![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=80)
   
 
-十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結行程時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
+十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
 
   
 
@@ -1365,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795167-20250310.htm)
-
----
-
-# 旺角新寶戲院將於4月1日結業
-
-![旺角新寶戲院將於4月1日結業。（新寶戲院社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795166_1_20250310224754.jpg&q=90)
-  
-
-旺角新寶戲院將於4月1日結業。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm)
-
----
-
-# 美股初段跌逾1%至2%　大型科技股下跌
-
-![道瓊斯指數較早時報42325點，跌476點，跌幅1.11%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795160_1_20250310213802.jpg&q=90)
-  
-
-美股3大指數在開市初段跌逾1%至逾2%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795160-20250310.htm)
-
----
-
-# 王文濤：貿易戰沒有贏家　保護主義沒有出路
-
-![王文濤與百時美施貴寶公司董事會主席兼執行官博科思會面。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795158_1_20250310212211.jpg&q=90)
-  
-
-商務部部長王文濤會見百時美施貴寶公司董事會主席兼執行官博科思，雙方就公司對華合作情況、中美經貿關係等議題交流。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
 
 ---

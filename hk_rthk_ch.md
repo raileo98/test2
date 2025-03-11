@@ -1,3 +1,98 @@
+# 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
+
+  
+
+陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
+
+---
+
+# 比亞迪股份：成功配發約1.3億股新H股　所得淨額約434億元
+
+![比亞迪股份公布，成功按每股335.2元配發約1.3億股新H股，所得款項淨額約為433.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795295_1_20250311185055.jpg&q=85)
+  
+
+比亞迪股份公布，公司成功按配售價每股335.2元向不少於6名承配人配發，及發行合共約1.3億股新H股，約佔經擴大已發行H股總數的10.57%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm)
+
+---
+
+# 調查：美國上月小企業信心連跌3個月
+
+![全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795296_1_20250311191237.jpg&q=85)
+  
+
+全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月，反映消費者和企業信心下跌，以及股市向下。不確定性指數升至104，是有紀錄以來第2高，反映市場對貿易政策的憂慮加劇。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm)
+
+---
+
+# 毛寧：杜特爾特被捕是重要突發事件　中方密切關注事態發展
+
+![毛寧說，杜特爾特被捕是重要的突發事件，中方密切關注事態發展。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795297_1_20250311191448.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特在馬尼拉被捕。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm)
+
+---
+
 # 杜特爾特被捕　質疑當局逮捕自己法理依據
 
 ![杜特爾特被菲律賓警方逮捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795288_1_20250311182302.jpg&q=90)
@@ -267,7 +362,7 @@
 
 # 出口日本空運貨物企圖走私金條　海關檢懷疑金條約值4600萬元
 
-![海關檢獲約64公斤懷疑金條，估計市值約4600萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795282_1_20250311181118.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795282_1_20250311181118.jpg&q=85)
   
 
 海關在香港機場偵破一宗空運走私懷疑金條案件，檢獲約64公斤懷疑金條，估計市值約4600萬元。案中檢獲走私金條的重量及市值，是海關有紀錄以來最大宗走私金條案件。
@@ -390,7 +485,7 @@
 ![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=80)
   
 
-十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結行程時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
+十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
 
   
 
