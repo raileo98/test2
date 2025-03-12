@@ -1,3 +1,27 @@
+# 俄國防部：俄軍繼續在庫爾斯克地區擊敗烏軍
+
+![俄羅斯國防部通報，俄軍在過去一天內控制庫爾斯克地區的5個居民點。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795478_1_20250313001253.jpg&q=90)
+  
+
+俄羅斯國防部周三通報，俄軍繼續在庫爾斯克地區擊敗烏克蘭武裝力量，俄軍在過去一天內控制庫爾斯克地區的5個居民點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795478-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795478-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795478-20250313.htm)
+
+---
+
 # 巴基斯坦火車乘客被挾持事件據報現場所有武裝份子被擊斃
 
 ![官員說安全部隊已救出大批一度被武裝份子挾持的人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795476_1_20250312225726.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm)
-
----
-
-# 澤連斯基抵達沙特阿拉伯　將與沙特王儲會面
-
-![澤連斯基抵達沙特阿拉伯，與當地官員會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795170_1_20250311021007.jpg&q=65)
-  
-
-烏克蘭總統澤連斯基抵達沙特阿拉伯，將會與沙特王儲穆罕默德會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm)
 
 ---
