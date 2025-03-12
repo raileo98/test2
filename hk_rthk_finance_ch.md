@@ -1,3 +1,27 @@
+# 拉加德：貿易和國防等衝擊或加劇歐元區通脹波動
+
+![拉加德稱歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795441_1_20250312175133.jpg&q=90)
+  
+
+歐洲央行總裁拉加德表示，歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動，並加大物價上升更持久的風險。歐洲央行難以就以上因素發出前瞻指引，但必須加倍努力以實現2%的通脹目標，尤其會留意穩定通脹預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm)
+
+---
+
 # 國泰：年內突破100個航點大關
 
 ![國泰：向合資格員工派發逾10星期工資分享成果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795446_1_20250312190534.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
-
----
-
-# 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
-
-![徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795298_1_20250311193628.jpg&q=80)
-  
-
-陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
 
 ---
