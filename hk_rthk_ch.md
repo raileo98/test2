@@ -1,3 +1,26 @@
+# 迪士尼貨倉遭爆竊失300萬元電子設備　3人被捕包括貨倉職員
+
+  
+
+警方接獲迪士尼樂園職員報案，懷疑被人盜去一批電子器材。警方拘捕3名男子，涉嫌爆竊及處理贓物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm)
+
+---
+
 # 民主思路公布一國兩制指數微跌　逾48%受訪者不滿意立法會表現
 
   
@@ -94,6 +117,7 @@
 
 # 公司註冊處資料外洩影響10.9萬人　私隱公署促全面檢視系統
 
+![私隱專員公署已建議公司註冊處對載有個人資料的系統進行定期及全面的檢視。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795411_1_20250312150301.jpg&q=80)
   
 
 個人資料私隱專員公署完成對公司註冊處資料外洩事故的調查，並發表調查結果。
