@@ -1,3 +1,51 @@
+# 美國上周原油庫存增幅少過預期
+
+![美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795472_1_20250312224429.jpg&q=85)
+  
+
+美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期的200.1萬桶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm)
+
+---
+
+# 道指轉跌逾300點
+
+![道瓊斯指數轉跌逾300點，較早時報41113點，跌319點，跌幅0.77%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795474_1_20250312225118.jpg&q=90)
+  
+
+美股3大指數初段上升，受通脹放緩數據支持，其後個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm)
+
+---
+
 # 加拿大減息0.25厘　利率下調至2.75厘
 
 ![加拿大央行公布減息0.25厘，將利率下調至2.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795467_1_20250312225629.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm)
-
----
-
-# 道指跌幅曾擴大至逾600點
-
-![道瓊斯指數一度跌逾600點，早段低見41278點，較早時報41341點，跌570點，跌幅1.36%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795326_1_20250311230811.jpg&q=90)
-  
-
-美股跌幅擴大，道瓊斯指數一度跌逾600點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm)
-
----
-
-# 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
-
-![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=90)
-  
-
-美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
 
 ---

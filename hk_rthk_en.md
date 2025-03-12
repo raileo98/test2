@@ -1,3 +1,27 @@
+# Eateries in relation to gastroenteritis cluster banned
+
+![More than 50 students and teachers contracted gastroenteritis after dining at the same restaurants during an exchange trip in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795473_1_20250312224524.jpg&q=80)
+  
+
+The Education Bureau on Wednesday said it has ordered tour group service providers to stop using restaurants linked to the gastroenteritis cluster involving dozens of teachers and students.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm)
+
+---
+
 # Canada announces additional tariffs on US goods
 
 ![Donald Trump's hyper-focus on tariffs since taking office in January has rattled investor, consumer and business confidence. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795475_1_20250312225143.jpg&q=90)
@@ -1413,29 +1437,5 @@ Elon Musk said his social media platform, X, has been targeted in a “massive c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm)
-
----
-
-# Newcastle sink West Ham to boost top four bid
-
-![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=75)
-  
-
-Newcastle reignited their bid to qualify for the Champions League as Bruno Guimarães sealed a controversial 1-0 win at West Ham.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm)
 
 ---

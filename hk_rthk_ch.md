@@ -1,3 +1,51 @@
+# 美國上周原油庫存增幅少過預期
+
+![美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795472_1_20250312224429.jpg&q=85)
+  
+
+美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期的200.1萬桶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm)
+
+---
+
+# 道指轉跌逾300點
+
+![道瓊斯指數轉跌逾300點，較早時報41113點，跌319點，跌幅0.77%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795474_1_20250312225118.jpg&q=90)
+  
+
+美股3大指數初段上升，受通脹放緩數據支持，其後個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm)
+
+---
+
 # 巴基斯坦火車乘客被挾持事件據報現場所有武裝份子被擊斃
 
 ![官員說安全部隊已救出大批一度被武裝份子挾持的人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795476_1_20250312225726.jpg&q=90)

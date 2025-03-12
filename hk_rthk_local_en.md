@@ -1,3 +1,27 @@
+# Eateries in relation to gastroenteritis cluster banned
+
+![More than 50 students and teachers contracted gastroenteritis after dining at the same restaurants during an exchange trip in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795473_1_20250312224524.jpg&q=80)
+  
+
+The Education Bureau on Wednesday said it has ordered tour group service providers to stop using restaurants linked to the gastroenteritis cluster involving dozens of teachers and students.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm)
+
+---
+
 # Five arrested on suspicion of stealing copper pipes
 
 ![Police say the suspects allegedly took the pipes from parks and back alleys and sold them for money.  Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795464_1_20250312213643.jpg&q=90)
@@ -1412,29 +1436,5 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
-
----
-
-# Smart traffic control system to be tested in Kwun Tong
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794704_1_20250307113507.jpg&q=90)
-  
-
-Police on Friday said they hope traffic congestion in Kwun Tong would be eased following the implementation of a new smart traffic management system in the area.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm)
 
 ---
