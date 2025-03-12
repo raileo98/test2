@@ -1,3 +1,27 @@
+# 國泰冀今年底前最多增聘4000名員工
+
+![國泰航空計劃今年底前，增加最多4000名員工，總數增至約3.4萬人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795398_1_20250312125855.jpg&q=90)
+  
+
+國泰航空去年員工開支按年升約14%至168.4億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm)
+
+---
+
 # 國泰航空去年盈利升1%　普通股股東應佔溢利升近6%
 
 ![國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795396_1_20250312124629.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
-
----
-
-# 旺角瘋狂駕駛案　有私家車撞向警方衝鋒車及另外3輛私家車
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795318_1_20250311223222.jpg&q=75)
-  
-
-旺角有人駕駛私家車涉嫌瘋狂駕駛，撞到一輛警方衝鋒車及三輛私家車，無人受傷。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm)
 
 ---

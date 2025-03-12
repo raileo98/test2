@@ -1,3 +1,27 @@
+# 國泰冀今年底前最多增聘4000名員工
+
+![國泰航空計劃今年底前，增加最多4000名員工，總數增至約3.4萬人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795398_1_20250312125855.jpg&q=90)
+  
+
+國泰航空去年員工開支按年升約14%至168.4億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm)
+
+---
+
 # 國泰航空去年盈利升1%　普通股股東應佔溢利升近6%
 
 ![國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795396_1_20250312124629.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm)
-
----
-
-# 司法機構下月先導計劃直播終審法院實質上訴案件法庭程序
-
-![司法機構將於下月1日推行為期兩年的先導計劃，現場直播終審法院實質上訴案件的法庭程序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795222_1_20250311122845.jpg&q=70)
-  
-
-司法機構宣布，將於下月1日推行為期兩年的先導計劃，現場直播終審法院實質上訴案件的法庭程序。在維護司法公義的大前提下，在法院大樓外現場直播司法程序，可增加法庭程序的透明度及加強公眾對司法程序的信心。首兩宗作現場直播的終審法院案件將於下月1日和7日進行聆訊。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm)
 
 ---
