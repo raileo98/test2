@@ -1,3 +1,51 @@
+# 韓股初段升0.3%以上
+
+![首爾綜合指數較早時報2546點，升8點，升幅0.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795355_1_20250312080655.jpg&q=90)
+  
+
+南韓股市早段靠穩，首爾綜合指數較早時報2546點，升8點，升幅0.33%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm)
+
+---
+
+# 日股初段跌逾0.1%
+
+![日經指數較早時報36740點，跌52點，跌幅0.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795354_1_20250312080548.jpg&q=80)
+  
+
+日股初段偏軟，日經指數較早時報36740點，跌52點，跌幅0.14%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm)
+
+---
+
 # 美元兌加元曾升穿1.45　歐元兌美元創5個月新高
 
 ![美國威脅對加拿大鋼鋁進一步加徵關稅，美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795350_1_20250312070229.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm)
-
----
-
-# 美媒指中美正就元首會晤前期磋商　形容若成事將是「生日峰會」
-
-![報道形容若會面成事將會是「生日峰會」，因為兩國元首都是在6月出生。 圖為習近平與特朗普幾年前會面的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795201_1_20250311090032.jpg&q=90)
-  
-
-美國華爾街日報引述知情人士報道，北京與華盛頓方面正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
-
----
-
-# 全國兩會｜胡曉明稱桌球賽觀眾離場事件屬教訓　冀各方汲取經驗
-
-![胡曉明認為當局應善用未來數月，在香港地區舉辦更多與承辦全運會項目有關的賽事，讓市民有機會接觸，在社區更普及化。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795197_1_20250311084918.jpg&q=85)
-  
-
-全運會主場館、啟德體育園日前舉辦的桌球大獎賽，其中一晚賽事未完結就要求觀眾離場，事件引起爭議。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm)
 
 ---

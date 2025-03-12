@@ -1,3 +1,27 @@
+# Woods' major season in doubt after surgery
+
+![Woods says he expects to make a full recovery after undergoing surgery. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795356_1_20250312082550.jpg&q=90)
+  
+
+Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles tendon, derailing the veteran golf superstar's comeback plans in the latest injury setback to rock the twilight of his glittering career.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm)
+
+---
+
 # PSG dump Liverpool out of Champions League
 
 ![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=85)
@@ -1414,29 +1438,5 @@ Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm)
-
----
-
-# Robertson romps to World Snooker Grand Prix title
-
-![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=75)
-  
-
-Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, delivering a dominant performance by whitewashing Stuart Bingham from England by a score of 10-frames-to-nil.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 韓股初段升0.3%以上
+
+![首爾綜合指數較早時報2546點，升8點，升幅0.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795355_1_20250312080655.jpg&q=90)
+  
+
+南韓股市早段靠穩，首爾綜合指數較早時報2546點，升8點，升幅0.33%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm)
+
+---
+
+# 日股初段跌逾0.1%
+
+![日經指數較早時報36740點，跌52點，跌幅0.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795354_1_20250312080548.jpg&q=80)
+  
+
+日股初段偏軟，日經指數較早時報36740點，跌52點，跌幅0.14%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm)
+
+---
+
 # 美元兌加元曾升穿1.45　歐元兌美元創5個月新高
 
 ![美國威脅對加拿大鋼鋁進一步加徵關稅，美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795350_1_20250312070229.jpg&q=90)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm)
-
----
-
-# 出口日本空運貨物企圖走私金條　海關檢懷疑金條約值4600萬元
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795282_1_20250311181118.jpg&q=85)
-  
-
-海關在香港機場偵破一宗空運走私懷疑金條案件，檢獲約64公斤懷疑金條，估計市值約4600萬元。案中檢獲走私金條的重量及市值，是海關有紀錄以來最大宗走私金條案件。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795282-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795282-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795282-20250311.htm)
-
----
-
-# 醫學會下月舉辦「春耕行動」步行活動提升市民對器官捐贈認識
-
-![醫學會將於下月13日舉辦名為「春耕行動」的步行推廣活動，提升市民對器官捐贈認識。（香港醫學會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795281_1_20250311181058.jpg&q=75)
-  
-
-醫學會將於下月13日舉辦名為「春耕行動」的步行推廣活動，提升市民對器官捐贈認識，亦希望藉此機會，讓家人及朋友一同參與及討論，加深認識彼此對器官捐贈的意願。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795281-20250311.htm)
 
 ---

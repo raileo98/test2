@@ -1,3 +1,27 @@
+# Woods' major season in doubt after surgery
+
+![Woods says he expects to make a full recovery after undergoing surgery. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795356_1_20250312082550.jpg&q=90)
+  
+
+Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles tendon, derailing the veteran golf superstar's comeback plans in the latest injury setback to rock the twilight of his glittering career.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm)
+
+---
+
 # PSG dump Liverpool out of Champions League
 
 ![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=85)
@@ -1423,29 +1447,5 @@ Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792842-20250223.htm)
-
----
-
-# Romantic Warrior claims second in close Saudi Cup race
-
-![Romantic Warrior (right) was in the lead until the final 50 metres from the post. Photo courtesy of the Hong Kong Jockey Club](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792825_1_20250223125637.jpg&q=80)
-  
-
-Hong Kong racing royalty Romantic Warrior has come up just short in the world's most lucrative race, galloping to second in an epic finish against Japan's Forever Young in the US$20 million Saudi Cup in Riyadh.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm](https://news.rthk.hk/rthk/en/component/k2/1792825-20250223.htm)
 
 ---
