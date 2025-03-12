@@ -1,7 +1,7 @@
 # 歐聯16強次回合　利物浦互射12碼被巴黎聖日耳門淘汰
 
-![利物浦互射12碼被巴黎聖日耳門，歐聯16強出局。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_1_20250312070830.jpg&q=80)
-![拜仁強勢殺入歐聯8強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_2_20250312071003.jpg&q=50)
+![利物浦互射12碼被巴黎聖日耳門，歐聯16強出局。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_1_20250312070830.jpg&q=90)
+![拜仁強勢殺入歐聯8強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_2_20250312071003.jpg&q=75)
   
 
 歐聯16強次回合，利物浦0:1不敵巴黎聖日耳門，奧斯文丹比利12分鐘射入全場唯一入球。兩回合計踢成1:1，兩隊加時亦無法分出勝負，要互射12碼。利物浦只有沙拿射入，紐尼斯和居迪斯鍾斯射失，巴黎聖日耳門首四輪全部射入，以4:1淘汰利物浦晉級。
@@ -49,7 +49,7 @@
 
 # 英超紐卡素挫韋斯咸　西甲愛斯賓奴與基羅納和氣收場
 
-![般奴古馬雷斯近門撞射入網。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795187_1_20250311072445.jpg&q=75)
+![般奴古馬雷斯近門撞射入網。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795187_1_20250311072445.jpg&q=85)
   
 
 英超紐卡素作客一球小勝韋斯咸。
@@ -73,8 +73,8 @@
 
 # 西甲皇馬2:1挫華歷簡奴　馬體會1:2不敵基達菲
 
-![麥巴比為皇馬攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_1_20250310071437.jpg&q=85)
-![基達菲把握多打一人下，2:1擊敗馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_2_20250310071437.jpg&q=85)
+![麥巴比為皇馬攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_1_20250310071437.jpg&q=90)
+![基達菲把握多打一人下，2:1擊敗馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_2_20250310071437.jpg&q=90)
   
 
 西班牙甲組聯賽，皇家馬德里憑麥巴比及雲尼斯奧斯入球，主場2:1擊敗華歷簡奴，在馬體會落敗下，升上第二位。
@@ -147,8 +147,8 @@
 
 # LIV Golf香港站加西亞奪冠　哥球會爭取賽事繼續在港舉行
 
-![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=85)
-![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=85)
+![加西亞（右二）奪個人賽冠軍，同時與隊友贏得團隊賽。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_1_20250309213144.jpg&q=90)
+![郭永亮總結賽事時表示，球會將積極配合特區政府和主辧單位，爭取將這項賽事繼續在香港舉行。 （大會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795011_2_20250309215453.jpg&q=90)
   
 
 LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與隊友安沙、馬沙維和普伊格，成功捧起團隊賽獎盃。
@@ -172,7 +172,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 羅淑佩稱與LIV Golf非常接近達成協議　冀每年帶賽事來港
 
-![羅淑佩說，正與LIV Golf主辦方密切聯繫，目標雙方能建立長期合作關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794993_1_20250309172626.jpg&q=60)
+![羅淑佩說，正與LIV Golf主辦方密切聯繫，目標雙方能建立長期合作關係。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794993_1_20250309172626.jpg&q=75)
   
 
 文化體育及旅遊局局長羅淑佩表示，正與LIV Golf的主辦方密切聯繫，並非常接近達成協議，目標是雙方能夠建立長期合作關係，令主辦方能夠每年都將賽事帶來香港。
@@ -269,7 +269,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 體育爭議解決先導計劃今年內啟動　政府冀年中物色到合適仲裁機構
 
-![張國鈞說，會在體育界加強教育及宣傳，令業界明白遇到內部解決不到的問題，可透過爭議解決方式去處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794867_1_20250308112118.jpg&q=75)
+![張國鈞說，會在體育界加強教育及宣傳，令業界明白遇到內部解決不到的問題，可透過爭議解決方式去處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794867_1_20250308112118.jpg&q=85)
   
 
 律政司副司長張國鈞表示，期望今年內啟動體育爭議解決先導計劃，在年中物色到合適的仲裁機構，在本港開展體育爭議的相關服務，如果遇到需要調解的問題，可以向這個機構求助。
@@ -293,7 +293,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 因傷接受手術　荷蘭兩名後衛尼敦艾基及博文將休戰多個星期
 
-![尼敦艾基因傷接受手術，要養傷至少10個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_1_20250308071112.jpg&q=85)
+![尼敦艾基因傷接受手術，要養傷至少10個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_1_20250308071112.jpg&q=90)
 ![博文受傷患困擾，今季上陣次數不多。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_2_20250308071112.jpg&q=90)
   
 
@@ -342,7 +342,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園累計1733人預訂跑步徑127人預約乒乓球設施
 
-![啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794810_1_20250307221729.jpg&q=80)
+![啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794810_1_20250307221729.jpg&q=85)
   
 
 啟德青年運動場的跑步徑及乒乓球設施今日首次開放予「啟德體育園之友」會員使用。截至傍晚6時，有397名會員使用跑步徑，11名會員使用乒乓球設施，整體運作大致順暢。預訂設施方面，累計共1733人成功預訂跑步徑設施，127人預約乒乓球設施，園方形容訂場情況理想。
@@ -366,8 +366,8 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 全國兩會｜周進強：全運會籌備工作順利　劉國梁：將帶來重大突破
 
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_1_20250307124807.jpg&q=85)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_2_20250307124807.jpg&q=85)
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_1_20250307124807.jpg&q=90)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794715_2_20250307124807.jpg&q=90)
   
 
 在北京，全國政協委員、中國奧委會副主席周進強接受本台訪問，指全運會各項工作籌備順利。他又提到，不少參與啟德體育園開幕式的內地運動員高度讚揚新場館，他希望有機會在體育園內舉辦國際活動。
@@ -391,7 +391,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園跑步徑及乒乓球設施首日開放　有市民體驗後稱感覺不錯
 
-![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=85)
+![有市民形容跑步設施及跑道「很順」，早上跑步人數不多，感覺舒服，無擠迫情況。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_1_20250307103211.jpg&q=90)
 ![啟德青年運動場現階段有2個室内乒乓球場開放。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794685_2_20250307105549.jpg&q=90)
   
 
@@ -416,8 +416,8 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 全國兩會︳周進強冀啟德體育園辦國際活動　劉國梁稱或在港辦大賽
 
-![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=85)
-![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_4_20250307090212.jpg&q=85)
+![周進強說，11月在粵港澳三地舉行的全運會，各項工作籌備順利。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_3_20250307090212.jpg&q=90)
+![劉國梁說，港隊過去一年成績亮麗，希望國家隊和港隊成員未來加強交流。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794662_4_20250307090212.jpg&q=90)
   
 
 在北京，全國政協委員兼中國奧委會副主席周進強接受本台訪問說，目前全運會各項工作籌備順利，有信心成為強國建設中非常重要的里程碑。
@@ -442,7 +442,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 # 歐霸盃16強首回合熱刺不敵阿爾克馬爾　曼聯被皇蘇逼和
 
 ![熱刺首回合輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_1_20250307070916.jpg&q=90)
-![曼聯在領先下被皇蘇逼和。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_2_20250307070916.jpg&q=85)
+![曼聯在領先下被皇蘇逼和。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_2_20250307070916.jpg&q=90)
 ![車路士的安素費南迪斯今仗攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_3_20250307070916.jpg&q=90)
   
 
@@ -467,7 +467,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德青年運動場跑步徑及乒乓球設施預訂情況順暢
 
-![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=35)
+![啟德青年運動場跑步徑及乒乓球設施，開放供「啟德體育園之友」會員預訂。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794630_1_20250306225336.jpg&q=65)
   
 
 啟德體育園表示，啟德青年運動場跑步徑及乒乓球設施開放預訂首天，截至晚上8時，共有1210人成功預訂跑步徑設施，有90人預約乒乓球設施，訂場情況理想。
@@ -515,7 +515,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 全國兩會｜廣東省生產總值連續36年全國首位　聯港澳辦好全運會
 
-![張虎（中）提出，會積極推動廣東經濟高質量發展，從多方面落實工作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794551_1_20250306162126.jpg&q=85)
+![張虎（中）提出，會積極推動廣東經濟高質量發展，從多方面落實工作。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794551_1_20250306162126.jpg&q=90)
   
 
 廣東省全國人大代表團下午舉行全體會議，廣東省委書記黃坤明、廣東省省長王偉中等列席。
@@ -539,7 +539,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 鄭泳舜指桌球賽觀眾被要求離場事件影響形象　學者稱外行領導內行
 
-![在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794502_1_20250306101118.jpg&q=90)
+![在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794502_1_20250306101118.jpg&q=80)
   
 
 在啟德體藝館舉行的「世界格蘭披治桌球大獎賽」，前晚賽事未完結就要求觀眾離場。浸會大學體育、運動及健康學系教授劉永松認為事件明顯是「外行領導內行」，有關方面對賽事本質不了解。
@@ -563,7 +563,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 歐聯16強首回合國米挫飛燕諾　利物浦勝聖日耳門　拜仁巴塞報捷
 
-![利物浦作客一球小勝對手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794479_1_20250306072423.jpg&q=80)
+![利物浦作客一球小勝對手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794479_1_20250306072423.jpg&q=90)
   
 
 歐聯16強首回合，國際米蘭在2:0擊敗飛燕諾。利物浦亦報捷，一球小勝巴黎聖日耳門。
@@ -587,7 +587,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 世界格蘭披治桌球大獎賽　消委會接獲至少10宗投訴
 
-![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=80)
+![消委會正積極與主辦單位聯絡處理個案。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794429_1_20250305190054.jpg&q=85)
   
 
 截至2025年3月5日下午5時，消費者委員會共接獲10宗與「世界格蘭披治桌球大獎賽」相關的投訴，其中7宗涉及消費者對心儀球員退賽的不滿，認為未能觀賞該球員參與的賽事是貨不對辦；另有3宗則涉及3月4日晚部分觀眾不滿在比賽結束前被要求提早離場，10宗個案涉及金額共16885元。消委會正積極與主辦單位聯絡處理個案。
@@ -659,7 +659,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=90)
   
 
 高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
@@ -683,7 +683,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 鄭泳舜對有觀眾被請離場感失望詫異　稱不能再有同類事件發生
 
-![鄭泳舜對觀眾突然被請離場感到失望及詫異，認為對球迷非常不公平。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794368_1_20250305142241.jpg&q=85)
+![鄭泳舜對觀眾突然被請離場感到失望及詫異，認為對球迷非常不公平。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794368_1_20250305142241.jpg&q=90)
   
 
 昨晚在啟德體藝館舉行的世界格蘭披治桌大獎賽，有觀眾在賽事未完結時，被要求離場。民建聯立法會議員鄭泳舜對觀眾突然被請離場感到失望及詫異，認為十分罕見，對球迷非常不公平，要求園區與任何主辦機構都要汲取不足之處及經驗，不能再有同類事件發生。
@@ -707,7 +707,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園：未來幾日賽事如進行至深夜　將與主辦方協調安排交通
 
-![啟德體育園表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794365_1_20250305140452.jpg&q=45)
+![啟德體育園表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794365_1_20250305140452.jpg&q=75)
   
 
 昨晚世界格蘭披治桌球大獎賽的賽事進行至接近午夜時，有觀眾被要求離開。啟德體育園回應表示，未來幾日如賽事進行至深夜，將為觀眾安排接駁交通。
@@ -731,7 +731,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 羅淑佩稱主辦方及體育園需要磨合　以後處理相關情況要汲取經驗
 
-![羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794353_1_20250305134626.jpg&q=90)
+![羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794353_1_20250305134626.jpg&q=80)
   
 
 啟德體育園昨晚舉行的世界格蘭披治桌球大獎賽尾場賽事，有觀眾在賽事未完結被要求提早離場。文化體育及旅遊局局長羅淑佩表示，於啟德體育園的新場地舉行新項目，主辦方及體育園方面需要磨合是可以理解，但要觀眾離開屬於不理想，她將來會責成管理公司，每次遇到類似情況都要認真處理，當局亦會觀察情況，作出相應行動。
@@ -755,7 +755,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 羅淑佩：觀眾被要求離場十分不理想　要求確保觀眾今晚觀賞至完場
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794338_1_20250305123328.jpg&q=90)
   
 
 在啟德體藝館舉行的世界格蘭披治桌球大獎賽，昨晚賽事未完結，有觀眾被要求提早離場，賽事組委會發聲明致歉及提出補償方案。文化體育及旅遊局局長羅淑佩表示，昨晚主辦單位的安排非常不理想，她亦向受影響球迷表達關心和致歉。
@@ -803,7 +803,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 全國兩會｜辦好全運會和世界運動會　開展全民健身運動
 
-![報告提到要辦好第十五屆全國運動會和第十二屆世界運動會。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794315_1_20250305103449.jpg&q=75)
+![報告提到要辦好第十五屆全國運動會和第十二屆世界運動會。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794315_1_20250305103449.jpg&q=90)
   
 
 在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
@@ -827,7 +827,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 歐聯16強首回合阿仙奴及阿士東維拉分別奏凱
 
-![阿仙奴擊敗對手，賽後球員表現興奮。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794270_1_20250305072122.jpg&q=85)
+![阿仙奴擊敗對手，賽後球員表現興奮。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794270_1_20250305072122.jpg&q=90)
   
 
 阿仙奴及阿士東維拉，分別在歐聯16強首回合戰，擊敗對手。
@@ -851,7 +851,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 世界格蘭披治桌球大獎賽展開　羅淑佩主持開球禮
 
-![羅淑佩出席開幕禮並致辭。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_1_20250304221216.jpg&q=85)
+![羅淑佩出席開幕禮並致辭。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794226_1_20250304221216.jpg&q=90)
   
 
 「世界格蘭披治桌球大獎賽」今日起，一連六日在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽，文化體育及旅遊局局長羅淑佩晚上出席開球禮，首日比賽有超過4200人入場。
@@ -876,7 +876,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 # 桌球大獎賽選手讚揚啟德體藝館是世界最好比賽場地之一
 
 ![世界排名第10的張安達，以局數 4-2 落敗。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_1_20250304174103.jpg&q=90)
-![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=90)
+![冰咸形容啟德體藝館是世界最好的比賽場地之一。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794192_2_20250304174244.jpg&q=80)
   
 
 「世界格蘭披治桌球大獎賽」今日起一連６天在啟德體育園的啟德體藝館舉行，是體育園開幕後首個正式體育比賽。
@@ -900,7 +900,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 「LIV Golf 香港站」本周五至周日於粉嶺高球場舉行
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794173_1_20250304165507.jpg&q=90)
   
 
 高爾夫球賽事「LIV Golf 香港站」本月7日至9日在粉嶺高爾夫球場舉行。警方表示，預計每日有近１萬名市民到場觀賞賽事，將會在球場附近實施人流安全管理措施及特別交通安排。
@@ -924,7 +924,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園開幕後舉行首場比賽世界桌球大獎賽　卓林普晚上出賽
 
-![「世界格蘭披治桌球大獎賽」一連6日在啟德體育園的體藝館舉行。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794148_1_20250304150359.jpg&q=85)
+![「世界格蘭披治桌球大獎賽」一連6日在啟德體育園的體藝館舉行。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794148_1_20250304150359.jpg&q=90)
   
 
 「世界格蘭披治桌球大獎賽」今日起一連6日在啟德體育園的體藝館舉行， 是體育園開幕後首個正式體育比賽。
@@ -948,7 +948,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 羅淑佩：正努力促成海外足球隊訪港　有信心啟德體育園很受歡迎
 
-![羅淑佩有信心香港的啟德體育園會很受歡迎。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794118_1_20250304113156.jpg&q=85)
+![羅淑佩有信心香港的啟德體育園會很受歡迎。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794118_1_20250304113156.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩透露正努力促成海外足球隊於今年夏天訪港，作為球迷自己亦很期待，有消息時會公布。
@@ -972,7 +972,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 英格蘭足總盃　諾定咸森林互射12碼淘汰葉士域治
 
-![森林門將撲出最後一個12碼，與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794084_1_20250304071736.jpg&q=80)
+![森林門將撲出最後一個12碼，與隊友慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794084_1_20250304071736.jpg&q=85)
   
 
 英格蘭足總盃第五圈，諾定咸森林互射12碼淘汰葉士域治，取得最後一個8強席位。
@@ -1044,7 +1044,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園跟進開幕禮當日有人涉嫌未持有效門票進入主場館事件
 
-![啟德體育園表示，若調查發現有懷疑違法情況，會嚴正處理，並交警方或廉署跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793988_1_20250303154551.jpg&q=45)
+![啟德體育園表示，若調查發現有懷疑違法情況，會嚴正處理，並交警方或廉署跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793988_1_20250303154551.jpg&q=75)
   
 
 對於有報道指啟德體育園開幕當日，懷疑有人收取每位過千元報酬，帶未有購票人士入場，並可攜帶長雨傘及專業攝影器材等違禁品入場，毋須安檢及驗票。
@@ -1068,7 +1068,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 曼聯互射十二碼不敵富咸　英格蘭足總盃第五圈止步
 
-![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=45)
+![舒克斯操刀十二碼被撲出，曼聯未能晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793916_1_20250303042017.jpg&q=75)
   
 
 曼聯爭取衛冕英格蘭足總盃失敗，他們在第五圈主場互射十二碼不敵富咸出局。
@@ -1092,7 +1092,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 楊德強：會檢討全運會三鐵測試賽流程　為年底舉辦正賽做好準備
 
-![港隊在混合接力賽取得銅牌。（2025全運會香港賽區社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793901_1_20250302214044.jpg&q=85)
+![港隊在混合接力賽取得銅牌。（2025全運會香港賽區社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793901_1_20250302214044.jpg&q=90)
   
 
 一連兩日在中環海濱及維港舉行的全運會三項鐵人測試賽結束。全運會統籌辦主任楊德強表示，會與各相關機構及政府部門檢討賽事流程和各項細節，為今年年底舉辦的正賽做好準備。
@@ -1116,7 +1116,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 奧蘇利雲缺席大獎賽　斯佳輝稱對失去切磋機會感可惜
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793891_1_20250302214621.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793891_1_20250302214621.jpg&q=80)
   
 
 世界格蘭披治桌球大獎賽本月4日至9日舉行。早前透過優才計劃成為香港居民的「火箭」奧蘇利雲因健康狀況將會缺席，由排名33位的賀辛補上參賽。原先會在首圈就對戰奧蘇利雲的斯佳輝表示，奧蘇利雲退賽失去與對方切磋的機會，感到可惜，但不會影響自己的比賽計劃。斯佳輝說，首次在香港參與如此大型的賽事，期望可以發揮出自己最佳的表現，在這一站的排名賽中取得第一，但不會給予自己太大的壓力。
@@ -1140,7 +1140,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 英足盃曼城3:1反勝普利茅夫晉級
 
-![曼城年輕小將歷高奧懷利建兩功。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793848_1_20250302064149.jpg&q=85)
+![曼城年輕小將歷高奧懷利建兩功。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793848_1_20250302064149.jpg&q=90)
   
 
 英格蘭足總盃第五圈，英超的曼城3:1反勝英冠的普利芧夫晉級。
@@ -1164,7 +1164,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園開幕典禮舉行　本港與內地歌手和體壇名將參與
 
-![開幕典禮上，內地與香港運動員代表合唱歌曲。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793846_1_20250302051453.jpg&q=80)
+![開幕典禮上，內地與香港運動員代表合唱歌曲。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793846_1_20250302051453.jpg&q=90)
   
 
 啟德體育園開幕典禮，昨晚在啟德體育園主場館舉行，歷時2小時，有3萬多名觀眾出席。行政長官李家超在開幕致辭說，懷著興奮心情見證啟德體育園開幕。
@@ -1212,7 +1212,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 陳茂波：啟德體育園大大提升香港舉辦盛事容量和吸引力
 
-![陳茂波說政府將繼續舉辦各類型大型體育、娛樂和文化盛事。（陳茂波社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793831_1_20250301230859.jpg&q=85)
+![陳茂波說政府將繼續舉辦各類型大型體育、娛樂和文化盛事。（陳茂波社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793831_1_20250301230859.jpg&q=90)
   
 
 啟德體育園舉行開幕典禮，財政司司長陳茂波表示，表演活動精彩，融合流行表演和傳統文化、體育與文藝，亦有跨世代的承傳，形容人氣爆棚，為觀眾帶來難忘的視聽體驗。
@@ -1236,7 +1236,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園發放煙花　有觀眾感震撼稱表演精彩
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793826_1_20250301220503.jpg&q=90)
   
 
 歷時約2小時的啟德體育園開幕典禮，晚上約8時40分結束。接近典禮完結時，啟德體育園上蓋發放煙花，有觀眾說感覺震撼，又說節目緊湊，看見很多本地明星，表演精彩。
@@ -1260,7 +1260,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園開幕典禮歷時2小時　合唱歌曲「壯志驕陽」並發放煙花
 
-![啟德體育園傍晚舉行開幕典禮，歷時2小時，並發放煙花。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793824_1_20250301214727.jpg&q=80)
+![啟德體育園傍晚舉行開幕典禮，歷時2小時，並發放煙花。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793824_1_20250301214727.jpg&q=75)
   
 
 啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
@@ -1285,7 +1285,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 # 影星劉德華壓軸現身啟德體育園開幕禮　與觀眾大合照
 
 ![影星劉德華現身啟德體育園開幕禮。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_1_20250301204611.jpg&q=80)
-![啟德體育園開幕典禮歷時2小時，結束前有大合唱及煙花匯演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_2_20250301205816.jpg&q=60)
+![啟德體育園開幕典禮歷時2小時，結束前有大合唱及煙花匯演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793820_2_20250301205816.jpg&q=80)
   
 
 啟德體育園傍晚舉行開幕典禮，歷時2小時，至晚上約8時40分結束。本港及內地精英運動員，聯同歌影視藝人等都有參與。開場時先播放短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅助興。由行政長官李家超致開幕辭，至活動尾聲，影星劉德華壓軸現身，講述自己與啟德的淵源。
@@ -1309,8 +1309,8 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 鄧俊文謝影雪向觀眾拋出羽毛球　樊振東以巨型乒乓球拍打波
 
-![鄧俊文和謝影雪等向觀眾拋出親筆簽名羽毛球。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_1_20250301203326.jpg&q=80)
-![樊振東以巨型乒乓球拍打波，觀眾高呼喝采。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_2_20250301203326.jpg&q=85)
+![鄧俊文和謝影雪等向觀眾拋出親筆簽名羽毛球。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_1_20250301203326.jpg&q=90)
+![樊振東以巨型乒乓球拍打波，觀眾高呼喝采。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_2_20250301203326.jpg&q=80)
   
 
 啟德體育園開幕禮傍晚6時半舉行，先後有多位奧運名將等上台表演。
@@ -1334,7 +1334,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 李家超：啟德體育園定必成為盛事經濟橋頭堡　與其他設施優勢互補
 
-![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=80)
+![李家超與多名運動員交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_2_20250301202436.jpg&q=90)
 ![李家超與歌手、體育和娛樂業界代表交流。（李家超社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793818_3_20250301202436.jpg&q=90)
   
 
@@ -1359,7 +1359,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園開幕典禮有舞蹈及歌星獻唱　亦有劍擊表演
 
-![巴黎奧運女子重劍金牌得主江旻憓與影星甄子丹表演劍擊。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793815_1_20250301194944.jpg&q=80)
+![巴黎奧運女子重劍金牌得主江旻憓與影星甄子丹表演劍擊。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793815_1_20250301194944.jpg&q=85)
   
 
 啟德體育園舉行開幕典禮，先播放開場短片，闡述啟德體育園揭幕，之後有擊鼓及舞龍舞獅表演。
@@ -1383,7 +1383,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 李家超稱懷興奮心情見證啟德體育園開幕典禮
 
-![李家超表示，香港又一次衝上雲霄，再創高峰。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_2_20250301195833.jpg&q=85)
+![李家超表示，香港又一次衝上雲霄，再創高峰。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793811_2_20250301195833.jpg&q=90)
   
 
 啟德體育園晚上舉行開幕典禮，行政長官李家超主持開幕儀式，他致辭表示，與大家一樣懷著興奮和期待的心情，見證啟德體育園，作為一個世界級香港新地標的開幕典禮。
@@ -1407,7 +1407,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 啟德體育園開幕禮　李家超伉儷及鄭雁雄伉儷等出席主禮
 
-![啟德體育園開幕典禮在主場館舉行。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793809_1_20250301190945.jpg&q=65)
+![啟德體育園開幕典禮在主場館舉行。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793809_1_20250301190945.jpg&q=70)
   
 
 啟德體育園開幕典禮晚上約6時半在主場館舉行，多位主禮嘉賓出席，包括李家超伉儷、鄭雁雄伉儷，政務司司長陳國基及立法會主席梁君彥等。
@@ -1431,7 +1431,7 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 
 # 有遲到市民和旅客滿意當局換領實體票安排
 
-![有觀眾表示，好期待開幕禮的表演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793808_1_20250301184040.jpg&q=55)
+![有觀眾表示，好期待開幕禮的表演。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793808_1_20250301184040.jpg&q=80)
   
 
 啟德體育園開幕禮的入場觀眾，需預先換領實體門票，當局原定今日下午3時為換票截止時間，但最後彈性安排給遲到的人兌換門票。有遲到的市民和旅客都滿意當局安排。

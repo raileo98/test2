@@ -24,7 +24,7 @@ The US Department of Education said on Tuesday it would lay off nearly half its 
 
 # Maradona's medical team on trial over his death
 
-![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=85)
+![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=90)
   
 
 Seven Argentines went on trial on Tuesday accused of homicide for their alleged role in what prosecutors called the "horror theatre" of football legend Diego Maradona's death four years ago.
@@ -48,7 +48,7 @@ Seven Argentines went on trial on Tuesday accused of homicide for their alleged 
 
 # 'Growth target signals China's intent to beat tariffs'
 
-![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=30)
+![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=70)
   
 
 An economist at a leading investment bank on Wednesday said the main takeaways from the recently concluded Two Sessions was that China was prepared to handle the new round of US tariffs imposed by President Donald Trump.
@@ -72,7 +72,7 @@ An economist at a leading investment bank on Wednesday said the main takeaways f
 
 # Hang Seng shrugs off lower Wall Street close
 
-![The Hang Seng Index and both main mainland indices opened in positive territory. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795372_1_20250312103349.jpg&q=35)
+![The Hang Seng Index and both main mainland indices opened in positive territory. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795372_1_20250312103349.jpg&q=65)
   
 
 The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 points on Wednesday.
@@ -120,7 +120,7 @@ Washington's looming tariffs on steel and aluminium are "entirely unjustified", 
 
 # HA to cut medication dispensed to patients
 
-![The Hospital Authority's chief pharmacist William Chui said around one-fifth of patients do not finish their medication. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795358_1_20250312090613.jpg&q=20)
+![The Hospital Authority's chief pharmacist William Chui said around one-fifth of patients do not finish their medication. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795358_1_20250312090613.jpg&q=45)
   
 
 The Hospital Authority said on Wednesday it was working on reducing the amount of medicine distributed to patients to reduce wastage.
@@ -144,7 +144,7 @@ The Hospital Authority said on Wednesday it was working on reducing the amount o
 
 # UK makes manslaughter arrest of ship captain
 
-![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=80)
+![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=90)
   
 
 British police on Tuesday arrested on suspicion of manslaughter the captain of a ship that crashed into a tanker in the North Sea, sparking a massive blaze and leaving one crew member missing, presumed dead.
@@ -168,7 +168,7 @@ British police on Tuesday arrested on suspicion of manslaughter the captain of a
 
 # Greenland votes in election eyed by Trump
 
-![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=80)
+![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=90)
   
 
 Greenland voted on Tuesday in legislative elections that could yield a timeline for independence for the Danish self-governing territory coveted by US President Donald Trump.
@@ -216,8 +216,8 @@ Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles
 
 # PSG dump Liverpool out of Champions League
 
-![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=85)
-![Liverpool were only able to convert on one of their penalty kicks. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_2_20250312072008.jpg&q=45)
+![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=90)
+![Liverpool were only able to convert on one of their penalty kicks. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_2_20250312072008.jpg&q=75)
   
 
 Paris Saint-Germain produced a historic turnaround to progress to the Champions League quarter-finals at Liverpool's expense as they triumphed 4-1 on penalties after a 1-0 second leg win at Anfield.
@@ -241,7 +241,7 @@ Paris Saint-Germain produced a historic turnaround to progress to the Champions 
 
 # Barca sink Benfica; reach Champions League last eight
 
-![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=85)
+![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=90)
 ![Raphina scored twice in the first half for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_2_20250312061710.jpg&q=90)
   
 
@@ -314,7 +314,7 @@ Ukraine endorsed an American proposal for a 30-day ceasefire and agreed to immed
 
 # Ex-Philippine president Duterte bound for The Hague
 
-![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=85)
+![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=90)
   
 
 A plane carrying former Filipino president Rodrigo Duterte left the Philippine capital bound for The Hague on Tuesday following his arrest on an International Criminal Court (ICC) warrant stemming from his deadly crackdown on drugs, Manila said.
@@ -338,7 +338,7 @@ A plane carrying former Filipino president Rodrigo Duterte left the Philippine c
 
 # Separatists attack train in Pakistan carrying hundreds
 
-![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=55)
+![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=80)
   
 
 Pakistani insurgents attacked a passenger train in a tunnel and claimed to have taken over 100 hostages on Tuesday, as authorities struggled to reach the remote area. The fate of the estimated 500 people aboard was not immediately clear.
@@ -386,7 +386,7 @@ US President Donald Trump on Tuesday said that he would double incoming steel an
 
 # Ukraine, US discuss partial truce as drones hit Russia
 
-![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=85)
+![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=90)
   
 
 Ukraine said talks with the United States in Saudi Arabia began "very constructively" on Tuesday, with a partial ceasefire with Russia on the table hours after Kyiv conducted its largest drone attack on Moscow in three years of war.
@@ -434,7 +434,7 @@ The Centre for Health Protection (CHP) on Tuesday said it is investigating a clu
 
 # South Africa bus crash toll climbs to 16
 
-![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=45)
+![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=75)
   
 
 A bus overturned in an area of Johannesburg near South Africa's main airport early on Tuesday, killing at least 16 people, city officials said, with dozens more injured.
@@ -458,7 +458,7 @@ A bus overturned in an area of Johannesburg near South Africa's main airport ear
 
 # Man United announce plans for new 100,000-seat stadium
 
-![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=80)
+![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=90)
   
 
 Manchester United on Tuesday announced plans to build a new 100,000-capacity stadium that co-owner Jim Ratcliffe said would be the "world's greatest" football ground.
@@ -482,7 +482,7 @@ Manchester United on Tuesday announced plans to build a new 100,000-capacity sta
 
 # 'China changing course of economic development'
 
-![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
+![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=75)
   
 
 A senior member of a leading national think tank on Tuesday said the annual "Two Sessions" which just wrapped up in Beijing showed China's emphasis on the economy and innovation amid Sino-US tensions.
@@ -506,7 +506,7 @@ A senior member of a leading national think tank on Tuesday said the annual "Two
 
 # HSI flat after Wall Street rout
 
-![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=35)
+![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=65)
   
 
 Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down one point to close at 23,782.
@@ -530,7 +530,7 @@ Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down o
 
 # HK's top court to webcast some hearings from April
 
-![The judiciary says people, including the media, must not record the Court of Final Appeal's online webcasts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795261_1_20250311162436.jpg&q=70)
+![The judiciary says people, including the media, must not record the Court of Final Appeal's online webcasts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795261_1_20250311162436.jpg&q=80)
   
 
 The judiciary said on Tuesday it will start webcasting some proceedings at Hong Kong's top court from April 1, as part of a pilot scheme.
@@ -554,7 +554,7 @@ The judiciary said on Tuesday it will start webcasting some proceedings at Hong 
 
 # Social worker convicted of rioting
 
-![Social worker Jackie Chen is found guilty of rioting at the District Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795265_1_20250311164432.jpg&q=60)
+![Social worker Jackie Chen is found guilty of rioting at the District Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795265_1_20250311164432.jpg&q=80)
   
 
 Social worker Jackie Chen was on Tuesday convicted of rioting in Wan Chai during the 2019 protests, following a retrial.
@@ -578,7 +578,7 @@ Social worker Jackie Chen was on Tuesday convicted of rioting in Wan Chai during
 
 # 'No plans for a comprehensive tax-regime review'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795259_1_20250311161557.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795259_1_20250311161557.jpg&q=80)
   
 
 Financial Secretary Paul Chan on Tuesday said the government does not plan to conduct a comprehensive review on the SAR's tax regime in the near term, despite calls to introduce new sources of revenue to tackle the city’s deficit.
@@ -602,7 +602,7 @@ Financial Secretary Paul Chan on Tuesday said the government does not plan to co
 
 # NPC concludes annual session with call for unity
 
-![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=35)
+![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=75)
   
 
 The third annual session of the 14th National People’s Congress (NPC) concluded in Beijing on Tuesday.
@@ -650,7 +650,7 @@ China said on Tuesday it hoped a "just and lasting solution" can be found to the
 
 # Arab nations condemn Israel's Gaza electricity cut
 
-![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=60)
+![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=80)
   
 
 Saudi Arabia, Qatar and Jordan on Tuesday condemned Israel's decision to cut electricity supply to the war-battered Gaza Strip, calling in separate statements for the international community to take action.
@@ -698,7 +698,7 @@ A mainland man was jailed for three months on Tuesday, after pleading guilty to 
 
 # 'President Xi gave reassurance to private enterprises'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=90)
   
 
 An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds said President Xi Jinping's speech at a symposium last month provided much-needed reassurance to the nation's private enterprises.
@@ -770,7 +770,7 @@ A catering sector representative on Tuesday said he was concerned restaurants wo
 
 # 'Snooker hiccup not a problem for National Games'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=90)
   
 
 A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
@@ -842,7 +842,7 @@ The New Orleans Pelicans will become the first NBA team to play in Australia whe
 
 # Arrest of pro-Palestinian student sparks outrage
 
-![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=85)
+![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=90)
   
 
 Protesters in New York and rights groups expressed outrage on Monday over the arrest of a leader of pro-Palestinian demonstrations at Columbia University, as President Donald Trump vowed further crackdowns.
@@ -914,7 +914,7 @@ The UK coastguard ended the search for a missing crew member after a cargo ship 
 
 # Japan revises Q4 annualised GDP growth estimate
 
-![Data shows on a seasonally adjusted, month-on-month basis, spending dropped 4.5 percent in the last quarter of 2024. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795200_1_20250311085336.jpg&q=45)
+![Data shows on a seasonally adjusted, month-on-month basis, spending dropped 4.5 percent in the last quarter of 2024. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795200_1_20250311085336.jpg&q=75)
   
 
 Japan's economy expanded in the October-December quarter at a slower pace than initially reported, government data showed on Tuesday, weighed by weaker consumption but still likely supporting the case for further interest rate hikes.
@@ -938,7 +938,7 @@ Japan's economy expanded in the October-December quarter at a slower pace than i
 
 # 25 dead in two Mexican bus crashes
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=20)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=40)
   
 
 At least 25 people were killed in two separate bus crashes in Mexico on Monday, authorities said.
@@ -986,7 +986,7 @@ Elon Musk said his social media platform, X, has been targeted in a “massive c
 
 # Newcastle sink West Ham to boost top four bid
 
-![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=35)
+![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=75)
   
 
 Newcastle reignited their bid to qualify for the Champions League as Bruno Guimarães sealed a controversial 1-0 win at West Ham.
@@ -1010,7 +1010,7 @@ Newcastle reignited their bid to qualify for the Champions League as Bruno Guima
 
 # Police arrest driver who 'fled' Shing Mun accident
 
-![Officers arrested the 34-year-old man on suspicion of dangerous driving causing grievous bodily harm and other charges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795184_1_20250311062017.jpg&q=40)
+![Officers arrested the 34-year-old man on suspicion of dangerous driving causing grievous bodily harm and other charges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795184_1_20250311062017.jpg&q=70)
   
 
 Police have arrested the driver of a private car, who allegedly fled following a three-vehicle pile-up in the Shing Mun Tunnel on Monday morning.
@@ -1034,7 +1034,7 @@ Police have arrested the driver of a private car, who allegedly fled following a
 
 # Wall Street sells off on US recession fears
 
-![The main three US indices fell between 2 percent and 4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795182_1_20250311061228.jpg&q=80)
+![The main three US indices fell between 2 percent and 4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795182_1_20250311061228.jpg&q=85)
   
 
 Wall Street stocks fell sharply on Monday as investors fretted that uncertainty over President Donald Trump's tariff policy could tip the world's biggest economy into a recession.
@@ -1106,7 +1106,7 @@ The United States does not appear to want to make a deal with Brussels to avoid 
 
 # Israeli team due in Qatar for Gaza truce talks
 
-![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=75)
+![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=85)
   
 
 Israel is due to send a delegation to Qatar on Monday for a fresh round of talks on extending a fragile ceasefire in Gaza, after cutting off the electricity supply to the besieged enclave.
@@ -1130,7 +1130,7 @@ Israel is due to send a delegation to Qatar on Monday for a fresh round of talks
 
 # Russia expels two British 'diplomats' on spy charges
 
-![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=60)
+![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=80)
   
 
 Russia said on Monday it was expelling two British "diplomats" on suspicion of carrying out espionage activities.
@@ -1154,7 +1154,7 @@ Russia said on Monday it was expelling two British "diplomats" on suspicion of c
 
 # Hang Seng Index closes down 1.85pc
 
-![The Hang Seng Index has closed lower, ending the day at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795139_1_20250310175233.jpg&q=60)
+![The Hang Seng Index has closed lower, ending the day at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795139_1_20250310175233.jpg&q=80)
   
 
 Local shares sank on Monday on a mixed day for equity markets, amid escalating global trade tensions.
@@ -1178,7 +1178,7 @@ Local shares sank on Monday on a mixed day for equity markets, amid escalating g
 
 # Deficit not a big problem for HK: Wang Linggui
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795110_1_20250310154314.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795110_1_20250310154314.jpg&q=90)
   
 
 A deputy director of the Hong Kong and Macau Affairs Office on Monday said he does not believe the SAR's fiscal deficit is a major concern, citing the size of the city's economy.
@@ -1202,7 +1202,7 @@ A deputy director of the Hong Kong and Macau Affairs Office on Monday said he do
 
 # Deliveroo to exit HK, sack 200 staff
 
-![Deliveroo says its service platform will operate until April 7. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795116_1_20250310160730.jpg&q=85)
+![Deliveroo says its service platform will operate until April 7. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795116_1_20250310160730.jpg&q=90)
   
 
 Online food delivery firm Deliveroo said on Monday it is exiting Hong Kong for financial reasons, after operating in the SAR for nine years.
@@ -1226,7 +1226,7 @@ Online food delivery firm Deliveroo said on Monday it is exiting Hong Kong for f
 
 # Unity key to tackling HK's fiscal deficit: Qiu Hong
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795114_1_20250310160227.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795114_1_20250310160227.jpg&q=90)
   
 
 Hong Kong will improve as long as everyone works together to tackle the fiscal deficit, a former deputy director of Beijing's liaison office in the SAR said on Monday.
@@ -1298,7 +1298,7 @@ North Korea fired "multiple unidentified ballistic missiles" on Monday, South Ko
 
 # Driver flees after three-vehicle collision
 
-![Two private cars and a taxi are severely damaged after a collision in Shing Mun Tunnel. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795078_1_20250310115428.jpg&q=85)
+![Two private cars and a taxi are severely damaged after a collision in Shing Mun Tunnel. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795078_1_20250310115428.jpg&q=90)
   
 
 Four people were injured and one driver fled the scene following a three-vehicle collision in Shing Mun Tunnel early on Monday morning.
@@ -1346,7 +1346,7 @@ Businessman Irons Sze on Monday said Hong Kong's position as an international fi
 
 # CPPCC session ends with call to focus on 'big picture'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=85)
   
 
 The annual session of the country's top advisory body has concluded in Beijing, with a senior state leader calling on members to focus on the "big picture" and deepen unity.
@@ -1370,7 +1370,7 @@ The annual session of the country's top advisory body has concluded in Beijing, 
 
 # China to provide global trade stability: analyst
 
-![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
+![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=45)
   
 
 An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Two Sessions" last week that China ensured global stability.
@@ -1418,7 +1418,7 @@ The Hang Seng Index lost 115.32 points, or 0.48 percent, to open at 24,115.98 po
 
 # HK must take advantage of int'l position: NPC delegate
 
-![Priscilla Leung says local NPC delegates were being encouraged to help Hong Kong build on its international strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795062_1_20250310102114.jpg&q=75)
+![Priscilla Leung says local NPC delegates were being encouraged to help Hong Kong build on its international strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795062_1_20250310102114.jpg&q=85)
   
 
 Lawmaker and National People's Congress delegate Priscilla Leung on Monday said the central government wants Hong Kong to take advantage of its international position.

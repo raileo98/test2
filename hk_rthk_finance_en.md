@@ -1,6 +1,6 @@
 # Hang Seng shrugs off lower Wall Street close
 
-![The Hang Seng Index and both main mainland indices opened in positive territory. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795372_1_20250312103349.jpg&q=35)
+![The Hang Seng Index and both main mainland indices opened in positive territory. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795372_1_20250312103349.jpg&q=65)
   
 
 The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 points on Wednesday.
@@ -72,7 +72,7 @@ Wall Street stocks finished lower on Tuesday on uncertainty surrounding Presiden
 
 # HSI flat after Wall Street rout
 
-![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=35)
+![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=65)
   
 
 Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down one point to close at 23,782.
@@ -120,7 +120,7 @@ Hong Kong's Hang Seng Index fell 508.63 points, or 2.14 percent, to open at 23,2
 
 # Japan revises Q4 annualised GDP growth estimate
 
-![Data shows on a seasonally adjusted, month-on-month basis, spending dropped 4.5 percent in the last quarter of 2024. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795200_1_20250311085336.jpg&q=45)
+![Data shows on a seasonally adjusted, month-on-month basis, spending dropped 4.5 percent in the last quarter of 2024. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795200_1_20250311085336.jpg&q=75)
   
 
 Japan's economy expanded in the October-December quarter at a slower pace than initially reported, government data showed on Tuesday, weighed by weaker consumption but still likely supporting the case for further interest rate hikes.
@@ -144,7 +144,7 @@ Japan's economy expanded in the October-December quarter at a slower pace than i
 
 # Wall Street sells off on US recession fears
 
-![The main three US indices fell between 2 percent and 4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795182_1_20250311061228.jpg&q=80)
+![The main three US indices fell between 2 percent and 4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795182_1_20250311061228.jpg&q=85)
   
 
 Wall Street stocks fell sharply on Monday as investors fretted that uncertainty over President Donald Trump's tariff policy could tip the world's biggest economy into a recession.
@@ -168,7 +168,7 @@ Wall Street stocks fell sharply on Monday as investors fretted that uncertainty 
 
 # Hang Seng Index closes down 1.85pc
 
-![The Hang Seng Index has closed lower, ending the day at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795139_1_20250310175233.jpg&q=60)
+![The Hang Seng Index has closed lower, ending the day at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795139_1_20250310175233.jpg&q=80)
   
 
 Local shares sank on Monday on a mixed day for equity markets, amid escalating global trade tensions.
@@ -264,7 +264,7 @@ US President Donald Trump declined on Sunday to rule out the possibility that th
 
 # Mainland sees year-on-year drop in inflation
 
-![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
+![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=75)
   
 
 China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.
@@ -288,7 +288,7 @@ China's consumer inflation in February fell at the quickest pace since January 2
 
 # US stocks end higher after Powell remarks
 
-![The broad-based S&P 500 finished at 5,770, up 0.6 percent for the day but down 3.1 percent for the week. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794835_1_20250308054159.jpg&q=85)
+![The broad-based S&P 500 finished at 5,770, up 0.6 percent for the day but down 3.1 percent for the week. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794835_1_20250308054159.jpg&q=90)
   
 
 Wall Street stocks finished higher on Friday after a roller-coaster session following mixed labor market data, concluding a losing week on a positive note.
@@ -384,7 +384,7 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
 
 # Hong Kong stocks open lower
 
-![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=50)
+![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=75)
   
 
 Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street over US President Donald Trump's shifting trade policy, while European bourses advanced following an ECB interest rate cut.
@@ -432,7 +432,7 @@ Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key 
 
 # "Home demand is keen": govt rejects oversupply claims
 
-![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=75)
+![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=85)
   
 
 Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
@@ -456,7 +456,7 @@ Authorities insist there is still keen demand for housing, citing a low vacancy 
 
 # Thanks to property gains, MTR profit more than doubles
 
-![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=75)
+![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=85)
   
 
 Net profit at the MTR Corporation more than doubled last year, thanks largely to strong gains in local property development.
@@ -504,7 +504,7 @@ The head of the National Development and Reform Commission said he's confident t
 
 # Tech gains see HK stocks close higher
 
-![Shares in tech firms helped the Hang Seng Index close higher. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794569_1_20250306165157.jpg&q=60)
+![Shares in tech firms helped the Hang Seng Index close higher. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794569_1_20250306165157.jpg&q=80)
   
 
 Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soaring over three percent, as tech shares led the gains.
@@ -576,7 +576,7 @@ US stocks climbed on Wednesday after US President Donald Trump pulled back on so
 
 # Hong Kong stocks finish higher
 
-![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=25)
+![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=60)
   
 
 Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index up 2.8 percent at 23,594.
@@ -624,7 +624,7 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 
 # Domestic demand 'main engine and anchor' of growth
 
-![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
+![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=85)
   
 
 Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in his government work report.
@@ -648,7 +648,7 @@ Premier Li Qiang on Wednesday said the nation will vigorously boost consumption 
 
 # HSI adds 1pc despite losses on Wall Street
 
-![The Hang Seng Index posts gains as China pledges to make domestic demand the "main engine" of its economic growth. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794303_1_20250305094110.jpg&q=40)
+![The Hang Seng Index posts gains as China pledges to make domestic demand the "main engine" of its economic growth. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794303_1_20250305094110.jpg&q=70)
   
 
 Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qiang announced a target GDP growth of "around 5 percent" for 2025 and pledged to make domestic demand the "main engine" of its economic growth.
@@ -672,7 +672,7 @@ Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qi
 
 # Stocks rack up more losses on Wall Street
 
-![US stocks decline as a trade war between the US and its key trading partners escalates. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794279_1_20250305083014.jpg&q=35)
+![US stocks decline as a trade war between the US and its key trading partners escalates. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794279_1_20250305083014.jpg&q=65)
   
 
 US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correction territory, as trade tensions escalated following US President Donald Trump's new tariffs on Canada, Mexico and China.
@@ -696,7 +696,7 @@ US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correc
 
 # CK Hutchison to sell Panama unit after Trump pressure
 
-![The sale to a BlackRock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=45)
+![The sale to a BlackRock consortium will deliver cash proceeds in excess of US$19 billion to Hong Kong's CK Hutchison. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794251_1_20250305042524.jpg&q=75)
   
 
 Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama Canal port operator to a BlackRock Inc-backed consortium, following intense pressure from US President Donald Trump.
@@ -792,7 +792,7 @@ China’s economy has a solid foundation with new growth drivers despite facing 
 
 # China to impose new tariffs on US agricultural goods
 
-![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=65)
+![China unveiled a range of products it said it was placing tariffs on in response to the US placing levies on Chinese goods. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794144_1_20250304133941.jpg&q=80)
   
 
 China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range of between 10 and 15 percent hikes to import levies covering a basket of American agricultural and food products, while placing 25 US firms under export and investment restrictions.
@@ -816,7 +816,7 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
 
 # Hong Kong stocks open lower
 
-![President Trump's latest tariffs announcement dents sentiments across world stock markets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794105_1_20250304094634.jpg&q=55)
+![President Trump's latest tariffs announcement dents sentiments across world stock markets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794105_1_20250304094634.jpg&q=75)
   
 
 Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as investors awaited the upcoming annual parliamentary sessions to gauge Beijing's policy path.
@@ -912,7 +912,7 @@ Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0
 
 # HK's retail sales drop 3.2 percent in January
 
-![Hong Kong's retail sales dropped for the 11th consecutive month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794002_1_20250303165314.jpg&q=85)
+![Hong Kong's retail sales dropped for the 11th consecutive month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794002_1_20250303165314.jpg&q=90)
   
 
 Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking the 11th consecutive month of declines.
@@ -936,7 +936,7 @@ Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking th
 
 # Govt operating account largely balanced: FS
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=45)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793981_1_20250303143320.jpg&q=75)
   
 
 Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, which is used to finance large infrastructure projects such as the Northern Metropolis, was facing higher deficits, the city's operating account was still largely balanced.
@@ -984,7 +984,7 @@ China's factory activity grew at a faster pace in February, driven by stronger s
 
 # China bubble tea giant soars on HK trading debut
 
-![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=85)
+![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=90)
   
 
 Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 30 percent on their first day of trading on the Hong Kong Stock Exchange on Monday after the firm raised HK$444 million in an initial public offering (IPO).
@@ -1008,7 +1008,7 @@ Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 
 
 # Local stocks up slightly in morning trading
 
-![Hong Kong stocks post small gains after closing down more than three percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793946_1_20250303100414.jpg&q=50)
+![Hong Kong stocks post small gains after closing down more than three percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793946_1_20250303100414.jpg&q=75)
   
 
 Hong Kong stocks rose 0.84 percent, or 193 points, to 23,135 on Monday.
@@ -1056,7 +1056,7 @@ Asian share markets dithered on Monday as the threat of imminent tariffs lurked 
 
 # Trump orders trade investigation into lumber
 
-![The probe also covers derivative products made from lumber which could include furniture such as kitchen cabinets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793855_1_20250302091515.jpg&q=30)
+![The probe also covers derivative products made from lumber which could include furniture such as kitchen cabinets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793855_1_20250302091515.jpg&q=60)
   
 
 US President Donald Trump on Saturday ordered a new trade investigation that could heap more tariffs on imported lumber, adding to existing duties on Canadian softwood lumber and 25 percent tariffs on all Canadian and Mexican goods due next week.
@@ -1080,7 +1080,7 @@ US President Donald Trump on Saturday ordered a new trade investigation that cou
 
 # CK Infrastructure 'considers bid for UK's Viridor'
 
-![Viridor is a British waste management firm. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793853_1_20250302084204.jpg&q=75)
+![Viridor is a British waste management firm. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793853_1_20250302084204.jpg&q=85)
   
 
 CK Infrastructure Holdings is considering a bid for KKR-backed British waste management firm Viridor, Bloomberg News reported on Saturday.
@@ -1104,7 +1104,7 @@ CK Infrastructure Holdings is considering a bid for KKR-backed British waste man
 
 # China's factory activity grows in February
 
-![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=30)
+![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=65)
   
 
 China's manufacturing activity grew in February after a dip the previous month, official figures showed on Saturday, as the United States targets the country's exports with increased tariffs.
@@ -1128,7 +1128,7 @@ China's manufacturing activity grew in February after a dip the previous month, 
 
 # Hong Kong stocks close lower
 
-![The Hang Seng Index finished down 3.3 percent at 22,941. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793684_1_20250228172129.jpg&q=60)
+![The Hang Seng Index finished down 3.3 percent at 22,941. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793684_1_20250228172129.jpg&q=80)
   
 
 Hong Kong's stocks ended lower on Friday, with the benchmark Hang Seng Index down 3.3 percent at 22,941.
@@ -1152,7 +1152,7 @@ Hong Kong's stocks ended lower on Friday, with the benchmark Hang Seng Index dow
 
 # China vows response to latest US tariffs
 
-![China vowed to take "all necessary countermeasures" after US President Donald Trump said he would impose an additional 10 percent tariff on Chinese imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793657_1_20250228151408.jpg&q=75)
+![China vowed to take "all necessary countermeasures" after US President Donald Trump said he would impose an additional 10 percent tariff on Chinese imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793657_1_20250228151408.jpg&q=85)
   
 
 The Commerce Ministry on Friday said it opposed US President Donald Trump's latest threat to impose an additional 10 percent tariff on Chinese imports and vowed to take "all necessary countermeasures" if Chinese entities got caught up in the levies.
@@ -1176,7 +1176,7 @@ The Commerce Ministry on Friday said it opposed US President Donald Trump's late
 
 # Home prices drop to almost 8.5-year low
 
-![Home prices retreated for the second month in a row in January. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793618_1_20250228110317.jpg&q=20)
+![Home prices retreated for the second month in a row in January. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793618_1_20250228110317.jpg&q=50)
   
 
 Hong Kong home prices retreated to their lowest level in nearly eight and a half years in January.
@@ -1200,7 +1200,7 @@ Hong Kong home prices retreated to their lowest level in nearly eight and a half
 
 # HSI dips at open on final trading day of February
 
-![The Hang Seng Index opened down 102 points, or 0.4 percent, at 23,616. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793607_1_20250228095650.jpg&q=50)
+![The Hang Seng Index opened down 102 points, or 0.4 percent, at 23,616. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793607_1_20250228095650.jpg&q=75)
   
 
 Hong Kong stocks opened lower on Friday, the final trading of February, after earnings from artificial intelligence chipmaking leader Nvidia failed to wow the market and US President Donald Trump launched fresh broadsides on trade.
@@ -1248,7 +1248,7 @@ Wall Street stocks tumbled on Thursday, extending a rough period as disappointme
 
 # 'SAR debt still at very manageable level'
 
-![Christopher Hui says the ratio of government debt to GDP is less than 17 percent. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=90)
+![Christopher Hui says the ratio of government debt to GDP is less than 17 percent. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
   
 
 The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt is still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
@@ -1272,7 +1272,7 @@ The Secretary for Financial Services and the Treasury Christopher Hui said the S
 
 # Hong Kong stocks close lower
 
-![The Hang Seng Index finished down 0.3 percent at 23,718. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793499_1_20250227170354.jpg&q=45)
+![The Hang Seng Index finished down 0.3 percent at 23,718. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793499_1_20250227170354.jpg&q=75)
   
 
 Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.3 percent at 23,718.
@@ -1320,7 +1320,7 @@ Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchang
 
 # Local stocks drop at open
 
-![The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793437_1_20250227095324.jpg&q=50)
+![The Hang Seng Index fell 4.2 points, or 0.02 percent, to open at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793437_1_20250227095324.jpg&q=75)
   
 
 Hong Kong stocks on Thursday opened lower, after Wall Street stocks were mixed at the end of a choppy session on Wednesday as US President Donald Trump signalled plans for tariffs on the European Union.
@@ -1368,7 +1368,7 @@ Gains in Nvidia ahead of earnings helped lift the Nasdaq on Wednesday while the 
 
 # Commercial land sale pause draws mixed views
 
-![The vacancy rate for Hong Kong's prime office space reached a historic high of 17 percent in January, according to property consultancy Colliers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793353_2_20250226195707.jpg&q=85)
+![The vacancy rate for Hong Kong's prime office space reached a historic high of 17 percent in January, according to property consultancy Colliers. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793353_2_20250226195707.jpg&q=90)
   
 
 The government’s move to pause the sale of commercial land in the upcoming fiscal year has drawn mixed views from analysts – some say it will ease a supply glut of office space while others felt it will have limited impact to the market.
@@ -1392,7 +1392,7 @@ The government’s move to pause the sale of commercial land in the upcoming fis
 
 # Hong Kong stocks close higher
 
-![The Hang Seng Index finished 3.3 percent higher at 23,787. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793331_1_20250226173813.jpg&q=25)
+![The Hang Seng Index finished 3.3 percent higher at 23,787. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793331_1_20250226173813.jpg&q=60)
   
 
 Hong Kong stocks rallied on Wednesday, with the benchmark Hang Seng Index soaring 3.3 percent to close at 23,787.

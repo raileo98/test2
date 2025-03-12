@@ -24,7 +24,7 @@ The US Department of Education said on Tuesday it would lay off nearly half its 
 
 # Maradona's medical team on trial over his death
 
-![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=85)
+![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=90)
   
 
 Seven Argentines went on trial on Tuesday accused of homicide for their alleged role in what prosecutors called the "horror theatre" of football legend Diego Maradona's death four years ago.
@@ -72,7 +72,7 @@ Washington's looming tariffs on steel and aluminium are "entirely unjustified", 
 
 # UK makes manslaughter arrest of ship captain
 
-![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=80)
+![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=90)
   
 
 British police on Tuesday arrested on suspicion of manslaughter the captain of a ship that crashed into a tanker in the North Sea, sparking a massive blaze and leaving one crew member missing, presumed dead.
@@ -96,7 +96,7 @@ British police on Tuesday arrested on suspicion of manslaughter the captain of a
 
 # Greenland votes in election eyed by Trump
 
-![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=80)
+![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=90)
   
 
 Greenland voted on Tuesday in legislative elections that could yield a timeline for independence for the Danish self-governing territory coveted by US President Donald Trump.
@@ -144,7 +144,7 @@ Ukraine endorsed an American proposal for a 30-day ceasefire and agreed to immed
 
 # Ex-Philippine president Duterte bound for The Hague
 
-![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=85)
+![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=90)
   
 
 A plane carrying former Filipino president Rodrigo Duterte left the Philippine capital bound for The Hague on Tuesday following his arrest on an International Criminal Court (ICC) warrant stemming from his deadly crackdown on drugs, Manila said.
@@ -168,7 +168,7 @@ A plane carrying former Filipino president Rodrigo Duterte left the Philippine c
 
 # Separatists attack train in Pakistan carrying hundreds
 
-![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=55)
+![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=80)
   
 
 Pakistani insurgents attacked a passenger train in a tunnel and claimed to have taken over 100 hostages on Tuesday, as authorities struggled to reach the remote area. The fate of the estimated 500 people aboard was not immediately clear.
@@ -216,7 +216,7 @@ US President Donald Trump on Tuesday said that he would double incoming steel an
 
 # Ukraine, US discuss partial truce as drones hit Russia
 
-![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=85)
+![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=90)
   
 
 Ukraine said talks with the United States in Saudi Arabia began "very constructively" on Tuesday, with a partial ceasefire with Russia on the table hours after Kyiv conducted its largest drone attack on Moscow in three years of war.
@@ -240,7 +240,7 @@ Ukraine said talks with the United States in Saudi Arabia began "very constructi
 
 # South Africa bus crash toll climbs to 16
 
-![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=45)
+![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=75)
   
 
 A bus overturned in an area of Johannesburg near South Africa's main airport early on Tuesday, killing at least 16 people, city officials said, with dozens more injured.
@@ -288,7 +288,7 @@ China said on Tuesday it hoped a "just and lasting solution" can be found to the
 
 # Arab nations condemn Israel's Gaza electricity cut
 
-![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=60)
+![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=80)
   
 
 Saudi Arabia, Qatar and Jordan on Tuesday condemned Israel's decision to cut electricity supply to the war-battered Gaza Strip, calling in separate statements for the international community to take action.
@@ -360,7 +360,7 @@ Canada's incoming prime minister Mark Carney has promised a "smooth" and "quick"
 
 # Arrest of pro-Palestinian student sparks outrage
 
-![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=85)
+![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=90)
   
 
 Protesters in New York and rights groups expressed outrage on Monday over the arrest of a leader of pro-Palestinian demonstrations at Columbia University, as President Donald Trump vowed further crackdowns.
@@ -408,7 +408,7 @@ The UK coastguard ended the search for a missing crew member after a cargo ship 
 
 # 25 dead in two Mexican bus crashes
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=20)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=40)
   
 
 At least 25 people were killed in two separate bus crashes in Mexico on Monday, authorities said.
@@ -480,7 +480,7 @@ The United States does not appear to want to make a deal with Brussels to avoid 
 
 # Israeli team due in Qatar for Gaza truce talks
 
-![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=75)
+![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=85)
   
 
 Israel is due to send a delegation to Qatar on Monday for a fresh round of talks on extending a fragile ceasefire in Gaza, after cutting off the electricity supply to the besieged enclave.
@@ -504,7 +504,7 @@ Israel is due to send a delegation to Qatar on Monday for a fresh round of talks
 
 # Russia expels two British 'diplomats' on spy charges
 
-![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=60)
+![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=80)
   
 
 Russia said on Monday it was expelling two British "diplomats" on suspicion of carrying out espionage activities.
@@ -552,7 +552,7 @@ North Korea fired "multiple unidentified ballistic missiles" on Monday, South Ko
 
 # China to provide global trade stability: analyst
 
-![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
+![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=45)
   
 
 An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Two Sessions" last week that China ensured global stability.
@@ -648,7 +648,7 @@ Former central banker Mark Carney won the race to become leader of Canada's ruli
 
 # Argentine city hit by a year's worth of rain in hours
 
-![Rescuers wade through flooded streets in Bahia Blance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794956_1_20250309124021.jpg&q=70)
+![Rescuers wade through flooded streets in Bahia Blance. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794956_1_20250309124021.jpg&q=80)
   
 
 Argentina's port city of Bahia Blanca has been "destroyed" after being pummelled by a year's worth of rain in a matter of hours, killing 13 and driving hundreds from their homes, authorities said Saturday.
@@ -672,7 +672,7 @@ Argentina's port city of Bahia Blanca has been "destroyed" after being pummelled
 
 # Man with Palestinian flag scales Big Ben
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794937_1_20250309005211.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794937_1_20250309005211.jpg&q=90)
   
 
 A man who climbed Big Ben's Elizabeth Tower at London's Palace of Westminster waving a Palestinian flag early on Saturday has come down after 16 hours, according to Sky News.
@@ -696,7 +696,7 @@ A man who climbed Big Ben's Elizabeth Tower at London's Palace of Westminster wa
 
 # Pope doing physiotherapy in hospital after quiet night
 
-![Italian Cardinal Pietro Parolin reads aloud a message on the pope's behalf during a mass in St Peter's Basilica on Saturday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794926_1_20250308200342.jpg&q=70)
+![Italian Cardinal Pietro Parolin reads aloud a message on the pope's behalf during a mass in St Peter's Basilica on Saturday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794926_1_20250308200342.jpg&q=80)
   
 
 Pope Francis was doing physiotherapy on Saturday after passing a quiet night, the Vatican said, as the 88-year-old head of the global Catholic Church battles pneumonia.
@@ -720,7 +720,7 @@ Pope Francis was doing physiotherapy on Saturday after passing a quiet night, th
 
 # OIC adopts Gaza counter-proposal by Arab League
 
-![The OIC's decision came at an emergency meeting in Jeddah, Saudi Arabia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794923_1_20250308192050.jpg&q=75)
+![The OIC's decision came at an emergency meeting in Jeddah, Saudi Arabia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794923_1_20250308192050.jpg&q=85)
   
 
 The Organisation of Islamic Cooperation (OIC) formally adopted early on Saturday an Arab League counter-proposal to US President Donald Trump's plan to take over Gaza and displace its residents, calling on the international community to support the regional initiative.
@@ -744,7 +744,7 @@ The Organisation of Islamic Cooperation (OIC) formally adopted early on Saturday
 
 # S Korea's impeached President Yoon released
 
-![Impeached South Korean President Yoon Suk Yeol bows to his supporters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794922_1_20250308181642.jpg&q=75)
+![Impeached South Korean President Yoon Suk Yeol bows to his supporters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794922_1_20250308181642.jpg&q=85)
   
 
 Impeached South Korean President Yoon Suk Yeol was released from detention on Saturday after a court voided his arrest on procedural grounds – but he remains under investigation over his declaration of martial law.
@@ -768,7 +768,7 @@ Impeached South Korean President Yoon Suk Yeol was released from detention on Sa
 
 # Ex-Cyclone Alfred sparks flood warnings in Australia
 
-![Alfred has battered the coastline with gale-force winds that toppled trees. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794891_1_20250308152018.jpg&q=55)
+![Alfred has battered the coastline with gale-force winds that toppled trees. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794891_1_20250308152018.jpg&q=80)
   
 
 Ex-Cyclone Alfred stalled off the rain- and wind-lashed coast of eastern Australia on Saturday, threatening to unleash floods after blacking out more than a quarter of a million homes and businesses.
@@ -816,7 +816,7 @@ Oscar-winning actor Gene Hackman and his wife died of natural causes about a wee
 
 # Ten dead, hundreds evacuated in Argentina floods
 
-![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=80)
+![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=90)
   
 
 Ten people died and hundreds were evacuated in the Argentine port city of Bahia Blanca on Friday as torrential rains flooded homes and hospitals, destroyed roads and forced authorities to cut the power.
@@ -864,7 +864,7 @@ President Donald Trump on Friday threatened new sanctions and tariffs on Russia 
 
 # Hamas delegation in Cairo for more Gaza truce talks
 
-![Palestinian children eat the evening Iftar meal with which Muslims end their daily fast at sunset during Ramadan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794803_1_20250307211901.jpg&q=85)
+![Palestinian children eat the evening Iftar meal with which Muslims end their daily fast at sunset during Ramadan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794803_1_20250307211901.jpg&q=90)
   
 
 A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolong a fragile ceasefire in Gaza, which has largely paused hostilities with Israel, two senior Hamas officials said.
@@ -888,7 +888,7 @@ A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolo
 
 # Eurostar passengers stranded by WWII bomb in Paris
 
-![The Gare du Nord station lies in northern Paris and is the country's busiest train hub. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794795_1_20250307191100.jpg&q=75)
+![The Gare du Nord station lies in northern Paris and is the country's busiest train hub. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794795_1_20250307191100.jpg&q=85)
   
 
 Thousands of passengers in Paris and London were stranded on Friday, after the discovery of a World War II bomb on tracks leading to the Gare du Nord station halted traffic at France's busiest railway terminus.
@@ -1032,7 +1032,7 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
 
 # Second measles-related death in US in a decade
 
-![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=35)
+![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=70)
   
 
 A New Mexico resident who has died, tested positive for measles, the state health department said on Thursday, marking the second measles-related death in the United States in more than a decade.
@@ -1056,7 +1056,7 @@ A New Mexico resident who has died, tested positive for measles, the state healt
 
 # French shipping giant pledges to boost US shipbuilding
 
-![President Trump listens as Rodolphe Saade, CEO of CMA CGM Group, speaks in the Oval Office. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794675_1_20250307092145.jpg&q=75)
+![President Trump listens as Rodolphe Saade, CEO of CMA CGM Group, speaks in the Oval Office. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794675_1_20250307092145.jpg&q=85)
   
 
 US President Donald Trump on Thursday said French-based shipping firm CMA CGM would invest US$20 billion in the United States to build out shipping logistics and terminals.
@@ -1080,7 +1080,7 @@ US President Donald Trump on Thursday said French-based shipping firm CMA CGM wo
 
 # Cyclone Alfred edges closer to Australia's east coast
 
-![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=30)
+![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=60)
   
 
 Violent winds toppled power lines on Friday as a tropical cyclone inched towards Australia's eastern coast, sparking evacuation orders and leaving more than 50,000 homes without electricity.
@@ -1128,7 +1128,7 @@ Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship m
 
 # Trump backs off Mexico, Canada tariffs
 
-![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=85)
+![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=90)
   
 
 US President Donald Trump on Thursday unveiled a temporary rollback to steep tariffs targeting Canada and Mexico, providing some reprieve to companies and consumers after blowback on financial markets.
@@ -1152,7 +1152,7 @@ US President Donald Trump on Thursday unveiled a temporary rollback to steep tar
 
 # World's sea ice cover hits record low in February
 
-![In the Antarctic the frozen cover was 26 percent below average across February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794625_1_20250306221837.jpg&q=80)
+![In the Antarctic the frozen cover was 26 percent below average across February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794625_1_20250306221837.jpg&q=85)
   
 
 Global sea ice cover fell to a historic low in February when the world continued to experience exceptional heat, and temperatures reached 11 degrees Celsius above average near the North Pole, Europe's climate monitor said on Thursday.
@@ -1176,7 +1176,7 @@ Global sea ice cover fell to a historic low in February when the world continued
 
 # EU leaders, Zelensky, gather for crisis Ukraine talks
 
-![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=85)
+![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=90)
   
 
 EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in Brussels in search of unity on bolstering Ukraine and Europe's defences, after US President Donald Trump upended traditional US alliances and retracted wartime backing for Kyiv.
@@ -1248,7 +1248,7 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
 
 # Rare cyclone approaches Australian coast
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794517_1_20250306120635.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794517_1_20250306120635.jpg&q=85)
   
 
 Early wind and rain from a rare tropical cyclone began lashing part of eastern Australia on Thursday as schools were closed, public transport was stopped and desperate residents got around shortages of sandbags by buying potting mix.
@@ -1272,7 +1272,7 @@ Early wind and rain from a rare tropical cyclone began lashing part of eastern A
 
 # SKorea military jet misdrops bombs, injuring civilians
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=50)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=75)
   
 
 South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
@@ -1320,7 +1320,7 @@ Britain strongly condemned on Wednesday the sentencing of UK national James Ande
 
 # US breaks with policy to negotiate with Hamas
 
-![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=85)
+![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=90)
   
 
 US President Donald Trump on Wednesday issued what he called a “last warning” to Hamas to release all remaining hostages held in Gaza, directing a sharply-worded message after the White House confirmed he had recently dispatched an envoy for unprecedented direct talks with the militant group.
@@ -1368,7 +1368,7 @@ US stocks climbed on Wednesday after US President Donald Trump pulled back on so
 
 # Israel appoints new military chief, says war not over
 
-![Eyal Zamir is replacing Herzi Halevi, who announced his resignation as armed forces chief in January over the military's shortcomings on October 7, 2023. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794466_1_20250306033340.jpg&q=55)
+![Eyal Zamir is replacing Herzi Halevi, who announced his resignation as armed forces chief in January over the military's shortcomings on October 7, 2023. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794466_1_20250306033340.jpg&q=80)
   
 
 Israel's new military chief Eyal Zamir said his country's mission to defeat Hamas remained unfinished as he took office on Wednesday, with uncertainty hanging over the fragile Gaza ceasefire.
@@ -1392,7 +1392,7 @@ Israel's new military chief Eyal Zamir said his country's mission to defeat Hama
 
 # Greenlanders shrug off Trump's takeover bid
 
-![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=80)
+![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=90)
   
 
 Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take over the Arctic island, seeing it merely as an opportunity to advance their own independence bid.

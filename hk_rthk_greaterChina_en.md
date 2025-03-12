@@ -1,6 +1,6 @@
 # 'Growth target signals China's intent to beat tariffs'
 
-![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=30)
+![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=70)
   
 
 An economist at a leading investment bank on Wednesday said the main takeaways from the recently concluded Two Sessions was that China was prepared to handle the new round of US tariffs imposed by President Donald Trump.
@@ -24,7 +24,7 @@ An economist at a leading investment bank on Wednesday said the main takeaways f
 
 # 'China changing course of economic development'
 
-![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
+![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=75)
   
 
 A senior member of a leading national think tank on Tuesday said the annual "Two Sessions" which just wrapped up in Beijing showed China's emphasis on the economy and innovation amid Sino-US tensions.
@@ -48,7 +48,7 @@ A senior member of a leading national think tank on Tuesday said the annual "Two
 
 # NPC concludes annual session with call for unity
 
-![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=35)
+![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=75)
   
 
 The third annual session of the 14th National People’s Congress (NPC) concluded in Beijing on Tuesday.
@@ -96,7 +96,7 @@ China said on Tuesday it hoped a "just and lasting solution" can be found to the
 
 # 'President Xi gave reassurance to private enterprises'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=90)
   
 
 An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds said President Xi Jinping's speech at a symposium last month provided much-needed reassurance to the nation's private enterprises.
@@ -120,7 +120,7 @@ An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds
 
 # 'Snooker hiccup not a problem for National Games'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=90)
   
 
 A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
@@ -168,7 +168,7 @@ China hopes that the incoming government in Canada will adopt a positive and pra
 
 # Deficit not a big problem for HK: Wang Linggui
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795110_1_20250310154314.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795110_1_20250310154314.jpg&q=90)
   
 
 A deputy director of the Hong Kong and Macau Affairs Office on Monday said he does not believe the SAR's fiscal deficit is a major concern, citing the size of the city's economy.
@@ -192,7 +192,7 @@ A deputy director of the Hong Kong and Macau Affairs Office on Monday said he do
 
 # Unity key to tackling HK's fiscal deficit: Qiu Hong
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795114_1_20250310160227.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795114_1_20250310160227.jpg&q=90)
   
 
 Hong Kong will improve as long as everyone works together to tackle the fiscal deficit, a former deputy director of Beijing's liaison office in the SAR said on Monday.
@@ -240,7 +240,7 @@ Businessman Irons Sze on Monday said Hong Kong's position as an international fi
 
 # CPPCC session ends with call to focus on 'big picture'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=85)
   
 
 The annual session of the country's top advisory body has concluded in Beijing, with a senior state leader calling on members to focus on the "big picture" and deepen unity.
@@ -264,7 +264,7 @@ The annual session of the country's top advisory body has concluded in Beijing, 
 
 # China to provide global trade stability: analyst
 
-![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=20)
+![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=45)
   
 
 An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Two Sessions" last week that China ensured global stability.
@@ -288,7 +288,7 @@ An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Tw
 
 # HK must take advantage of int'l position: NPC delegate
 
-![Priscilla Leung says local NPC delegates were being encouraged to help Hong Kong build on its international strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795062_1_20250310102114.jpg&q=75)
+![Priscilla Leung says local NPC delegates were being encouraged to help Hong Kong build on its international strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795062_1_20250310102114.jpg&q=85)
   
 
 Lawmaker and National People's Congress delegate Priscilla Leung on Monday said the central government wants Hong Kong to take advantage of its international position.
@@ -360,7 +360,7 @@ Beijing officials on Sunday said it is not easy to stabilise and expand the job 
 
 # Link HK closely to national development, says FS
 
-![Paul Chan says Hong Kong needs to integrate the spirit of the Two Sessions into its development. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794969_1_20250309120252.jpg&q=85)
+![Paul Chan says Hong Kong needs to integrate the spirit of the Two Sessions into its development. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794969_1_20250309120252.jpg&q=90)
   
 
 Financial Secretary Paul Chan said on Sunday that Hong Kong must closely link its development with that of the country's, as the SAR actively integrates into the nation's growth.
@@ -432,7 +432,7 @@ Hong Kong and Macau delegates to the country's top political advisory body said 
 
 # Mainland sees year-on-year drop in inflation
 
-![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=50)
+![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=75)
   
 
 China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.
@@ -480,8 +480,8 @@ The director of the central government's liaison office, Zheng Yanxiong, on Satu
 
 # 'Private enterprises need innovation to thrive'
 
-![Dong Mingzhu says private enterprises need continuous innovation and technological investment to thrive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_1_20250308164432.jpg&q=85)
-![Xiang Wenbo says it's a good timing to list in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_2_20250308164432.jpg&q=85)
+![Dong Mingzhu says private enterprises need continuous innovation and technological investment to thrive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_1_20250308164432.jpg&q=90)
+![Xiang Wenbo says it's a good timing to list in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794911_2_20250308164432.jpg&q=90)
   
 
 The chairwoman of Gree Electrics on Saturday said private enterprises need continuous innovation and technological investment to thrive.
@@ -505,7 +505,7 @@ The chairwoman of Gree Electrics on Saturday said private enterprises need conti
 
 # HK officials pledge to implement Two Sessions spirit
 
-![Hong Kong officials pledge to implement the spirit of "Two Sessions". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794903_1_20250308160513.jpg&q=70)
+![Hong Kong officials pledge to implement the spirit of "Two Sessions". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794903_1_20250308160513.jpg&q=85)
   
 
 Hong Kong officials on Saturday said they will learn from the spirit of "Two Sessions" and stressed the importance of unity in advancing the SAR's development.
@@ -529,7 +529,7 @@ Hong Kong officials on Saturday said they will learn from the spirit of "Two Ses
 
 # ‘HK, mainland should join hands to tackle scams’
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=80)
   
 
 Mainland authorities on Saturday said Hong Kong and the mainland should work together to tackle cross-border scams, after six more SAR residents were released from scam farms in Myanmar.
@@ -625,7 +625,7 @@ The nation’s top legislators on Saturday pledged to formulate and amend a slew
 
 # Beijing to impose additional tariffs on Canada
 
-![The Commerce Ministry said the additional tariffs are to take effect March 20. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794864_1_20250308110510.jpg&q=65)
+![The Commerce Ministry said the additional tariffs are to take effect March 20. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794864_1_20250308110510.jpg&q=80)
   
 
 The Commerce Ministry on Saturday announced that it will impose additional tariffs on some products imported from Canada based on the ruling of an anti-discrimination probe.
@@ -697,7 +697,7 @@ Chinese People's Political Consultative Conference (CPPCC) Standing Committee me
 
 # 'Act more firmly to safeguard national security'
 
-![Local NPC delegates say safeguarding national security is one of the issues they discuss with Vice Premier Ding Xuexiang. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_2_20250307153730.jpg&q=35)
+![Local NPC delegates say safeguarding national security is one of the issues they discuss with Vice Premier Ding Xuexiang. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_2_20250307153730.jpg&q=70)
   
 
 Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguarding national security while recognising the city's effort in implementing Article 23 legislation, according to attendees at a meeting with the top official in Beijing on Friday.
@@ -721,7 +721,7 @@ Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguardin
 
 # Good to improve NSL, Beijing official says
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=90)
   
 
 A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
@@ -841,7 +841,7 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
 
 # 'Govt should seek new revenue streams amid deficit'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=90)
   
 
 Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
@@ -889,7 +889,7 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
 
 # Visit GBA for National Games: Guangdong governor
 
-![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=80)
+![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=90)
   
 
 A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
@@ -985,7 +985,7 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
 
 # Tibet official says classes resume after deadly quake
 
-![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=45)
+![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=75)
   
 
 The chairman of the people's government of the Tibet Autonomous Region on Thursday said classes have resumed in Dingri County following the massive earthquake earlier this year.
@@ -1009,7 +1009,7 @@ The chairman of the people's government of the Tibet Autonomous Region on Thursd
 
 # 'Premier offers guidance on One Country, Two Systems'
 
-![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=65)
+![Chief Executive John Lee attended Premier Li Qiang's address at the Great Hall of the People on Wednesday. Photo courtesy of the chief executive's social media](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794493_1_20250306091848.jpg&q=80)
   
 
 Premier Li Qiang’s work report has offered “important guidance” on implementing the One Country, Two Systems policy, Chief Executive John Lee said on Thursday, as he pledged to further align Hong Kong with national development strategies.
@@ -1033,7 +1033,7 @@ Premier Li Qiang’s work report has offered “important guidance” on impleme
 
 # 'AI startups boosting nation's development'
 
-![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=85)
+![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=90)
   
 
 An analyst on Thursday said the advent of artificial intelligence startups such as DeepSeek has been a boon to the nation’s technological development.
@@ -1082,7 +1082,7 @@ Hong Kong and Macau have the full backing of the central government in integrati
 
 # 'Mild inflation target still a concern'
 
-![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=80)
+![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=90)
   
 
 Economists have struck a cautious note on China's plan to lower the nation's inflation target from three to two percent in the coming year, citing prolonged deflationary pressure.
@@ -1154,7 +1154,7 @@ Hong Kong and Macau will always have the central government's backing in terms o
 
 # Market regulator vows e-commerce malpractice crackdown
 
-![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=85)
+![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=90)
   
 
 The head of China's market regulator has pledged to tighten oversight of the rapidly growing e-commerce sector, and promote the healthy development of the so-called platform economy.
@@ -1178,7 +1178,7 @@ The head of China's market regulator has pledged to tighten oversight of the rap
 
 # '5pc target is no easy feat but can be achieved'
 
-![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=85)
+![Jonathan Choi said the central government's supportive measures do not simply cover the state-owned enterprises, but also private firms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794347_2_20250305123650.jpg&q=90)
   
 
 Hong Kong's deputies to the National People's Congress (NPC) and the Chinese People's Political Consultative Conference (CPPCC) have given their backing to the country's economic growth target of around five percent target this year, saying it was no easy feat but achievable.
@@ -1202,7 +1202,7 @@ Hong Kong's deputies to the National People's Congress (NPC) and the Chinese Peo
 
 # CE encouraged by Premier's work report
 
-![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=80)
+![John Lee (centre) says he's encouraged by Premier Li's work report. Photo: John Lee's Facebook.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794345_1_20250305123046.jpg&q=90)
   
 
 Chief Executive John Lee on Wednesday said he was encouraged by remarks about Hong Kong in Premier Li Qiang's work report.
@@ -1250,7 +1250,7 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 
 # 'China's economic goals reasonable and attainable'
 
-![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=45)
+![A government work report says GDP growth is tipped to reach five percent in 2025. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794337_1_20250305115951.jpg&q=75)
   
 
 Experts on Wednesday said China's economic goals announced at the opening session of this year's National People's Congress are reasonable and attainable.
@@ -1274,7 +1274,7 @@ Experts on Wednesday said China's economic goals announced at the opening sessio
 
 # Domestic demand 'main engine and anchor' of growth
 
-![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=75)
+![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=85)
   
 
 Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in his government work report.
@@ -1418,7 +1418,7 @@ The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday 
 
 # 'China GDP could be affected by US tariffs'
 
-![A finance expert says the Chinese response is very firm and shows determination to the US. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794282_1_20250305085101.jpg&q=30)
+![A finance expert says the Chinese response is very firm and shows determination to the US. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794282_1_20250305085101.jpg&q=60)
   
 
 An economist on Wednesday said that the latest round of US tariffs on Chinese imports could gradually reduce China's gross domestic product by some 0.3 to 0.4 percent over a 12-month period.

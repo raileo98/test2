@@ -47,7 +47,7 @@
 
 # 下年度公務員司法人員退休金開支預算近520億元　料退休人數升
 
-![公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795374_1_20250312104552.jpg&q=85)
+![公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795374_1_20250312104552.jpg&q=90)
   
 
 公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元，較修訂預算增加17億2千多萬元 ，主要由於預計會退休的人數上升。
@@ -71,7 +71,7 @@
 
 # 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
 
-![陳茂波指本港擁有一國兩制制度優勢，享有優先進入內地市場的先機，同時奉行普通法以及最佳的國際商業標準。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795373_1_20250312104203.jpg&q=90)
+![陳茂波指本港擁有一國兩制制度優勢，享有優先進入內地市場的先機，同時奉行普通法以及最佳的國際商業標準。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795373_1_20250312104203.jpg&q=80)
   
 
 財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
@@ -119,7 +119,7 @@
 
 # 人行逆回購1754億元人民幣　淨回籠規模增至逾千億元
 
-![人行公開市場開展1754億元人民幣7天期逆回購，單日淨回籠規模增至1778億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795368_1_20250312092738.jpg&q=45)
+![人行公開市場開展1754億元人民幣7天期逆回購，單日淨回籠規模增至1778億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795368_1_20250312092738.jpg&q=75)
   
 
 人民銀行公開市場開展1754億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠1778億元，連續8日淨回籠，規模遠多於前兩日。
@@ -143,7 +143,7 @@
 
 # 滬深股市偏軟
 
-![內地股市初段偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795369_1_20250312093830.jpg&q=85)
+![內地股市初段偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795369_1_20250312093830.jpg&q=90)
   
 
 滬深股市偏軟。
@@ -167,7 +167,7 @@
 
 # 人民幣兌美元中間價升穿7.17　創近1星期新高
 
-![人民幣中間價報7.1696兌1美元，較昨日中間價升45點子，創近1星期高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795365_1_20250312091823.jpg&q=55)
+![人民幣中間價報7.1696兌1美元，較昨日中間價升45點子，創近1星期高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795365_1_20250312091823.jpg&q=80)
   
 
 人民幣中間價突破7.17兌1美元關口，報7.1696，較昨日中間價升45點子，創近1星期高位。
@@ -191,7 +191,7 @@
 
 # 港股競價時段升77點　科指重上6000點
 
-![恒生指數競價時段報23859點，升77點，升幅0.32%；科技指數重上6000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795367_1_20250312092253.jpg&q=45)
+![恒生指數競價時段報23859點，升77點，升幅0.32%；科技指數重上6000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795367_1_20250312092253.jpg&q=75)
   
 
 港股開市靠穩，恒生指數競價時段報23859點，升77點，升幅0.32%。
@@ -239,7 +239,7 @@
 
 # 甯漢豪：今年落實措施降低建造成本　由政府中央採購部分建築材料
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795359_1_20250312092418.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795359_1_20250312092418.jpg&q=90)
   
 
 發展局局長甯漢豪表示，今年會落實具體措施對症下藥，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
@@ -287,7 +287,7 @@
 
 # 日股初段跌逾0.1%
 
-![日經指數較早時報36740點，跌52點，跌幅0.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795354_1_20250312080548.jpg&q=80)
+![日經指數較早時報36740點，跌52點，跌幅0.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795354_1_20250312080548.jpg&q=85)
   
 
 日股初段偏軟，日經指數較早時報36740點，跌52點，跌幅0.14%。
@@ -335,7 +335,7 @@
 
 # 現貨金曾升逾1%　重上2900美元
 
-![現貨金重上2900美元關口，最高升至每盎司2921.93美元，升1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795345_1_20250312055525.jpg&q=85)
+![現貨金重上2900美元關口，最高升至每盎司2921.93美元，升1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795345_1_20250312055525.jpg&q=90)
   
 
 金價回升，收復2900美元關口。美元疲弱，加上關稅戰引發經濟放緩擔憂，資金流向黃金避險。投資者亦正注視美國通脹數據，以判斷利率走勢。
@@ -359,7 +359,7 @@
 
 # 港股美國預託證券個別發展
 
-![港股美國預託證券（ADR）個別發展，美團及京東ADR跌逾1%，阿里巴巴、滙控ADR則升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795346_1_20250312060103.jpg&q=85)
+![港股美國預託證券（ADR）個別發展，美團及京東ADR跌逾1%，阿里巴巴、滙控ADR則升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795346_1_20250312060103.jpg&q=90)
   
 
 港股美國預託證券(ADR)個別發展。
@@ -383,7 +383,7 @@
 
 # 油價觸及約1星期新低後回升　布蘭特期油高收0.4%
 
-![英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795344_1_20250312055150.jpg&q=80)
+![英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795344_1_20250312055150.jpg&q=90)
   
 
 英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。美元偏軟支撐油價表現，但市場對美國經濟放緩、關稅拖累全球經濟表現等擔憂加劇，限制油價全日升幅。
@@ -455,7 +455,7 @@
 
 # 安省暫緩對輸美電力徵收附加費　白宮不向加國鋼鋁加倍徵關稅
 
-![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=75)
+![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=85)
   
 
 加拿大安大略省政府同意暫停對輸往美國三個州的電力，徵收25%的附加費。美國總統特朗普表示，很可能重新考慮對加拿大鋼鋁加倍徵收關稅的決定。
@@ -527,7 +527,7 @@
 
 # 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
 
-![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=85)
+![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=90)
   
 
 美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
@@ -551,7 +551,7 @@
 
 # 金管局：去年下半年認可機構分配予收數公司帳戶增加
 
-![金管局通告指，去年下半年，有33間認可機構使用收數公司的服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795314_1_20250311215309.jpg&q=80)
+![金管局通告指，去年下半年，有33間認可機構使用收數公司的服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795314_1_20250311215309.jpg&q=85)
   
 
 金管局向銀行發通告指，去年下半年，有33間認可機構使用收數公司的服務，向21間收數公司分配近54.9萬個帳戶，帳戶數目較去年上半年增加近26%。
@@ -647,7 +647,7 @@
 
 # 星島料去年度虧損擴大至約8500萬元
 
-![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=75)
+![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=85)
   
 
 星島新聞集團預計，去年度將錄得虧損約8500萬元，較前年度約4900萬元虧損擴大73%。
@@ -671,7 +671,7 @@
 
 # 中證監：全力鞏固市場回穩向好勢頭　支持優質未有盈利科企上市
 
-![中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，支持優質未有盈利科技企業發行上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795308_1_20250311205821.jpg&q=85)
+![中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，支持優質未有盈利科技企業發行上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795308_1_20250311205821.jpg&q=75)
   
 
 中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，更大力度推動中長期資金入市指導意見及實施方案落實落地；增強制度包容性、適應性，支持優質未有盈利科技企業發行上市。
@@ -695,7 +695,7 @@
 
 # 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
 
-![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=90)
+![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=80)
   
 
 為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
@@ -719,7 +719,7 @@
 
 # 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
 
-![徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795298_1_20250311193628.jpg&q=90)
+![徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795298_1_20250311193628.jpg&q=80)
   
 
 陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
@@ -743,7 +743,7 @@
 
 # 比亞迪股份：成功配發約1.3億股新H股　所得淨額約434億元
 
-![比亞迪股份公布，成功按每股335.2元配發約1.3億股新H股，所得款項淨額約為433.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795295_1_20250311185055.jpg&q=85)
+![比亞迪股份公布，成功按每股335.2元配發約1.3億股新H股，所得款項淨額約為433.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795295_1_20250311185055.jpg&q=90)
   
 
 比亞迪股份公布，公司成功按配售價每股335.2元向不少於6名承配人配發，及發行合共約1.3億股新H股，約佔經擴大已發行H股總數的10.57%。
@@ -767,7 +767,7 @@
 
 # 調查：美國上月小企業信心連跌3個月
 
-![全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795296_1_20250311191237.jpg&q=85)
+![全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795296_1_20250311191237.jpg&q=90)
   
 
 全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月，反映消費者和企業信心下跌，以及股市向下。不確定性指數升至104，是有紀錄以來第2高，反映市場對貿易政策的憂慮加劇。
@@ -791,7 +791,7 @@
 
 # 財政預算案2025 | 陳茂波：現時未必合適作稅務調升
 
-![陳茂波說，考慮稅制必定要考慮競爭力，因為要與鄰近地區爭投資、爭人才，因此要相當謹慎，重申現時未必合適作稅務調升。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795292_1_20250311190645.jpg&q=90)
+![陳茂波說，考慮稅制必定要考慮競爭力，因為要與鄰近地區爭投資、爭人才，因此要相當謹慎，重申現時未必合適作稅務調升。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795292_1_20250311190645.jpg&q=80)
   
 
 財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，而本港擁有多項優勢，包括能吸引外國人才等。
@@ -815,7 +815,7 @@
 
 # 陳茂波籲人工智能等企業來港上市
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795291_1_20250311184725.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795291_1_20250311184725.jpg&q=80)
   
 
 財政司司長陳茂波說，香港在數據同人才方面都有優勢，呼籲人工智能等公司來港上市。
@@ -839,7 +839,7 @@
 
 # 人民幣兌美元升至近4個月高位收市
 
-![人民幣收市報7.2306兌1美元，較上日收市升343點子，創近4個月高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795271_1_20250311170625.jpg&q=70)
+![人民幣收市報7.2306兌1美元，較上日收市升343點子，創近4個月高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795271_1_20250311170625.jpg&q=85)
   
 
 人民幣兌美元收市升至近4個月高位，報7.2306兌1美元，較上日收市升343點子，因美元指數下跌。
@@ -863,7 +863,7 @@
 
 # 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
 
-![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=80)
+![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=85)
   
 
 十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
@@ -887,7 +887,7 @@
 
 # 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
 
-![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=85)
+![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=90)
   
 
 十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
@@ -959,7 +959,7 @@
 
 # 中汽協：內地2月新能源車銷量按年增長逾87%
 
-![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=30)
+![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=60)
   
 
 中國汽車工業協會公布，2月內地汽車銷量212.9萬輛，按年增長34.4%，按月下跌12.2%。今年1-2月汽車總銷量455.2萬輛，按年增長13.1%。
@@ -983,7 +983,7 @@
 
 # 財政預算案2025｜陳茂波稱綠色科技樞紐可容納二百間綠色企業
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=30)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=55)
   
 
 財政司司長陳茂波說，透過結合綠色科技和綠色金融，除了為全球綠色進程作出貢獻，亦為香港經濟發展創造新動力。財政預算案提出科技園成立的「綠色科技樞紐」是相關願景的基石。
@@ -1007,7 +1007,7 @@
 
 # 瑞銀：內地龍頭科技股估值增長有利港股表現
 
-![房東明稱，DeepSeek引發人工智能題材，相關股份估值增長，港股有力跑贏全球股市。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795264_1_20250311163557.jpg&q=85)
+![房東明稱，DeepSeek引發人工智能題材，相關股份估值增長，港股有力跑贏全球股市。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795264_1_20250311163557.jpg&q=90)
   
 
 美股3大指數隔晚急瀉2%至4%，市場擔憂美國經濟陷入衰退。瑞銀全球金融市場部中國主管房東明表示，美股估值和資本流入均出現輪動情況，從長年期債息下跌可見，資金從股票轉到債券，即從風險較高資產轉移到風險相對低的資產。
@@ -1031,7 +1031,7 @@
 
 # 丘應樺籲港商借鑑內地經驗　把握跨境電商無限商機
 
-![丘應樺（左一）參觀該處的電子商貿直播中心，了解利用電子商貿及直播帶貨的過程和營銷策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795266_1_20250311165427.jpg&q=75)
+![丘應樺（左一）參觀該處的電子商貿直播中心，了解利用電子商貿及直播帶貨的過程和營銷策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795266_1_20250311165427.jpg&q=85)
   
 
 商務及經濟發展局局長丘應樺由廣州轉往東莞繼續訪問行程。
@@ -1055,7 +1055,7 @@
 
 # 恒指跌1點收市　科指升逾1%　汽車股表現較好
 
-![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=45)
+![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=75)
   
 
 港股收市收復大部分失地，恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。主板成交額逾3070億元。
@@ -1199,7 +1199,7 @@
 
 # 全國兩會｜全國人大會議舉行閉幕會
 
-![閉幕會應出席代表2929人，實出席2884人，缺席45人，出席人數符合法定人數。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795248_1_20250311154533.jpg&q=35)
+![閉幕會應出席代表2929人，實出席2884人，缺席45人，出席人數符合法定人數。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795248_1_20250311154533.jpg&q=75)
   
 
 十四屆全國人大三次會議下午3時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人在主席台就座。
@@ -1223,7 +1223,7 @@
 
 # 瑞銀：內地對今年經濟增長等目標均符合預期　相對積極和務實
 
-![瑞銀全球金融市場部中國主管房東明認為，內地對今年經濟增長、通脹和赤字率目標均符合預期，亦是相對積極和務實的目標。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795246_1_20250311145742.jpg&q=85)
+![瑞銀全球金融市場部中國主管房東明認為，內地對今年經濟增長、通脹和赤字率目標均符合預期，亦是相對積極和務實的目標。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795246_1_20250311145742.jpg&q=90)
   
 
 內地提出目標今年國內生產總值(GDP)增長5%左右，居民消費價格升幅2%左右，以及赤字率按約4%安排。
@@ -1271,7 +1271,7 @@
 
 # 日股低收逾0.6%
 
-![日經指數收市報36793點，跌235點，跌幅0.64%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795244_1_20250311144325.jpg&q=50)
+![日經指數收市報36793點，跌235點，跌幅0.64%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795244_1_20250311144325.jpg&q=75)
   
 
 東京股市下跌。日經指數收市報36793點，跌235點，跌幅0.64%。
@@ -1295,8 +1295,8 @@
 
 # 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
 
-![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=65)
-![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=75)
+![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=80)
+![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=85)
 ![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
   
 
@@ -1321,7 +1321,7 @@
 
 # 台股收市跌逾1.7%
 
-![台灣加權指數收市報22071點，跌388點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795239_1_20250311141340.jpg&q=85)
+![台灣加權指數收市報22071點，跌388點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795239_1_20250311141340.jpg&q=90)
   
 
 台灣股市下跌。加權指數收市報22071點，跌388點，跌幅1.73%。
@@ -1345,7 +1345,7 @@
 
 # 港股下午初段跌逾200點
 
-![港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795237_1_20250311131342.jpg&q=20)
+![港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795237_1_20250311131342.jpg&q=40)
   
 
 港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。
@@ -1369,7 +1369,7 @@
 
 # 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795235_1_20250311132348.jpg&q=60)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795235_1_20250311132348.jpg&q=80)
   
 
 深水埗區議會討論民政處計劃在興華街、欽州街 、南昌街、大埔道等一帶推行「聯廈聯管」試驗計劃。多名區議員均表示歡迎，認為對區內舊樓的維修保養，以及改善環境衛生等方面都有正面作用。
@@ -1393,7 +1393,7 @@
 
 # 港股半日跌221點　金融股普遍向下
 
-![港股早段曾跌逾540點，隨後跌幅逐步收窄，中午報23562點，跌221點，跌幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795230_1_20250311121209.jpg&q=50)
+![港股早段曾跌逾540點，隨後跌幅逐步收窄，中午報23562點，跌221點，跌幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795230_1_20250311121209.jpg&q=75)
   
 
 港股早段曾跌逾540點，恒生指數低見23238點，隨後跌幅逐步收窄，中午收市報23562點，跌221點，跌幅0.93%，半日主板成交額1770億元。
@@ -1417,7 +1417,7 @@
 
 # 分析：貿易政策變化將成影響美股走勢關鍵
 
-![黃瑋傑估計標普500指數在5000點整數關口有初步支持。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795231_1_20250311122112.jpg&q=75)
+![黃瑋傑估計標普500指數在5000點整數關口有初步支持。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795231_1_20250311122112.jpg&q=85)
   
 
 美股踏入夏令時間首個交易日，3大指數急瀉2%至4%收市，3大股指期貨在亞洲時段窄幅上落。關稅措施不確定、聯邦政府可能停擺，美國經濟或陷入衰退，都觸動投資者神經。

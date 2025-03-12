@@ -24,8 +24,8 @@ Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles
 
 # PSG dump Liverpool out of Champions League
 
-![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=85)
-![Liverpool were only able to convert on one of their penalty kicks. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_2_20250312072008.jpg&q=45)
+![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=90)
+![Liverpool were only able to convert on one of their penalty kicks. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_2_20250312072008.jpg&q=75)
   
 
 Paris Saint-Germain produced a historic turnaround to progress to the Champions League quarter-finals at Liverpool's expense as they triumphed 4-1 on penalties after a 1-0 second leg win at Anfield.
@@ -49,7 +49,7 @@ Paris Saint-Germain produced a historic turnaround to progress to the Champions 
 
 # Barca sink Benfica; reach Champions League last eight
 
-![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=85)
+![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=90)
 ![Raphina scored twice in the first half for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_2_20250312061710.jpg&q=90)
   
 
@@ -74,7 +74,7 @@ Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the
 
 # Man United announce plans for new 100,000-seat stadium
 
-![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=80)
+![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=90)
   
 
 Manchester United on Tuesday announced plans to build a new 100,000-capacity stadium that co-owner Jim Ratcliffe said would be the "world's greatest" football ground.
@@ -98,7 +98,7 @@ Manchester United on Tuesday announced plans to build a new 100,000-capacity sta
 
 # 'Snooker hiccup not a problem for National Games'
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=90)
   
 
 A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
@@ -146,7 +146,7 @@ The New Orleans Pelicans will become the first NBA team to play in Australia whe
 
 # Newcastle sink West Ham to boost top four bid
 
-![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=35)
+![Bruno Guimarães put Newcastle in front early in the second half. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795186_1_20250311070727.jpg&q=75)
   
 
 Newcastle reignited their bid to qualify for the Champions League as Bruno Guimarães sealed a controversial 1-0 win at West Ham.
@@ -170,7 +170,7 @@ Newcastle reignited their bid to qualify for the Champions League as Bruno Guima
 
 # Shai outguns Jokic as Thunder roll past Nuggets
 
-![Shai Gilgeous-Alexander put up 40 points in Oklahoma City's win over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_1_20250310082123.jpg&q=85)
+![Shai Gilgeous-Alexander put up 40 points in Oklahoma City's win over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_1_20250310082123.jpg&q=90)
 ![Three-time NBA MVP Nikola Jokic finished one assist shy of a triple-double in the defeat. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_2_20250310082123.jpg&q=90)
   
 
@@ -195,7 +195,7 @@ Shai Gilgeous-Alexander outdueled MVP rival Nikola Jokic with a 40-point perform
 
 # India beat NZ to win Champions Trophy final
 
-![India players celebrate on the podium after winning the ICC Men's Champions Trophy. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795030_1_20250310061006.jpg&q=75)
+![India players celebrate on the podium after winning the ICC Men's Champions Trophy. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795030_1_20250310061006.jpg&q=85)
   
 
 Rohit Sharma made a combative 76 to back up a potent spin bowling display as India beat New Zealand by four wickets to win a record third Champions Trophy title.
@@ -219,7 +219,7 @@ Rohit Sharma made a combative 76 to back up a potent spin bowling display as Ind
 
 # Arsenal held by Man Utd in latest Premiership setback
 
-![The result leaves Arsenal 15 points behind runaway leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795028_1_20250310054122.jpg&q=75)
+![The result leaves Arsenal 15 points behind runaway leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795028_1_20250310054122.jpg&q=85)
   
 
 Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed win but Arsenal's faltering Premier League title challenge suffered another damaging blow in a 1-1 draw at Old Trafford.
@@ -243,7 +243,7 @@ Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed
 
 # Robertson romps to World Snooker Grand Prix title
 
-![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=75)
+![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=85)
   
 
 Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, delivering a dominant performance by whitewashing Stuart Bingham from England by a score of 10-frames-to-nil.
@@ -267,7 +267,7 @@ Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, d
 
 # Fans enjoy the atmosphere on the final day of LIV Golf
 
-![Many fans told RTHK the all-star player roster was a big draw for them. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795008_1_20250309201219.jpg&q=60)
+![Many fans told RTHK the all-star player roster was a big draw for them. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795008_1_20250309201219.jpg&q=80)
   
 
 Spectators were immersed in what felt like a party-like atmosphere on the third and final day of the LIV Golf Hong Kong tournament, as the second edition of the event wrapped up in Fanling on Sunday.
@@ -291,7 +291,7 @@ Spectators were immersed in what felt like a party-like atmosphere on the third 
 
 # Spain's Garcia claims LIV Golf HK crown
 
-![Fireballs GC came out on top in the team standings. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_2_20250310070148.jpg&q=75)
+![Fireballs GC came out on top in the team standings. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_2_20250310070148.jpg&q=85)
   
 
 Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Golf Hong Kong tournament crown in Fanling, as the 45-year-old claimed his second career individual title on the men's golf tour.
@@ -339,7 +339,7 @@ Premier League leaders Liverpool needed two Mohamed Salah penalties to beat bott
 
 # Hudson-Odoi strikes late as Forest edge City
 
-![Callum Hudson-Odoi, (far right), beats Ederson at his near post from a very tight angle. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794933_1_20250308223542.jpg&q=60)
+![Callum Hudson-Odoi, (far right), beats Ederson at his near post from a very tight angle. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794933_1_20250308223542.jpg&q=80)
   
 
 Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win over Manchester City in the Premier League on Saturday and keep them on track for a top-four finish and prized place in next year's Champions League.
@@ -363,7 +363,7 @@ Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win ov
 
 # Three-way tie after Day 2 of LIV Golf Hong Kong event
 
-![Three players finished on top after the second round of the LIV Golf Hong Kong tournament. Image courtesy of LIV Golf.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794917_1_20250308173011.jpg&q=85)
+![Three players finished on top after the second round of the LIV Golf Hong Kong tournament. Image courtesy of LIV Golf.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794917_1_20250308173011.jpg&q=90)
   
 
 It’s a three-way tie at the top of the leaderboard of the LIV Golf Hong Kong tournament in Fanling going into the final round on Sunday.
@@ -411,7 +411,7 @@ Two former world champions, Shaun Murphy of England and Neil Robertson of Austra
 
 # Cavs survive Hornets scare, Jokic makes history
 
-![Three-time NBA MVP Nikola Jokic has become the first player ever to score more than 30 points, 20 rebounds and 20 assists in a single game. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794896_1_20250308153519.jpg&q=85)
+![Three-time NBA MVP Nikola Jokic has become the first player ever to score more than 30 points, 20 rebounds and 20 assists in a single game. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794896_1_20250308153519.jpg&q=90)
   
 
 The Cleveland Cavaliers staged a dramatic late rally to stretch their unbeaten streak to 13 games with a nail-biting 118-117 over the lowly Charlotte Hornets in the NBA on Friday.
@@ -459,7 +459,7 @@ World number two and top seed Alexander Zverev was sent crashing out of Indian W
 
 # 'Let's bring key international events to Kai Tak'
 
-![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=85)
+![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=90)
   
 
 The Kai Tak Sports Park will promote sports development and exchanges between Hong Kong and the mainland, according to senior Chinese sports officials attending the "Two Sessions" in Beijing.
@@ -483,8 +483,8 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
 
 # Man Utd draw in Europa League last 16; Spurs beaten
 
-![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=75)
-![Lucas Bergvall's own goal condemned Spurs to defeat by Dutch side AZ Alkmaar.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_2_20250307055618.jpg&q=80)
+![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=85)
+![Lucas Bergvall's own goal condemned Spurs to defeat by Dutch side AZ Alkmaar.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_2_20250307055618.jpg&q=85)
   
 
 Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europa League last-16 tie, while Tottenham suffered a 1-0 loss away to Dutch side AZ Alkmaar.
@@ -508,7 +508,7 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
 
 # Ireland's Doris fit to face France in Six Nations
 
-![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=85)
+![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=90)
   
 
 Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
@@ -532,7 +532,7 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
 
 # Visit GBA for National Games: Guangdong governor
 
-![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=80)
+![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=90)
   
 
 A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
@@ -557,7 +557,7 @@ A senior Guangdong official on Thursday said the province will work closely with
 # Cavs hold off Heat to clinch NBA playoff berth
 
 ![Donovan Mitchell poured in 26 points to lead the Cavs to their 12th straight victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_1_20250306120255.jpg&q=90)
-![Payton Pritchard knocked down 10 three-pointers in the Celtics' win over the Blazers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_2_20250306120515.jpg&q=80)
+![Payton Pritchard knocked down 10 three-pointers in the Celtics' win over the Blazers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794516_2_20250306120515.jpg&q=90)
   
 
 Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticket to the NBA playoffs with a hard-fought 112-107 victory over the Miami Heat.
@@ -606,7 +606,7 @@ Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the fir
 
 # NZ crush South Africa to reach Champions Trophy final
 
-![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=85)
+![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=90)
   
 
 Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50-run win over South Africa in Lahore to set up a rematch with India in the Champions Trophy final.
@@ -630,7 +630,7 @@ Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50
 
 # LeBron James first NBA player ever to score 50,000 pts
 
-![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=80)
+![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=90)
   
 
 LeBron James became the first player in NBA history to score 50,000 career points on Tuesday, extending his lead as the league's all-time record scorer by reaching a milestone tally that may never be surpassed.
@@ -654,7 +654,7 @@ LeBron James became the first player in NBA history to score 50,000 career point
 
 # More spectators expected at this year's LIV Golf HK
 
-![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=85)
+![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=90)
   
 
 Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
@@ -678,7 +678,7 @@ Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects 
 
 # Snooker fans won't be kicked out again: minister
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794364_1_20250305134034.jpg&q=90)
   
 
 Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay until the last game is finished, the government says, after spectators were ejected from the venue while a match was still underway on Tuesday night.
@@ -703,7 +703,7 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
 # Real Madrid, Arsenal post big Champions League wins
 
 ![Real Madrid's Rodrygo celebrates scoring the opening goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_1_20250305071751.jpg&q=90)
-![Arsena's 7-1 win over PSV was their biggest victory away from home in any Champions League match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_2_20250305071751.jpg&q=85)
+![Arsena's 7-1 win over PSV was their biggest victory away from home in any Champions League match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794271_2_20250305071751.jpg&q=90)
   
 
 Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-1 Champions League last 16 first-leg win.
@@ -727,7 +727,7 @@ Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-
 
 # Mavs' Irving ruled out for NBA season with ACL injury
 
-![Irving was helped off the court in the Mavericks' game against the Sacramento Kings. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794261_1_20250305054216.jpg&q=80)
+![Irving was helped off the court in the Mavericks' game against the Sacramento Kings. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794261_1_20250305054216.jpg&q=85)
   
 
 Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA season after suffering a torn anterior cruciate ligament (ACL) in his left knee, according to media reports.
@@ -776,7 +776,7 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
 # Trump wins opening match at World Snooker Grand Prix
 
 ![Trump beat Gary Wilson 4-2 in an all-English affair at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_1_20250304224416.jpg&q=90)
-![The Secretary for Culture, Sports and Tourism, Rosanna Law (middle) officiated at the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_2_20250304224416.jpg&q=85)
+![The Secretary for Culture, Sports and Tourism, Rosanna Law (middle) officiated at the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_2_20250304224416.jpg&q=90)
   
 
 World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
@@ -800,7 +800,7 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
 
 # Trump in action as World Snooker Grand Prix begins
 
-![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=85)
+![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=90)
   
 
 Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Kong on Tuesday as a newly minted SAR resident.
@@ -824,7 +824,7 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 
 # Forest sink Ipswich on pens to reach FA Cup quarters
 
-![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=80)
+![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=90)
   
 
 Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cup quarter-finals after a 1-1 draw at the City Ground.
@@ -848,7 +848,7 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
 
 # Cavs beat Blazers in overtime for 10th straight win
 
-![Cavaliers forward De'Andre Hunter (12) drives to the basket against Portland Trail Blazers' Donovan Clingan. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_1_20250303100809.jpg&q=85)
+![Cavaliers forward De'Andre Hunter (12) drives to the basket against Portland Trail Blazers' Donovan Clingan. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_1_20250303100809.jpg&q=90)
 ![Jaylen Brown scored 22 points to lead Boston to victory over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_2_20250303100809.jpg&q=90)
   
 
@@ -873,7 +873,7 @@ The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Bl
 
 # Man Utd crash out of FA Cup as Fulham win shoot-out
 
-![Manchester United's Joshua Zirkzee reacts after a penalty kick. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793920_1_20250303053151.jpg&q=85)
+![Manchester United's Joshua Zirkzee reacts after a penalty kick. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793920_1_20250303053151.jpg&q=90)
   
 
 Manchester United's dismal season hit a new low as the FA Cup holders crashed out after a 4-3 penalty shoot-out defeat against Fulham in the fifth round.
@@ -897,8 +897,8 @@ Manchester United's dismal season hit a new low as the FA Cup holders crashed ou
 
 # Ethiopia dominates Tokyo Marathon
 
-![Ethiopia's Tadese Takele finishes in first place to win the men's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_1_20250302145335.jpg&q=85)
-![Ethiopia's Sutume Asefa Kebede finishes in first place to win the women's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_2_20250302145335.jpg&q=85)
+![Ethiopia's Tadese Takele finishes in first place to win the men's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_1_20250302145335.jpg&q=90)
+![Ethiopia's Sutume Asefa Kebede finishes in first place to win the women's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_2_20250302145335.jpg&q=90)
   
 
 Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both the men's and women's categories.
@@ -922,7 +922,7 @@ Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both
 
 # Man City beat giant killers Plymouth in FA Cup
 
-![Manchester City's English midfielder Nico O'Reilly celebrates scoring the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793851_1_20250302075410.jpg&q=85)
+![Manchester City's English midfielder Nico O'Reilly celebrates scoring the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793851_1_20250302075410.jpg&q=90)
   
 
 Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress to the FA Cup quarter-finals on Saturday, after Crystal Palace striker Jean Philippe-Mateta was hospitalised in the Eagles' 3-1 win over Millwall.
@@ -946,7 +946,7 @@ Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress
 
 # O'Sullivan drops out of HK Snooker Grand Prix
 
-![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=85)
+![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=90)
   
 
 Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
@@ -1066,7 +1066,7 @@ Hall of Fame coach Gregg Popovich said Thursday he won't return this season as c
 
 # West Ham ease to victory over lacklustre Leicester
 
-![West Ham climbed to 15th and 16 points clear of the relegation zone with the victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793582_1_20250228071128.jpg&q=80)
+![West Ham climbed to 15th and 16 points clear of the relegation zone with the victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793582_1_20250228071128.jpg&q=90)
   
 
 Leicester sank closer to an immediate return to the Championship after West Ham pulled clear of the bottom three with a convincing 2-0 win.
@@ -1090,7 +1090,7 @@ Leicester sank closer to an immediate return to the Championship after West Ham 
 
 # Russian chess grandmaster Spassky dies aged 88
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793572_1_20250228052907.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793572_1_20250228052907.jpg&q=90)
   
 
 Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-called match of the century at the height of the Cold War, has died aged 88, the Chess Federation of Russia said.
@@ -1114,7 +1114,7 @@ Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-call
 
 # Legendary Irish trio to retire at end of Six Nations
 
-![Last year's Six Nations title-winning skipper Peter O'Mahony is as famous for his gardening skills as his rugby prowess. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793545_1_20250227214946.jpg&q=75)
+![Last year's Six Nations title-winning skipper Peter O'Mahony is as famous for his gardening skills as his rugby prowess. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793545_1_20250227214946.jpg&q=85)
   
 
 Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six Nations title-winning skipper Peter O'Mahony and fellow Test centurion Conor Murray will retire from international rugby at the end of the Six Nations, they announced on Thursday.
@@ -1139,7 +1139,7 @@ Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six N
 # Abraham Ancer seeks another win at HK LIV Golf
 
 ![Abraham Ancer won the individual champion title at LIV Golf Hong Kong 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_1_20250227120945.jpg&q=90)
-![Bryson DeChambeau hits his shot on the first round at the Hong Kong Golf Club in 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_2_20250227120945.jpg&q=55)
+![Bryson DeChambeau hits his shot on the first round at the Hong Kong Golf Club in 2024. Photo courtesy of LIV Golf](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793456_2_20250227120945.jpg&q=80)
   
 
 Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, eager to relive the unforgettable moments from last year’s tournament.
@@ -1163,7 +1163,7 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 
 # Afghanistan knock England out of Champions Trophy
 
-![Afghanistan's Azmatullah Omarzai, left, celebrates with teammate Ibrahim Zadran after the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793419_1_20250227081610.jpg&q=80)
+![Afghanistan's Azmatullah Omarzai, left, celebrates with teammate Ibrahim Zadran after the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793419_1_20250227081610.jpg&q=85)
   
 
 Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghanistan knock England out of the Champions Trophy with a thrilling eight-run victory.
@@ -1187,7 +1187,7 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
 
 # Liverpool beat Newcastle to extend lead; Arsenal held
 
-![Dominik Szoboszlai opened the scoring early for the Reds. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793414_1_20250227071410.jpg&q=85)
+![Dominik Szoboszlai opened the scoring early for the Reds. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793414_1_20250227071410.jpg&q=90)
 ![Arsenal's Gabriel Magalhães reacts after his side's goalless draw against Nottingham Forest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793414_2_20250227071410.jpg&q=90)
   
 
@@ -1212,7 +1212,7 @@ Liverpool moved a giant step closer to the Premier League title with a ruthless 
 
 # Liverpool's Slot gets two-match ban over derby chaos
 
-![Arne Slot gets his marching orders from referee Michael Oliver. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793366_1_20250226204458.jpg&q=85)
+![Arne Slot gets his marching orders from referee Michael Oliver. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793366_1_20250226204458.jpg&q=90)
   
 
 Liverpool manager Arne Slot will not be on the touchline for Wednesday's home match against Newcastle after he was handed a two-match ban and given a hefty fine for his behaviour in the Merseyside derby.
@@ -1236,7 +1236,7 @@ Liverpool manager Arne Slot will not be on the touchline for Wednesday's home ma
 
 # Atlético hold Barca in eight-goal Copa del Rey clash
 
-![Atlético Madrid's Marcos Llorente controls the ball against Barcelona's Frenkie de Jong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793180_1_20250226074804.jpg&q=75)
+![Atlético Madrid's Marcos Llorente controls the ball against Barcelona's Frenkie de Jong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793180_1_20250226074804.jpg&q=80)
   
 
 Atlético Madrid conceded a two-goal lead then fought back from two down in a wild 4-4 draw with Barcelona in a Copa del Rey semi-final first leg thriller.
@@ -1260,7 +1260,7 @@ Atlético Madrid conceded a two-goal lead then fought back from two down in a wi
 
 # Chelsea thrash Southampton; Villa beaten by Palace
 
-![Cheslea's Nkunku celebrates after scoring his team first goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793177_1_20250226070748.jpg&q=80)
+![Cheslea's Nkunku celebrates after scoring his team first goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793177_1_20250226070748.jpg&q=90)
   
 
 Chelsea moved into the Premier League's top four with a 4-0 demolition of hapless Southampton, but Aston Villa's hopes of Champions League football next season diminished after a 4-1 defeat at Crystal Palace.
@@ -1284,7 +1284,7 @@ Chelsea moved into the Premier League's top four with a 4-0 demolition of haples
 
 # S Africa-Australia Champions Trophy game washed out
 
-![A persistent light drizzle scuppered any chance of play in Rawalpindi. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793136_1_20250225205129.jpg&q=65)
+![A persistent light drizzle scuppered any chance of play in Rawalpindi. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793136_1_20250225205129.jpg&q=80)
   
 
 Rain washed out the Champions Trophy game between South Africa and two-time winner Australia on Tuesday without a ball being bowled.
@@ -1380,7 +1380,7 @@ Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Troph
 
 # Central and Wan Chai road closures for triathlon test
 
-![The 15th National Games Triathlon Test Event is set to take place at Central Harbourfront and Victoria Harbour on March 1 and 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792964_1_20250224173206.jpg&q=50)
+![The 15th National Games Triathlon Test Event is set to take place at Central Harbourfront and Victoria Harbour on March 1 and 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792964_1_20250224173206.jpg&q=80)
   
 
 Drivers are urged to steer clear of certain roads in Central and Wan Chai because of an upcoming triathlon test event.
@@ -1404,7 +1404,7 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
 
 # Liverpool beat City, extend Premier League lead to 11
 
-![Mohamed Salah opened the scoring for Liverpool against Manchester City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792866_1_20250224053528.jpg&q=80)
+![Mohamed Salah opened the scoring for Liverpool against Manchester City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792866_1_20250224053528.jpg&q=90)
   
 
 Liverpool took a giant stride towards the Premier League title as a 2-0 win over Manchester City opened up an 11-point lead over Arsenal at the top of the table.
@@ -1428,7 +1428,7 @@ Liverpool took a giant stride towards the Premier League title as a 2-0 win over
 
 # Hong Kong runners-up in handball test event
 
-![Team Hong Kong, China are happy for silver at the two-day test event at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792842_1_20250223175953.jpg&q=75)
+![Team Hong Kong, China are happy for silver at the two-day test event at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792842_1_20250223175953.jpg&q=85)
   
 
 Team Hong Kong, China put up a strong fight but fell short against Jiangsu, as they missed out on gold at a men's handball tournament at Kai Tak Arena.

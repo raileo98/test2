@@ -1,5 +1,6 @@
 # 格陵蘭自治議會選舉結束　點票結果數小時公布
 
+![格陵蘭自治議會選舉結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795382_1_20250312113119.jpg&q=90)
   
 
 格陵蘭舉行自治議會選舉，在美國總統特朗普揚言要控制格陵蘭之下，選舉備受國際關注，由於投票率高，各地72個票站要延長半小時關閉。
@@ -47,7 +48,7 @@
 
 # 美國眾議院通過法案避免聯邦政府「關門」
 
-![美國眾議院通過一項法案，避免聯邦政府「關門」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795357_1_20250312085524.jpg&q=75)
+![美國眾議院通過一項法案，避免聯邦政府「關門」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795357_1_20250312085524.jpg&q=85)
   
 
 美國眾議院通過一項法案，避免聯邦政府「關門」。
@@ -95,7 +96,7 @@
 
 # 安省暫緩對輸美電力徵收附加費　白宮不向加國鋼鋁加倍徵關稅
 
-![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=75)
+![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=85)
   
 
 加拿大安大略省政府同意暫停對輸往美國三個州的電力，徵收25%的附加費。美國總統特朗普表示，很可能重新考慮對加拿大鋼鋁加倍徵收關稅的決定。
@@ -191,7 +192,7 @@
 
 # 美烏會談結束　烏克蘭接受與俄羅斯停火30天提議
 
-![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795333_1_20250312031759.jpg&q=65)
+![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795333_1_20250312031759.jpg&q=80)
   
 
 美國和烏克蘭代表團結束在沙特阿拉伯城市吉達舉行的會談。
@@ -239,7 +240,7 @@
 
 # 以色列與黎巴嫩同意談判陸路邊界問題
 
-![以色列稱，各方同意成立三個小組討論以黎陸路邊界問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795331_1_20250312021002.jpg&q=60)
+![以色列稱，各方同意成立三個小組討論以黎陸路邊界問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795331_1_20250312021002.jpg&q=80)
   
 
 以色列、黎巴嫩、美國和法國四方代表在黎巴嫩南部納庫拉舉行會談，討論以色列與黎巴嫩的陸地邊界問題。
@@ -263,7 +264,7 @@
 
 # 法國召集逾30國軍方首腦開會　商討向烏克蘭派遣部隊
 
-![法國召集30多個國家的軍方首腦在巴黎舉行會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795330_1_20250312014357.jpg&q=85)
+![法國召集30多個國家的軍方首腦在巴黎舉行會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795330_1_20250312014357.jpg&q=90)
   
 
 法國召集30多個國家的軍方首腦在巴黎舉行會議，討論若烏克蘭與俄羅斯達成停火協議，各國願意為烏克蘭的安全保障作出貢獻，特別是為烏克蘭組建一支國際安全部隊。
@@ -287,7 +288,7 @@
 
 # 巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全
 
-![巴基斯坦派出士兵到火車站處理人質事件。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_2_20250312041423.jpg&q=85)
+![巴基斯坦派出士兵到火車站處理人質事件。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_2_20250312041423.jpg&q=90)
   
 
 巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質，聲稱人質包括休假的巴基斯坦軍人和其他安全官員。
@@ -311,7 +312,7 @@
 
 # 烏克蘭外長：烏美會談具有「建設性氣氛」
 
-![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795328_1_20250312004312.jpg&q=85)
+![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795328_1_20250312004312.jpg&q=90)
   
 
 美國與烏克蘭官員在沙特阿拉伯城市吉達會談。有份參加會談的烏克蘭外長瑟比加在社交媒體說，烏方視吉達會談為推動和平和發展烏美戰略伙伴關係的重要機遇，會談的「建設性氣氛」將證明烏方可以利用這個機遇。
@@ -336,7 +337,7 @@
 # 菲總統證實杜特爾特正被送往海牙
 
 ![總統小馬可斯召開記者會，證實載著杜特爾特的飛機已於晚上大約11時起飛。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_2_20250312025249.jpg&q=90)
-![支持者在馬尼拉集會聲援杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_3_20250312025249.jpg&q=75)
+![支持者在馬尼拉集會聲援杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_3_20250312025249.jpg&q=85)
   
 
 菲律賓前總統杜特爾特被捕後，正被送往國際刑事法院總部所在地荷蘭海牙。
@@ -360,7 +361,7 @@
 
 # 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
 
-![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=85)
+![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=90)
   
 
 美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
@@ -456,7 +457,7 @@
 
 # 美烏代表沙特會談　烏方：會議開始得非常有建設性
 
-![葉爾馬克在社交平台發文說，與美國團隊的會議開始得非常有建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795301_1_20250311201833.jpg&q=85)
+![葉爾馬克在社交平台發文說，與美國團隊的會議開始得非常有建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795301_1_20250311201833.jpg&q=90)
   
 
 美國和烏克蘭代表團在沙特阿拉伯城市吉達，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
@@ -624,7 +625,7 @@
 
 # 俄羅斯稱擊落337架烏克蘭無人機　莫斯科州長稱襲擊致2死多傷
 
-![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=60)
+![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=80)
   
 
 俄羅斯國防部表示，防空部隊一夜之間擊落337架烏克蘭無人機，在莫斯科州上空，有91架無人機被摧毀。
@@ -648,7 +649,7 @@
 
 # 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
 
-![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=85)
+![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=90)
   
 
 十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
@@ -696,7 +697,7 @@
 
 # 俄羅斯莫斯科州遭大規模無人機襲擊1死3傷
 
-![莫斯科州遭受無人機襲擊，有住宅大廈受損。 （路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795262_1_20250311162626.jpg&q=65)
+![莫斯科州遭受無人機襲擊，有住宅大廈受損。 （路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795262_1_20250311162626.jpg&q=80)
   
 
 俄羅斯莫斯科州州長沃羅比約夫說，當地星期二凌晨4時開始，莫斯科州遭受大規模無人機襲擊，已造成1人死亡，3人受傷。
@@ -768,8 +769,8 @@
 
 # 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
 
-![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=65)
-![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=75)
+![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=80)
+![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=85)
 ![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
   
 
@@ -794,7 +795,7 @@
 
 # 菲律賓警方根據國際刑事法院逮捕令拘捕前總統杜特爾特
 
-![大批警員在機場的入境大堂等候杜特爾特返菲律賓。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795226_1_20250311124328.jpg&q=85)
+![大批警員在機場的入境大堂等候杜特爾特返菲律賓。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795226_1_20250311124328.jpg&q=90)
   
 
 菲律賓總統辦公室表示，警方對已返抵首都馬尼拉國際機場的前總統杜特爾特，執行國際刑事法院的逮捕令。他已被拘留，健康狀況良好。杜特爾特的前法律顧問表示逮捕是非法，又指警方不容許律師在機場與杜特爾特會面。
@@ -890,7 +891,7 @@
 
 # 敘過渡政府與敘利亞民主力量簽協議同意整合國家機關並實現停火
 
-![民眾上街慶祝過渡政府與敘利亞民主力量簽署協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795196_1_20250311090644.jpg&q=85)
+![民眾上街慶祝過渡政府與敘利亞民主力量簽署協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795196_1_20250311090644.jpg&q=90)
   
 
 敘利亞總統府宣布，過渡政府與敘利亞庫爾德武裝組織主導的「敘利亞民主力量」簽署協議，同意將「敘利亞民主力量」整合到國家機關。
@@ -1106,7 +1107,7 @@
 
 # 加拿大安大略省向輸美電力徵收25%附加費
 
-![福特表示，如果貿易戰持續下去，他將毫不猶豫提高收費，甚至完全切斷電力出口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795173_1_20250311020802.jpg&q=80)
+![福特表示，如果貿易戰持續下去，他將毫不猶豫提高收費，甚至完全切斷電力出口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795173_1_20250311020802.jpg&q=85)
   
 
 加拿大安大略省當地星期一宣布，即日起對輸往美國的電力徵收25%附加費，作為對美國總統特朗普對加拿大商品徵收關稅的報復措施之一。
@@ -1130,7 +1131,7 @@
 
 # 以色列談判代表團啟程往卡塔爾　推進停火第二階段談判
 
-![加沙停火協議第二階段停火談判原定上月開始，但以哈雙方一直未舉行實質性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795172_1_20250311020917.jpg&q=40)
+![加沙停火協議第二階段停火談判原定上月開始，但以哈雙方一直未舉行實質性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795172_1_20250311020917.jpg&q=75)
   
 
 以色列談判代表團啟程前往卡塔爾首都多哈，以推進加沙停火協議第二階段談判。
@@ -1154,7 +1155,7 @@
 
 # 澤連斯基抵達沙特阿拉伯　將與沙特王儲會面
 
-![澤連斯基抵達沙特阿拉伯，與當地官員會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795170_1_20250311021007.jpg&q=30)
+![澤連斯基抵達沙特阿拉伯，與當地官員會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795170_1_20250311021007.jpg&q=65)
   
 
 烏克蘭總統澤連斯基抵達沙特阿拉伯，將會與沙特王儲穆罕默德會面。
@@ -1298,7 +1299,7 @@
 
 # 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
 
-![盧寵茂與正在訪問香港的世界衞生組織西太平洋區域主任（前排右二）會面，就公共衞生相關議題作交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795156_1_20250310211737.jpg&q=85)
+![盧寵茂與正在訪問香港的世界衞生組織西太平洋區域主任（前排右二）會面，就公共衞生相關議題作交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795156_1_20250310211737.jpg&q=90)
   
 
 醫務衞生局局長盧寵茂今日與正在訪問香港的世界衞生組織西太平洋區域主任Saia Ma’u Piukala醫生會面，就公共衞生相關議題作交流。
@@ -1322,7 +1323,7 @@
 
 # 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
 
-![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=70)
+![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=80)
   
 
 在北京，外交部發言人毛寧說，中方對敘利亞境內發生武裝衝突造成大量人員傷亡感到擔憂，呼籲有關方面立即停止武裝衝突和敵對行動，切實保護平民安全，尊重並堅持包容性原則，通過對話找到符合敘利亞人民意願的重建國家方案。
@@ -1346,7 +1347,7 @@
 
 # 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
 
-![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
+![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=90)
   
 
 外交部駐港派員公署發言人就菲律賓前總統杜特爾特訪港回應記者提問，發言人說，據了解，杜特爾特及女兒莎拉此次來港是私人度假行程。有關菲律賓公民在港舉行的集會已根據特區法律法規事先提出申請。
