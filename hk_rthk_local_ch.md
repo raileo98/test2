@@ -1,5 +1,29 @@
+# 政府稱臨床試驗與臨床服務是兩碼子事　未完成試驗不能成臨床服務
+
+  
+
+李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部採用組織碎化技術治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，將為相關私院病人提供治療服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm)
+
+---
+
 # 威院獲中國國際醫院評審認證　盧寵茂與深圳官員見證
 
+![威爾斯親王醫院成功通過《國際醫院評審認證標準（中國）》的評審認證。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795456_1_20250312212737.jpg&q=75)
   
 
 ​醫務衞生局局長盧寵茂和深圳市委常委、市政府黨組成員陳清及其率領的代表團，出席「威爾斯親王醫院獲中國國際醫院評審認證授牌儀式」，見證該醫院成為香港特別行政區第二間成功通過《國際醫院評審認證標準（中國）》（2021版）評審認證的醫院。
@@ -46,6 +70,7 @@
 
 # 當局指示業界暫停從美國紐約州布朗克斯進口禽肉及禽類產品
 
+![中心發言人說本港去年從美國進口約79630公噸冰鮮和冷藏禽肉及約1960萬隻禽蛋。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795454_1_20250312212451.jpg&q=80)
   
 
 食物安全中心宣布，因應世界動物衞生組織通報，指美國紐約州布朗克斯縣爆發高致病性H5N1禽流感，中心指示業界暫停從該地區及其附近的紐約州韋斯特切斯特縣進口禽肉，及包括禽蛋的禽類產品。
@@ -72,7 +97,7 @@
 ![醫學院表示，研究團隊可透過與港怡醫院共同管理的「臨床試驗中心」，運用另一同類型儀器作臨床試驗，期望讓更多病人受惠。（港怡醫院圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795453_1_20250312211141.jpg&q=90)
   
 
-李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，本月底將為相關私院病人提供治療服務。
+李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，將為相關私院病人提供治療服務。
 
   
 
@@ -1408,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm)
-
----
-
-# 大埔醫院內科及老人科病房多一名病人帶有耳念珠菌
-
-![院方說，會根據既定指引，繼續對病人的緊密接觸者展開追蹤篩查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795286_1_20250311183554.jpg&q=80)
-  
-
-大埔醫院早前公布有病人帶有耳念珠菌，經接觸追蹤調查，再發現內科及老人科病房多一名63歲男病人帶有耳念珠菌但並無感染徵狀。該名病人早前已經出院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm)
 
 ---
