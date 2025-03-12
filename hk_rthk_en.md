@@ -1,3 +1,51 @@
+# 'Growth target signals China's intent to beat tariffs'
+
+![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=30)
+  
+
+An economist at a leading investment bank on Wednesday said the main takeaways from the recently concluded Two Sessions was that China was prepared to handle the new round of US tariffs imposed by President Donald Trump.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm)
+
+---
+
+# Hang Seng shrugs off lower Wall Street close
+
+![The Hang Seng Index and both main mainland indices opened in positive territory. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795372_1_20250312103349.jpg&q=35)
+  
+
+The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 points on Wednesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm)
+
+---
+
 # Australia says US steel tariffs 'entirely unjustified'
 
 ![Vapour pours from a steel mill chimney in the industrial town of Port Kembla, about 80 km south of Sydney. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795366_1_20250312092156.jpg&q=90)
@@ -1389,53 +1437,5 @@ The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm)
-
----
-
-# Unsold homes dampens interest for new sites: tycoon
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=75)
-  
-
-A property tycoon says he believes Hong Kong developers will take a "conservative" approach over acquiring new plots, noting such firms still had a lot of unsold units.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm)
-
----
-
-# Trump declines to rule out 2025 US recession
-
-![President Trump told reporters aboard Air Force One "Who knows?", when asked on Sunday to clarify whether there could be a recession. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795044_1_20250310084801.jpg&q=90)
-  
-
-US President Donald Trump declined on Sunday to rule out the possibility that the United States might enter a recession this year.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
 
 ---

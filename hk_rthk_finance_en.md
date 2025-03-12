@@ -1,3 +1,27 @@
+# Hang Seng shrugs off lower Wall Street close
+
+![The Hang Seng Index and both main mainland indices opened in positive territory. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795372_1_20250312103349.jpg&q=35)
+  
+
+The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 points on Wednesday.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm)
+
+---
+
 # Australia says US steel tariffs 'entirely unjustified'
 
 ![Vapour pours from a steel mill chimney in the industrial town of Port Kembla, about 80 km south of Sydney. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795366_1_20250312092156.jpg&q=90)
@@ -1411,29 +1435,5 @@ Financial Secretary Paul Chan on Wednesday delivered his 2025-26 budget to the L
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793205-20250226.htm)
-
----
-
-# Hong Kong stocks claw back some losses
-
-![The Hang Seng index opens up marginally higher after markets closed down 1.3 percent on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793195_1_20250226093725.jpg&q=50)
-  
-
-The Hang Seng Index gained 204.32 points, or 0.89 percent, to open at 23,238 points on Wednesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm)
 
 ---

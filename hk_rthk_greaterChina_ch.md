@@ -1,3 +1,27 @@
+# 國台辦：解決台灣問題基礎更雄厚　有力塑造祖國必然統一大勢
+
+![陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795379_1_20250312105404.jpg&q=80)
+  
+
+在北京，國台辦發言人陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。經濟實力、科技能力、綜合國力、國際影響力持續增強，中國式現代化邁出堅實步伐，解決台灣問題的基礎更雄厚、能力更強大，有力塑造祖國必然統一的大勢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm)
+
+---
+
 # 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
 
 ![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm)
-
----
-
-# 全國兩會｜王滬寧宣布全國政協會議圓滿完成各項議程並閉幕
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795055_1_20250310094655.jpg&q=75)
-  
-
-為期六日的全國政協十四屆三次會議今早在北京人民大會堂閉幕，中共中央總書記、國家主席習近平等黨和國家領導人出席。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm)
 
 ---

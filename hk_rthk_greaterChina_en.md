@@ -1,3 +1,27 @@
+# 'Growth target signals China's intent to beat tariffs'
+
+![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=30)
+  
+
+An economist at a leading investment bank on Wednesday said the main takeaways from the recently concluded Two Sessions was that China was prepared to handle the new round of US tariffs imposed by President Donald Trump.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm)
+
+---
+
 # 'China changing course of economic development'
 
 ![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=40)
@@ -1413,29 +1437,5 @@ An economist on Wednesday said that the latest round of US tariffs on Chinese im
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794282-20250305.htm)
-
----
-
-# Beijing files complaint with WTO over Trump tariffs
-
-![China's complaint with the World Trade Organization comes after Trump increased previously imposed 10 percent levies to 20 percent. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794254_1_20250305051939.jpg&q=80)
-  
-
-Beijing said on Tuesday it had filed a complaint with the World Trade Organization against the United States over President Donald Trump's tariff increases on Chinese goods.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794254-20250305.htm)
 
 ---

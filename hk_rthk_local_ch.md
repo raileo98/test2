@@ -1,5 +1,54 @@
+# 陳虹秀暴動罪成　孫玉菡相信社工註冊局法依處理社工續牌申請
+
+![孫玉菡相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795378_1_20250312105003.jpg&q=85)
+  
+
+勞工及福利局局長孫玉菡表示，社工的註冊或續期需要跟隨《社會工作者註冊條例》要求，條例訂明如果犯上指明罪行，社工註冊局要按法律要求要履行職責，相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀，若法律上有要求不給予續牌，要跟法律做。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm)
+
+---
+
+# 下年度公務員司法人員退休金開支預算近520億元　料退休人數升
+
+![公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795374_1_20250312104552.jpg&q=85)
+  
+
+公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元，較修訂預算增加17億2千多萬元 ，主要由於預計會退休的人數上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm)
+
+---
+
 # 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
 
+![陳茂波指本港擁有一國兩制制度優勢，享有優先進入內地市場的先機，同時奉行普通法以及最佳的國際商業標準。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795373_1_20250312104203.jpg&q=90)
   
 
 財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm)
-
----
-
-# 瑪麗醫院重申周天瑜事件不涉及醫療事故
-
-![醫院重申，事件不屬於「醫療風險警示事件」或「重要風險事件」，亦不涉及醫療事故。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795150_1_20250310195249.jpg&q=85)
-  
-
-因手術期間懷疑發生醫療事故，最終成為植物人的女童周天瑜，去年3月離世。周天瑜的父親要求警方交代事件的調查方向，不要放棄任何釐清事實的機會，希望知道真相。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795150-20250310.htm)
-
----
-
-# 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
-
-![丘應樺（左）拜會廣東省商務廳廳長張勁松（右），就深化粵港兩地的經貿合作包括招商引資交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795149_1_20250310195225.jpg&q=65)
-  
-
-商務及經濟發展局局長丘應樺抵達廣州，展開訪問行程。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm)
 
 ---

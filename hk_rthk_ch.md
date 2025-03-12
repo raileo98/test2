@@ -1,5 +1,102 @@
+# 國台辦：解決台灣問題基礎更雄厚　有力塑造祖國必然統一大勢
+
+![陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795379_1_20250312105404.jpg&q=80)
+  
+
+在北京，國台辦發言人陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。經濟實力、科技能力、綜合國力、國際影響力持續增強，中國式現代化邁出堅實步伐，解決台灣問題的基礎更雄厚、能力更強大，有力塑造祖國必然統一的大勢。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm)
+
+---
+
+# 日股反覆靠穩　半日升逾百點
+
+![日經指數曾高見36956點，半日收報36898點，升105點，升幅0.29%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795375_1_20250312103731.jpg&q=90)
+  
+
+日股反覆向上，但未能突破37000點水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm)
+
+---
+
+# 陳虹秀暴動罪成　孫玉菡相信社工註冊局法依處理社工續牌申請
+
+![孫玉菡相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795378_1_20250312105003.jpg&q=85)
+  
+
+勞工及福利局局長孫玉菡表示，社工的註冊或續期需要跟隨《社會工作者註冊條例》要求，條例訂明如果犯上指明罪行，社工註冊局要按法律要求要履行職責，相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀，若法律上有要求不給予續牌，要跟法律做。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm)
+
+---
+
+# 下年度公務員司法人員退休金開支預算近520億元　料退休人數升
+
+![公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795374_1_20250312104552.jpg&q=85)
+  
+
+公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元，較修訂預算增加17億2千多萬元 ，主要由於預計會退休的人數上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm)
+
+---
+
 # 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
 
+![陳茂波指本港擁有一國兩制制度優勢，享有優先進入內地市場的先機，同時奉行普通法以及最佳的國際商業標準。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795373_1_20250312104203.jpg&q=90)
   
 
 財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
@@ -1340,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm)
-
----
-
-# 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
-
-![徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795298_1_20250311193628.jpg&q=90)
-  
-
-陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
-
----
-
-# 比亞迪股份：成功配發約1.3億股新H股　所得淨額約434億元
-
-![比亞迪股份公布，成功按每股335.2元配發約1.3億股新H股，所得款項淨額約為433.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795295_1_20250311185055.jpg&q=85)
-  
-
-比亞迪股份公布，公司成功按配售價每股335.2元向不少於6名承配人配發，及發行合共約1.3億股新H股，約佔經擴大已發行H股總數的10.57%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm)
-
----
-
-# 調查：美國上月小企業信心連跌3個月
-
-![全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795296_1_20250311191237.jpg&q=85)
-  
-
-全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月，反映消費者和企業信心下跌，以及股市向下。不確定性指數升至104，是有紀錄以來第2高，反映市場對貿易政策的憂慮加劇。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm)
-
----
-
-# 毛寧：杜特爾特被捕是重要突發事件　中方密切關注事態發展
-
-![毛寧說，杜特爾特被捕是重要的突發事件，中方密切關注事態發展。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795297_1_20250311191448.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特在馬尼拉被捕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm)
 
 ---

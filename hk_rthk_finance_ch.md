@@ -1,5 +1,54 @@
+# 日股反覆靠穩　半日升逾百點
+
+![日經指數曾高見36956點，半日收報36898點，升105點，升幅0.29%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795375_1_20250312103731.jpg&q=90)
+  
+
+日股反覆向上，但未能突破37000點水平。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm)
+
+---
+
+# 下年度公務員司法人員退休金開支預算近520億元　料退休人數升
+
+![公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795374_1_20250312104552.jpg&q=85)
+  
+
+公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元，較修訂預算增加17億2千多萬元 ，主要由於預計會退休的人數上升。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm)
+
+---
+
 # 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
 
+![陳茂波指本港擁有一國兩制制度優勢，享有優先進入內地市場的先機，同時奉行普通法以及最佳的國際商業標準。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795373_1_20250312104203.jpg&q=90)
   
 
 財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
@@ -1388,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm)
-
----
-
-# 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
-
-![金澤培說，今年的票價可能凍結，亦是政府與港鐵訂定的票價調整機制下的結果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795223_1_20250311122921.jpg&q=80)
-  
-
-港鐵行政總裁金澤培在報章專欄撰文表示，今年的票價調整尚待政府公布最後一項數據，現時看來今年票價按機制大概會維持不變，他說，今年的票價可能凍結，亦是政府與港鐵訂定的票價調整機制下的結果，又指乘客期望票價越低越好，港鐵員工期望薪酬越高越好，公司努力做到平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm)
-
----
-
-# 日股曾跌逾千點　半日跌幅收窄至645點
-
-![日經指數一度跌逾千點，於36000點失而復得，半日報36382點，跌645點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795217_1_20250311103451.jpg&q=90)
-  
-
-日股沽壓大，指數於36000點失而復得。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm)
 
 ---
