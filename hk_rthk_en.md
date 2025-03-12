@@ -1,3 +1,27 @@
+# Govt optimistic over top talent scheme visa renewals
+
+![About 10,000 visas under the Top Talent Pass Scheme are going to expire by the middle of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
+  
+
+The government is optimistic about the number of people who will stay under the Top Talent Pass Scheme, labour chief Chris Sun said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm)
+
+---
+
 # Cathay Pacific profits edged up in 2024
 
 ![Cathay Pacific posts a one percent rise in its group net profit of HK$9.89 billion for the year ended December 31, 2024.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
@@ -1413,29 +1437,5 @@ North Korea fired "multiple unidentified ballistic missiles" on Monday, South Ko
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm)
-
----
-
-# Driver flees after three-vehicle collision
-
-![Two private cars and a taxi are severely damaged after a collision in Shing Mun Tunnel. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795078_1_20250310115428.jpg&q=90)
-  
-
-Four people were injured and one driver fled the scene following a three-vehicle collision in Shing Mun Tunnel early on Monday morning.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm)
 
 ---

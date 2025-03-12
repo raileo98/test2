@@ -1,3 +1,27 @@
+# Govt optimistic over top talent scheme visa renewals
+
+![About 10,000 visas under the Top Talent Pass Scheme are going to expire by the middle of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
+  
+
+The government is optimistic about the number of people who will stay under the Top Talent Pass Scheme, labour chief Chris Sun said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm)
+
+---
+
 # Cathay Pacific profits edged up in 2024
 
 ![Cathay Pacific posts a one percent rise in its group net profit of HK$9.89 billion for the year ended December 31, 2024.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hong Kong's top court on Thursday upheld the sedition convictions of former acti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794531-20250306.htm)
-
----
-
-# Capitalise on your strengths, vice premier tells HK
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=80)
-  
-
-Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantages and to continue to safeguard national security, according to SAR delegates of the nation’s top political advisory body.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm)
 
 ---
