@@ -1,3 +1,27 @@
+# 恒指低收181點　連跌4日　科指跌2%
+
+![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
+  
+
+港股先高後低，連跌4個交易日。恒生指數早段曾升180點，高見23962點，尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，全日主板成交額近2785億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
+
+---
+
 # 警方瓦解家庭式販毒集團拘4名非華裔男女　檢逾千萬元毒品
 
 ![警方檢獲約24公斤的懷疑海洛英、氯胺酮、冰毒、大麻花及搖頭丸，市值超過1400萬元。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795426_1_20250312161246.jpg&q=80)
@@ -120,6 +144,7 @@
 
 # 巴基斯坦軍方指武裝份子以列車乘客做人盾　部分人質被帶到山區
 
+![部分人質已被救出。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795421_1_20250312163348.jpg&q=80)
   
 
 巴基斯坦軍方官員說，遇襲客運列車上的155名被挾持人員，已被安全部隊救出，但仍有大量人質在武裝份子手上。

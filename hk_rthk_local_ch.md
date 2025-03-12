@@ -1,3 +1,27 @@
+# 恒指低收181點　連跌4日　科指跌2%
+
+![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
+  
+
+港股先高後低，連跌4個交易日。恒生指數早段曾升180點，高見23962點，尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，全日主板成交額近2785億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
+
+---
+
 # 警方瓦解家庭式販毒集團拘4名非華裔男女　檢逾千萬元毒品
 
 ![警方檢獲約24公斤的懷疑海洛英、氯胺酮、冰毒、大麻花及搖頭丸，市值超過1400萬元。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795426_1_20250312161246.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm)
-
----
-
-# 與母爭執及被拒門外放火燒雜物　思覺失調女子承認縱火判囚一年
-
-![法庭考慮到女被告已賠償母親3000元及已獲母親原諒，最終判女被告監禁一年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795247_1_20250311145915.jpg&q=90)
-  
-
-一名患有思覺失調的女子，因家用問題與母親發生爭執，前往獨居母親單位遭拒於門外，遂用打火機燃燒雜物。涉案女子早前承認縱火罪，區域法院法官陳廣池考慮她已賠償3000元，女被告的母親亦願意原諒女被告，判女被告監禁1年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm)
 
 ---

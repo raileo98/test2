@@ -1,3 +1,51 @@
+# 恒指低收181點　連跌4日　科指跌2%
+
+![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
+  
+
+港股先高後低，連跌4個交易日。恒生指數早段曾升180點，高見23962點，尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，全日主板成交額近2785億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
+
+---
+
+# 美國對鋼鋁徵收25%關稅　歐盟下月起向260億歐元美國貨徵稅
+
+![馮德萊恩表示，對美國的措施深感遺憾，認為關稅會擾亂供應鏈，對經濟帶來不確定性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_1_20250312155410.jpg&q=90)
+  
+
+美國對進口鋼鋁徵收25%關稅的措施生效，歐盟委員會宣布反制，下月起向總值260億歐元的美國商品徵收關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm)
+
+---
+
 # 工行設立800億元人民幣科技創新基金　加大支持硬科技及民企
 
 ![工行設立800億元人民幣科技創新基金，持續加大對硬科技、民營經濟支持。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795423_1_20250312155243.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm)
-
----
-
-# 中汽協：內地2月新能源車銷量按年增長逾87%
-
-![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=60)
-  
-
-中國汽車工業協會公布，2月內地汽車銷量212.9萬輛，按年增長34.4%，按月下跌12.2%。今年1-2月汽車總銷量455.2萬輛，按年增長13.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱綠色科技樞紐可容納二百間綠色企業
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795269_1_20250311170811.jpg&q=55)
-  
-
-財政司司長陳茂波說，透過結合綠色科技和綠色金融，除了為全球綠色進程作出貢獻，亦為香港經濟發展創造新動力。財政預算案提出科技園成立的「綠色科技樞紐」是相關願景的基石。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm)
 
 ---
