@@ -1,3 +1,27 @@
+# 澤連斯基：領土問題屬紅線　不會承認被俄佔土地
+
+![澤連斯基稱，為恢復領土，烏克蘭付出巨大人命傷亡，這是烏方最重要的紅線。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795479_1_20250313003849.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基強調，烏方不會承認被佔領的土地屬於俄羅斯，這是烏方的紅線。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795479-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795479-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795479-20250313.htm)
+
+---
+
 # 俄國防部：俄軍繼續在庫爾斯克地區擊敗烏軍
 
 ![俄羅斯國防部通報，俄軍在過去一天內控制庫爾斯克地區的5個居民點。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795478_1_20250313001253.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm)
-
----
-
-# 以色列談判代表團啟程往卡塔爾　推進停火第二階段談判
-
-![加沙停火協議第二階段停火談判原定上月開始，但以哈雙方一直未舉行實質性談判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795172_1_20250311020917.jpg&q=75)
-  
-
-以色列談判代表團啟程前往卡塔爾首都多哈，以推進加沙停火協議第二階段談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795172-20250311.htm)
 
 ---
