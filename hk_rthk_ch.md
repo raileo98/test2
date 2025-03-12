@@ -1,3 +1,27 @@
+# 美國官員將赴俄討論停火　克宮：等待美方通報美烏會談細節
+
+![克里姆林宮發言人佩斯科夫說，俄方正等待美方通報美烏會談的細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795484_1_20250313025110.jpg&q=90)
+  
+
+美國總統特朗普說，美國官員將前往俄羅斯，討論停火30天的建議，以及通往和談的途徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm)
+
+---
+
 # 特朗普威脅將對歐盟進一步加徵關稅
 
 ![特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795483_1_20250313023537.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm)
-
----
-
-# 台股高收約1%
-
-![加權指數收市報22278點，升207點，升幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795408_1_20250312141732.jpg&q=90)
-  
-
-台灣股市造好。加權指數收市報22278點，升207點，升幅0.94%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm)
 
 ---

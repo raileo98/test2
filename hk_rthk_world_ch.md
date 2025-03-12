@@ -1,3 +1,27 @@
+# 美國官員將赴俄討論停火　克宮：等待美方通報美烏會談細節
+
+![克里姆林宮發言人佩斯科夫說，俄方正等待美方通報美烏會談的細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795484_1_20250313025110.jpg&q=90)
+  
+
+美國總統特朗普說，美國官員將前往俄羅斯，討論停火30天的建議，以及通往和談的途徑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm)
+
+---
+
 # 特朗普威脅將對歐盟進一步加徵關稅
 
 ![特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795483_1_20250313023537.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795176-20250311.htm)
-
----
-
-# 英國附近海域油輪與貨船相撞　貨船船主稱1名船員失蹤
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795178_1_20250311062425.jpg&q=90)
-  
-
-英國英格蘭東北部附近海域發生油輪和貨船相撞事故，涉事油輪事後起火。英國傳媒報道，兩艘船共30多人被安全救上岸，貨船船主就說，一名船員失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm)
 
 ---
