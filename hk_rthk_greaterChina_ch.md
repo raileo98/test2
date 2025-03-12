@@ -1,3 +1,27 @@
+# 梁振英稱大灣區規劃中九個內地城市和兩特區合作還有很多工作要做
+
+![梁振英說，香港可以利用自身在專業服務業上的優勢，為國家的產品提供專業的第三方獨立檢測認證服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795451_1_20250312203821.jpg&q=80)
+  
+
+全國政協副主席、前行政長官梁振英表示，在粵港澳大灣區規劃中，九個內地城市和兩個特區的合作，還有大量空間、很多工作需要做。首要是需要身體力行解決一些情況，廣東九個城市和兩個特區的人流、物流、資金流、信息流，如今仍然未能更好地流通，不僅是香港與澳門特區，廣東九個城市都要有更強的改革開放意識，處理人流、物流、資金流、信息流方面的工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm)
+
+---
+
 # 中醫醫院公營服務收費料與公立醫院看齊
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795443_1_20250312183326.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm)
-
----
-
-# 全國兩會 | 研究員相信中國半導體產業未來幾年將有不錯發展
-
-![齊向東表示，DeepSeek將大模型全面開源，讓人可隨意取用和開發，相信會帶來人工智能應用大爆發。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795083_2_20250310122847.jpg&q=80)
-  
-
-中國人工智能大模型DeepSeek的出現，令國家科研創新能力成為熱話。不過，有網絡安全企業關注網絡攻擊風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm)
 
 ---

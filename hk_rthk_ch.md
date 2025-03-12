@@ -1,3 +1,167 @@
+# 威院獲中國國際醫院評審認證　盧寵茂與深圳官員見證
+
+  
+
+​醫務衞生局局長盧寵茂和深圳市委常委、市政府黨組成員陳清及其率領的代表團，出席「威爾斯親王醫院獲中國國際醫院評審認證授牌儀式」，見證該醫院成為香港特別行政區第二間成功通過《國際醫院評審認證標準（中國）》（2021版）評審認證的醫院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm)
+
+---
+
+# 杜特爾特前往海牙途中　飛機短暫停留迪拜
+
+![杜特爾特正被押解前往法院所在地荷蘭海牙。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795452_1_20250312204246.jpg&q=90)
+  
+
+被國際刑事法院指控違反人類罪的菲律賓前總統杜特爾特，正被押解前往法院所在地荷蘭海牙，飛機一度停留阿聯酋迪拜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm)
+
+---
+
+# 梁振英稱實現雙碳戰略體現中國應對全球氣變及保護生存環境責任
+
+  
+
+全國政協副主席、香港再出發大聯盟總召集人梁振英表示，中國正致力於在最短時間內實現人類歷史上最大幅度的減碳目標，形容這是一場全球性的綠色征程，每個人都身處其中，共同見證並參與應對全球氣候變化的挑戰，推動構建人類命運共同體的時代變革。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm)
+
+---
+
+# 當局指示業界暫停從美國紐約州布朗克斯進口禽肉及禽類產品
+
+  
+
+食物安全中心宣布，因應世界動物衞生組織通報，指美國紐約州布朗克斯縣爆發高致病性H5N1禽流感，中心指示業界暫停從該地區及其附近的紐約州韋斯特切斯特縣進口禽肉，及包括禽蛋的禽類產品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm)
+
+---
+
+# 李嘉誠基金會贈治肝儀器　港大醫學院稱已於瑪麗醫院進行臨床試驗
+
+  
+
+李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，本月底將為相關私院病人提供治療服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm)
+
+---
+
+# 梁振英稱大灣區規劃中九個內地城市和兩特區合作還有很多工作要做
+
+![梁振英說，香港可以利用自身在專業服務業上的優勢，為國家的產品提供專業的第三方獨立檢測認證服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795451_1_20250312203821.jpg&q=80)
+  
+
+全國政協副主席、前行政長官梁振英表示，在粵港澳大灣區規劃中，九個內地城市和兩個特區的合作，還有大量空間、很多工作需要做。首要是需要身體力行解決一些情況，廣東九個城市和兩個特區的人流、物流、資金流、信息流，如今仍然未能更好地流通，不僅是香港與澳門特區，廣東九個城市都要有更強的改革開放意識，處理人流、物流、資金流、信息流方面的工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm)
+
+---
+
+# 去年詐騙案逾4.4萬宗　金管局推新一輪防騙公眾教育短片
+
+![短片中騙徒「嗱喳蕉」外表善良可愛，一旦得逞便露出猙獰面目，騙取市民信任和金錢。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795449_1_20250312201311.jpg&q=90)
+  
+
+金管局今日推出新一輪「撳LINK中『蕉』」防騙公眾教育短片系列，以誇張手法呈現騙徒真面目，提醒市民時刻警惕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
+
+---
+
 # 克宮發言人稱俄方不會於停火30日問題操之過急　要先獲美方信息
 
   

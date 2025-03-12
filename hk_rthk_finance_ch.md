@@ -1,3 +1,27 @@
+# 去年詐騙案逾4.4萬宗　金管局推新一輪防騙公眾教育短片
+
+![短片中騙徒「嗱喳蕉」外表善良可愛，一旦得逞便露出猙獰面目，騙取市民信任和金錢。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795449_1_20250312201311.jpg&q=90)
+  
+
+金管局今日推出新一輪「撳LINK中『蕉』」防騙公眾教育短片系列，以誇張手法呈現騙徒真面目，提醒市民時刻警惕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
+
+---
+
 # 華僑銀行：日本大型企業加薪幅度符合預期　料央行今年或加息兩次
 
 ![華僑銀行香港經濟師姜靜認為，日本大型企業加薪幅度符合預期，預期今年將加息兩次，將基準利率從目前的0.5厘上調至1厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795448_1_20250312192459.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm)
-
----
-
-# 中證監：全力鞏固市場回穩向好勢頭　支持優質未有盈利科企上市
-
-![中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，支持優質未有盈利科技企業發行上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795308_1_20250311205821.jpg&q=75)
-  
-
-中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，更大力度推動中長期資金入市指導意見及實施方案落實落地；增強制度包容性、適應性，支持優質未有盈利科技企業發行上市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm)
 
 ---
