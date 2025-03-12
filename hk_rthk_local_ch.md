@@ -1,3 +1,26 @@
+# 接連有內地交流團師生不適　朱國強促教育局嚴肅處理
+
+  
+
+先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，以及中學生主題式內地交流計劃，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm)
+
+---
+
 # 恒指跌幅曾擴大至逾400點　科指跌逾3%
 
 ![港股下午沽壓加大。恒生指數曾跌約420點，科技指數較早時跌3.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795420_1_20250312152503.jpg&q=75)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
-
----
-
-# 承認企圖打劫連鎖店及行劫銀行　逾期居留新加坡籍老翁判囚11年
-
-![法官將兩罪部分刑期同期執行，因被告被捕後與警方合作，減刑3個月，最終判囚11年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795238_1_20250311135556.jpg&q=80)
-  
-
-一名73歲新加坡籍男子逾期居留10多年，花光數十萬元積蓄後財困，2020年企圖打劫一間連鎖店，2022年持氣槍打劫一間銀行劫走約14000元。他昨日承認一項企圖搶劫罪及一項搶劫罪，在高等法院被判入獄11年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm)
 
 ---

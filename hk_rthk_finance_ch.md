@@ -1,3 +1,27 @@
+# 工行設立800億元人民幣科技創新基金　加大支持硬科技及民企
+
+![工行設立800億元人民幣科技創新基金，持續加大對硬科技、民營經濟支持。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795423_1_20250312155243.jpg&q=90)
+  
+
+工商銀行表示，設立總規模達800億元人民幣科技創新基金，將定位為「耐心資本」，以股為主、股債貸保聯動，持續加大對硬科技、民營經濟支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm)
+
+---
+
 # 恒指跌幅曾擴大至逾400點　科指跌逾3%
 
 ![港股下午沽壓加大。恒生指數曾跌約420點，科技指數較早時跌3.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795420_1_20250312152503.jpg&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm)
-
----
-
-# 瑞銀：內地龍頭科技股估值增長有利港股表現
-
-![房東明稱，DeepSeek引發人工智能題材，相關股份估值增長，港股有力跑贏全球股市。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795264_1_20250311163557.jpg&q=90)
-  
-
-美股3大指數隔晚急瀉2%至4%，市場擔憂美國經濟陷入衰退。瑞銀全球金融市場部中國主管房東明表示，美股估值和資本流入均出現輪動情況，從長年期債息下跌可見，資金從股票轉到債券，即從風險較高資產轉移到風險相對低的資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795264-20250311.htm)
 
 ---
