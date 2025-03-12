@@ -1,3 +1,27 @@
+# Cathay Pacific profits edged up in 2024
+
+![Cathay Pacific posts a one percent rise in its group net profit of HK$9.89 billion for the year ended December 31, 2024.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
+  
+
+Cathay Pacific Airways on Wednesday reported marginal full-year profit growth, but airfares fell because of intense competition as Asia's airlines continue to restore seat capacity after the pandemic.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
+
+---
+
 # 'Measures to cut construction costs to come this year'
 
 ![Bernadette Linn ruled out wage cuts as part of the solution to high construction costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
@@ -1413,29 +1437,5 @@ Four people were injured and one driver fled the scene following a three-vehicle
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm)
-
----
-
-# 'HK plays an important role in China's development'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795077_1_20250310114948.jpg&q=90)
-  
-
-Businessman Irons Sze on Monday said Hong Kong's position as an international financial centre is attributed to China's reform and opening up and reinforced by the "One Country, Two Systems" principle.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm)
 
 ---

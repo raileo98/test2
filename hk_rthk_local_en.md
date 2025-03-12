@@ -1,3 +1,27 @@
+# Cathay Pacific profits edged up in 2024
+
+![Cathay Pacific posts a one percent rise in its group net profit of HK$9.89 billion for the year ended December 31, 2024.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
+  
+
+Cathay Pacific Airways on Wednesday reported marginal full-year profit growth, but airfares fell because of intense competition as Asia's airlines continue to restore seat capacity after the pandemic.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
+
+---
+
 # 'Measures to cut construction costs to come this year'
 
 ![Bernadette Linn ruled out wage cuts as part of the solution to high construction costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
@@ -1412,29 +1436,5 @@ Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantage
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm)
-
----
-
-# 'More transparent private healthcare charges needed'
-
-![The Consumer Council says many private hospitals and clinics did not provide sufficient price information, resulting in a flood of complaints. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794529_1_20250306130052.jpg&q=90)
-  
-
-The city's consumer watchdog on Thursday called on various private healthcare service providers, including hospitals and clinics, to be more transparent when they disclose their fees, given complaints over unexpectedly higher medical costs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794529-20250306.htm)
 
 ---

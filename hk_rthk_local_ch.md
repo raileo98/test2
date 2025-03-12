@@ -1,3 +1,26 @@
+# 公司註冊處資料外洩影響10.9萬人　私隱公署促全面檢視系統
+
+  
+
+個人資料私隱專員公署完成對公司註冊處資料外洩事故的調查，並發表調查結果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm)
+
+---
+
 # 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
 
   
@@ -1410,30 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm)
-
----
-
-# 承認以假學歷報讀中大碩士課程　30歲內地男子判囚3個月
-
-![被告承認一項以欺騙手段取得服務罪，另一項為取得入境證而安排作出虛假申述罪則獲撤控，判監禁3個月。
-（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795232_1_20250311122455.jpg&q=80)
-  
-
-一名30歲內地男子訛稱曾在美國紐約大學就讀，以假學歷報讀中文大學碩士課程，他今日於沙田裁判法院承認一項以欺騙手段取得服務罪，另一項為取得入境證而安排作出虛假申述罪則獲撤控，被告被判監禁3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795232-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795232-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795232-20250311.htm)
 
 ---

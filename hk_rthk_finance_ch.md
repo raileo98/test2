@@ -1,3 +1,27 @@
+# 台股高收約1%
+
+![加權指數收市報22278點，升207點，升幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795408_1_20250312141732.jpg&q=90)
+  
+
+台灣股市造好。加權指數收市報22278點，升207點，升幅0.94%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm)
+
+---
+
 # 日立：今年加薪6.2%　豐田：薪酬加幅與去年持平
 
 ![豐田表示，整體員工加薪幅度將與去年持平，並會發放相當於7.6個月薪酬的獎金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795406_1_20250312135259.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱香港利用北都加強與深圳科研合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
-  
-
-財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，本港亦會利用北部都會區，加強與深圳在科研方面的合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 公司註冊處資料外洩影響10.9萬人　私隱公署促全面檢視系統
+
+  
+
+個人資料私隱專員公署完成對公司註冊處資料外洩事故的調查，並發表調查結果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm)
+
+---
+
+# 台股高收約1%
+
+![加權指數收市報22278點，升207點，升幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795408_1_20250312141732.jpg&q=90)
+  
+
+台灣股市造好。加權指數收市報22278點，升207點，升幅0.94%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm)
+
+---
+
 # 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
 
   
@@ -1385,54 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm)
-
----
-
-# 菲總統證實杜特爾特正被送往海牙
-
-![總統小馬可斯召開記者會，證實載著杜特爾特的飛機已於晚上大約11時起飛。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_2_20250312025249.jpg&q=90)
-![支持者在馬尼拉集會聲援杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_3_20250312025249.jpg&q=85)
-  
-
-菲律賓前總統杜特爾特被捕後，正被送往國際刑事法院總部所在地荷蘭海牙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm)
-
----
-
-# 道指跌幅曾擴大至逾600點
-
-![道瓊斯指數一度跌逾600點，早段低見41278點，較早時報41341點，跌570點，跌幅1.36%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795326_1_20250311230811.jpg&q=90)
-  
-
-美股跌幅擴大，道瓊斯指數一度跌逾600點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm)
 
 ---
