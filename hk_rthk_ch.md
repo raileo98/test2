@@ -1,3 +1,49 @@
+# 甯漢豪：今年落實措施降低工程建造成本
+
+  
+
+發展局局長甯漢豪表示，今年會落實具體措施，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm)
+
+---
+
+# 中醫醫院公營服務收費料與公立醫院看齊
+
+  
+
+由浸會大學承辦的香港中醫醫院，預計年底開始投入運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm)
+
+---
+
 # 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
 
 ![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
@@ -24,6 +70,7 @@
 
 # 旅發局邀泰國演員台灣歌手參演宣傳片　介紹本港綠色旅遊資源
 
+![旅發局推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。（旅發局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795442_1_20250312181152.jpg&q=90)
   
 
 旅發局於社交平台推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。
@@ -71,6 +118,7 @@
 
 # 香港快運去年由盈轉虧　林紹波稱屬短期問題長遠有信心有盈利
 
+![國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795439_1_20250312181118.jpg&q=90)
   
 
 國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。
@@ -94,6 +142,7 @@
 
 # 教育局修訂「派0班」小學發展規劃　取消特別視學安排
 
+![教育局表示，預計未來學額和學校數目會隨學齡人口變化相應減少，將採取「軟著陸」策略，適度有序地減少學校數目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795437_1_20250312181038.jpg&q=80)
   
 
 教育局表示，預計2025至2031年6歲小一適齡人口將會由48600名降至37500名，學齡人口結構性下降的趨勢將繼續維持，就「派0班」的小學發展規劃作修訂，取消特別視學安排，方案選項由4個減至3個。
@@ -117,6 +166,7 @@
 
 # 林紹波相信運力進一步提升　今年長途機票價格下降
 
+![林紹波表示，去年國泰航空和旗下香港快運合計的運力，增長超過30%，短途航線的機票價格去年已經完全正常化。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795436_1_20250312181003.jpg&q=80)
   
 
 國泰航空去年盈利近98.9億元，按年上升1%。

@@ -1,3 +1,26 @@
+# 中醫醫院公營服務收費料與公立醫院看齊
+
+  
+
+由浸會大學承辦的香港中醫醫院，預計年底開始投入運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm)
+
+---
+
 # 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
 
 ![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795083-20250310.htm)
-
----
-
-# 陳茂波稱香港要在人工智能引領浪潮中把握機遇
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795079_1_20250310122732.jpg&q=80)
-  
-
-黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm)
 
 ---
