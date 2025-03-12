@@ -1,3 +1,27 @@
+# 國常會：已明確全年經濟社會發展目標　各部門要細化措施加快落實
+
+![李強主持召開國常會指出，政府工作報告明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795459_1_20250312210430.jpg&q=90)
+  
+
+國務院總理李強主持召開國常會指出，最新審議通過的政府工作報告，明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實，與各種不確定因素搶時間並靠前發力，亦要做好政策儲備，確保需要時能夠及時推出，盡快見效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm)
+
+---
+
 # 梁振英稱大灣區規劃中九個內地城市和兩特區合作還有很多工作要做
 
 ![梁振英說，香港可以利用自身在專業服務業上的優勢，為國家的產品提供專業的第三方獨立檢測認證服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795451_1_20250312203821.jpg&q=80)
@@ -67,6 +91,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
+
+---
+
+# 中方回應美方關稅指貿易戰無贏家　 歐盟宣布反制美方措施
+
+![毛寧說美方做法嚴重違反世貿組織規則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_3_20250312205151.jpg&q=90)
+  
+
+美國對進口鋼鋁徵收25%關稅的措施生效。在北京，外交部表示搞保護主義沒有出路，貿易戰及關稅戰無贏家，這是國際社會的普遍共識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm)
 
 ---
 
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm)
-
----
-
-# 全國兩會｜仇鴻指赤字是香港前進過程挑戰　齊心協力情況越來越好
-
-![仇鴻說，香港的管治權應該牢牢掌握在愛國愛港人士的手裡。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795086_1_20250310124530.jpg&q=80)
-  
-
-在北京，全國政協委員、中聯辦前副主任仇鴻說，相信香港的情況會越來越好，她亦看到香港市民積極參與香港及國家的建設，為保持香港長期繁榮作出自己的貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795086-20250310.htm)
-
----
-
-# 全國兩會 | 全國政協會議閉幕　王滬寧：彰顯人民政協政治優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795084_2_20250310123241.jpg&q=85)
-  
-
-在北京，全國政協會議早上閉幕，全國政協主席王滬寧表示，會議圓滿完成各項議程，充分彰顯人民政協的顯著政治優勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795084-20250310.htm)
 
 ---

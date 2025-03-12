@@ -1,3 +1,51 @@
+# 國常會：已明確全年經濟社會發展目標　各部門要細化措施加快落實
+
+![李強主持召開國常會指出，政府工作報告明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795459_1_20250312210430.jpg&q=90)
+  
+
+國務院總理李強主持召開國常會指出，最新審議通過的政府工作報告，明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實，與各種不確定因素搶時間並靠前發力，亦要做好政策儲備，確保需要時能夠及時推出，盡快見效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm)
+
+---
+
+# 美國上月通脹率放緩至2.8%　低過預期
+
+![美國2月消費物價指數(CPI)按月升0.2%，按年升2.8%，兩者升幅均較1月放緩，亦低過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795458_1_20250312205505.jpg&q=90)
+  
+
+美國2月消費物價指數(CPI)按月升0.2%，低過市場預期的0.3%；按年升2.8%，低過預期的2.9%。兩者升幅均較1月放緩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm)
+
+---
+
 # 去年詐騙案逾4.4萬宗　金管局推新一輪防騙公眾教育短片
 
 ![短片中騙徒「嗱喳蕉」外表善良可愛，一旦得逞便露出猙獰面目，騙取市民信任和金錢。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795449_1_20250312201311.jpg&q=90)
@@ -235,30 +283,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
-
----
-
-# 美國對鋼鋁徵收25%關稅　歐盟下月起向260億歐元美國貨徵稅
-
-![馮德萊恩表示，對美國的措施深感遺憾，認為關稅會擾亂供應鏈，對經濟帶來不確定性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_1_20250312155410.jpg&q=90)
-  
-
-美國對進口鋼鋁徵收25%關稅的措施生效，歐盟委員會宣布反制，下月起向總值260億歐元的美國商品徵收關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm)
 
 ---
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm)
-
----
-
-# 星島料去年度虧損擴大至約8500萬元
-
-![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=85)
-  
-
-星島新聞集團預計，去年度將錄得虧損約8500萬元，較前年度約4900萬元虧損擴大73%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm)
 
 ---

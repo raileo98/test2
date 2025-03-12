@@ -1,3 +1,74 @@
+# 國常會：已明確全年經濟社會發展目標　各部門要細化措施加快落實
+
+![李強主持召開國常會指出，政府工作報告明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795459_1_20250312210430.jpg&q=90)
+  
+
+國務院總理李強主持召開國常會指出，最新審議通過的政府工作報告，明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實，與各種不確定因素搶時間並靠前發力，亦要做好政策儲備，確保需要時能夠及時推出，盡快見效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm)
+
+---
+
+# 美國上月通脹率放緩至2.8%　低過預期
+
+![美國2月消費物價指數(CPI)按月升0.2%，按年升2.8%，兩者升幅均較1月放緩，亦低過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795458_1_20250312205505.jpg&q=90)
+  
+
+美國2月消費物價指數(CPI)按月升0.2%，低過市場預期的0.3%；按年升2.8%，低過預期的2.9%。兩者升幅均較1月放緩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm)
+
+---
+
+# 美情報總監指已恢復分享情報　烏克蘭擬建團隊制定停火路線圖
+
+  
+
+美國國家情報總監加巴德宣布，根據總統特朗普的指示，目前已恢復與烏克蘭的情報分享。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm)
+
+---
+
 # 威院獲中國國際醫院評審認證　盧寵茂與深圳官員見證
 
   
@@ -91,8 +162,9 @@
 
 ---
 
-# 李嘉誠基金會贈治肝儀器　港大醫學院稱已於瑪麗醫院進行臨床試驗
+# 李嘉誠基金會贈治肝儀器　港大醫學院稱已於瑪麗醫院臨床試驗
 
+![醫學院表示，研究團隊可透過與港怡醫院共同管理的「臨床試驗中心」，運用另一同類型儀器作臨床試驗，期望讓更多病人受惠。（港怡醫院圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795453_1_20250312211141.jpg&q=90)
   
 
 李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，本月底將為相關私院病人提供治療服務。
@@ -593,12 +665,12 @@
 
 ---
 
-# 美國對鋼鋁徵收25%關稅　歐盟下月起向260億歐元美國貨徵稅
+# 中方回應美方關稅指貿易戰無贏家　 歐盟宣布反制美方措施
 
-![馮德萊恩表示，對美國的措施深感遺憾，認為關稅會擾亂供應鏈，對經濟帶來不確定性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_1_20250312155410.jpg&q=90)
+![毛寧說美方做法嚴重違反世貿組織規則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_3_20250312205151.jpg&q=90)
   
 
-美國對進口鋼鋁徵收25%關稅的措施生效，歐盟委員會宣布反制，下月起向總值260億歐元的美國商品徵收關稅。
+美國對進口鋼鋁徵收25%關稅的措施生效。在北京，外交部表示搞保護主義沒有出路，貿易戰及關稅戰無贏家，這是國際社會的普遍共識。
 
   
 

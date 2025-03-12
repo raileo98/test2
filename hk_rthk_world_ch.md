@@ -1,3 +1,26 @@
+# 美情報總監指已恢復分享情報　烏克蘭擬建團隊制定停火路線圖
+
+  
+
+美國國家情報總監加巴德宣布，根據總統特朗普的指示，目前已恢復與烏克蘭的情報分享。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm)
+
+---
+
 # 杜特爾特前往海牙途中　飛機短暫停留迪拜
 
 ![杜特爾特正被押解前往法院所在地荷蘭海牙。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795452_1_20250312204246.jpg&q=90)
@@ -93,12 +116,12 @@
 
 ---
 
-# 美國對鋼鋁徵收25%關稅　歐盟下月起向260億歐元美國貨徵稅
+# 中方回應美方關稅指貿易戰無贏家　 歐盟宣布反制美方措施
 
-![馮德萊恩表示，對美國的措施深感遺憾，認為關稅會擾亂供應鏈，對經濟帶來不確定性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_1_20250312155410.jpg&q=90)
+![毛寧說美方做法嚴重違反世貿組織規則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_3_20250312205151.jpg&q=90)
   
 
-美國對進口鋼鋁徵收25%關稅的措施生效，歐盟委員會宣布反制，下月起向總值260億歐元的美國商品徵收關稅。
+美國對進口鋼鋁徵收25%關稅的措施生效。在北京，外交部表示搞保護主義沒有出路，貿易戰及關稅戰無贏家，這是國際社會的普遍共識。
 
   
 
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm)
-
----
-
-# 俄羅斯指英國大使館兩人員從事間諜活動威脅安全　勒令兩周內離境
-
-![佩斯科夫表示，情報部門正盡一切努力維護國家安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795164_1_20250310223930.jpg&q=90)
-  
-
-俄羅斯指控英國駐莫斯科大使館有兩名外交人員從事間諜活動，他們的偵察和破壞活動威脅俄羅斯聯邦安全，宣布剝奪兩人的派駐資格，勒令在兩星期內離境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795164-20250310.htm)
 
 ---
