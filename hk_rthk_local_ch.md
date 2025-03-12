@@ -22,6 +22,29 @@
 
 ---
 
+# 迪士尼貨倉遭爆竊失價值300萬元電子設備　3名男子被捕
+
+  
+
+警方接獲迪士尼樂園職員報案，懷疑被人盜去一批電子器材。警方拘捕3名男子，包括一名28歲本身是貨倉職員的電腦技術員、回收公司負責人及工人，他們分別涉嫌爆竊及處理贓物。香港迪士尼樂園回覆查詢時表示，案件不涉及香港迪士尼員工，會全力協助警方調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm)
+
+---
+
 # 民主思路公布一國兩制指數微跌　逾48%受訪者不滿意立法會表現
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795238-20250311.htm)
-
----
-
-# 港股下午初段跌逾200點
-
-![港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795237_1_20250311131342.jpg&q=40)
-  
-
-港股下午初段持續偏軟，恒生指數較早時報23545點，跌238點，跌幅1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm)
 
 ---
