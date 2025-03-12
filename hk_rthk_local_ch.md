@@ -1,5 +1,7 @@
 # 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
 
+![夏寶龍下午在北京會見香港科技大學管理層。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_1_20250312223922.jpg&q=90)
+![夏寶龍說，科大在培養優秀專業人才、推動產學研協同創新等方面，取得優異成績。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_2_20250312223922.jpg&q=90)
   
 
 中央港澳辦、國務院港澳辦主任夏寶龍，下午在北京會見香港科技大學校董會主席沈向洋、校長葉玉如等人。
