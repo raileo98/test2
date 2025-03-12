@@ -1,3 +1,27 @@
+# 滬股半日跌4點　創業板指數於2200點爭持
+
+![上證指數半日收報3375點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795385_1_20250312114128.jpg&q=85)
+  
+
+內地股市反覆向下，半日收市變動不大。算力概念、影視、雲遊戲、通信服務股造好；豬肉、白酒、工程機械、機場航運股下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm)
+
+---
+
 # 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm)
-
----
-
-# 分析：貿易政策變化將成影響美股走勢關鍵
-
-![黃瑋傑估計標普500指數在5000點整數關口有初步支持。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795231_1_20250311122112.jpg&q=85)
-  
-
-美股踏入夏令時間首個交易日，3大指數急瀉2%至4%收市，3大股指期貨在亞洲時段窄幅上落。關稅措施不確定、聯邦政府可能停擺，美國經濟或陷入衰退，都觸動投資者神經。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 滬股半日跌4點　創業板指數於2200點爭持
+
+![上證指數半日收報3375點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795385_1_20250312114128.jpg&q=85)
+  
+
+內地股市反覆向下，半日收市變動不大。算力概念、影視、雲遊戲、通信服務股造好；豬肉、白酒、工程機械、機場航運股下跌。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm)
+
+---
+
 # 4千車手參與周日單車百萬行　受封路影響三屋苑住戶已獲發行車證
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm)
-
----
-
-# 巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質
-
-![巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795304_1_20250311203644.jpg&q=90)
-  
-
-巴基斯坦軍方消息人士向新華社證實，巴基斯坦西南部俾路支省境內一列載有超過400名乘客的列車遇襲，武裝分子挾持部分乘客作為人質。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm)
 
 ---
