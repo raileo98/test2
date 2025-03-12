@@ -1,3 +1,27 @@
+# UK makes manslaughter arrest of ship captain
+
+![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=80)
+  
+
+British police on Tuesday arrested on suspicion of manslaughter the captain of a ship that crashed into a tanker in the North Sea, sparking a massive blaze and leaving one crew member missing, presumed dead.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm)
+
+---
+
 # Greenland votes in election eyed by Trump
 
 ![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=80)
@@ -1414,29 +1438,5 @@ Former central banker Mark Carney won the race to become leader of Canada's ruli
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm)
-
----
-
-# India beat NZ to win Champions Trophy final
-
-![India players celebrate on the podium after winning the ICC Men's Champions Trophy. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795030_1_20250310061006.jpg&q=75)
-  
-
-Rohit Sharma made a combative 76 to back up a potent spin bowling display as India beat New Zealand by four wickets to win a record third Champions Trophy title.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm)
 
 ---

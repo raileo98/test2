@@ -1,3 +1,195 @@
+# 植田和男：長期利率取決於市場對經濟及物價走勢看法
+
+![植田和男表示，長期利率變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795363_1_20250312091557.jpg&q=90)
+  
+
+日本央行總裁植田和男在國會回答質詢時表示，自去年以來，長期利率出現上升趨勢，長息變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。他又說，不認為央行與市場看法存在很大分歧。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm)
+
+---
+
+# 人行逆回購1754億元人民幣　淨回籠規模增至逾千億元
+
+![人行公開市場開展1754億元人民幣7天期逆回購，單日淨回籠規模增至1778億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795368_1_20250312092738.jpg&q=45)
+  
+
+人民銀行公開市場開展1754億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠1778億元，連續8日淨回籠，規模遠多於前兩日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm)
+
+---
+
+# 滬深股市偏軟
+
+![內地股市初段偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795369_1_20250312093830.jpg&q=85)
+  
+
+滬深股市偏軟。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm)
+
+---
+
+# 人民幣兌美元中間價升穿7.17　創近1星期新高
+
+![人民幣中間價報7.1696兌1美元，較昨日中間價升45點子，創近1星期高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795365_1_20250312091823.jpg&q=55)
+  
+
+人民幣中間價突破7.17兌1美元關口，報7.1696，較昨日中間價升45點子，創近1星期高位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm)
+
+---
+
+# 港股競價時段升77點　科指重上6000點
+
+![恒生指數競價時段報23859點，升77點，升幅0.32%；科技指數重上6000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795367_1_20250312092253.jpg&q=45)
+  
+
+港股開市靠穩，恒生指數競價時段報23859點，升77點，升幅0.32%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm)
+
+---
+
+# 台股初段升約百點
+
+![加權指數較早時報22162點，升91點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795362_1_20250312090531.jpg&q=90)
+  
+
+台股初段靠穩，加權指數較早時報22162點，升91點，升幅0.42%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm)
+
+---
+
+# 全國兩會︳中醫藥管理局讚港中醫醫院標準高　兩地合作前景廣闊
+
+![衞炳江表示，正密鑼緊鼓準備香港中醫醫院開幕，進度符合預期。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795361_2_20250312092301.jpg&q=85)
+  
+
+香港中醫醫院預計今年底起分階段投入服務，由浸會大學管理和營運。全國政協委員、國家中醫藥管理局局長余艷紅，在全國兩會期間接受本台訪問說，相信中醫醫院的設立，有利中醫藥推廣到世界各地，認為國家在中西醫結合治療探索得非常理想，內地與香港在應對慢性疾病和奇難雜症方面，展示廣闊合作前景。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm)
+
+---
+
+# 甯漢豪：今年落實措施降低建造成本　由政府中央採購部分建築材料
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795359_1_20250312092418.jpg&q=85)
+  
+
+發展局局長甯漢豪表示，今年會落實具體措施對症下藥，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm)
+
+---
+
 # 美國眾議院通過法案避免聯邦政府「關門」
 
 ![美國眾議院通過一項法案，避免聯邦政府「關門」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795357_1_20250312085524.jpg&q=75)
@@ -96,7 +288,7 @@
 
 # 公院本月24日起每次最多配24周藥物　醫管局料可省數以千萬元
 
-![醫管局聯網服務總監鄧耀鏗（右）指，醫管局在本月24日起，會分階段更改配藥安排。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_1_20250312071709.jpg&q=85)
+![醫管局總藥劑師崔俊明認為社會可以討論藥費有否有調整空間。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_2_20250312071709.jpg&q=85)
   
 
 醫管局本月24日起更改配藥安排，希望減少浪費，包括每次最多只向病人配發24個星期、即相當於大約6個月的藥物，若病情需要處方多過24星期的藥物，便要安排第二次取藥。至於有需要時才服用的藥物，例如止痛藥、藥膏等，如果醫生處方多過28日，病人會獲派發25%的份量，有需要時醫生可按臨床需要作出調整。
@@ -1248,197 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm)
-
----
-
-# 財政預算案2025 | 陳茂波：現時未必合適作稅務調升
-
-![陳茂波說，考慮稅制必定要考慮競爭力，因為要與鄰近地區爭投資、爭人才，因此要相當謹慎，重申現時未必合適作稅務調升。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795292_1_20250311190645.jpg&q=90)
-  
-
-財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，而本港擁有多項優勢，包括能吸引外國人才等。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm)
-
----
-
-# 港鐵今年或凍結票價　有議員料減票價機會不大
-
-![金澤培表示，估計今年港鐵票價可能凍結。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795290_1_20250311190056.jpg&q=75)
-  
-
-港鐵行政總裁金澤培表示，估計今年港鐵票價可能凍結。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm)
-
----
-
-# 全國兩會｜人大會議閉幕　李鴻忠：為實現十五五良好開局打牢基礎
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795289_1_20250311184728.jpg&q=65)
-  
-
-十四屆全國人大三次會議在北京閉幕，會議表決通過了所有決議草案及決定草案。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm)
-
----
-
-# 陳茂波籲人工智能等企業來港上市
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795291_1_20250311184725.jpg&q=90)
-  
-
-財政司司長陳茂波說，香港在數據同人才方面都有優勢，呼籲人工智能等公司來港上市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm)
-
----
-
-# 全國兩會｜自然資源部增加優質耕地比例　讓中國飯碗更穩更牢
-
-![關志鷗表示，今年政府工作報告和中央一號文件對耕地保護提出了明確要求，當局會重點做好三件事，包括要穩數量、強監管；提質量、優佈局；亦要優生態、惠民生。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795287_1_20250311184333.jpg&q=90)
-  
-
-在北京，自然資源部部長關志鷗表示，今年政府工作報告和中央一號文件對耕地保護提出了明確要求，當局會重點做好三件事，包括要穩數量、強監管；提質量、優佈局；亦要優生態、惠民生。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm)
-
----
-
-# 大埔醫院內科及老人科病房多一名病人帶有耳念珠菌
-
-![院方說，會根據既定指引，繼續對病人的緊密接觸者展開追蹤篩查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795286_1_20250311183554.jpg&q=60)
-  
-
-大埔醫院早前公布有病人帶有耳念珠菌，經接觸追蹤調查，再發現內科及老人科病房多一名63歲男病人帶有耳念珠菌但並無感染徵狀。該名病人早前已經出院。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795286-20250311.htm)
-
----
-
-# 廉署籲公眾提防寄件人為「ICAC」Hotmail偽冒電郵
-
-![廉政公署呼籲公眾提高警覺，提防由寄件人為「“ICAC”」Hotmail電郵帳戶發出的偽冒廉署電郵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795285_1_20250311181714.jpg&q=80)
-  
-
-廉政公署呼籲公眾提高警覺，提防由寄件人為「“ICAC”」Hotmail電郵帳戶發出的偽冒廉署電郵。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795285-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795285-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795285-20250311.htm)
-
----
-
-# 全國兩會｜馬逢國認為趙樂際因病請假屬嚴謹做法
-
-![人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795284_1_20250311181644.jpg&q=85)
-  
-
-十四屆全國人大三次會議在北京人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm)
 
 ---

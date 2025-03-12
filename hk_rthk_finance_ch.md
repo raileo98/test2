@@ -1,3 +1,171 @@
+# 植田和男：長期利率取決於市場對經濟及物價走勢看法
+
+![植田和男表示，長期利率變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795363_1_20250312091557.jpg&q=90)
+  
+
+日本央行總裁植田和男在國會回答質詢時表示，自去年以來，長期利率出現上升趨勢，長息變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。他又說，不認為央行與市場看法存在很大分歧。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm)
+
+---
+
+# 人行逆回購1754億元人民幣　淨回籠規模增至逾千億元
+
+![人行公開市場開展1754億元人民幣7天期逆回購，單日淨回籠規模增至1778億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795368_1_20250312092738.jpg&q=45)
+  
+
+人民銀行公開市場開展1754億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠1778億元，連續8日淨回籠，規模遠多於前兩日。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm)
+
+---
+
+# 滬深股市偏軟
+
+![內地股市初段偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795369_1_20250312093830.jpg&q=85)
+  
+
+滬深股市偏軟。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm)
+
+---
+
+# 人民幣兌美元中間價升穿7.17　創近1星期新高
+
+![人民幣中間價報7.1696兌1美元，較昨日中間價升45點子，創近1星期高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795365_1_20250312091823.jpg&q=55)
+  
+
+人民幣中間價突破7.17兌1美元關口，報7.1696，較昨日中間價升45點子，創近1星期高位。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm)
+
+---
+
+# 港股競價時段升77點　科指重上6000點
+
+![恒生指數競價時段報23859點，升77點，升幅0.32%；科技指數重上6000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795367_1_20250312092253.jpg&q=45)
+  
+
+港股開市靠穩，恒生指數競價時段報23859點，升77點，升幅0.32%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm)
+
+---
+
+# 台股初段升約百點
+
+![加權指數較早時報22162點，升91點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795362_1_20250312090531.jpg&q=90)
+  
+
+台股初段靠穩，加權指數較早時報22162點，升91點，升幅0.42%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm)
+
+---
+
+# 甯漢豪：今年落實措施降低建造成本　由政府中央採購部分建築材料
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795359_1_20250312092418.jpg&q=85)
+  
+
+發展局局長甯漢豪表示，今年會落實具體措施對症下藥，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm)
+
+---
+
 # 韓股初段升0.3%以上
 
 ![首爾綜合指數較早時報2546點，升8點，升幅0.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795355_1_20250312080655.jpg&q=90)
@@ -190,6 +358,54 @@
 
 ---
 
+# 安省暫緩對輸美電力徵收附加費　白宮不向加國鋼鋁加倍徵關稅
+
+![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=75)
+  
+
+加拿大安大略省政府同意暫停對輸往美國三個州的電力，徵收25%的附加費。美國總統特朗普表示，很可能重新考慮對加拿大鋼鋁加倍徵收關稅的決定。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm)
+
+---
+
+# 美國向加國鋼鋁產品加倍徵稅　白宮：特朗普尚未與卡尼交談
+
+![萊維特說，特朗普的電話始終對希望與他交談的領導人保持開放。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795332_1_20250312023548.jpg&q=90)
+  
+
+美國總統特朗普宣布，將對從加拿大進口的鋼鋁產品，額外徵收25%的關稅，令關稅水平提高至50%，當地周三生效，以報復加拿大安大略省對輸送到美國的電力徵收附加費。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm)
+
+---
+
 # 道指跌幅曾擴大至逾600點
 
 ![道瓊斯指數一度跌逾600點，早段低見41278點，較早時報41341點，跌570點，跌幅1.36%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795326_1_20250311230811.jpg&q=90)
@@ -211,6 +427,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm)
+
+---
+
+# 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
+
+![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=85)
+  
+
+美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
 
 ---
 
@@ -1197,245 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm)
-
----
-
-# 學者指兩至三間外送平台已飽和　餐飲業稱有競爭但可找到平衡點
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795213_1_20250311111459.jpg&q=85)
-  
-
-戶戶送Deliveroo宣布撤出香港市場，平台將繼續運行至4月7日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm)
-
----
-
-# 滬股初段跌約0.6%
-
-![滬深股市初段偏軟，上證指數較早時報3347點，跌18點，跌幅0.56%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795209_1_20250311093426.jpg&q=75)
-  
-
-滬深股市初段偏軟。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795209-20250311.htm)
-
----
-
-# 人行逆回購377億元人民幣　連續7日淨回籠
-
-![人民銀行公開市場開展377億元人民幣7天期逆回購操作，單日淨回籠5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795208_1_20250311093234.jpg&q=50)
-  
-
-人民銀行公開市場開展377億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠5億元，連續7日淨回籠。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795208-20250311.htm)
-
----
-
-# 港股低開508點　科指跌約2.7%
-
-![恒生指數競價時段報23274點，跌508點，跌幅2.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795207_1_20250311092314.jpg&q=5)
-  
-
-港股承接隔晚美股、區內股市跌勢，恒生指數競價時段報23274點，跌508點，跌幅2.14%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795207-20250311.htm)
-
----
-
-# 人民幣兌美元中間價跌8點子　創逾1星期新低
-
-![人民幣中間價報7.1741兌1美元，較昨日中間價跌8點子，創逾1星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795206_1_20250311091715.jpg&q=55)
-  
-
-人民幣中間價報7.1741兌1美元，較昨日中間價跌8點子，創逾1星期新低。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795206-20250311.htm)
-
----
-
-# 全國兩會｜牧原實業秦英林稱民營經濟促進法明確民企重要地位
-
-![秦英林說，首次通過立法明確民營經濟在社會主義市場經濟中的重要地位，充分體現中央對民營經濟的高度重視和關心支持。（人民網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795205_2_20250311100923.jpg&q=90)
-  
-
-全國人大常委會會議上月底二審《民營經濟促進法》草案，日前發表的人大常委會工作報告提出，今後一年的任務包括制定有關法律。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm)
-
----
-
-# 全國兩會｜十四屆全國人大三次會議下午閉幕
-
-![為期七天的十四屆全國人大三次會議今日下午閉幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795204_2_20250311094947.jpg&q=35)
-  
-
-為期七天的十四屆全國人大三次會議今日下午閉幕。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm)
-
----
-
-# 台股初段跌逾600點　失守22000點
-
-![台灣加權指數較早時報21823點，跌635點，跌幅2.83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795202_1_20250311090221.jpg&q=85)
-  
-
-台灣股市初段向下，失守22000點水平。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795202-20250311.htm)
-
----
-
-# 日本上季經濟按季年率增長2.2%遜預期
-
-![日本去年第4季經濟按季年率增速向下修訂至2.2%，市場原先估計維持於2.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795198_1_20250311085200.jpg&q=75)
-  
-
-日本去年第4季經濟按季年率增速向下修訂至2.2%，市場原先估計維持於初值的2.8%，由於消費疲弱。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795198-20250311.htm)
-
----
-
-# 全國兩會｜李登海稱習近平講話提出民營經濟遵循原則增強民企信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
-  
-
-國家主席習近平上月在北京出席民營企業座談會，並發表重要講話，有超過30名民企代表參與，當中包括山東登海種業公司名譽董事長李登海。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm)
 
 ---

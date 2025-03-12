@@ -1,3 +1,27 @@
+# UK makes manslaughter arrest of ship captain
+
+![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=80)
+  
+
+British police on Tuesday arrested on suspicion of manslaughter the captain of a ship that crashed into a tanker in the North Sea, sparking a massive blaze and leaving one crew member missing, presumed dead.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm)
+
+---
+
 # Greenland votes in election eyed by Trump
 
 ![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=80)
@@ -1411,29 +1435,5 @@ Democrats protested President Donald Trump's address to Congress on Tuesday with
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794354-20250305.htm)
-
----
-
-# Trump hails 'unstoppable' America in Congress speech
-
-![US President Donald Trump hailed his first few weeks in office, telling Congress his administration had accomplished great things for America. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794327_1_20250305104833.jpg&q=90)
-  
-
-US President Donald Trump took a victory lap in a speech to Congress on Tuesday, exulting in a series of dramatic actions that have upended American foreign policy, ignited a trade war with close allies and slashed the federal workforce since he took office six weeks ago.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm)
 
 ---

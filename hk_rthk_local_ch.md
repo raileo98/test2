@@ -1,6 +1,54 @@
+# 全國兩會︳中醫藥管理局讚港中醫醫院標準高　兩地合作前景廣闊
+
+![衞炳江表示，正密鑼緊鼓準備香港中醫醫院開幕，進度符合預期。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795361_2_20250312092301.jpg&q=85)
+  
+
+香港中醫醫院預計今年底起分階段投入服務，由浸會大學管理和營運。全國政協委員、國家中醫藥管理局局長余艷紅，在全國兩會期間接受本台訪問說，相信中醫醫院的設立，有利中醫藥推廣到世界各地，認為國家在中西醫結合治療探索得非常理想，內地與香港在應對慢性疾病和奇難雜症方面，展示廣闊合作前景。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm)
+
+---
+
+# 甯漢豪：今年落實措施降低建造成本　由政府中央採購部分建築材料
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795359_1_20250312092418.jpg&q=85)
+  
+
+發展局局長甯漢豪表示，今年會落實具體措施對症下藥，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm)
+
+---
+
 # 公院本月24日起每次最多配24周藥物　醫管局料可省數以千萬元
 
-![醫管局聯網服務總監鄧耀鏗（右）指，醫管局在本月24日起，會分階段更改配藥安排。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_1_20250312071709.jpg&q=85)
+![醫管局總藥劑師崔俊明認為社會可以討論藥費有否有調整空間。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_2_20250312071709.jpg&q=85)
   
 
 醫管局本月24日起更改配藥安排，希望減少浪費，包括每次最多只向病人配發24個星期、即相當於大約6個月的藥物，若病情需要處方多過24星期的藥物，便要安排第二次取藥。至於有需要時才服用的藥物，例如止痛藥、藥膏等，如果醫生處方多過28日，病人會獲派發25%的份量，有需要時醫生可按臨床需要作出調整。
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm)
-
----
-
-# 清遠和佛山旅行團再多兩名團友感染退伍軍人病
-
-![中心接獲首宗通報後調查和跟進，聯絡與首名感染者參加同一團，及參與另外兩個行程及入住酒店相同的旅行團人士，並發現最新兩宗個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795147_1_20250310191613.jpg&q=90)
-  
-
-「領華旅遊社」清遠和佛山旅行團，再有兩名男團友感染退伍軍人病，連同之前已經公布的6宗個案，相關旅行團至今已有8人感染退伍軍人病。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm)
-
----
-
-# 外交部駐港公署：菲律賓前總統杜特爾特來港是私人度假行程
-
-![外交部駐港公署表示，菲律賓前總統杜特爾特來港是私人度假行程。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795144_1_20250310184001.jpg&q=85)
-  
-
-外交部駐港派員公署發言人就菲律賓前總統杜特爾特訪港回應記者提問，發言人說，據了解，杜特爾特及女兒莎拉此次來港是私人度假行程。有關菲律賓公民在港舉行的集會已根據特區法律法規事先提出申請。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
 
 ---

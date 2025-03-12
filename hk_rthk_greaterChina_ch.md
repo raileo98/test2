@@ -1,3 +1,27 @@
+# 全國兩會︳中醫藥管理局讚港中醫醫院標準高　兩地合作前景廣闊
+
+![衞炳江表示，正密鑼緊鼓準備香港中醫醫院開幕，進度符合預期。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795361_2_20250312092301.jpg&q=85)
+  
+
+香港中醫醫院預計今年底起分階段投入服務，由浸會大學管理和營運。全國政協委員、國家中醫藥管理局局長余艷紅，在全國兩會期間接受本台訪問說，相信中醫醫院的設立，有利中醫藥推廣到世界各地，認為國家在中西醫結合治療探索得非常理想，內地與香港在應對慢性疾病和奇難雜症方面，展示廣闊合作前景。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm)
+
+---
+
 # 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
-
----
-
-# 全國兩會｜學者指國家半導體製造業迅速進步　料未來數年更大進展
-
-![常凱說，近年很多半導體製造設備的國產化率已大幅提高。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795049_1_20250310093534.jpg&q=85)
-  
-
-在北京，全國政協常委、中國科學院半導體研究所研究員常凱接受本台訪問時表示，晶片是中美科技競爭的重要領域，雖然美國通過很多法案限制對華晶片出口，帶來了一些困難，但近年中國半導體晶圓製造產業有非常大進步，很多半導體製造設備的國產化率已大幅提高。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795049-20250310.htm)
 
 ---
