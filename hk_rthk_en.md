@@ -1,3 +1,27 @@
+# Three men arrested over Disneyland burglary
+
+![Sources say the electronic items missing from the Hong Kong Disneyland warehouse are worth around HK$3 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795429_1_20250312163825.jpg&q=85)
+  
+
+Police on Wednesday said they arrested three men who are suspected of stealing electronic devices from a Hong Kong Disneyland warehouse, and handling stolen goods.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm)
+
+---
+
 # China to host talks on Iranian nuclear issue
 
 ![The Foreign Ministry says China, Russia and Iran will hold talks on Friday on the Iranian nuclear issue and other topics of mutual interest. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795432_1_20250312165659.jpg&q=80)
@@ -70,9 +94,9 @@ Greenland's centre-right opposition Democrats have won a surprise victory in leg
 
 ---
 
-# City's IPO funds could double this year: FS
+# HK's IPO funds could double this year: FS
 
-![Paul Chan says that optimism over the country's tech sector could lift the city's IPO market. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
   
 
 Financial Secretary Paul Chan on Wednesday hinted that the city could double the funds raised for its initial public offering (IPO) market this year compared to that of last year, as optimism over the nation’s tech sector grows.
@@ -96,7 +120,7 @@ Financial Secretary Paul Chan on Wednesday hinted that the city could double the
 
 # Govt optimistic over top talent scheme visa renewals
 
-![About 10,000 visas under the Top Talent Pass Scheme are going to expire by the middle of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
   
 
 The government is optimistic about the number of people who will stay under the Top Talent Pass Scheme, labour chief Chris Sun said on Wednesday.
@@ -144,7 +168,7 @@ Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as
 
 # 'Measures to cut construction costs to come this year'
 
-![Bernadette Linn ruled out wage cuts as part of the solution to high construction costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
   
 
 Development secretary Bernadette Linn said reviewing construction standards and centralising procurement of materials are among concrete measures that the government will take to lower costs.
@@ -168,7 +192,7 @@ Development secretary Bernadette Linn said reviewing construction standards and 
 
 # Social workers board 'to review applications by law'
 
-![Chris Sun says he's confident the Social Workers Registration Board will fulfill its duties when reviewing renewal applications. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
   
 
 Secretary for Labour and Welfare Chris Sun said on Wednesday he believes the Social Workers Registration Board will review any renewal application as required by law.
@@ -1413,29 +1437,5 @@ Local shares sank on Monday on a mixed day for equity markets, amid escalating g
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm)
-
----
-
-# Deficit not a big problem for HK: Wang Linggui
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795110_1_20250310154314.jpg&q=90)
-  
-
-A deputy director of the Hong Kong and Macau Affairs Office on Monday said he does not believe the SAR's fiscal deficit is a major concern, citing the size of the city's economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm)
 
 ---

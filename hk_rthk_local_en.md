@@ -1,3 +1,27 @@
+# Three men arrested over Disneyland burglary
+
+![Sources say the electronic items missing from the Hong Kong Disneyland warehouse are worth around HK$3 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795429_1_20250312163825.jpg&q=85)
+  
+
+Police on Wednesday said they arrested three men who are suspected of stealing electronic devices from a Hong Kong Disneyland warehouse, and handling stolen goods.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm)
+
+---
+
 # 'People confident about One Country, Two Systems'
 
 ![Path of Democracy convenor Ronny Tong, left, says the latest figures from the One Country, Two Systems Index was "reassuring". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795430_1_20250312164449.jpg&q=90)
@@ -22,9 +46,9 @@ The convenor of the Path of Democracy, Ronny Tong, on Wednesday said people are 
 
 ---
 
-# City's IPO funds could double this year: FS
+# HK's IPO funds could double this year: FS
 
-![Paul Chan says that optimism over the country's tech sector could lift the city's IPO market. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
   
 
 Financial Secretary Paul Chan on Wednesday hinted that the city could double the funds raised for its initial public offering (IPO) market this year compared to that of last year, as optimism over the nation’s tech sector grows.
@@ -48,7 +72,7 @@ Financial Secretary Paul Chan on Wednesday hinted that the city could double the
 
 # Govt optimistic over top talent scheme visa renewals
 
-![About 10,000 visas under the Top Talent Pass Scheme are going to expire by the middle of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
   
 
 The government is optimistic about the number of people who will stay under the Top Talent Pass Scheme, labour chief Chris Sun said on Wednesday.
@@ -96,7 +120,7 @@ Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as
 
 # 'Measures to cut construction costs to come this year'
 
-![Bernadette Linn ruled out wage cuts as part of the solution to high construction costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
   
 
 Development secretary Bernadette Linn said reviewing construction standards and centralising procurement of materials are among concrete measures that the government will take to lower costs.
@@ -120,7 +144,7 @@ Development secretary Bernadette Linn said reviewing construction standards and 
 
 # Social workers board 'to review applications by law'
 
-![Chris Sun says he's confident the Social Workers Registration Board will fulfill its duties when reviewing renewal applications. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
   
 
 Secretary for Labour and Welfare Chris Sun said on Wednesday he believes the Social Workers Registration Board will review any renewal application as required by law.
@@ -1412,29 +1436,5 @@ Authorities insist there is still keen demand for housing, citing a low vacancy 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
-
----
-
-# Thanks to property gains, MTR profit more than doubles
-
-![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=85)
-  
-
-Net profit at the MTR Corporation more than doubled last year, thanks largely to strong gains in local property development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
 
 ---

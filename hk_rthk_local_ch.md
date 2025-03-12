@@ -1,5 +1,29 @@
+# 海關拘17歲深圳抵港男子　涉藏懷疑太空油毒品煙彈及電子煙
+
+  
+
+海關昨日在羅湖管制站拘捕一名17歲由深圳抵港旅客，在他身上搜出4粒懷疑「太空油毒品」煙彈、兩支懷疑含有「太空油毒品」的電子煙及一支電子煙裝置，被捕男子報稱無業，正保釋候查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm)
+
+---
+
 # 涉多區公園後巷盜取銅水管轉售　警方拘5人渉22宗案件
 
+![被捕的3男2女介乎51至97歲，涉案銅水管長達約2.5公里。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795431_1_20250312170829.jpg&q=90)
   
 
 警方昨日拘捕5人，涉嫌在多區盜取銅水管，總值超過1百萬元。
@@ -242,7 +266,7 @@
 ![流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795407_1_20250312150058.jpg&q=80)
   
 
-衞生防護中心公布先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。3間學校、共52名師生出現急性腸胃炎徵狀。流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。
+先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
 
   
 
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795257-20250311.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱香港利用北都加強與深圳科研合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
-  
-
-財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，本港亦會利用北部都會區，加強與深圳在科研方面的合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
 
 ---
