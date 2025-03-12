@@ -1,3 +1,27 @@
+# 分析指美國經濟硬著陸風險未見急升　料今年中開始減息
+
+![投資者預料聯儲局5月減息機會升至近一半，估計年內有機會減息3次，每次0.25厘。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795405_1_20250312134223.jpg&q=75)
+  
+
+美國勞工統計局公布，1月職位空缺774萬個，多於預期；上周五公布的2月非農業新增職位亦較預期少，市場擔心數據反映經濟正步入衰退。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm)
+
+---
+
 # 港股午後初段偏軟
 
 ![恒指較早時報23725點，跌56點；科技指數跌0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795402_1_20250312133140.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm)
-
----
-
-# 瑞銀：內地對今年經濟增長等目標均符合預期　相對積極和務實
-
-![瑞銀全球金融市場部中國主管房東明認為，內地對今年經濟增長、通脹和赤字率目標均符合預期，亦是相對積極和務實的目標。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795246_1_20250311145742.jpg&q=90)
-  
-
-內地提出目標今年國內生產總值(GDP)增長5%左右，居民消費價格升幅2%左右，以及赤字率按約4%安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795246-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795246-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795246-20250311.htm)
 
 ---
