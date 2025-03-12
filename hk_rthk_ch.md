@@ -1,4 +1,4 @@
-# 特朗普威脅對歐盟加徵額外懲罰性關稅
+# 特朗普威脅將對歐盟進一步加徵關稅
 
 ![特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795483_1_20250313023537.jpg&q=90)
   
