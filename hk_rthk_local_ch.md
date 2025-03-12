@@ -1,3 +1,49 @@
+# 4千車手參與周日單車百萬行　受封路影響三屋苑住戶已獲發行車證
+
+  
+
+單車百萬行周日舉行，活動的路線覆蓋青沙公路、藍灣隧道、汀九橋及昂船洲大橋的行車線，預計有4000名單車手參加。警方會執行人群管理及交通特別管制措施，駕駛人士亦要預留額外行車時間。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm)
+
+---
+
+# 10億元大嶼山保育基金至今批出1.3億元　正接受新一輪申請
+
+  
+
+土木工程拓展署可持續大嶼辦事處公布，2023至2024年度大嶼山保育基金批出3個項目，涉及總金額約850萬元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
+
+---
+
 # 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
 
   
@@ -23,6 +69,7 @@
 
 # 慢病共治計劃將擴至普通科門診　當局料一年6千至1萬名額足應付
 
+![彭飛舟指擴展計劃主要希望進一步幫助未能支付共付費用的弱勢社群，讓他們到指定普通科門診接受篩查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795380_1_20250312114254.jpg&q=90)
   
 
 本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，為指定合資格弱勢社群，提供預防篩查及護理服務，包括綜援受助人、75歲或以上長者生活津貼受惠人，或持有有效醫療費用減免證明書的人士。
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795166-20250310.htm)
-
----
-
-# 城隧凌晨車禍有私家車不顧而去　司機涉意外後沒有停車被捕
-
-![警方經調查後，在荃灣區拘捕34歲私家車司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795165_1_20250310224842.jpg&q=90)
-  
-
-城門隧道凌晨發生交通意外，涉及兩輛私家車及一輛的士，有4人受傷，其中1名私家車司機逃去。警方經調查後，今日下午在荃灣區拘捕這名34歲私家車司機，他涉嫌「危險駕駛引致他人身體受嚴重傷害」、「意外後沒有停車」及「意外後沒有報案」，正被扣查。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795165-20250310.htm)
-
----
-
-# 20多名中學生韶關交流回港後嘔吐及腹瀉等不適　全部人毋須入院
-
-![中心表示，正從不同方向調查源頭，包括經人傳人、或受污染的食物或環境傳播的可能性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795163_1_20250310224045.jpg&q=80)
-  
-
-沙田官立中學多名學生參加內地交流團返港後，出現腸胃炎徵狀。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm)
 
 ---

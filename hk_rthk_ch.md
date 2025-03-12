@@ -1,3 +1,49 @@
+# 4千車手參與周日單車百萬行　受封路影響三屋苑住戶已獲發行車證
+
+  
+
+單車百萬行周日舉行，活動的路線覆蓋青沙公路、藍灣隧道、汀九橋及昂船洲大橋的行車線，預計有4000名單車手參加。警方會執行人群管理及交通特別管制措施，駕駛人士亦要預留額外行車時間。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm)
+
+---
+
+# 10億元大嶼山保育基金至今批出1.3億元　正接受新一輪申請
+
+  
+
+土木工程拓展署可持續大嶼辦事處公布，2023至2024年度大嶼山保育基金批出3個項目，涉及總金額約850萬元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
+
+---
+
 # 格陵蘭自治議會選舉結束　點票結果數小時公布
 
 ![格陵蘭自治議會選舉結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795382_1_20250312113119.jpg&q=90)
@@ -47,6 +93,7 @@
 
 # 慢病共治計劃將擴至普通科門診　當局料一年6千至1萬名額足應付
 
+![彭飛舟指擴展計劃主要希望進一步幫助未能支付共付費用的弱勢社群，讓他們到指定普通科門診接受篩查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795380_1_20250312114254.jpg&q=90)
   
 
 本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，為指定合資格弱勢社群，提供預防篩查及護理服務，包括綜援受助人、75歲或以上長者生活津貼受惠人，或持有有效醫療費用減免證明書的人士。
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm)
-
----
-
-# 「戶戶送」將撤出香港　消委會暫接6宗投訴涉及1800元
-
-![消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795303_1_20250311203715.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台Foodpanda，及結束其他業務，現有客戶和送遞員會被轉至Foodpanda。消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元，金額最高一宗為534元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm)
-
----
-
-# 全國兩會｜習近平離開人大會場時與梁振英及何厚鏵打招呼
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795302_1_20250311204512.jpg&q=90)
-  
-
-十四屆全國人大三次會議下午在北京閉幕，出席閉幕會的國家主席習近平離開會場時，一度停步與兩名全國政協副主席、香港前行政長官梁振英及澳門前行政長官何厚鏵打招呼，梁振英及何厚鏵均點頭回應。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm)
 
 ---
