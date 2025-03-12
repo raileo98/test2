@@ -1,3 +1,27 @@
+# 'People confident about One Country, Two Systems'
+
+![Path of Democracy convenor Ronny Tong, left, says the latest figures from the One Country, Two Systems Index was "reassuring". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795430_1_20250312164449.jpg&q=90)
+  
+
+The convenor of the Path of Democracy, Ronny Tong, on Wednesday said people are confident about the One Country, Two Systems principle, despite Hong Kong facing a deficit and geopolitical tensions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm)
+
+---
+
 # City's IPO funds could double this year: FS
 
 ![Paul Chan says that optimism over the country's tech sector could lift the city's IPO market. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
@@ -1412,29 +1436,5 @@ Net profit at the MTR Corporation more than doubled last year, thanks largely to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
-
----
-
-# Four charged with fixing HK football matches
-
-![The ICAC said the case centred on 11 league and cup matches between 2021 and 2022. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794578_1_20250306172359.jpg&q=90)
-  
-
-The ICAC on Thursday charged four people on suspicion of fixing matches in the Hong Kong football league.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794578-20250306.htm)
 
 ---
