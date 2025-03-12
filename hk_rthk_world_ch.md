@@ -1,4 +1,4 @@
-# 特朗普不滿愛爾蘭以稅收等優惠政策搶走美國製藥等公司
+# 特朗普稱愛爾蘭以稅收等優惠政策搶走美國製藥等公司
 
 ![特朗普在白宮會見到訪的愛爾蘭總理馬丁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795497_1_20250313064152.jpg&q=90)
   

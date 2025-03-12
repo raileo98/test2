@@ -1,4 +1,31 @@
-# 特朗普不滿愛爾蘭以稅收等優惠政策搶走美國製藥等公司
+# 歐聯皇馬互射12碼淘汰馬體會晉級8強　維拉與阿仙奴均晉級
+
+![皇馬互射12碼，以4:2淘汰馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_1_20250313072106.jpg&q=85)
+![阿仙奴以總分9:3淘汰燕豪芬晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_2_20250313072106.jpg&q=90)
+![多蒙特成功逆轉，反勝里爾晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_3_20250313072106.jpg&q=90)
+![維拉兩回合計大勝6:1殺入8強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_4_20250313072106.jpg&q=85)
+  
+
+歐聯16強次回合馬德里體育會法定時間1:0擊敗皇家馬德里，干拿加歷查開賽不到1分鐘射入全場唯一入球。兩回合計打和2:2，加時亦無法再取得入球，要互射12碼分勝負。皇家馬德里4:2淘汰馬體會，將同阿仙奴爭入8強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm)
+
+---
+
+# 特朗普稱愛爾蘭以稅收等優惠政策搶走美國製藥等公司
 
 ![特朗普在白宮會見到訪的愛爾蘭總理馬丁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795497_1_20250313064152.jpg&q=90)
   
@@ -1412,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm)
-
----
-
-# 接連有內地交流團師生不適　朱國強促教育局嚴肅處理
-
-![朱國強促請教育局嚴肅處理，如果證實承辦單位安排上有疏忽，或到訪衛生環境欠佳的餐廳，應該負上責任。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795425_1_20250312161205.jpg&q=80)
-  
-
-先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm)
 
 ---
