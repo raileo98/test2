@@ -1,3 +1,26 @@
+# 加拿大周四起對298億加元美國貨加徵25%關稅
+
+  
+
+加拿大宣布，星期四起對總值298億加元的美國商品加徵25%報復性關稅，回應美國對進口鋼鋁徵收25%關稅的措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm)
+
+---
+
 # 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
 
   

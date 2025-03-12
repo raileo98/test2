@@ -1,3 +1,26 @@
+# 加拿大周四起對298億加元美國貨加徵25%關稅
+
+  
+
+加拿大宣布，星期四起對總值298億加元的美國商品加徵25%報復性關稅，回應美國對進口鋼鋁徵收25%關稅的措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm)
+
+---
+
 # 美情報總監指已恢復分享情報　烏克蘭擬建團隊制定停火路線圖
 
 ![瑟比加強調烏克蘭是最希望結束衝突、並實現公正與持久和平的國家。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795457_1_20250312212946.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm)
-
----
-
-# 英國附近海域有油輪與貨輪相撞　37人被救上岸
-
-![兩艘船相撞後起火，冒出大量濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795168_2_20250311062502.jpg&q=90)
-  
-
-英國英格蘭東北部附近海域發生油輪和貨輪相撞事故，涉事油輪事後起火。英國傳媒報道，兩艘船共37人被救上岸，其中1人送院治理，其餘36人安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795168-20250311.htm)
 
 ---
