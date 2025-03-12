@@ -213,14 +213,14 @@ async def optimize_image_quality(imgUrl):
                     break
                 
                 # 如果圖片尺寸太大則降低質量查找更適合的圖片
-                if content_length > 1000 * 100 or content_length > upstream_response_length:
+                if content_length > 1000 * 150 or content_length > upstream_response_length:
                     if q == 99:
                         q = 95
                     if q <= 95:
                         q = max(1, q - 5)
                     if content_length > upstream_response_length:
                         has_matched_condition = True
-                elif content_length <= 1000 * 100:
+                elif content_length <= 1000 * 150:
                     logging.info(f"圖片小於 100KB, URL: {imgUrl}, 當前 q: {q}")
                     latest_imgUrl = latestAvailableQ if latestAvailableQ else imgUrlWithQ
                     break
@@ -232,7 +232,7 @@ async def optimize_image_quality(imgUrl):
             break
 
     # 若上游傳回的圖片較小，則嘗試將 q 調整
-    if (upstream_response_length <= 1000 * 100 or (content_length_q99 is not None and content_length_q99 <= 1000 * 100)):
+    if (upstream_response_length <= 1000 * 150 or (content_length_q99 is not None and content_length_q99 <= 1000 * 150)):
         if q == 99:
             q = 90
         elif q <= 95:
