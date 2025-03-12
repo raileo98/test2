@@ -1,3 +1,26 @@
+# 普京視察庫爾斯克地區　烏軍奪取當地部分領土後首次
+
+  
+
+俄羅斯總統普京視察西部庫爾斯克州，這是自烏克蘭軍隊奪取當地部分領土以來，普京首次視察這個地區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm)
+
+---
+
 # 白宮宣布派遣特使威特科夫赴俄　推動達成停火
 
 ![白宮宣布派遣特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795485_1_20250313033739.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm)
-
----
-
-# 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
-
-![張仁良表示，委員知悉電車公司面對其他公共交通工具的激烈競爭，乘客量仍未能回復至疫情前的水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795414_1_20250312161112.jpg&q=80)
-  
-
-交通諮詢委員會討論由電車公司提出的加價申請，以及聽取港鐵公司構建鐵路科技生態圈的工作和進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
 
 ---

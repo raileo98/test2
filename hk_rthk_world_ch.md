@@ -1,3 +1,26 @@
+# 普京視察庫爾斯克地區　烏軍奪取當地部分領土後首次
+
+  
+
+俄羅斯總統普京視察西部庫爾斯克州，這是自烏克蘭軍隊奪取當地部分領土以來，普京首次視察這個地區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm)
+
+---
+
 # 白宮宣布派遣特使威特科夫赴俄　推動達成停火
 
 ![白宮宣布派遣特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795485_1_20250313033739.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795188-20250311.htm)
-
----
-
-# 沙特王儲會見澤連斯基　強調支持為解決危機和實現和平的努力
-
-![穆罕默德為澤連斯基舉行歡迎儀式。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795185_1_20250311065703.jpg&q=90)
-  
-
-沙特王儲兼首相穆罕默德在吉達會見到訪的烏克蘭總統澤連斯基，強調沙特支持一切為解決危機、致力於實現和平的努力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795185-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795185-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795185-20250311.htm)
 
 ---
