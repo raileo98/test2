@@ -1,3 +1,51 @@
+# 美元兌日圓重上149　近1星期以來首次
+
+![美元兌日圓一度重上149，是近1星期以來首次，高見149.19。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795494_1_20250313061148.jpg&q=90)
+  
+
+美元指數結束多日跌勢，最高升至103.78，升0.3%，尾市報103.58。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm)
+
+---
+
+# 港股美國預託證券個別發展　滙控及港交所升近2%或以上
+
+![滙控ADR比本港昨日收市價升近2%，以港元計折合報86.6元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795493_1_20250313060238.jpg&q=90)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm)
+
+---
+
 # 金價曾升0.8%　創半個月新高
 
 ![現貨金企穩每盎司2900美元水平，高見2940.64美元，升0.8%，創半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795492_1_20250313055857.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm)
-
----
-
-# 中國將於星期五舉行伊朗核問題中俄伊北京會晤
-
-![外交部發言人說，三方將會就伊朗核問題及其他共同關心的問題交換意見。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795419_1_20250312152300.jpg&q=80)
-  
-
-中國將於星期五舉行伊朗核問題中俄伊北京會晤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm)
-
----
-
-# 巴基斯坦軍方指武裝份子以列車乘客做人盾　部分人質被帶到山區
-
-![部分人質已被救出。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795421_1_20250312163348.jpg&q=80)
-  
-
-巴基斯坦軍方官員說，遇襲客運列車上的155名被挾持人員，已被安全部隊救出，但仍有大量人質在武裝份子手上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm)
 
 ---

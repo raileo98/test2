@@ -1,3 +1,27 @@
+# Wall Street regains some ground after inflation report
+
+![The shifts came after the consumer price index came in at a cooler than expected 2.8 percent for February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795496_1_20250313063349.jpg&q=90)
+  
+
+Wall Street stocks regained some ground Wednesday helped by a rise in tech shares, as easing inflation assuaged some investor jitters about the world's biggest economy even as tariff worries lingered.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm)
+
+---
+
 # Eateries related to gastroenteritis cluster banned
 
 ![More than 50 students and teachers contracted gastroenteritis after dining at the same restaurants during an exchange trip in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795473_1_20250312224524.jpg&q=80)
@@ -1413,29 +1437,5 @@ At least 25 people were killed in two separate bus crashes in Mexico on Monday, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm)
-
----
-
-# Musk claims X targeted in 'massive cyberattack'
-
-![More than 40,000 users reported having no access to the platform, according to the tracking website Downdetector.com. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795191_1_20250311082846.jpg&q=90)
-  
-
-Elon Musk said his social media platform, X, has been targeted in a “massive cyberattack", hours after a series of outages on Monday left it unavailable to thousands of users.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm)
 
 ---
