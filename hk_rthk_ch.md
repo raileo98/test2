@@ -1,3 +1,26 @@
+# 克宮發言人稱俄方不會於停火30日問題操之過急　要先獲美方信息
+
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫說，俄方正認真研究美國與烏克蘭有關俄烏戰事的公布，俄方不會在停火30日的問題上操之過急，首先需要從美方獲取信息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm)
+
+---
+
 # 華僑銀行：日本大型企業加薪幅度符合預期　料央行今年或加息兩次
 
 ![華僑銀行香港經濟師姜靜認為，日本大型企業加薪幅度符合預期，預期今年將加息兩次，將基準利率從目前的0.5厘上調至1厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795448_1_20250312192459.jpg&q=90)
@@ -240,7 +263,7 @@
 
 # 林紹波相信運力進一步提升　今年長途機票價格下降
 
-![林紹波表示，去年國泰航空和旗下香港快運合計的運力，增長超過30%，短途航線的機票價格去年已經完全正常化。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795436_1_20250312181003.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795436_1_20250312181003.jpg&q=80)
   
 
 國泰航空去年盈利近98.9億元，按年上升1%。

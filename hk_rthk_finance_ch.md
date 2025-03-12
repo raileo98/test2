@@ -168,7 +168,7 @@
 
 # 林紹波相信運力進一步提升　今年長途機票價格下降
 
-![林紹波表示，去年國泰航空和旗下香港快運合計的運力，增長超過30%，短途航線的機票價格去年已經完全正常化。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795436_1_20250312181003.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795436_1_20250312181003.jpg&q=80)
   
 
 國泰航空去年盈利近98.9億元，按年上升1%。

@@ -1,3 +1,26 @@
+# 克宮發言人稱俄方不會於停火30日問題操之過急　要先獲美方信息
+
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫說，俄方正認真研究美國與烏克蘭有關俄烏戰事的公布，俄方不會在停火30日的問題上操之過急，首先需要從美方獲取信息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm)
+
+---
+
 # 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
 
 ![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795159-20250310.htm)
-
----
-
-# 王文濤：貿易戰沒有贏家　保護主義沒有出路
-
-![王文濤與百時美施貴寶公司董事會主席兼執行官博科思會面。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795158_1_20250310212211.jpg&q=90)
-  
-
-商務部部長王文濤會見百時美施貴寶公司董事會主席兼執行官博科思，雙方就公司對華合作情況、中美經貿關係等議題交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
 
 ---
