@@ -10,12 +10,12 @@ Secretary for Labour and Welfare Chris Sun said on Wednesday he believes the Soc
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm)
@@ -34,12 +34,12 @@ Darius Garland scored 30 points as the Cleveland Cavaliers staged a double-digit
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm)
@@ -58,12 +58,12 @@ US President Donald Trump's increased tariffs on steel and aluminum imports took
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm)
@@ -82,12 +82,12 @@ The US Department of Education said on Tuesday it would lay off nearly half its 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm)
@@ -106,12 +106,12 @@ Seven Argentines went on trial on Tuesday accused of homicide for their alleged 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm)
@@ -130,12 +130,12 @@ An economist at a leading investment bank on Wednesday said the main takeaways f
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm)
@@ -154,12 +154,12 @@ The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 poi
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm)
@@ -178,12 +178,12 @@ Washington's looming tariffs on steel and aluminium are "entirely unjustified", 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
@@ -202,12 +202,12 @@ The Hospital Authority said on Wednesday it was working on reducing the amount o
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm)
@@ -226,12 +226,12 @@ British police on Tuesday arrested on suspicion of manslaughter the captain of a
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm)
@@ -250,12 +250,12 @@ Greenland voted on Tuesday in legislative elections that could yield a timeline 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm)
@@ -274,12 +274,12 @@ Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm)
@@ -299,12 +299,12 @@ Paris Saint-Germain produced a historic turnaround to progress to the Champions 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm)
@@ -324,12 +324,12 @@ Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
@@ -348,12 +348,12 @@ Wall Street stocks finished lower on Tuesday on uncertainty surrounding Presiden
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
@@ -372,12 +372,12 @@ Ukraine endorsed an American proposal for a 30-day ceasefire and agreed to immed
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm)
@@ -396,12 +396,12 @@ A plane carrying former Filipino president Rodrigo Duterte left the Philippine c
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm)
@@ -420,12 +420,12 @@ Pakistani insurgents attacked a passenger train in a tunnel and claimed to have 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm)
@@ -444,12 +444,12 @@ US President Donald Trump on Tuesday said that he would double incoming steel an
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm)
@@ -468,12 +468,12 @@ Ukraine said talks with the United States in Saudi Arabia began "very constructi
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm)
@@ -492,12 +492,12 @@ The Centre for Health Protection (CHP) on Tuesday said it is investigating a clu
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm)
@@ -516,12 +516,12 @@ A bus overturned in an area of Johannesburg near South Africa's main airport ear
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm)
@@ -540,12 +540,12 @@ Manchester United on Tuesday announced plans to build a new 100,000-capacity sta
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm)
@@ -564,12 +564,12 @@ A senior member of a leading national think tank on Tuesday said the annual "Two
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
@@ -588,12 +588,12 @@ Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down o
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm)
@@ -612,12 +612,12 @@ The judiciary said on Tuesday it will start webcasting some proceedings at Hong 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm)
@@ -636,12 +636,12 @@ Social worker Jackie Chen was on Tuesday convicted of rioting in Wan Chai during
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm)
@@ -660,12 +660,12 @@ Financial Secretary Paul Chan on Tuesday said the government does not plan to co
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm)
@@ -684,12 +684,12 @@ The third annual session of the 14th National People’s Congress (NPC) conclude
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm)
@@ -708,12 +708,12 @@ China said on Tuesday it hoped a "just and lasting solution" can be found to the
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm)
@@ -732,12 +732,12 @@ Saudi Arabia, Qatar and Jordan on Tuesday condemned Israel's decision to cut ele
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm)
@@ -756,12 +756,12 @@ A mainland man was jailed for three months on Tuesday, after pleading guilty to 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm)
@@ -780,12 +780,12 @@ An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm)
@@ -804,12 +804,12 @@ Former Philippine president Rodrigo Duterte was arrested by police at Manila's i
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm)
@@ -828,12 +828,12 @@ A catering sector representative on Tuesday said he was concerned restaurants wo
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm)
@@ -852,12 +852,12 @@ A local deputy to the National People's Congress has stressed that Hong Kong is 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
@@ -876,12 +876,12 @@ Canada's incoming prime minister Mark Carney has promised a "smooth" and "quick"
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm)
@@ -900,12 +900,12 @@ The New Orleans Pelicans will become the first NBA team to play in Australia whe
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm)
@@ -924,12 +924,12 @@ Protesters in New York and rights groups expressed outrage on Monday over the ar
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm)
@@ -948,12 +948,12 @@ Hong Kong's Hang Seng Index fell 508.63 points, or 2.14 percent, to open at 23,2
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm)
@@ -972,12 +972,12 @@ The UK coastguard ended the search for a missing crew member after a cargo ship 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm)
@@ -996,12 +996,12 @@ Japan's economy expanded in the October-December quarter at a slower pace than i
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm)
@@ -1020,12 +1020,12 @@ At least 25 people were killed in two separate bus crashes in Mexico on Monday, 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm)
@@ -1044,12 +1044,12 @@ Elon Musk said his social media platform, X, has been targeted in a “massive c
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm)
@@ -1068,12 +1068,12 @@ Newcastle reignited their bid to qualify for the Champions League as Bruno Guima
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm)
@@ -1092,12 +1092,12 @@ Police have arrested the driver of a private car, who allegedly fled following a
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm)
@@ -1116,12 +1116,12 @@ Wall Street stocks fell sharply on Monday as investors fretted that uncertainty 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm)
@@ -1140,12 +1140,12 @@ China hopes that the incoming government in Canada will adopt a positive and pra
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm)
@@ -1164,12 +1164,12 @@ The United States does not appear to want to make a deal with Brussels to avoid 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm)
@@ -1188,12 +1188,12 @@ Israel is due to send a delegation to Qatar on Monday for a fresh round of talks
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm)
@@ -1212,12 +1212,12 @@ Russia said on Monday it was expelling two British "diplomats" on suspicion of c
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm)
@@ -1236,12 +1236,12 @@ Local shares sank on Monday on a mixed day for equity markets, amid escalating g
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm)
@@ -1260,12 +1260,12 @@ A deputy director of the Hong Kong and Macau Affairs Office on Monday said he do
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm)
@@ -1284,12 +1284,12 @@ Online food delivery firm Deliveroo said on Monday it is exiting Hong Kong for f
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795116-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795116-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795116-20250310.htm)
@@ -1308,12 +1308,12 @@ Hong Kong will improve as long as everyone works together to tackle the fiscal d
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm)
@@ -1332,12 +1332,12 @@ Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm)
@@ -1356,12 +1356,12 @@ North Korea fired "multiple unidentified ballistic missiles" on Monday, South Ko
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm)
@@ -1380,12 +1380,12 @@ Four people were injured and one driver fled the scene following a three-vehicle
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm)
@@ -1404,12 +1404,12 @@ Businessman Irons Sze on Monday said Hong Kong's position as an international fi
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm)
@@ -1428,12 +1428,12 @@ The annual session of the country's top advisory body has concluded in Beijing, 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm)

@@ -10,12 +10,12 @@ US President Donald Trump's increased tariffs on steel and aluminum imports took
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm)
@@ -34,12 +34,12 @@ The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 poi
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm)
@@ -58,12 +58,12 @@ Washington's looming tariffs on steel and aluminium are "entirely unjustified", 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
@@ -82,12 +82,12 @@ Wall Street stocks finished lower on Tuesday on uncertainty surrounding Presiden
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
@@ -106,12 +106,12 @@ Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down o
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm)
@@ -130,12 +130,12 @@ Hong Kong's Hang Seng Index fell 508.63 points, or 2.14 percent, to open at 23,2
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm)
@@ -154,12 +154,12 @@ Japan's economy expanded in the October-December quarter at a slower pace than i
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm)
@@ -178,12 +178,12 @@ Wall Street stocks fell sharply on Monday as investors fretted that uncertainty 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm)
@@ -202,12 +202,12 @@ Local shares sank on Monday on a mixed day for equity markets, amid escalating g
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm)
@@ -226,12 +226,12 @@ The Hang Seng Index lost 115.32 points, or 0.48 percent, to open at 24,115.98 po
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm)
@@ -250,12 +250,12 @@ The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore s
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm)
@@ -274,12 +274,12 @@ US President Donald Trump declined on Sunday to rule out the possibility that th
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
@@ -298,12 +298,12 @@ China's consumer inflation in February fell at the quickest pace since January 2
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm)
@@ -322,12 +322,12 @@ Wall Street stocks finished higher on Friday after a roller-coaster session foll
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm)
@@ -346,12 +346,12 @@ Hong Kong's stock market ended lower on Friday with the benchmark Hang Seng Inde
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm)
@@ -370,12 +370,12 @@ China's export growth grew slower than expected in the first two months of this 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
@@ -394,12 +394,12 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
@@ -418,12 +418,12 @@ Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street ov
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
@@ -442,12 +442,12 @@ Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm)
@@ -466,12 +466,12 @@ Authorities insist there is still keen demand for housing, citing a low vacancy 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
@@ -490,12 +490,12 @@ Net profit at the MTR Corporation more than doubled last year, thanks largely to
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
@@ -514,12 +514,12 @@ The head of the National Development and Reform Commission said he's confident t
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
@@ -538,12 +538,12 @@ Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soari
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm)
@@ -562,12 +562,12 @@ Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Tru
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
@@ -586,12 +586,12 @@ US stocks climbed on Wednesday after US President Donald Trump pulled back on so
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
@@ -610,12 +610,12 @@ Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index u
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm)
@@ -634,12 +634,12 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
@@ -658,12 +658,12 @@ Premier Li Qiang on Wednesday said the nation will vigorously boost consumption 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
@@ -682,12 +682,12 @@ Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qi
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm)
@@ -706,12 +706,12 @@ US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correc
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm)
@@ -730,12 +730,12 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
@@ -754,12 +754,12 @@ Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm)
@@ -778,12 +778,12 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
@@ -802,12 +802,12 @@ China’s economy has a solid foundation with new growth drivers despite facing 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
@@ -826,12 +826,12 @@ China on Tuesday swiftly retaliated against fresh US tariffs, announcing a range
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794144-20250304.htm)
@@ -850,12 +850,12 @@ Stock markets in Hong Kong and on the mainland both opened lower on Tuesday, as 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794105-20250304.htm)
@@ -874,12 +874,12 @@ US stocks closed sharply lower on Monday, after US President Donald Trump slappe
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm)
@@ -898,12 +898,12 @@ US President Donald Trump has signed an order to hike tariffs on Chinese imports
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
@@ -922,12 +922,12 @@ Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm)
@@ -946,12 +946,12 @@ Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking th
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm)
@@ -970,12 +970,12 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
@@ -994,12 +994,12 @@ China's factory activity grew at a faster pace in February, driven by stronger s
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm)
@@ -1018,12 +1018,12 @@ Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm)
@@ -1042,12 +1042,12 @@ Hong Kong stocks rose 0.84 percent, or 193 points, to 23,135 on Monday.
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm)
@@ -1066,12 +1066,12 @@ Asian share markets dithered on Monday as the threat of imminent tariffs lurked 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm)
@@ -1090,12 +1090,12 @@ US President Donald Trump on Saturday ordered a new trade investigation that cou
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm)
@@ -1114,12 +1114,12 @@ CK Infrastructure Holdings is considering a bid for KKR-backed British waste man
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm)
@@ -1138,12 +1138,12 @@ China's manufacturing activity grew in February after a dip the previous month, 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
@@ -1162,12 +1162,12 @@ Hong Kong's stocks ended lower on Friday, with the benchmark Hang Seng Index dow
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm)
@@ -1186,12 +1186,12 @@ The Commerce Ministry on Friday said it opposed US President Donald Trump's late
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
@@ -1210,12 +1210,12 @@ Hong Kong home prices retreated to their lowest level in nearly eight and a half
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
@@ -1234,12 +1234,12 @@ Hong Kong stocks opened lower on Friday, the final trading of February, after ea
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm)
@@ -1258,12 +1258,12 @@ Wall Street stocks tumbled on Thursday, extending a rough period as disappointme
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm)
@@ -1282,12 +1282,12 @@ The Secretary for Financial Services and the Treasury Christopher Hui said the S
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
@@ -1306,12 +1306,12 @@ Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm)
@@ -1330,12 +1330,12 @@ Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchang
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm)
@@ -1354,12 +1354,12 @@ Hong Kong stocks on Thursday opened lower, after Wall Street stocks were mixed a
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm)
@@ -1378,12 +1378,12 @@ Gains in Nvidia ahead of earnings helped lift the Nasdaq on Wednesday while the 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm)
@@ -1402,12 +1402,12 @@ The government’s move to pause the sale of commercial land in the upcoming fis
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm)
@@ -1426,12 +1426,12 @@ Hong Kong stocks rallied on Wednesday, with the benchmark Hang Seng Index soarin
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm)

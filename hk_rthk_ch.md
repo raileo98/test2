@@ -1,3 +1,51 @@
+# 港股午後初段偏軟
+
+![恒指較早時報23725點，跌56點；科技指數跌0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795402_1_20250312133140.jpg&q=85)
+  
+
+港股持續偏軟，恒生指數較早時報23725點，跌56點，跌幅0.24%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795402-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795402-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795402-20250312.htm)
+
+---
+
+# 361度去年盈利升約20%
+
+![361度去年盈利11.5億元人民幣，按年增長19.5%。末期息每股10港仙，按年減少28.1%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795401_1_20250312131909.jpg&q=90)
+  
+
+361度去年盈利11.5億元人民幣，按年增長19.5%。派末期息每股10港仙，按年減少28.1%，全年派息26.5港仙，派息比率達到45%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795401-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795401-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795401-20250312.htm)
+
+---
+
 # 香港快運去年轉蝕4億元　短途票價正常化令收益率受壓
 
 ![香港快運去年業績由盈轉虧，虧損4億元，受短期營運問題影響，短途市場票價迅速正常化亦令收益率受壓。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795400_1_20250312130859.jpg&q=90)
@@ -10,12 +58,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm)
@@ -34,12 +82,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm)
@@ -58,12 +106,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm)
@@ -82,12 +130,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
@@ -106,12 +154,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm)
@@ -130,12 +178,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
@@ -154,12 +202,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm)
@@ -177,12 +225,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm)
@@ -201,12 +249,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm)
@@ -225,12 +273,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm)
@@ -249,12 +297,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm)
@@ -272,12 +320,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm)
@@ -296,12 +344,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
@@ -320,12 +368,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm)
@@ -344,12 +392,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm)
@@ -368,12 +416,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm)
@@ -392,12 +440,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm)
@@ -416,12 +464,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm)
@@ -440,12 +488,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm)
@@ -464,12 +512,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm)
@@ -488,12 +536,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm)
@@ -512,12 +560,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
@@ -536,12 +584,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm)
@@ -560,12 +608,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm)
@@ -584,12 +632,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm)
@@ -608,12 +656,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm)
@@ -632,12 +680,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm)
@@ -656,12 +704,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm)
@@ -680,12 +728,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm)
@@ -704,12 +752,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm)
@@ -728,12 +776,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm)
@@ -752,12 +800,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm)
@@ -776,12 +824,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm)
@@ -800,12 +848,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm)
@@ -824,12 +872,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm)
@@ -849,12 +897,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm)
@@ -873,12 +921,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm)
@@ -897,12 +945,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm)
@@ -921,12 +969,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm)
@@ -945,12 +993,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm)
@@ -969,12 +1017,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm)
@@ -993,12 +1041,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm)
@@ -1017,12 +1065,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm)
@@ -1041,12 +1089,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm)
@@ -1065,12 +1113,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm)
@@ -1089,12 +1137,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm)
@@ -1113,12 +1161,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm)
@@ -1137,12 +1185,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm)
@@ -1161,12 +1209,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm)
@@ -1185,12 +1233,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm)
@@ -1209,12 +1257,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm)
@@ -1233,12 +1281,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm)
@@ -1258,12 +1306,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm)
@@ -1282,12 +1330,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm)
@@ -1306,12 +1354,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm)
@@ -1330,12 +1378,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm)
@@ -1354,12 +1402,12 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
@@ -1378,62 +1426,14 @@
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm)
-
----
-
-# 美國1月JOLTs職位空缺增至774萬個多過預期
-
-![JOLTs調查顯示，美國1月職位空缺增至774萬個，多過市場預期的763萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795316_1_20250311221436.jpg&q=90)
-  
-
-美國勞工部公布職位空缺及勞動力流動調查(JOLTs)顯示，美國1月職位空缺增加23.2萬個，增至774萬個，多過去年12月的750.8萬個，亦多過市場預期的763萬個。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm)
-
----
-
-# 杜特爾特據報正被帶往海牙國際刑事法院　律師入稟法院尋求阻止
-
-![杜特爾特的女兒說，父親被帶上飛機，但不知道被帶往何處。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795315_1_20250311221658.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特被菲律賓警方逮捕。現任總統辦公室表示，是執行國際刑事法院的逮捕令，杜特爾特的健康狀況良好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm)
 
 ---

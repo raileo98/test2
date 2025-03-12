@@ -10,12 +10,12 @@ Darius Garland scored 30 points as the Cleveland Cavaliers staged a double-digit
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm)
@@ -34,12 +34,12 @@ Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm)
@@ -59,12 +59,12 @@ Paris Saint-Germain produced a historic turnaround to progress to the Champions 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm)
@@ -84,12 +84,12 @@ Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
@@ -108,12 +108,12 @@ Manchester United on Tuesday announced plans to build a new 100,000-capacity sta
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm)
@@ -132,12 +132,12 @@ A local deputy to the National People's Congress has stressed that Hong Kong is 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
@@ -156,12 +156,12 @@ The New Orleans Pelicans will become the first NBA team to play in Australia whe
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm)
@@ -180,12 +180,12 @@ Newcastle reignited their bid to qualify for the Champions League as Bruno Guima
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm)
@@ -205,12 +205,12 @@ Shai Gilgeous-Alexander outdueled MVP rival Nikola Jokic with a 40-point perform
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm)
@@ -229,12 +229,12 @@ Rohit Sharma made a combative 76 to back up a potent spin bowling display as Ind
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm)
@@ -253,12 +253,12 @@ Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm)
@@ -277,12 +277,12 @@ Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, d
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm)
@@ -301,12 +301,12 @@ Spectators were immersed in what felt like a party-like atmosphere on the third 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm)
@@ -325,12 +325,12 @@ Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Go
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
@@ -349,12 +349,12 @@ Premier League leaders Liverpool needed two Mohamed Salah penalties to beat bott
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm)
@@ -373,12 +373,12 @@ Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win ov
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm)
@@ -397,12 +397,12 @@ It’s a three-way tie at the top of the leaderboard of the LIV Golf Hong Kong t
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm)
@@ -421,12 +421,12 @@ Two former world champions, Shaun Murphy of England and Neil Robertson of Austra
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
@@ -445,12 +445,12 @@ The Cleveland Cavaliers staged a dramatic late rally to stretch their unbeaten s
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm)
@@ -469,12 +469,12 @@ World number two and top seed Alexander Zverev was sent crashing out of Indian W
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm)
@@ -493,12 +493,12 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
@@ -518,12 +518,12 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm)
@@ -542,12 +542,12 @@ Irish captain Caelan Doris is fit and will face France, handing a massive boost 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
@@ -566,12 +566,12 @@ A senior Guangdong official on Thursday said the province will work closely with
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
@@ -591,12 +591,12 @@ Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticke
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm)
@@ -616,12 +616,12 @@ Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the fir
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
@@ -640,12 +640,12 @@ Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm)
@@ -664,12 +664,12 @@ LeBron James became the first player in NBA history to score 50,000 career point
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm)
@@ -688,12 +688,12 @@ Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm)
@@ -712,12 +712,12 @@ Fans at Kai Tak for the World Snooker Grand Prix will now be allowed to stay unt
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794364-20250305.htm)
@@ -737,12 +737,12 @@ Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm)
@@ -761,12 +761,12 @@ Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA seaso
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm)
@@ -785,12 +785,12 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm)
@@ -810,12 +810,12 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
@@ -834,12 +834,12 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
@@ -858,12 +858,12 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
@@ -883,12 +883,12 @@ The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Bl
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm)
@@ -907,12 +907,12 @@ Manchester United's dismal season hit a new low as the FA Cup holders crashed ou
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
@@ -932,12 +932,12 @@ Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm)
@@ -956,12 +956,12 @@ Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm)
@@ -980,12 +980,12 @@ Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
@@ -1004,12 +1004,12 @@ World number one Aryna Sabalenka praised on Friday the WTA's mission to highligh
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm)
@@ -1028,12 +1028,12 @@ Jos Buttler resigned as England white-ball captain on Friday after his team made
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
@@ -1052,12 +1052,12 @@ Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirem
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
@@ -1076,12 +1076,12 @@ Hall of Fame coach Gregg Popovich said Thursday he won't return this season as c
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm)
@@ -1100,12 +1100,12 @@ Leicester sank closer to an immediate return to the Championship after West Ham 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
@@ -1124,12 +1124,12 @@ Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-call
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm)
@@ -1148,12 +1148,12 @@ Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six N
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm)
@@ -1173,12 +1173,12 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
@@ -1197,12 +1197,12 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm)
@@ -1222,12 +1222,12 @@ Liverpool moved a giant step closer to the Premier League title with a ruthless 
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm)
@@ -1246,12 +1246,12 @@ Liverpool manager Arne Slot will not be on the touchline for Wednesday's home ma
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm)
@@ -1270,12 +1270,12 @@ Atlético Madrid conceded a two-goal lead then fought back from two down in a wi
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm)
@@ -1294,12 +1294,12 @@ Chelsea moved into the Premier League's top four with a 4-0 demolition of haples
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm)
@@ -1318,12 +1318,12 @@ Rain washed out the Champions Trophy game between South Africa and two-time winn
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm)
@@ -1342,12 +1342,12 @@ Galatasaray have accused Fenerbahce manager Jose Mourinho of making "racist stat
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793050-20250225.htm)
@@ -1366,12 +1366,12 @@ World MotoGP champion Jorge Martin will miss the first race of the season this w
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm)
@@ -1390,12 +1390,12 @@ Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Troph
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm)
@@ -1414,12 +1414,12 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
@@ -1438,12 +1438,12 @@ Liverpool took a giant stride towards the Premier League title as a 2-0 win over
 
 ---
 
-原始網址 Original URL：
+原始網址：
 <https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm>
 
 © rthk.hk
 
-電子郵件 Email:
+電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm)
