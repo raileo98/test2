@@ -1,3 +1,27 @@
+# Greenland votes in election eyed by Trump
+
+![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=80)
+  
+
+Greenland voted on Tuesday in legislative elections that could yield a timeline for independence for the Danish self-governing territory coveted by US President Donald Trump.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm)
+
+---
+
 # Woods' major season in doubt after surgery
 
 ![Woods says he expects to make a full recovery after undergoing surgery. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795356_1_20250312082550.jpg&q=90)
@@ -1414,29 +1438,5 @@ Rohit Sharma made a combative 76 to back up a potent spin bowling display as Ind
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm)
-
----
-
-# Arsenal held by Man Utd in latest Premiership setback
-
-![The result leaves Arsenal 15 points behind runaway leaders Liverpool. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795028_1_20250310054122.jpg&q=75)
-  
-
-Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed win but Arsenal's faltering Premier League title challenge suffered another damaging blow in a 1-1 draw at Old Trafford.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm)
 
 ---

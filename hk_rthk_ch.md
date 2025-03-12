@@ -1,3 +1,27 @@
+# 美國眾議院通過法案避免聯邦政府「關門」
+
+![美國眾議院通過一項法案，避免聯邦政府「關門」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795357_1_20250312085524.jpg&q=75)
+  
+
+美國眾議院通過一項法案，避免聯邦政府「關門」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm)
+
+---
+
 # 韓股初段升0.3%以上
 
 ![首爾綜合指數較早時報2546點，升8點，升幅0.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795355_1_20250312080655.jpg&q=90)
@@ -73,7 +97,6 @@
 # 公院本月24日起每次最多配24周藥物　醫管局料可省數以千萬元
 
 ![醫管局聯網服務總監鄧耀鏗（右）指，醫管局在本月24日起，會分階段更改配藥安排。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_1_20250312071709.jpg&q=85)
-![醫管局認為社會可以討論藥費有否有調整空間。（黃貝紋攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795352_2_20250312071709.jpg&q=85)
   
 
 醫管局本月24日起更改配藥安排，希望減少浪費，包括每次最多只向病人配發24個星期、即相當於大約6個月的藥物，若病情需要處方多過24星期的藥物，便要安排第二次取藥。至於有需要時才服用的藥物，例如止痛藥、藥膏等，如果醫生處方多過28日，病人會獲派發25%的份量，有需要時醫生可按臨床需要作出調整。
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm)
-
----
-
-# 美國和烏克蘭代表團在沙特就俄烏戰事舉行會談
-
-![美國和烏克蘭代表團在吉達就俄烏戰事舉行會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795283_1_20250311184048.jpg&q=90)
-  
-
-美國和烏克蘭代表團在沙特阿拉伯城市吉達，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美國眾議院通過法案避免聯邦政府「關門」
+
+![美國眾議院通過一項法案，避免聯邦政府「關門」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795357_1_20250312085524.jpg&q=75)
+  
+
+美國眾議院通過一項法案，避免聯邦政府「關門」。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm)
+
+---
+
 # 巴基斯坦武裝分子挾持火車乘客　威脅殺死人質
 
 ![醫護人員在火車站為乘客治療。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795349_1_20250312065251.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm)
-
----
-
-# 外交部：反對泛化國家安全概念　將堅定維護中國企業合法權益
-
-![毛寧表示，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795113_1_20250310160037.jpg&q=90)
-  
-
-路透社引述消息人士報道，美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm)
 
 ---

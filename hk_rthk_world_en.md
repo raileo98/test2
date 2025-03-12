@@ -1,3 +1,27 @@
+# Greenland votes in election eyed by Trump
+
+![Possibly signalling a Trump effect, turnout was higher than usual in the sole polling station in the capital Nuuk. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=80)
+  
+
+Greenland voted on Tuesday in legislative elections that could yield a timeline for independence for the Danish self-governing territory coveted by US President Donald Trump.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm)
+
+---
+
 # Ukraine backs ceasefire as US ends aid freeze
 
 ![US Secretary of State Marco Rubio speaks with the media following meetings with a Ukrainian delegation in Jeddah. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795341_1_20250312052757.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump took a victory lap in a speech to Congress on Tuesday,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794327-20250305.htm)
-
----
-
-# Arab leaders endorse Egypt's plan to rebuild Gaza
-
-![Egyptian foreign minister Badr Abdelatty (R) meets with Jordanian foreign minister Ayman Safadi (L) to discuss details of the Gaza reconstruction plan, ahead of the emergency Arab summit in Cairo. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794298_1_20250305093303.jpg&q=80)
-  
-
-Arab leaders on Tuesday endorsed Egypt's postwar plan for Gaza that would allow its roughly two million Palestinians to remain, in a counterproposal to US President Donald Trump’s plan to depopulate the territory and redevelop it as a beach destination.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794298-20250305.htm)
 
 ---
