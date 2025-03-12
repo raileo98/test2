@@ -1,3 +1,74 @@
+# 元朗游泳池4月10日至15日暫時關閉
+
+  
+
+康文署表示，元朗游泳池須進行供電系統優化工程，泳池將由4月10日至15日暫時關閉。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm)
+
+---
+
+# 港股半日跌158點　汽車股逆市造好
+
+![恒生指數高開後反覆向下，早段最多升約180點，中午報23623點，跌158點，跌幅0.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795388_1_20250312120913.jpg&q=90)
+  
+
+港股高開77點後反覆向下，連跌4日。恒生指數開市後最多升約180點，高見23962點，中午報23623點，跌158點，跌幅0.67%，半日主板成交額逾1362億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm)
+
+---
+
+# 第3屆「裕澤香江」高峰論壇3月26日舉行　探討人工智能等議題
+
+![許正宇表示第3屆「裕澤香江」高峰論壇本月26日舉行，當周亦有多場國際頂級峰會在港舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795383_1_20250312113651.jpg&q=80)
+  
+
+財經事務及庫務局局長許正宇在網誌《財庫論》表示，第3屆「裕澤香江」高峰論壇將於本月26日舉行，主題為「香港---為全球，向世界」，體現面對瞬息萬變的國際形勢及貿易摩擦加劇，香港作為內地與國際之間「超級聯繫人」和「超級增值人」的角色更為關鍵，論壇亦會探討科技與人工智能、慈善傳承、工藝傳承與文化創新等議題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm)
+
+---
+
 # 滬股半日跌4點　創業板指數於2200點爭持
 
 ![上證指數半日收報3375點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795385_1_20250312114128.jpg&q=85)
@@ -47,6 +118,7 @@
 
 # 10億元大嶼山保育基金至今批出1.3億元　正接受新一輪申請
 
+![基金總額有10億元，目的在於推展大嶼山的保育及相關項目，提高社區的保育意識，促進社區人士參與實踐保育理念。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795384_1_20250312121551.jpg&q=90)
   
 
 土木工程拓展署可持續大嶼辦事處公布，2023至2024年度大嶼山保育基金批出3個項目，涉及總金額約850萬元。
@@ -94,6 +166,7 @@
 
 # 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
 
+![孫玉菡表示，輸入一般勞工的補充勞工優化計劃直至上月底，已批出的廚師有約一萬人，侍應有8500人，洗碗工約有2500人。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795381_1_20250312121348.jpg&q=90)
   
 
 勞工及福利局局長孫玉菡表示，輸入一般勞工的補充勞工優化計劃推行一年半以來，直至上月底，已批出約51000個名額，當中以飲食業最多，佔超過兩萬人，其中廚師有約一萬人，侍應有8500人，洗碗工約有2500人。至於發展局處理輸入建造業的特定行業計劃，有大約12000個申請配額，已批核約9000多個。
@@ -1362,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm)
-
----
-
-# 中證監：全力鞏固市場回穩向好勢頭　支持優質未有盈利科企上市
-
-![中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，支持優質未有盈利科技企業發行上市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795308_1_20250311205821.jpg&q=75)
-  
-
-中國證監會黨委召開擴大會議，指出要全力鞏固市場回穩向好勢頭，更大力度推動中長期資金入市指導意見及實施方案落實落地；增強制度包容性、適應性，支持優質未有盈利科技企業發行上市。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm)
-
----
-
-# 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
-
-![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=80)
-  
-
-為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
-
----
-
-# 警試點計劃威靈頓街設臨時過海的士站　的士大使協助乘客記錄資料
-
-![警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795305_1_20250311205648.jpg&q=85)
-  
-
-警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。警方將推行試點計劃，本月15至16日，以及本月22至23日，一連兩個週末，由午夜零時30分至清晨5時，於威靈頓街32號對開，設置臨時過海的士站。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm)
 
 ---

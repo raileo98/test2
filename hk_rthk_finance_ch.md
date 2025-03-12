@@ -1,3 +1,51 @@
+# 港股半日跌158點　汽車股逆市造好
+
+![恒生指數高開後反覆向下，早段最多升約180點，中午報23623點，跌158點，跌幅0.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795388_1_20250312120913.jpg&q=90)
+  
+
+港股高開77點後反覆向下，連跌4日。恒生指數開市後最多升約180點，高見23962點，中午報23623點，跌158點，跌幅0.67%，半日主板成交額逾1362億元。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm)
+
+---
+
+# 第3屆「裕澤香江」高峰論壇3月26日舉行　探討人工智能等議題
+
+![許正宇表示第3屆「裕澤香江」高峰論壇本月26日舉行，當周亦有多場國際頂級峰會在港舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795383_1_20250312113651.jpg&q=80)
+  
+
+財經事務及庫務局局長許正宇在網誌《財庫論》表示，第3屆「裕澤香江」高峰論壇將於本月26日舉行，主題為「香港---為全球，向世界」，體現面對瞬息萬變的國際形勢及貿易摩擦加劇，香港作為內地與國際之間「超級聯繫人」和「超級增值人」的角色更為關鍵，論壇亦會探討科技與人工智能、慈善傳承、工藝傳承與文化創新等議題。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm)
+
+---
+
 # 滬股半日跌4點　創業板指數於2200點爭持
 
 ![上證指數半日收報3375點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795385_1_20250312114128.jpg&q=85)
@@ -24,6 +72,7 @@
 
 # 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
 
+![孫玉菡表示，輸入一般勞工的補充勞工優化計劃直至上月底，已批出的廚師有約一萬人，侍應有8500人，洗碗工約有2500人。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795381_1_20250312121348.jpg&q=90)
   
 
 勞工及福利局局長孫玉菡表示，輸入一般勞工的補充勞工優化計劃推行一年半以來，直至上月底，已批出約51000個名額，當中以飲食業最多，佔超過兩萬人，其中廚師有約一萬人，侍應有8500人，洗碗工約有2500人。至於發展局處理輸入建造業的特定行業計劃，有大約12000個申請配額，已批核約9000多個。
@@ -1388,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795237-20250311.htm)
-
----
-
-# 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795235_1_20250311132348.jpg&q=80)
-  
-
-深水埗區議會討論民政處計劃在興華街、欽州街 、南昌街、大埔道等一帶推行「聯廈聯管」試驗計劃。多名區議員均表示歡迎，認為對區內舊樓的維修保養，以及改善環境衛生等方面都有正面作用。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm)
-
----
-
-# 港股半日跌221點　金融股普遍向下
-
-![港股早段曾跌逾540點，隨後跌幅逐步收窄，中午報23562點，跌221點，跌幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795230_1_20250311121209.jpg&q=75)
-  
-
-港股早段曾跌逾540點，恒生指數低見23238點，隨後跌幅逐步收窄，中午收市報23562點，跌221點，跌幅0.93%，半日主板成交額1770億元。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795230-20250311.htm)
 
 ---
