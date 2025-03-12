@@ -1,3 +1,27 @@
+# 'Companies Registry didn't breach privacy rules'
+
+![The privacy watchdog says a total of 109,002 people may have been affected by a Companies Registry data leak in April. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795447_1_20250312193702.jpg&q=80)
+  
+
+The privacy watchdog said on Wednesday it completed an investigation on last April's Companies Registry data leak, which affected nearly 110,000 people.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm)
+
+---
+
 # HK stocks lose ground for 4th straight day
 
 ![Local stocks give up 0.76 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795445_1_20250312184127.jpg&q=90)
@@ -1413,29 +1437,5 @@ China hopes that the incoming government in Canada will adopt a positive and pra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm)
-
----
-
-# EU says US not engaging to make deal to avoid tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
-  
-
-The United States does not appear to want to make a deal with Brussels to avoid hefty tariffs against the EU, the bloc's trade chief said on Monday, days before US steel and aluminium levies kick in.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm)
 
 ---

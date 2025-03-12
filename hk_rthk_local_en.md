@@ -1,3 +1,27 @@
+# 'Companies Registry didn't breach privacy rules'
+
+![The privacy watchdog says a total of 109,002 people may have been affected by a Companies Registry data leak in April. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795447_1_20250312193702.jpg&q=80)
+  
+
+The privacy watchdog said on Wednesday it completed an investigation on last April's Companies Registry data leak, which affected nearly 110,000 people.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm)
+
+---
+
 # 'Price hike for medication should be less than 10 pc'
 
 ![Ivan Lin hopes any price increment for 16 weeks worth of medication at public hospitals could be less than 10 percent, saying that would hurt members of the grassroots. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795440_1_20250312174458.jpg&q=80)
@@ -1412,29 +1436,5 @@ A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm)
-
----
-
-# Hong Kong stocks open lower
-
-![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=75)
-  
-
-Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street over US President Donald Trump's shifting trade policy, while European bourses advanced following an ECB interest rate cut.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
 
 ---
