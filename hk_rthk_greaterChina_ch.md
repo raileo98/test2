@@ -1,3 +1,27 @@
+# 全國兩會｜趙樂際會見採訪全國人大會議的傳媒代表
+
+![趙樂際在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病後，首次公開露面。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795466_1_20250312215548.jpg&q=85)
+  
+
+全國人大委員長趙樂際下午在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病後，首次公開露面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm)
+
+---
+
 # 國常會：已明確全年經濟社會發展目標　各部門要細化措施加快落實
 
 ![李強主持召開國常會指出，政府工作報告明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795459_1_20250312210430.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm)
-
----
-
-# 孫東稱人工智能為香港關鍵產業　政府會繼續支持及投入
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795087_1_20250310131833.jpg&q=90)
-  
-
-黃廷方慈善基金與信和集團捐出兩億元予「InnoHK創新香港研發平台」旗下的香港生成式人工智能研發中心，以支持香港的人工智能發展。創新科技及工業局局長孫東說，捐贈主要用於研發中心，盡快建立服務平台，為市民推出港產大模型「港話通」服務手機版。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795087-20250310.htm)
 
 ---
