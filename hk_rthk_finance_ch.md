@@ -1,3 +1,26 @@
+# 國泰：年內突破100個航點大關
+
+  
+
+國泰航空行政總裁林紹波表示，年內班次及運力會繼續增加，集團經已宣布11個新航點，年內會突破100個航點大關，強調會繼續擴大全球網絡和提升服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
+
+---
+
 # 旅發局邀泰國演員台灣歌手參演宣傳片　介紹本港綠色旅遊資源
 
 ![旅發局推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。（旅發局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795442_1_20250312181152.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm)
-
----
-
-# 調查：美國上月小企業信心連跌3個月
-
-![全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795296_1_20250311191237.jpg&q=90)
-  
-
-全美獨立企業聯盟(NFIB)公布，2月小企業樂觀指數跌至100.7，連跌3個月，反映消費者和企業信心下跌，以及股市向下。不確定性指數升至104，是有紀錄以來第2高，反映市場對貿易政策的憂慮加劇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795296-20250311.htm)
 
 ---

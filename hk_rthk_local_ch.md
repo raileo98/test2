@@ -1,3 +1,26 @@
+# 國泰：年內突破100個航點大關
+
+  
+
+國泰航空行政總裁林紹波表示，年內班次及運力會繼續增加，集團經已宣布11個新航點，年內會突破100個航點大關，強調會繼續擴大全球網絡和提升服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
+
+---
+
 # 甯漢豪：今年落實措施降低工程建造成本
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795444_1_20250312182911.jpg&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm)
-
----
-
-# 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
-
-![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=90)
-  
-
-十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
 
 ---
