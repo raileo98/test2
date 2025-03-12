@@ -1,3 +1,27 @@
+# 日股收市靠穩
+
+![日經平均指數收市報36819點，升25點，升幅0.07%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795412_1_20250312144106.jpg&q=90)
+  
+
+日本股市收市靠穩，日經平均指數報36819點，升25點，升幅0.07%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm)
+
+---
+
 # 韓股高收逾1%
 
 ![首爾綜合指數收市報2574點，升37點，升幅1.47%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795413_1_20250312144253.jpg&q=85)
