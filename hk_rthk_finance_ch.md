@@ -1,3 +1,27 @@
+# 內地股市反覆低收　滬指跌0.2%
+
+![上證綜合指數收市報3371點，跌7點，跌幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795417_1_20250312151022.jpg&q=90)
+  
+
+滬深股市反覆低收，工程機械、農業和白酒股下跌；算力概念、影視傳媒相關股份上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm)
+
+---
+
 # 日股收市靠穩
 
 ![日經平均指數收市報36819點，升25點，升幅0.07%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795412_1_20250312144106.jpg&q=90)
@@ -426,6 +450,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm)
+
+---
+
+# 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
+
+![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。他說，「極限施壓註定撞上南牆」，打關稅戰、貿易戰損人更害己，禁限投資如同殺雞取卵，「以台制華」只會引火焚身，又指「外資撤離中國論」宣告破產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
 
 ---
 
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
-
----
-
-# 恒指跌1點收市　科指升逾1%　汽車股表現較好
-
-![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=75)
-  
-
-港股收市收復大部分失地，恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。主板成交額逾3070億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm)
-
----
-
-# 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
-  
-
-在北京，十四屆全國人大三次會議下午在人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 內地股市反覆低收　滬指跌0.2%
+
+![上證綜合指數收市報3371點，跌7點，跌幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795417_1_20250312151022.jpg&q=90)
+  
+
+滬深股市反覆低收，工程機械、農業和白酒股下跌；算力概念、影視傳媒相關股份上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm)
+
+---
+
 # 迪士尼貨倉遭爆竊失300萬元電子設備　3人被捕包括貨倉職員
 
   

@@ -1,3 +1,27 @@
+# Pro-independence party wins Greenland election
+
+![The leader of the Democrats, Jens-Frederik Nielsen, celebrates their win at an election party in Nuuk. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795416_1_20250312150651.jpg&q=90)
+  
+
+Greenland's centre-right opposition Democrats have won a surprise victory in legislative elections, more than tripling their support to 29.9 percent of votes, official results showed on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm)
+
+---
+
 # Trump's 25 pct tariffs on steel and aluminium in force
 
 ![A new wave of US tariffs sees levies of 25 percent on steel and aluminium imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795389_1_20250312121525.jpg&q=80)
@@ -1411,29 +1435,5 @@ Israel's new military chief Eyal Zamir said his country's mission to defeat Hama
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm)
-
----
-
-# Greenlanders shrug off Trump's takeover bid
-
-![Locals in the capital city of Nuuk are largely unfazed by President Trump's latest remarks that he would take over Greenland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794464_1_20250306032159.jpg&q=90)
-  
-
-Greenlanders on Wednesday shrugged off US President Donald Trump's vow to take over the Arctic island, seeing it merely as an opportunity to advance their own independence bid.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794464-20250306.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Pro-independence party wins Greenland election
+
+![The leader of the Democrats, Jens-Frederik Nielsen, celebrates their win at an election party in Nuuk. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795416_1_20250312150651.jpg&q=90)
+  
+
+Greenland's centre-right opposition Democrats have won a surprise victory in legislative elections, more than tripling their support to 29.9 percent of votes, official results showed on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm)
+
+---
+
 # City's IPO funds could double this year: FS
 
 ![Paul Chan says that optimism over the country's tech sector could lift the city's IPO market. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong will improve as long as everyone works together to tackle the fiscal d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm)
-
----
-
-# Govt welcomes HK$200m donation to support AI
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795099_1_20250310143309.jpg&q=90)
-  
-
-Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million donation by property developers to support the city’s generative artificial intelligence development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm)
 
 ---
