@@ -1,3 +1,26 @@
+# 格陵蘭自治議會選舉結束　點票結果數小時公布
+
+  
+
+格陵蘭舉行自治議會選舉，在美國總統特朗普揚言要控制格陵蘭之下，選舉備受國際關注，由於投票率高，各地72個票站要延長半小時關閉。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm)
+
+---
+
 # 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm)
-
----
-
-# 美烏代表沙特會談　烏方：會議開始得非常有建設性
-
-![葉爾馬克在社交平台發文說，與美國團隊的會議開始得非常有建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795301_1_20250311201833.jpg&q=85)
-  
-
-美國和烏克蘭代表團在沙特阿拉伯城市吉達，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm)
 
 ---

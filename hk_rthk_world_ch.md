@@ -1,3 +1,26 @@
+# 格陵蘭自治議會選舉結束　點票結果數小時公布
+
+  
+
+格陵蘭舉行自治議會選舉，在美國總統特朗普揚言要控制格陵蘭之下，選舉備受國際關注，由於投票率高，各地72個票站要延長半小時關閉。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm)
+
+---
+
 # 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
 
 ![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm)
-
----
-
-# 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
-
-![趙東說，C919飛機進入國際市場是時間問題，要取得不同認證，有一定過程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795121_1_20250310173033.jpg&q=90)
-  
-
-國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
 
 ---
