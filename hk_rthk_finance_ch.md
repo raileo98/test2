@@ -1,3 +1,75 @@
+# 美股初段上升　大型科技股向上
+
+![道瓊斯指數較早時報41564點，升130點，升幅0.32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795465_1_20250312213826.jpg&q=90)
+  
+
+美股在開市初段上升，大型科技股向上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm)
+
+---
+
+# 平安好醫生去年轉賺8100萬元人民幣
+
+![平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795463_1_20250312213415.jpg&q=90)
+  
+
+平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm)
+
+---
+
+# 龍湖集團料去年度盈利按年跌約20%
+
+![龍湖集團預計，去年度盈利按年跌約20%，主要由於地產開發業務的結算收入，及結算毛利率下跌所致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795460_1_20250312211225.jpg&q=90)
+  
+
+龍湖集團預計，去年度盈利按年跌約20%，主要由於地產開發業務的結算收入，及結算毛利率下跌所致。前年度盈利為128.5億元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm)
+
+---
+
 # 國常會：已明確全年經濟社會發展目標　各部門要細化措施加快落實
 
 ![李強主持召開國常會指出，政府工作報告明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795459_1_20250312210430.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm)
-
----
-
-# 美國1月JOLTs職位空缺增至774萬個多過預期
-
-![JOLTs調查顯示，美國1月職位空缺增至774萬個，多過市場預期的763萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795316_1_20250311221436.jpg&q=90)
-  
-
-美國勞工部公布職位空缺及勞動力流動調查(JOLTs)顯示，美國1月職位空缺增加23.2萬個，增至774萬個，多過去年12月的750.8萬個，亦多過市場預期的763萬個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795316-20250311.htm)
-
----
-
-# 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
-
-![葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795317_1_20250311223158.jpg&q=90)
-  
-
-全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
-
----
-
-# 美股初段個別發展
-
-![道瓊斯指數較早時報41752點，跌158點，跌幅0.38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795312_1_20250311214253.jpg&q=90)
-  
-
-美股在開市初段個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm)
 
 ---

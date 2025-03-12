@@ -1,3 +1,75 @@
+# 美股初段上升　大型科技股向上
+
+![道瓊斯指數較早時報41564點，升130點，升幅0.32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795465_1_20250312213826.jpg&q=90)
+  
+
+美股在開市初段上升，大型科技股向上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm)
+
+---
+
+# 平安好醫生去年轉賺8100萬元人民幣
+
+![平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795463_1_20250312213415.jpg&q=90)
+  
+
+平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm)
+
+---
+
+# 龍湖集團料去年度盈利按年跌約20%
+
+![龍湖集團預計，去年度盈利按年跌約20%，主要由於地產開發業務的結算收入，及結算毛利率下跌所致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795460_1_20250312211225.jpg&q=90)
+  
+
+龍湖集團預計，去年度盈利按年跌約20%，主要由於地產開發業務的結算收入，及結算毛利率下跌所致。前年度盈利為128.5億元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm)
+
+---
+
 # 政府稱臨床試驗與臨床服務是兩碼子事　未完成試驗不能成臨床服務
 
   
