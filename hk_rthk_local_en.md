@@ -3,7 +3,7 @@
 ![Paul Chan says that optimism over the country's tech sector could lift the city's IPO market. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
   
 
-Financial Secretary Paul Chan on Thursday hinted that the city could double the funds raised for its initial public offering (IPO) market this year compared to that of last year, as optimism over the nation’s tech sector grows.
+Financial Secretary Paul Chan on Wednesday hinted that the city could double the funds raised for its initial public offering (IPO) market this year compared to that of last year, as optimism over the nation’s tech sector grows.
 
   
 
