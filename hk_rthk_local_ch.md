@@ -1,3 +1,26 @@
+# 民主思路公布一國兩制指數微跌　逾48%受訪者不滿意立法會表現
+
+  
+
+民主思路發布新一輪「一國兩制」指數，最新為6.14分，較上一輪微跌 0.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm)
+
+---
+
 # 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
 
   
@@ -46,6 +69,7 @@
 
 # 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
 
+![公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795409_1_20250312150209.jpg&q=80)
   
 
 個人資料私隱專員公署表示，外賣平台「戶戶送」宣布將會結束香港業務，事件可能影響客戶及送遞員在個人資料私隱方面的權益。公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶，包括接手業務的營運者，以符合《私隱條例》的規定處理、刪除或轉移客戶及送遞員的個人資料，確保客戶及送遞員的個人資料不會被濫用、外洩或流入不法分子手中，被用作詐騙。
@@ -69,6 +93,7 @@
 
 # 學生交流團腸胃炎事件懷疑涉事韶關餐廳否認提前準備食物
 
+![流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795407_1_20250312150058.jpg&q=80)
   
 
 衞生防護中心公布先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。3間學校、共52名師生出現急性腸胃炎徵狀。流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。
@@ -236,6 +261,7 @@
 
 # 元朗游泳池4月10日至15日暫時關閉
 
+![元朗泳池將由4月10日至15日暫時關閉。（康文署圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795391_1_20250312150124.jpg&q=75)
   
 
 康文署表示，元朗游泳池須進行供電系統優化工程，泳池將由4月10日至15日暫時關閉。
@@ -1408,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795236-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795236-20250311.htm)
-
----
-
-# 當局冀「聯廈聯管」試驗計劃具靈活性　參與大廈不一定相連
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795235_1_20250311132348.jpg&q=80)
-  
-
-深水埗區議會討論民政處計劃在興華街、欽州街 、南昌街、大埔道等一帶推行「聯廈聯管」試驗計劃。多名區議員均表示歡迎，認為對區內舊樓的維修保養，以及改善環境衛生等方面都有正面作用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm)
 
 ---
