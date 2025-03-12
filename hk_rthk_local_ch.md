@@ -1,3 +1,49 @@
+# 香港快運去年由盈轉虧　林紹波稱屬短期問題長遠有信心有盈利
+
+  
+
+國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm)
+
+---
+
+# 教育局修訂「派0班」小學發展規劃　取消特別視學安排
+
+  
+
+教育局表示，預計2025至2031年6歲小一適齡人口將會由48600名降至37500名，學齡人口結構性下降的趨勢將繼續維持，就「派0班」的小學發展規劃作修訂，取消特別視學安排，方案選項由4個減至3個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm)
+
+---
+
 # 林紹波相信運力進一步提升　今年長途機票價格下降
 
   
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm)
-
----
-
-# 丘應樺籲港商借鑑內地經驗　把握跨境電商無限商機
-
-![丘應樺（左一）參觀該處的電子商貿直播中心，了解利用電子商貿及直播帶貨的過程和營銷策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795266_1_20250311165427.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺由廣州轉往東莞繼續訪問行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
-
----
-
-# 恒指跌1點收市　科指升逾1%　汽車股表現較好
-
-![恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795260_1_20250311162217.jpg&q=75)
-  
-
-港股收市收復大部分失地，恒生指數早段最多曾跌逾540點，尾市一度倒升逾70點，收市報23782點，跌1點。主板成交額逾3070億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795260-20250311.htm)
 
 ---

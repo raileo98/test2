@@ -1,3 +1,73 @@
+# 人民幣兌美元曾升至近4個月高位　收市跌近140點子
+
+![人民幣兌美元一度升至近4個月新高，收市報7.2445兌1美元，較上日收市跌139點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795438_1_20250312173655.jpg&q=85)
+  
+
+人民幣兌美元一度升至近4個月新高，高見7.2158兌1美元，但其後轉跌，收市報7.2445兌1美元，較上日收市跌139點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm)
+
+---
+
+# 香港快運去年由盈轉虧　林紹波稱屬短期問題長遠有信心有盈利
+
+  
+
+國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm)
+
+---
+
+# 教育局修訂「派0班」小學發展規劃　取消特別視學安排
+
+  
+
+教育局表示，預計2025至2031年6歲小一適齡人口將會由48600名降至37500名，學齡人口結構性下降的趨勢將繼續維持，就「派0班」的小學發展規劃作修訂，取消特別視學安排，方案選項由4個減至3個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm)
+
+---
+
 # 林紹波相信運力進一步提升　今年長途機票價格下降
 
   
