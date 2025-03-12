@@ -336,7 +336,7 @@
 
 # 民主思路公布一國兩制指數微跌　逾48%受訪者不滿意立法會表現
 
-![民主思路召集人湯家驊（左）表示，立法會議員的角色應以理性監督為核心，以建設性態度提出意見。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795415_1_20250312160917.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795415_1_20250312160917.jpg&q=80)
   
 
 民主思路發布新一輪「一國兩制」指數，最新為6.14分，較上一輪微跌 0.5%。
