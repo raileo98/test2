@@ -1,3 +1,27 @@
+# 特朗普不滿愛爾蘭以稅收等優惠政策搶走美國製藥等公司
+
+![特朗普在白宮會見到訪的愛爾蘭總理馬丁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795497_1_20250313064152.jpg&q=90)
+  
+
+美國總統特朗普在白宮會見到訪的愛爾蘭總理馬丁時，對兩國貿易不平衡表示不滿，稱愛爾蘭「佔美國便宜」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm)
+
+---
+
 # 阿拉伯五國外長與美國特使舉行會議討論加沙重建問題
 
 ![流離失所的巴勒斯坦人在加沙城一個球場的帳篷營地棲身。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795488_1_20250313052930.jpg&q=60)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
-
----
-
-# 敘過渡政府與敘利亞民主力量簽協議同意整合國家機關並實現停火
-
-![民眾上街慶祝過渡政府與敘利亞民主力量簽署協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795196_1_20250311090644.jpg&q=90)
-  
-
-敘利亞總統府宣布，過渡政府與敘利亞庫爾德武裝組織主導的「敘利亞民主力量」簽署協議，同意將「敘利亞民主力量」整合到國家機關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795196-20250311.htm)
 
 ---

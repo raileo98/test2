@@ -1,3 +1,27 @@
+# 美國2月預算赤字按年擴大4%
+
+![美國2月預算赤字總額3070億美元，按年擴大4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795495_1_20250313062715.jpg&q=80)
+  
+
+美國總統特朗普上任後的首個完整月份，2月預算赤字總額3070億美元，按年擴大110億美元，增長4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795495-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795495-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795495-20250313.htm)
+
+---
+
 # 美元兌日圓重上149　近1星期以來首次
 
 ![美元兌日圓一度重上149，是近1星期以來首次，高見149.19。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795494_1_20250313061148.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm)
-
----
-
-# 美元兌加元曾升穿1.45　歐元兌美元創5個月新高
-
-![美國威脅對加拿大鋼鋁進一步加徵關稅，美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795350_1_20250312070229.jpg&q=90)
-  
-
-美國總統特朗普威脅對加拿大鋼鋁進一步加徵關稅，但關稅措施仍不確定。美元兌加拿大元曾升穿1.45，觸及1.4521，創1星期新高，較早時回順至1.443附近。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm)
 
 ---
