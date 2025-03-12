@@ -1,3 +1,27 @@
+# HA to cut medication dispensed to patients
+
+![The Hospital Authority's chief pharmacist William Chui said around one-fifth of patients do not finish their medication. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795358_1_20250312090613.jpg&q=20)
+  
+
+The Hospital Authority said on Wednesday it was working on reducing the amount of medicine distributed to patients to reduce wastage.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm)
+
+---
+
 # UK makes manslaughter arrest of ship captain
 
 ![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=80)
@@ -1414,29 +1438,5 @@ Shai Gilgeous-Alexander outdueled MVP rival Nikola Jokic with a 40-point perform
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm)
-
----
-
-# Mark Carney to succeed Trudeau as Canadian PM
-
-![During the campaign, Carney said he supported dollar-for-dollar retaliatory tariffs against the United States. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795033_1_20250310065447.jpg&q=90)
-  
-
-Former central banker Mark Carney won the race to become leader of Canada's ruling Liberal Party and will succeed Justin Trudeau as prime minister, official results showed on Sunday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm)
 
 ---
