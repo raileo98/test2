@@ -1,3 +1,27 @@
+# 哈梅內伊：美稱準備與伊朗談判是欺騙世界輿論
+
+![哈梅內伊在德黑蘭參加活動時回應美方談判的呼籲，斥責這是欺騙輿論。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795480_1_20250313011614.jpg&q=90)
+  
+
+伊朗最高領袖哈梅內伊表示，美國總統提到「準備與伊朗談判，但伊朗不願意」，這個講法是對世界輿論的欺騙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm)
+
+---
+
 # 澤連斯基：領土問題屬紅線　不會承認被俄佔土地
 
 ![澤連斯基稱，為恢復領土，烏克蘭付出巨大人命傷亡，這是烏方最重要的紅線。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795479_1_20250313003849.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm)
-
----
-
-# 加拿大安大略省向輸美電力徵收25%附加費
-
-![福特表示，如果貿易戰持續下去，他將毫不猶豫提高收費，甚至完全切斷電力出口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795173_1_20250311020802.jpg&q=85)
-  
-
-加拿大安大略省當地星期一宣布，即日起對輸往美國的電力徵收25%附加費，作為對美國總統特朗普對加拿大商品徵收關稅的報復措施之一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795173-20250311.htm)
 
 ---

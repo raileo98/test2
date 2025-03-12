@@ -1,3 +1,27 @@
+# 哈梅內伊：美稱準備與伊朗談判是欺騙世界輿論
+
+![哈梅內伊在德黑蘭參加活動時回應美方談判的呼籲，斥責這是欺騙輿論。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795480_1_20250313011614.jpg&q=90)
+  
+
+伊朗最高領袖哈梅內伊表示，美國總統提到「準備與伊朗談判，但伊朗不願意」，這個講法是對世界輿論的欺騙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm)
+
+---
+
 # 澤連斯基：領土問題屬紅線　不會承認被俄佔土地
 
 ![澤連斯基稱，為恢復領土，烏克蘭付出巨大人命傷亡，這是烏方最重要的紅線。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795479_1_20250313003849.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm)
-
----
-
-# 分析指美國經濟硬著陸風險未見急升　料今年中開始減息
-
-![投資者預料聯儲局5月減息機會升至近一半，估計年內有機會減息3次，每次0.25厘。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795405_1_20250312134223.jpg&q=75)
-  
-
-美國勞工統計局公布，1月職位空缺774萬個，多於預期；上周五公布的2月非農業新增職位亦較預期少，市場擔心數據反映經濟正步入衰退。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm)
 
 ---
