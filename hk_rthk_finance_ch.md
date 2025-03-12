@@ -1,3 +1,26 @@
+# 林紹波相信運力進一步提升　今年長途機票價格下降
+
+  
+
+國泰航空去年盈利近98.9億元，按年上升1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm)
+
+---
+
 # 恒指低收181點　連跌4日　科指跌2%
 
 ![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
@@ -214,6 +237,30 @@
 
 ---
 
+# 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
+
+![公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795409_1_20250312150209.jpg&q=80)
+  
+
+個人資料私隱專員公署表示，外賣平台「戶戶送」宣布將會結束香港業務，事件可能影響客戶及送遞員在個人資料私隱方面的權益。公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶，包括接手業務的營運者，以符合《私隱條例》的規定處理、刪除或轉移客戶及送遞員的個人資料，確保客戶及送遞員的個人資料不會被濫用、外洩或流入不法分子手中，被用作詐騙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
+
+---
+
 # 日立：今年加薪6.2%　豐田：薪酬加幅與去年持平
 
 ![豐田表示，整體員工加薪幅度將與去年持平，並會發放相當於7.6個月薪酬的獎金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795406_1_20250312135259.jpg&q=90)
@@ -382,6 +429,30 @@
 
 ---
 
+# 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
+
+![孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795393_1_20250312131149.jpg&q=85)
+  
+
+勞工及福利局局長孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意，到今年中有約1萬張簽證到期，會以相關基數分析及公布情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
+
+---
+
 # 港股半日跌158點　汽車股逆市造好
 
 ![恒生指數高開後反覆向下，早段最多升約180點，中午報23623點，跌158點，跌幅0.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795388_1_20250312120913.jpg&q=90)
@@ -451,6 +522,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm)
+
+---
+
+# 10億元大嶼山保育基金至今批出1.3億元　正接受新一輪申請
+
+![基金總額有10億元，目的在於推展大嶼山的保育及相關項目，提高社區的保育意識，促進社區人士參與實踐保育理念。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795384_1_20250312121551.jpg&q=90)
+  
+
+土木工程拓展署可持續大嶼辦事處公布，2023至2024年度大嶼山保育基金批出3個項目，涉及總金額約850萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
 
 ---
 
@@ -1339,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795271-20250311.htm)
-
----
-
-# 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
-
-![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=85)
-  
-
-十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm)
-
----
-
-# 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
-
-![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=90)
-  
-
-十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
-
----
-
-# 全國兩會｜文旅部部長稱只要有好產品就不愁沒有消費
-
-![孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795272_1_20250311180851.jpg&q=90)
-  
-
-文化和旅遊部部長孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。去年國內旅遊規模達56億人次，消費57000億元，按年增長17%。入境遊達1.32億人次，相關旅客在國內花費亦超過900多億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm)
-
----
-
-# 保薦人主管協會：應上調新股公開發售部分回撥機制觸發條件
-
-![鄧澔暐指出，回撥機制行之有效，認為無需大改變，但應上調回撥機制觸發條件。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795270_1_20250311183728.jpg&q=90)
-  
-
-港交所正為優化首次公開招股市場定價及公開市場規定諮詢市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795270-20250311.htm)
 
 ---

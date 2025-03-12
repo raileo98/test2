@@ -1,3 +1,50 @@
+# 林紹波相信運力進一步提升　今年長途機票價格下降
+
+  
+
+國泰航空去年盈利近98.9億元，按年上升1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm)
+
+---
+
+# 菲國副總統赴荷蘭　較早時稱隨父到當地出席國際刑事法院聆訊
+
+![杜特爾特對自己被拘留提出質疑。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795434_1_20250312172831.jpg&q=90)
+  
+
+菲律賓副總統辦公室說，副總統莎拉今早啟程前往荷蘭阿姆斯特丹。她昨晚已表示將跟隨父親、前總統杜特爾特前往荷蘭海牙，參加國際刑事法院的聆訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm)
+
+---
+
 # 海關拘17歲深圳抵港男子　涉藏懷疑太空油毒品煙彈及電子煙
 
 ![海關昨日在羅湖管制站拘捕一名17歲由深圳抵港旅客，在他身上搜出，兩支懷疑含有「太空油毒品」的電子煙及一支電子煙裝置。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795433_1_20250312172205.jpg&q=80)

@@ -1,3 +1,27 @@
+# 菲國副總統赴荷蘭　較早時稱隨父到當地出席國際刑事法院聆訊
+
+![杜特爾特對自己被拘留提出質疑。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795434_1_20250312172831.jpg&q=90)
+  
+
+菲律賓副總統辦公室說，副總統莎拉今早啟程前往荷蘭阿姆斯特丹。她昨晚已表示將跟隨父親、前總統杜特爾特前往荷蘭海牙，參加國際刑事法院的聆訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm)
+
+---
+
 # 美國對鋼鋁徵收25%關稅　歐盟下月起向260億歐元美國貨徵稅
 
 ![馮德萊恩表示，對美國的措施深感遺憾，認為關稅會擾亂供應鏈，對經濟帶來不確定性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_1_20250312155410.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm)
-
----
-
-# 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
-
-![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=80)
-  
-
-在北京，外交部發言人毛寧說，中方對敘利亞境內發生武裝衝突造成大量人員傷亡感到擔憂，呼籲有關方面立即停止武裝衝突和敵對行動，切實保護平民安全，尊重並堅持包容性原則，通過對話找到符合敘利亞人民意願的重建國家方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm)
 
 ---
