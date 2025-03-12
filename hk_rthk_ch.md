@@ -1,3 +1,26 @@
+# 涉多區公園後巷盜取銅水管轉售　警方拘5人渉22宗案件
+
+  
+
+警方昨日拘捕5人，涉嫌在多區盜取銅水管，總值超過1百萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm)
+
+---
+
 # 恒指低收181點　連跌4日　科指跌2%
 
 ![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)

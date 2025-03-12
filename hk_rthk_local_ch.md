@@ -1,3 +1,26 @@
+# 涉多區公園後巷盜取銅水管轉售　警方拘5人渉22宗案件
+
+  
+
+警方昨日拘捕5人，涉嫌在多區盜取銅水管，總值超過1百萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm)
+
+---
+
 # 恒指低收181點　連跌4日　科指跌2%
 
 ![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
-
----
-
-# 涉灣仔非法集結原審脫罪　案件重審社工陳虹秀被判暴動罪成
-
-![暫委法官鍾明新裁定陳虹秀暴動罪成，需要還押。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795249_2_20250311151637.jpg&q=85)
-  
-
-2019年8月灣仔軒尼詩道發生非法集結，多名身穿黑衣人士拆除鐵欄，向警方投擲磚頭及汽油彈等。曾被捕的社工陳虹秀經審訊後，被裁定罪脫，其後律政司上訴得直，案件發還重審，陳虹秀早前否認暴動罪開審。暫委法官鍾明新今日在區域法院裁定被告暴動罪成，需要還押。案件押後至下月3日求情，下月9日判刑，屆時將連同案其他被告的判刑一併處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795249-20250311.htm)
 
 ---

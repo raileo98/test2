@@ -1,3 +1,27 @@
+# China to host talks on Iranian nuclear issue
+
+![The Foreign Ministry says China, Russia and Iran will hold talks on Friday on the Iranian nuclear issue and other topics of mutual interest. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795432_1_20250312165659.jpg&q=80)
+  
+
+China will host Russia and Iran for trilateral talks on Tehran's nuclear programme on Friday, the Foreign Ministry said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm)
+
+---
+
 # Pro-independence party wins Greenland election
 
 ![The leader of the Democrats, Jens-Frederik Nielsen, celebrates their win at an election party in Nuuk. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795416_1_20250312150651.jpg&q=90)
@@ -1411,29 +1435,5 @@ US stocks climbed on Wednesday after US President Donald Trump pulled back on so
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
-
----
-
-# Israel appoints new military chief, says war not over
-
-![Eyal Zamir is replacing Herzi Halevi, who announced his resignation as armed forces chief in January over the military's shortcomings on October 7, 2023. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794466_1_20250306033340.jpg&q=80)
-  
-
-Israel's new military chief Eyal Zamir said his country's mission to defeat Hamas remained unfinished as he took office on Wednesday, with uncertainty hanging over the fragile Gaza ceasefire.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794466-20250306.htm)
 
 ---
