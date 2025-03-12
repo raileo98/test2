@@ -1,3 +1,26 @@
+# 巴基斯坦火車乘客被挾持事件據報現場所有武裝份子被擊斃
+
+  
+
+新華社引述巴基斯坦軍方官員報道，當地安全部隊在營救遇襲客運列車上人質的行動中，擊斃現場所有武裝份子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm)
+
+---
+
 # 加拿大周四起對298億加元美國貨加徵25%關稅
 
 ![勒布朗強調，當加拿大的鋼鋁行業受到美國政策的攻擊時，不會袖手旁觀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795470_1_20250312224105.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795170-20250311.htm)
-
----
-
-# 美中東特使料本周與鳥克蘭談判將取得實質性進展
-
-![威特科夫預計本周美國與烏克蘭的談判將取得實質性進展。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795169_1_20250311021048.jpg&q=90)
-  
-
-美國中東問題特使威特科夫表示，預計本周美國與烏克蘭的談判將取得實質性進展，希望能與烏克蘭簽署礦產協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795169-20250311.htm)
 
 ---

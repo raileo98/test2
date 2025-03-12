@@ -1,3 +1,27 @@
+# Canada announces additional tariffs on US goods
+
+![Donald Trump's hyper-focus on tariffs since taking office in January has rattled investor, consumer and business confidence. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795475_1_20250312225143.jpg&q=90)
+  
+
+Canada on Wednesday announced additional tariffs on US$20.7 billion of US goods, retaliating against American levies on Canadian steel and aluminium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm)
+
+---
+
 # China to host talks on Iranian nuclear issue
 
 ![The Foreign Ministry says China, Russia and Iran will hold talks on Friday on the Iranian nuclear issue and other topics of mutual interest. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795432_1_20250312165659.jpg&q=80)
@@ -1411,29 +1435,5 @@ US President Donald Trump on Wednesday issued what he called a “last warning�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm)
-
----
-
-# Wall Street rebounds after Trump pauses auto tariffs
-
-![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
-  
-
-US stocks climbed on Wednesday after US President Donald Trump pulled back on some of his tariffs temporarily.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
 
 ---
