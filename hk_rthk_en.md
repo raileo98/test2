@@ -1,3 +1,27 @@
+# SpaceX scrubs launch of ISS replacement crew mission
+
+![SpaceX called off the flight over a last-minute technical issue with the rocket's launchpad. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795503_1_20250313075135.jpg&q=90)
+  
+
+SpaceX on Wednesday scrubbed the expected launch of a replacement crew of four astronauts to the International Space Station that would have set in motion the long-awaited homecoming of US astronauts Butch Wilmore and Suni Williams, who have been stuck in space for nine months after a trip on Boeing's faulty Starliner.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm)
+
+---
+
 # Real, Arsenal to clash in Champions League quarters
 
 ![Kylian Mbappé celebrates with teammates after Real Madrid's penalty shoot-out victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_1_20250313074046.jpg&q=90)
@@ -1414,29 +1438,5 @@ Hong Kong's Hang Seng Index fell 508.63 points, or 2.14 percent, to open at 23,2
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm)
-
----
-
-# Search ends for missing crew after North Sea collision
-
-![Footage shows flames and smoke rising from a collision between an oil tanker and a cargo ship off the northeastern coast of England. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795210_1_20250311093602.jpg&q=90)
-  
-
-The UK coastguard ended the search for a missing crew member after a cargo ship ran into a US-military charted tanker carrying jet fuel in the North Sea on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm)
 
 ---

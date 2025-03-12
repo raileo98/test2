@@ -1,3 +1,27 @@
+# SpaceX scrubs launch of ISS replacement crew mission
+
+![SpaceX called off the flight over a last-minute technical issue with the rocket's launchpad. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795503_1_20250313075135.jpg&q=90)
+  
+
+SpaceX on Wednesday scrubbed the expected launch of a replacement crew of four astronauts to the International Space Station that would have set in motion the long-awaited homecoming of US astronauts Butch Wilmore and Suni Williams, who have been stuck in space for nine months after a trip on Boeing's faulty Starliner.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm)
+
+---
+
 # Mark Carney to be sworn in as Canadian PM on Friday
 
 ![The new Liberal leader has promised a "seamless and quick" transition as he takes over from Justin Trudeau. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795499_1_20250313072252.jpg&q=90)
@@ -1411,29 +1435,5 @@ South Korea's Air Force on Thursday said one of its fighter jets had accidentall
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm)
-
----
-
-# Briton jailed for 19 years for fighting for Ukraine
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794494_1_20250306091939.jpg&q=90)
-  
-
-Britain strongly condemned on Wednesday the sentencing of UK national James Anderson to 19 years in prison by a Russian court, which accused him of having fought for the Ukrainian army.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm)
 
 ---
