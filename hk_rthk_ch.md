@@ -1,3 +1,27 @@
+# 白宮宣布派遣特使威特科夫赴俄　推動達成停火
+
+![白宮宣布派遣特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795485_1_20250313033739.jpg&q=90)
+  
+
+美國白宮宣布派遣特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm)
+
+---
+
 # 美國官員將赴俄討論停火　克宮：等待美方通報美烏會談細節
 
 ![克里姆林宮發言人佩斯科夫說，俄方正等待美方通報美烏會談的細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795484_1_20250313025110.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
-
----
-
-# 公司註冊處資料外洩影響10.9萬人　私隱公署促全面檢視系統
-
-![私隱專員公署已建議公司註冊處對載有個人資料的系統進行定期及全面的檢視。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795411_1_20250312150301.jpg&q=80)
-  
-
-個人資料私隱專員公署完成對公司註冊處資料外洩事故的調查，並發表調查結果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm)
 
 ---
