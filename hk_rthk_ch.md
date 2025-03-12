@@ -1,3 +1,51 @@
+# 國泰航空去年盈利升1%　普通股股東應佔溢利升近6%
+
+![國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795396_1_20250312124629.jpg&q=90)
+  
+
+國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。期內，撇除非經常性項目，基本溢利91.4億元，按年升逾19%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
+
+---
+
+# 回應民進黨當局威脅台灣藝人　國台辦：充分暴露其虛偽
+
+![陳斌華批評民進黨當局充分暴露其標榜的「民主自由」的虛偽。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795395_1_20250312124617.jpg&q=90)
+  
+
+在北京，國台辦回應民進黨當局威脅台灣藝人，發言人陳斌華批評民進黨當局動輒威脅恫嚇、打擊報復，企圖限制、剝奪台灣同胞的思想自由、言論自由，充分暴露其標榜的「民主自由」的虛偽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm)
+
+---
+
 # 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
 
   
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm)
-
----
-
-# 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
-
-![葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795317_1_20250311223158.jpg&q=90)
-  
-
-全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
-
----
-
-# 美股初段個別發展
-
-![道瓊斯指數較早時報41752點，跌158點，跌幅0.38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795312_1_20250311214253.jpg&q=90)
-  
-
-美股在開市初段個別發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm)
 
 ---

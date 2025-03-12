@@ -1,3 +1,27 @@
+# 回應民進黨當局威脅台灣藝人　國台辦：充分暴露其虛偽
+
+![陳斌華批評民進黨當局充分暴露其標榜的「民主自由」的虛偽。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795395_1_20250312124617.jpg&q=90)
+  
+
+在北京，國台辦回應民進黨當局威脅台灣藝人，發言人陳斌華批評民進黨當局動輒威脅恫嚇、打擊報復，企圖限制、剝奪台灣同胞的思想自由、言論自由，充分暴露其標榜的「民主自由」的虛偽。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm)
+
+---
+
 # 國台辦：解決台灣問題基礎更雄厚　有力塑造祖國必然統一大勢
 
 ![陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795379_1_20250312105404.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795059-20250310.htm)
-
----
-
-# 全國兩會｜駐英大使鄭澤光稱中英同努力　關係積極進展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795058_1_20250310103005.jpg&q=75)
-  
-
-在北京，全國政協委員、駐英大使鄭澤光接受本台訪問說，中英關係在雙方共同努力下，正在取得積極進展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795058-20250310.htm)
 
 ---

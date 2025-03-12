@@ -1,3 +1,27 @@
+# 國泰航空去年盈利升1%　普通股股東應佔溢利升近6%
+
+![國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795396_1_20250312124629.jpg&q=90)
+  
+
+國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。期內，撇除非經常性項目，基本溢利91.4億元，按年升逾19%。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
+
+---
+
 # 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795222-20250311.htm)
-
----
-
-# 涉攜未完稅日本煙入境　近兩星期21名內地人於機場被捕
-
-![海關過去兩星期加強執法，在機場破獲20宗內地旅客攜帶未完稅日本煙入境香港案件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795215_1_20250311111815.jpg&q=80)
-  
-
-因應有內地旅客攜帶未完稅日本煙入境香港，海關過去兩星期加強執法，在機場破獲20宗有關案件，共拘捕21名內地人士。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795215-20250311.htm)
 
 ---
