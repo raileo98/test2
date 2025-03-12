@@ -1,3 +1,27 @@
+# City's IPO funds could double this year: FS
+
+![Paul Chan says that optimism over the country's tech sector could lift the city's IPO market. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
+  
+
+Financial Secretary Paul Chan on Thursday hinted that the city could double the funds raised for its initial public offering (IPO) market this year compared to that of last year, as optimism over the nation’s tech sector grows.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm)
+
+---
+
 # Govt optimistic over top talent scheme visa renewals
 
 ![About 10,000 visas under the Top Talent Pass Scheme are going to expire by the middle of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
@@ -24,10 +48,10 @@ The government is optimistic about the number of people who will stay under the 
 
 # Cathay Pacific profits edged up in 2024
 
-![Cathay Pacific posts a one percent rise in its group net profit of HK$9.89 billion for the year ended December 31, 2024.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
+![Cathay Pacific's group net profit rose one percent to  HK$9.89 billion last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
   
 
-Cathay Pacific Airways on Wednesday reported marginal full-year profit growth, but airfares fell because of intense competition as Asia's airlines continue to restore seat capacity after the pandemic.
+Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as airfares fell amid intense competition at a time when Asia's airlines are continuing to get back to pre-pandemic seat capacity.
 
   
 
@@ -1413,29 +1437,5 @@ Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm)
-
----
-
-# N Korea fires missiles as South begins drills with US
-
-![Seoul says the south's military will bolster surveillance and maintain a full readiness posture. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795098_1_20250310141933.jpg&q=90)
-  
-
-North Korea fired "multiple unidentified ballistic missiles" on Monday, South Korea's military said, the same day Seoul and Washington began a major annual joint military drill known as Freedom Shield.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm)
 
 ---

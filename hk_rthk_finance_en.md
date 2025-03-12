@@ -1,3 +1,27 @@
+# Cathay Pacific profits edged up
+
+![Cathay Pacific's group net profit rose one percent to  HK$9.89 billion last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
+  
+
+Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as airfares fell amid intense competition at a time when Asia's airlines are continuing to get back to pre-pandemic seat capacity.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
+
+---
+
 # Trump's 25 pct tariffs on steel and aluminium in force
 
 ![A new wave of US tariffs sees levies of 25 percent on steel and aluminium imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795389_1_20250312121525.jpg&q=80)
@@ -1411,29 +1435,5 @@ The government’s move to pause the sale of commercial land in the upcoming fis
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793353-20250226.htm)
-
----
-
-# Hong Kong stocks close higher
-
-![The Hang Seng Index finished 3.3 percent higher at 23,787. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793331_1_20250226173813.jpg&q=60)
-  
-
-Hong Kong stocks rallied on Wednesday, with the benchmark Hang Seng Index soaring 3.3 percent to close at 23,787.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793331-20250226.htm)
 
 ---
