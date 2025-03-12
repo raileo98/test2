@@ -1,3 +1,27 @@
+# 華僑銀行：日本大型企業加薪幅度符合預期　料央行今年或加息兩次
+
+![華僑銀行香港經濟師姜靜認為，日本大型企業加薪幅度符合預期，預期今年將加息兩次，將基準利率從目前的0.5厘上調至1厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795448_1_20250312192459.jpg&q=90)
+  
+
+日本一年一度被稱為「春鬥」的大型企業勞資談判結束，多間大型企業同意工會提出的加薪要求，連續3年大幅加薪。工會要求今年平均加薪6.09%，高於去年的5.85%，為32年來首次突破6%的水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm)
+
+---
+
 # 拉加德：貿易和國防等衝擊或加劇歐元區通脹波動
 
 ![拉加德稱歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795441_1_20250312175133.jpg&q=90)

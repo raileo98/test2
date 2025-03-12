@@ -1,3 +1,27 @@
+# 華僑銀行：日本大型企業加薪幅度符合預期　料央行今年或加息兩次
+
+![華僑銀行香港經濟師姜靜認為，日本大型企業加薪幅度符合預期，預期今年將加息兩次，將基準利率從目前的0.5厘上調至1厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795448_1_20250312192459.jpg&q=90)
+  
+
+日本一年一度被稱為「春鬥」的大型企業勞資談判結束，多間大型企業同意工會提出的加薪要求，連續3年大幅加薪。工會要求今年平均加薪6.09%，高於去年的5.85%，為32年來首次突破6%的水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm)
+
+---
+
 # 拉加德：貿易和國防等衝擊或加劇歐元區通脹波動
 
 ![拉加德稱歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795441_1_20250312175133.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795308-20250311.htm)
-
----
-
-# 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
-
-![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=80)
-  
-
-為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
 
 ---
