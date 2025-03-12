@@ -1,3 +1,27 @@
+# 特朗普威脅對歐盟加徵額外懲罰性關稅
+
+![特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795483_1_20250313023537.jpg&q=90)
+  
+
+美國對進口鋼鋁徵收25%關稅的措施已經生效，總統特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm)
+
+---
+
 # 杜特爾特被移交國際刑事法院羈押
 
 ![載有杜特爾特的飛機當地周三下午，抵達荷蘭鹿特丹海牙機場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795482_1_20250313015609.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm)
-
----
-
-# 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
-
-![公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795409_1_20250312150209.jpg&q=80)
-  
-
-個人資料私隱專員公署表示，外賣平台「戶戶送」宣布將會結束香港業務，事件可能影響客戶及送遞員在個人資料私隱方面的權益。公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶，包括接手業務的營運者，以符合《私隱條例》的規定處理、刪除或轉移客戶及送遞員的個人資料，確保客戶及送遞員的個人資料不會被濫用、外洩或流入不法分子手中，被用作詐騙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
 
 ---

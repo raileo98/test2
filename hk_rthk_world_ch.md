@@ -1,3 +1,27 @@
+# 特朗普威脅對歐盟加徵額外懲罰性關稅
+
+![特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795483_1_20250313023537.jpg&q=90)
+  
+
+美國對進口鋼鋁徵收25%關稅的措施已經生效，總統特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm)
+
+---
+
 # 杜特爾特被移交國際刑事法院羈押
 
 ![載有杜特爾特的飛機當地周三下午，抵達荷蘭鹿特丹海牙機場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795482_1_20250313015609.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795178-20250311.htm)
-
----
-
-# 市場擔憂美國經濟衰退風險上升　紐約股市大幅下跌
-
-![美國經濟衰退風險上升引發市場嚴重擔憂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795175_1_20250311051543.jpg&q=90)
-  
-
-由於美國經濟衰退風險上升引發市場嚴重擔憂，紐約股市三大指數低開低走。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm)
 
 ---
