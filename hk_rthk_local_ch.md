@@ -1,9 +1,33 @@
+# 香港快運去年轉蝕4億元　短途票價正常化令收益率受壓
+
+![香港快運去年業績由盈轉虧，虧損4億元，受短期營運問題影響，短途市場票價迅速正常化亦令收益率受壓。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795400_1_20250312130859.jpg&q=90)
+  
+
+國泰航空旗下香港快運業績由盈轉虧，虧損4億元，而前年盈利4.33億元。短期營運問題導致錄得虧損，去年全年平均有5架空中巴士A320neo型飛機，因為涉及整個業界的普惠發動機問題而停飛，影響了飛機使用率及營運效率。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm)
+
+---
+
 # 國泰冀今年底前最多增聘4000名員工
 
 ![國泰航空計劃今年底前，增加最多4000名員工，總數增至約3.4萬人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795398_1_20250312125855.jpg&q=90)
   
 
-國泰航空去年員工開支按年升約14%至168.4億元。
+國泰航空去年燃油對沖收益3500萬元，按年大減近95%。扣除對沖收益後，燃油成本淨額升13%至282.6億元。去年耗油量增加約22%至3510萬桶。
 
   
 
@@ -48,6 +72,7 @@
 
 # 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
 
+![孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795393_1_20250312131149.jpg&q=85)
   
 
 勞工及福利局局長孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意，到今年中有約1萬張簽證到期，會以相關基數分析及公布情況。
@@ -71,6 +96,7 @@
 
 # 醫管局本月24日起每次最多向病人配發約6個月藥物以減少浪費
 
+![醫管局未來的最終目標，是每次最多向病人處方8星期藥物，但要社區藥房配合。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795392_1_20250312131120.jpg&q=85)
   
 
 醫管局在本月24日起更改配藥安排，包括每次最多只會向病人配發24個星期、即相當於大約6個月的藥物，希望減少浪費。未來的最終目標是每次最多向病人處方8星期藥物，但要社區藥房配合。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795227-20250311.htm)
-
----
-
-# 港鐵票價調整尚待一項數據　金澤培稱看來按機制或維持不變
-
-![金澤培說，今年的票價可能凍結，亦是政府與港鐵訂定的票價調整機制下的結果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795223_1_20250311122921.jpg&q=80)
-  
-
-港鐵行政總裁金澤培在報章專欄撰文表示，今年的票價調整尚待政府公布最後一項數據，現時看來今年票價按機制大概會維持不變，他說，今年的票價可能凍結，亦是政府與港鐵訂定的票價調整機制下的結果，又指乘客期望票價越低越好，港鐵員工期望薪酬越高越好，公司努力做到平衡。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795223-20250311.htm)
 
 ---

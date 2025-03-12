@@ -1,3 +1,27 @@
+# Social workers board 'to review applications by law'
+
+![Chris Sun says he's confident the Social Workers Registration Board will fulfill its duties when reviewing renewal applications. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
+  
+
+Secretary for Labour and Welfare Chris Sun said on Wednesday he believes the Social Workers Registration Board will review any renewal application as required by law.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm)
+
+---
+
 # Cavs beat Nets for second 15-game win streak of season
 
 ![Darius Garland scored 18 of his 30 points in the fourth quarter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795390_1_20250312121604.jpg&q=90)
@@ -1413,29 +1437,5 @@ The annual session of the country's top advisory body has concluded in Beijing, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm)
-
----
-
-# China to provide global trade stability: analyst
-
-![Foreign Minister Wang Yi pledged China would be a force for stability in an increasingly chaotic world, amid disputes between some of the major trading powers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795069_1_20250310105936.jpg&q=45)
-  
-
-An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Two Sessions" last week that China ensured global stability.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm)
 
 ---

@@ -1,9 +1,33 @@
+# 香港快運去年轉蝕4億元　短途票價正常化令收益率受壓
+
+![香港快運去年業績由盈轉虧，虧損4億元，受短期營運問題影響，短途市場票價迅速正常化亦令收益率受壓。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795400_1_20250312130859.jpg&q=90)
+  
+
+國泰航空旗下香港快運業績由盈轉虧，虧損4億元，而前年盈利4.33億元。短期營運問題導致錄得虧損，去年全年平均有5架空中巴士A320neo型飛機，因為涉及整個業界的普惠發動機問題而停飛，影響了飛機使用率及營運效率。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm)
+
+---
+
 # 國泰冀今年底前最多增聘4000名員工
 
 ![國泰航空計劃今年底前，增加最多4000名員工，總數增至約3.4萬人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795398_1_20250312125855.jpg&q=90)
   
 
-國泰航空去年員工開支按年升約14%至168.4億元。
+國泰航空去年燃油對沖收益3500萬元，按年大減近95%。扣除對沖收益後，燃油成本淨額升13%至282.6億元。去年耗油量增加約22%至3510萬桶。
 
   
 
@@ -1411,31 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795244-20250311.htm)
-
----
-
-# 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
-
-![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=80)
-![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=85)
-![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
-  
-
-投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
 
 ---

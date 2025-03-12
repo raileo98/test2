@@ -1,3 +1,27 @@
+# 格陵蘭自治議會選舉　倡緩慢獨立的反對黨民主黨得票最多
+
+![格陵蘭自治議會選舉完成點票，親商界的反對黨民主黨得票最多。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795399_1_20250312131026.jpg&q=85)
+  
+
+格陵蘭自治議會選舉完成點票，路透社報道，親商界的反對黨民主黨，擊敗現任的左翼執政聯盟。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm)
+
+---
+
 # 格陵蘭自治議會選舉結束　點票結果數小時公布
 
 ![格陵蘭自治議會選舉結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795382_1_20250312113119.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm)
-
----
-
-# 外交部：聯合國稱台灣為「中國台灣省」的立場一貫　有案可查
-
-![毛寧說，中方將採取一切必要措施捍衛國家主權和領土完整。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795119_1_20250310162532.jpg&q=90)
-  
-
-在北京，外長王毅日前表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm)
 
 ---

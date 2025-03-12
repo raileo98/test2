@@ -1,9 +1,57 @@
+# 香港快運去年轉蝕4億元　短途票價正常化令收益率受壓
+
+![香港快運去年業績由盈轉虧，虧損4億元，受短期營運問題影響，短途市場票價迅速正常化亦令收益率受壓。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795400_1_20250312130859.jpg&q=90)
+  
+
+國泰航空旗下香港快運業績由盈轉虧，虧損4億元，而前年盈利4.33億元。短期營運問題導致錄得虧損，去年全年平均有5架空中巴士A320neo型飛機，因為涉及整個業界的普惠發動機問題而停飛，影響了飛機使用率及營運效率。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm)
+
+---
+
+# 格陵蘭自治議會選舉　倡緩慢獨立的反對黨民主黨得票最多
+
+![格陵蘭自治議會選舉完成點票，親商界的反對黨民主黨得票最多。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795399_1_20250312131026.jpg&q=85)
+  
+
+格陵蘭自治議會選舉完成點票，路透社報道，親商界的反對黨民主黨，擊敗現任的左翼執政聯盟。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm)
+
+---
+
 # 國泰冀今年底前最多增聘4000名員工
 
 ![國泰航空計劃今年底前，增加最多4000名員工，總數增至約3.4萬人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795398_1_20250312125855.jpg&q=90)
   
 
-國泰航空去年員工開支按年升約14%至168.4億元。
+國泰航空去年燃油對沖收益3500萬元，按年大減近95%。扣除對沖收益後，燃油成本淨額升13%至282.6億元。去年耗油量增加約22%至3510萬桶。
 
   
 
@@ -72,6 +120,7 @@
 
 # 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
 
+![孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795393_1_20250312131149.jpg&q=85)
   
 
 勞工及福利局局長孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意，到今年中有約1萬張簽證到期，會以相關基數分析及公布情況。
@@ -95,6 +144,7 @@
 
 # 醫管局本月24日起每次最多向病人配發約6個月藥物以減少浪費
 
+![醫管局未來的最終目標，是每次最多向病人處方8星期藥物，但要社區藥房配合。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795392_1_20250312131120.jpg&q=85)
   
 
 醫管局在本月24日起更改配藥安排，包括每次最多只會向病人配發24個星期、即相當於大約6個月的藥物，希望減少浪費。未來的最終目標是每次最多向病人處方8星期藥物，但要社區藥房配合。
@@ -1385,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm)
-
----
-
-# 巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件
-
-![巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795322_1_20250311223658.jpg&q=90)
-  
-
-巴基斯坦一列載有400多人的火車在西南部俾路支省受到襲擊，武裝分子挾持乘客做人質，聲稱當中包括軍方人員。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm)
-
----
-
-# 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=80)
-  
-
-港區全國人大代表團出席全國人大會議後，由北京返抵本港。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
 
 ---
