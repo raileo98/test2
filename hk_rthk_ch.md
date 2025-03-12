@@ -1,3 +1,27 @@
+# 恒指跌幅曾擴大至逾400點　科指跌逾3%
+
+![港股下午沽壓加大。恒生指數曾跌約420點，科技指數較早時跌3.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795420_1_20250312152503.jpg&q=75)
+  
+
+港股下午沽壓加大。恒生指數曾跌約420點，較早時報23390點，跌391點，跌幅1.65%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm)
+
+---
+
 # 內地股市反覆低收　滬指跌0.2%
 
 ![上證綜合指數收市報3371點，跌7點，跌幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795417_1_20250312151022.jpg&q=90)
@@ -19,29 +43,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm)
-
----
-
-# 迪士尼貨倉遭爆竊失300萬元電子設備　3人被捕包括貨倉職員
-
-  
-
-警方接獲迪士尼樂園職員報案，懷疑被人盜去一批電子器材。警方拘捕3名男子，涉嫌爆竊及處理贓物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm)
 
 ---
 
