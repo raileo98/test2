@@ -1,3 +1,26 @@
+# 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
+
+  
+
+勞工及福利局局長孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意，到今年中有約1萬張簽證到期，會以相關基數分析及公布情況。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
+
+---
+
 # 醫管局本月24日起每次最多向病人配發約6個月藥物以減少浪費
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795312-20250311.htm)
-
----
-
-# 星島料去年度虧損擴大至約8500萬元
-
-![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=85)
-  
-
-星島新聞集團預計，去年度將錄得虧損約8500萬元，較前年度約4900萬元虧損擴大73%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm)
 
 ---
