@@ -1,3 +1,26 @@
+# 台中氣爆事件傷重2歲女童　上周在澳門醫院離世
+
+  
+
+在上月台中氣爆事件中重傷的2歲澳門女童不治，令事件的死亡人數增至5人，另外30多人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm)
+
+---
+
 # OPEC維持全球石油需求預測　上月多國產量超出配額
 
 ![石油輸出國組織維持全球石油需求增長預測，又指隨著貿易政策不斷出台，貿易擔憂將加劇波動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795502_1_20250313074414.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm)
-
----
-
-# 涉多區公園後巷盜取銅水管轉售　警方拘5人渉22宗案件
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795431_1_20250312170829.jpg&q=90)
-  
-
-警方昨日拘捕5人，涉嫌在多區盜取銅水管，總值超過1百萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm)
 
 ---

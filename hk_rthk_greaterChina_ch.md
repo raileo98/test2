@@ -1,3 +1,26 @@
+# 台中氣爆事件傷重2歲女童　上周在澳門醫院離世
+
+  
+
+在上月台中氣爆事件中重傷的2歲澳門女童不治，令事件的死亡人數增至5人，另外30多人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm)
+
+---
+
 # 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
 
 ![夏寶龍下午在北京會見香港科技大學管理層。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_1_20250312223922.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm)
-
----
-
-# 中方祝賀卡尼將任加國總理　冀相向而行推動中加關係改善發展
-
-![加拿大執政自由黨選出前央行行長卡尼為新黨魁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795111_1_20250310155105.jpg&q=90)
-  
-
-加拿大執政自由黨選出前央行行長卡尼為新黨魁。卡尼將接替杜魯多出任總理，組建新內閣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
 
 ---

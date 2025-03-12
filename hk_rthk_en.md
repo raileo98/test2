@@ -52,7 +52,7 @@ Real Madrid produced a gritty display to reach the Champions League quarter-fina
 ![The new Liberal leader has promised a "seamless and quick" transition as he takes over from Justin Trudeau. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795499_1_20250313072252.jpg&q=90)
   
 
-Former central banker Mark Carney will be sworn in as Canada's next prime minister on Friday morning along with his cabinet, the governor general's office announced Wednesday.
+Mark Carney will be sworn in as Canada's next prime minister on Friday morning, marking the final day of Justin Trudeau's more than nine years in power.
 
   
 
