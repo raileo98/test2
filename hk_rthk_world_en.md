@@ -1,3 +1,27 @@
+# Mark Carney to be sworn in as Canadian PM on Friday
+
+![The new Liberal leader has promised a "seamless and quick" transition as he takes over from Justin Trudeau. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795499_1_20250313072252.jpg&q=90)
+  
+
+Former central banker Mark Carney will be sworn in as Canada's next prime minister on Friday morning along with his cabinet, the governor general's office announced Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm)
+
+---
+
 # Canada announces additional tariffs on US goods
 
 ![Donald Trump's hyper-focus on tariffs since taking office in January has rattled investor, consumer and business confidence. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795475_1_20250312225143.jpg&q=90)
@@ -1411,29 +1435,5 @@ Britain strongly condemned on Wednesday the sentencing of UK national James Ande
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794494-20250306.htm)
-
----
-
-# US breaks with policy to negotiate with Hamas
-
-![Demonstrators in Jerusalem call for the immediate return of hostages held in Gaza. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794490_1_20250306090342.jpg&q=90)
-  
-
-US President Donald Trump on Wednesday issued what he called a “last warning” to Hamas to release all remaining hostages held in Gaza, directing a sharply-worded message after the White House confirmed he had recently dispatched an envoy for unprecedented direct talks with the militant group.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794490-20250306.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Mark Carney to be sworn in as Canadian PM on Friday
+
+![The new Liberal leader has promised a "seamless and quick" transition as he takes over from Justin Trudeau. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795499_1_20250313072252.jpg&q=90)
+  
+
+Former central banker Mark Carney will be sworn in as Canada's next prime minister on Friday morning along with his cabinet, the governor general's office announced Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm)
+
+---
+
 # Wall Street regains some ground after inflation report
 
 ![The shifts came after the consumer price index came in at a cooler than expected 2.8 percent for February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795496_1_20250313063349.jpg&q=90)
@@ -1413,29 +1437,5 @@ Japan's economy expanded in the October-December quarter at a slower pace than i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm)
-
----
-
-# 25 dead in two Mexican bus crashes
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795195_1_20250311084416.jpg&q=40)
-  
-
-At least 25 people were killed in two separate bus crashes in Mexico on Monday, authorities said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm)
 
 ---
