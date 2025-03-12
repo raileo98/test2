@@ -1,3 +1,27 @@
+# Five arrested on suspicion of stealing copper pipes
+
+![Police say the suspects allegedly took the pipes from parks and back alleys and sold them for money.  Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795464_1_20250312213643.jpg&q=90)
+  
+
+Police on Wednesday said they arrested five people on suspicion of stealing more than HK$1 million worth of copper pipes across Hong Kong since January.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm)
+
+---
+
 # 'Companies Registry didn't breach privacy rules'
 
 ![The privacy watchdog says a total of 109,002 people may have been affected by a Companies Registry data leak in April. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795447_1_20250312193702.jpg&q=80)
@@ -1413,29 +1437,5 @@ Wall Street stocks fell sharply on Monday as investors fretted that uncertainty 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm)
-
----
-
-# New Canada PM 'should be pragmatic in China policy'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795162_1_20250310215514.jpg&q=90)
-  
-
-China hopes that the incoming government in Canada will adopt a positive and pragmatic approach towards Beijing, Foreign Ministry spokeswoman Mao Ning said on Monday after Mark Carney's victory in the leadership race for Canada's ruling party, paving the way for him to succeed Justin Trudeau as prime minister.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm)
 
 ---

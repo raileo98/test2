@@ -1,3 +1,27 @@
+# Five arrested on suspicion of stealing copper pipes
+
+![Police say the suspects allegedly took the pipes from parks and back alleys and sold them for money.  Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795464_1_20250312213643.jpg&q=90)
+  
+
+Police on Wednesday said they arrested five people on suspicion of stealing more than HK$1 million worth of copper pipes across Hong Kong since January.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm)
+
+---
+
 # 'Companies Registry didn't breach privacy rules'
 
 ![The privacy watchdog says a total of 109,002 people may have been affected by a Companies Registry data leak in April. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795447_1_20250312193702.jpg&q=80)
@@ -1412,29 +1436,5 @@ Police on Friday said they hope traffic congestion in Kwun Tong would be eased f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794704-20250307.htm)
-
----
-
-# Woman killed in traffic accident in Kwai Chung
-
-![Police say a woman was killed in a traffic accident in Kwai Chung. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794688_1_20250307101912.jpg&q=90)
-  
-
-A pedestrian was killed in a fatal traffic accident in Kwai Chung on Friday morning.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794688-20250307.htm)
 
 ---
