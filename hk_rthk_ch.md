@@ -1,3 +1,51 @@
+# OPEC維持全球石油需求預測　上月多國產量超出配額
+
+![石油輸出國組織維持全球石油需求增長預測，又指隨著貿易政策不斷出台，貿易擔憂將加劇波動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795502_1_20250313074414.jpg&q=90)
+  
+
+石油輸出國組織(OPEC)維持全球石油需求增長預測，估計今年的每日需求增長145萬桶，明年每日需求增加143萬桶，與上月預測相同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm)
+
+---
+
+# 加拿大央行料貿易衝突減慢首季經濟增速　或擾亂就業市場復蘇
+
+![加拿大央行表示，貿易衝突將減慢首季經濟增長速度，關稅影響價格的擔憂已推高短期通脹預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795500_1_20250313073416.jpg&q=30)
+  
+
+加拿大央行總裁麥克勒姆表示，央行討論過維持利率不變及減息0.25厘，最終決定指標利率下調0.25厘，降至2.75厘，連續7次會議減息，由於國內需求將受到關稅影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm)
+
+---
+
 # 歐聯皇馬互射12碼淘汰馬體會晉級8強　維拉與阿仙奴均晉級
 
 ![皇馬互射12碼，以4:2淘汰馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_1_20250313072106.jpg&q=85)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm)
-
----
-
-# 恒指低收181點　連跌4日　科指跌2%
-
-![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
-  
-
-港股先高後低，連跌4個交易日。恒生指數早段曾升180點，高見23962點，尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，全日主板成交額近2785億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
-
----
-
-# 警方瓦解家庭式販毒集團拘4名非華裔男女　檢逾千萬元毒品
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795426_1_20250312161246.jpg&q=80)
-  
-
-警方拘捕4名非華裔男女，涉嫌「販運危險藥物」、「非法入境」等，檢獲約24公斤的懷疑海洛英、氯胺酮、冰毒、大麻花及搖頭丸，市值超過1400萬元。警方相信已經瓦解一個家庭式經營的販毒集團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm)
 
 ---

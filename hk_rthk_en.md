@@ -1,3 +1,28 @@
+# Real, Arsenal to clash in Champions League quarters
+
+![Kylian Mbappé celebrates with teammates after Real Madrid's penalty shoot-out victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_1_20250313074046.jpg&q=90)
+![Arsenal players celebrate after the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_2_20250313074046.jpg&q=90)
+  
+
+Real Madrid produced a gritty display to reach the Champions League quarter-finals with a 4-2 win on penalties against rivals Atlético Madrid, following a 1-0 defeat after extra time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm)
+
+---
+
 # Mark Carney to be sworn in as Canadian PM on Friday
 
 ![The new Liberal leader has promised a "seamless and quick" transition as he takes over from Justin Trudeau. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795499_1_20250313072252.jpg&q=90)
@@ -1413,29 +1438,5 @@ The UK coastguard ended the search for a missing crew member after a cargo ship 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm)
-
----
-
-# Japan revises Q4 annualised GDP growth estimate
-
-![Data shows on a seasonally adjusted, month-on-month basis, spending dropped 4.5 percent in the last quarter of 2024. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795200_1_20250311085336.jpg&q=75)
-  
-
-Japan's economy expanded in the October-December quarter at a slower pace than initially reported, government data showed on Tuesday, weighed by weaker consumption but still likely supporting the case for further interest rate hikes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm)
 
 ---

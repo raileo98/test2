@@ -1,3 +1,51 @@
+# OPEC維持全球石油需求預測　上月多國產量超出配額
+
+![石油輸出國組織維持全球石油需求增長預測，又指隨著貿易政策不斷出台，貿易擔憂將加劇波動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795502_1_20250313074414.jpg&q=90)
+  
+
+石油輸出國組織(OPEC)維持全球石油需求增長預測，估計今年的每日需求增長145萬桶，明年每日需求增加143萬桶，與上月預測相同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm)
+
+---
+
+# 加拿大央行料貿易衝突減慢首季經濟增速　或擾亂就業市場復蘇
+
+![加拿大央行表示，貿易衝突將減慢首季經濟增長速度，關稅影響價格的擔憂已推高短期通脹預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795500_1_20250313073416.jpg&q=30)
+  
+
+加拿大央行總裁麥克勒姆表示，央行討論過維持利率不變及減息0.25厘，最終決定指標利率下調0.25厘，降至2.75厘，連續7次會議減息，由於國內需求將受到關稅影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm)
+
+---
+
 # 美國2月預算赤字按年擴大4%
 
 ![美國2月預算赤字總額3070億美元，按年擴大4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795495_1_20250313062715.jpg&q=80)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm)
-
----
-
-# 韓股初段升0.3%以上
-
-![首爾綜合指數較早時報2546點，升8點，升幅0.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795355_1_20250312080655.jpg&q=90)
-  
-
-南韓股市早段靠穩，首爾綜合指數較早時報2546點，升8點，升幅0.33%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795355-20250312.htm)
-
----
-
-# 日股初段跌逾0.1%
-
-![日經指數較早時報36740點，跌52點，跌幅0.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795354_1_20250312080548.jpg&q=85)
-  
-
-日股初段偏軟，日經指數較早時報36740點，跌52點，跌幅0.14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795354-20250312.htm)
 
 ---

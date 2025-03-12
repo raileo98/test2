@@ -1,3 +1,28 @@
+# Real, Arsenal to clash in Champions League quarters
+
+![Kylian Mbappé celebrates with teammates after Real Madrid's penalty shoot-out victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_1_20250313074046.jpg&q=90)
+![Arsenal players celebrate after the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_2_20250313074046.jpg&q=90)
+  
+
+Real Madrid produced a gritty display to reach the Champions League quarter-finals with a 4-2 win on penalties against rivals Atlético Madrid, following a 1-0 defeat after extra time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm)
+
+---
+
 # Cavs beat Nets for second 15-game win streak of season
 
 ![Darius Garland scored 18 of his 30 points in the fourth quarter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795390_1_20250312121604.jpg&q=90)
@@ -1423,29 +1448,5 @@ Drivers are urged to steer clear of certain roads in Central and Wan Chai becaus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
-
----
-
-# Liverpool beat City, extend Premier League lead to 11
-
-![Mohamed Salah opened the scoring for Liverpool against Manchester City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792866_1_20250224053528.jpg&q=90)
-  
-
-Liverpool took a giant stride towards the Premier League title as a 2-0 win over Manchester City opened up an 11-point lead over Arsenal at the top of the table.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792866-20250224.htm)
 
 ---
