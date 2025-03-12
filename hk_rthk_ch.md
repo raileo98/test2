@@ -1,3 +1,27 @@
+# 道指低收82點　納指及標普500指數反彈
+
+![美股個別發展，道指低收0.2%，納指及標普500指數分別反彈逾1.2%及約0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795489_1_20250313053840.jpg&q=90)
+  
+
+美股3大指數個別發展，道指連跌3個交易日，科技股則造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm)
+
+---
+
 # 阿拉伯五國外長與美國特使舉行會議討論加沙重建問題
 
 ![流離失所的巴勒斯坦人在加沙城一個球場的帳篷營地棲身。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795488_1_20250313052930.jpg&q=60)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm)
-
----
-
-# 民主思路公布一國兩制指數微跌　逾48%受訪者不滿意立法會表現
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795415_1_20250312160917.jpg&q=80)
-  
-
-民主思路發布新一輪「一國兩制」指數，最新為6.14分，較上一輪微跌 0.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm)
 
 ---

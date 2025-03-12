@@ -1,3 +1,27 @@
+# 道指低收82點　納指及標普500指數反彈
+
+![美股個別發展，道指低收0.2%，納指及標普500指數分別反彈逾1.2%及約0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795489_1_20250313053840.jpg&q=90)
+  
+
+美股3大指數個別發展，道指連跌3個交易日，科技股則造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm)
+
+---
+
 # 招商局置地去年轉蝕18.5億元人民幣
 
 ![招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795477_1_20250312231031.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm)
-
----
-
-# 安省暫緩對輸美電力徵收附加費　白宮不向加國鋼鋁加倍徵關稅
-
-![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=85)
-  
-
-加拿大安大略省政府同意暫停對輸往美國三個州的電力，徵收25%的附加費。美國總統特朗普表示，很可能重新考慮對加拿大鋼鋁加倍徵收關稅的決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm)
 
 ---
