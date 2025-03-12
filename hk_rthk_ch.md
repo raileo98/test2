@@ -1,5 +1,6 @@
 # 甯漢豪：今年落實措施降低工程建造成本
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795444_1_20250312182911.jpg&q=80)
   
 
 發展局局長甯漢豪表示，今年會落實具體措施，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
@@ -23,6 +24,7 @@
 
 # 中醫醫院公營服務收費料與公立醫院看齊
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795443_1_20250312183326.jpg&q=90)
   
 
 由浸會大學承辦的香港中醫醫院，預計年底開始投入運作。

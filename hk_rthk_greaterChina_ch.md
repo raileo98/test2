@@ -1,5 +1,6 @@
 # 中醫醫院公營服務收費料與公立醫院看齊
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795443_1_20250312183326.jpg&q=90)
   
 
 由浸會大學承辦的香港中醫醫院，預計年底開始投入運作。

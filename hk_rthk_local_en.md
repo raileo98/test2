@@ -1,3 +1,27 @@
+# 'Price hike for medication should be less than 10 pc'
+
+![Ivan Lin hopes any price increment for 16 weeks worth of medication at public hospitals could be less than 10 percent, saying that would hurt members of the grassroots. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795440_1_20250312174458.jpg&q=80)
+  
+
+A community group on Wednesday welcomed the Hospital Authority’s new arrangement to cut the amount of medication distributed to patients.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm)
+
+---
+
 # Watchdog launches compliance check on Deliveroo
 
 ![The privacy watchdog says that Deliveroo’s closure may affect the personal data of its customers and riders. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795435_1_20250312173023.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street ov
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
-
----
-
-# 'Govt should seek new revenue streams amid deficit'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=90)
-  
-
-Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
 
 ---
