@@ -1,3 +1,27 @@
+# 巴基斯坦火車乘客被挾持事件據報現場所有武裝份子被擊斃
+
+![官員說安全部隊已救出大批一度被武裝份子挾持的人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795476_1_20250312225726.jpg&q=90)
+  
+
+新華社引述巴基斯坦軍方官員報道，當地安全部隊在營救遇襲客運列車上人質的行動中，擊斃現場所有武裝份子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm)
+
+---
+
 # 加拿大周四起對298億加元美國貨加徵25%關稅
 
 ![勒布朗強調，當加拿大的鋼鋁行業受到美國政策的攻擊時，不會袖手旁觀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795470_1_20250312224105.jpg&q=90)
@@ -73,6 +97,7 @@
 
 # 加拿大減息0.25厘　利率下調至2.75厘
 
+![加拿大央行公布減息0.25厘，將利率下調至2.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795467_1_20250312225629.jpg&q=90)
   
 
 加拿大央行公布減息0.25厘，將利率下調至2.75厘。
@@ -99,7 +124,7 @@
 ![趙樂際在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病後，首次公開露面。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795466_1_20250312215548.jpg&q=85)
   
 
-全國人大委員長趙樂際下午在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病後，首次公開露面。
+全國人大委員長趙樂際下午在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病、缺席全國人大會議閉幕會後，首次公開露面。
 
   
 
