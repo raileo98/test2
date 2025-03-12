@@ -1,3 +1,27 @@
+# 伊朗外長確認收到特朗普信件
+
+![阿拉格齊在社交網站發文，確認收到特朗普的信件。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795487_1_20250313051239.jpg&q=90)
+  
+
+阿聯酋總統外交顧問加爾賈什到訪德黑蘭，向伊朗外長阿拉格齊轉交美國總統特朗普的信件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm)
+
+---
+
 # 普京視察庫爾斯克地區　俄方稱已奪回八成六被烏方控制土地
 
 ![普京視察庫爾斯克州，與總參謀長格拉西莫夫交談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795486_1_20250313035651.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm)
-
----
-
-# 韓股高收逾1%
-
-![首爾綜合指數收市報2574點，升37點，升幅1.47%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795413_1_20250312144253.jpg&q=85)
-  
-
-南韓股市收市升逾1%，首爾綜合指數報2574點，升37點，升幅1.47%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm)
 
 ---
