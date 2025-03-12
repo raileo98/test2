@@ -1,3 +1,27 @@
+# 美國恢復對烏克蘭軍事援助和情報共享
+
+![波蘭外長西科爾斯基（右）在華沙與烏克蘭外長瑟比加會面後共同會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795481_1_20250313012629.jpg&q=90)
+  
+
+美烏在沙特阿拉伯吉達會談達成共識後，美國已恢復對烏克蘭的軍事援助和情報共享。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm)
+
+---
+
 # 哈梅內伊：美稱準備與伊朗談判是欺騙世界輿論
 
 ![哈梅內伊在德黑蘭參加活動時回應美方談判的呼籲，斥責這是欺騙輿論。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795480_1_20250313011614.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm)
-
----
-
-# 格陵蘭總理：美國不尊重格陵蘭島且極其不可預測
-
-![格陵蘭星期二將舉行自治議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795171_1_20250311055259.jpg&q=90)
-  
-
-格陵蘭自治政府總理埃格德表示，美國並未給予格陵蘭人民應有的尊重，又說美國正處於一個極其不可預測的總統任期，令人感到不安。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795171-20250311.htm)
 
 ---
