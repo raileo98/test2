@@ -1,5 +1,6 @@
 # 國泰：年內突破100個航點大關
 
+![國泰：向合資格員工派發逾10星期工資分享成果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795446_1_20250312190534.jpg&q=90)
   
 
 國泰航空行政總裁林紹波表示，年內班次及運力會繼續增加，集團經已宣布11個新航點，年內會突破100個航點大關，強調會繼續擴大全球網絡和提升服務。
@@ -18,6 +19,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
+
+---
+
+# 甯漢豪：今年落實措施降低工程建造成本
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795444_1_20250312182911.jpg&q=80)
+  
+
+發展局局長甯漢豪表示，今年會落實具體措施，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm)
 
 ---
 
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
-
----
-
-# 比亞迪股份：成功配發約1.3億股新H股　所得淨額約434億元
-
-![比亞迪股份公布，成功按每股335.2元配發約1.3億股新H股，所得款項淨額約為433.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795295_1_20250311185055.jpg&q=90)
-  
-
-比亞迪股份公布，公司成功按配售價每股335.2元向不少於6名承配人配發，及發行合共約1.3億股新H股，約佔經擴大已發行H股總數的10.57%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795295-20250311.htm)
 
 ---
