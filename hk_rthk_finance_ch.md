@@ -1,3 +1,26 @@
+# 加拿大減息0.25厘　利率下調至2.75厘
+
+  
+
+加拿大央行公布減息0.25厘，將利率下調至2.75厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm)
+
+---
+
 # 美股初段上升　美國上月通脹放緩
 
 ![道瓊斯指數較早時報41564點，升130點，升幅0.32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795465_1_20250312213826.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
-
----
-
-# 金管局：去年下半年認可機構分配予收數公司帳戶增加
-
-![金管局通告指，去年下半年，有33間認可機構使用收數公司的服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795314_1_20250311215309.jpg&q=85)
-  
-
-金管局向銀行發通告指，去年下半年，有33間認可機構使用收數公司的服務，向21間收數公司分配近54.9萬個帳戶，帳戶數目較去年上半年增加近26%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795314-20250311.htm)
 
 ---
