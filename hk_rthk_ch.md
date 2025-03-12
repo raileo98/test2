@@ -1,3 +1,75 @@
+# 金價曾升0.8%　創半個月新高
+
+![現貨金企穩每盎司2900美元水平，高見2940.64美元，升0.8%，創半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795492_1_20250313055857.jpg&q=90)
+  
+
+金價持續上升，受避險資金支撐。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm)
+
+---
+
+# 英美期油高收2%或以上　連升兩日
+
+![英美期油高收2%或以上，連升兩日，倫敦布蘭特期油重上每桶70美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795491_1_20250313055515.jpg&q=90)
+  
+
+油價連升兩日，數據顯示美國上星期原油庫存增幅少於預期，成品油庫存則下跌，但投資者仍憂慮美國經濟放緩、關稅影響全球經濟增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm)
+
+---
+
+# 英法德股市反彈　英股升逾0.5%　結束6日跌勢
+
+![英國富時100指數收報8540點，升44點，升幅0.53%，結束6日跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795490_1_20250313054651.jpg&q=90)
+  
+
+歐洲股市普遍升近1%或以上，西班牙股市跌約0.6%。市場憧憬俄烏有望停火，加上美國通脹數據低於預期，亦有利投資情緒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm)
+
+---
+
 # 道指低收82點　納指及標普500指數反彈
 
 ![美股個別發展，道指低收0.2%，納指及標普500指數分別反彈逾1.2%及約0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795489_1_20250313053840.jpg&q=90)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm)
-
----
-
-# 恒指跌幅曾擴大至逾400點　科指跌逾3%
-
-![港股下午沽壓加大。恒生指數曾跌約420點，科技指數較早時跌3.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795420_1_20250312152503.jpg&q=75)
-  
-
-港股下午沽壓加大。恒生指數曾跌約420點，較早時報23390點，跌391點，跌幅1.65%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm)
-
----
-
-# 內地股市反覆低收　滬指跌0.2%
-
-![上證綜合指數收市報3371點，跌7點，跌幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795417_1_20250312151022.jpg&q=90)
-  
-
-滬深股市反覆低收，工程機械、農業和白酒股下跌；算力概念、影視傳媒相關股份上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm)
-
----
-
-# 迪士尼貨倉遭爆竊失價值300萬元電子設備　3名男子被捕
-
-![香港迪士尼樂園回覆查詢時表示，案件不涉及香港迪士尼員工，會全力協助警方調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795418_1_20250312161008.jpg&q=85)
-  
-
-警方接獲迪士尼樂園職員報案，懷疑被人盜去一批電子器材。警方拘捕3名男子，包括一名28歲本身是貨倉職員的電腦技術員、回收公司負責人及工人，他們分別涉嫌爆竊及處理贓物。香港迪士尼樂園回覆查詢時表示，案件不涉及香港迪士尼員工，會全力協助警方調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm)
 
 ---

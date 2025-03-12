@@ -1,3 +1,27 @@
+# Wall Street regains some ground after inflation report
+
+![The shifts came after the consumer price index came in at a cooler than expected 2.8 percent for February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795496_1_20250313063349.jpg&q=90)
+  
+
+Wall Street stocks regained some ground Wednesday helped by a rise in tech shares, as easing inflation assuaged some investor jitters about the world's biggest economy even as tariff worries lingered.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm)
+
+---
+
 # HK stocks lose ground for 4th straight day
 
 ![Local stocks give up 0.76 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795445_1_20250312184127.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong stocks on Thursday opened lower, after Wall Street stocks were mixed a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793437-20250227.htm)
-
----
-
-# Nasdaq rises while Dow falls on latest tariff talks
-
-![The Dow Jones Industrial Average finished down 0.4 percent at 43,433. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793409_1_20250227055740.jpg&q=90)
-  
-
-Gains in Nvidia ahead of earnings helped lift the Nasdaq on Wednesday while the Dow retreated on White House talk of more tariffs, this time on the European Union.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793409-20250227.htm)
 
 ---

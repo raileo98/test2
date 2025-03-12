@@ -1,3 +1,123 @@
+# 美元兌日圓重上149　近1星期以來首次
+
+![美元兌日圓一度重上149，是近1星期以來首次，高見149.19。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795494_1_20250313061148.jpg&q=90)
+  
+
+美元指數結束多日跌勢，最高升至103.78，升0.3%，尾市報103.58。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm)
+
+---
+
+# 港股美國預託證券個別發展　滙控及港交所升近2%或以上
+
+![滙控ADR比本港昨日收市價升近2%，以港元計折合報86.6元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795493_1_20250313060238.jpg&q=90)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm)
+
+---
+
+# 金價曾升0.8%　創半個月新高
+
+![現貨金企穩每盎司2900美元水平，高見2940.64美元，升0.8%，創半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795492_1_20250313055857.jpg&q=90)
+  
+
+金價持續上升，受避險資金支撐。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm)
+
+---
+
+# 英美期油高收2%或以上　連升兩日
+
+![英美期油高收2%或以上，連升兩日，倫敦布蘭特期油重上每桶70美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795491_1_20250313055515.jpg&q=90)
+  
+
+油價連升兩日，數據顯示美國上星期原油庫存增幅少於預期，成品油庫存則下跌，但投資者仍憂慮美國經濟放緩、關稅影響全球經濟增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm)
+
+---
+
+# 英法德股市反彈　英股升逾0.5%　結束6日跌勢
+
+![英國富時100指數收報8540點，升44點，升幅0.53%，結束6日跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795490_1_20250313054651.jpg&q=90)
+  
+
+歐洲股市普遍升近1%或以上，西班牙股市跌約0.6%。市場憧憬俄烏有望停火，加上美國通脹數據低於預期，亦有利投資情緒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm)
+
+---
+
 # 道指低收82點　納指及標普500指數反彈
 
 ![美股個別發展，道指低收0.2%，納指及標普500指數分別反彈逾1.2%及約0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795489_1_20250313053840.jpg&q=90)
@@ -1315,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795350-20250312.htm)
-
----
-
-# 現貨金曾升逾1%　重上2900美元
-
-![現貨金重上2900美元關口，最高升至每盎司2921.93美元，升1.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795345_1_20250312055525.jpg&q=90)
-  
-
-金價回升，收復2900美元關口。美元疲弱，加上關稅戰引發經濟放緩擔憂，資金流向黃金避險。投資者亦正注視美國通脹數據，以判斷利率走勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795345-20250312.htm)
-
----
-
-# 港股美國預託證券個別發展
-
-![港股美國預託證券（ADR）個別發展，美團及京東ADR跌逾1%，阿里巴巴、滙控ADR則升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795346_1_20250312060103.jpg&q=90)
-  
-
-港股美國預託證券(ADR)個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795346-20250312.htm)
-
----
-
-# 油價觸及約1星期新低後回升　布蘭特期油高收0.4%
-
-![英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795344_1_20250312055150.jpg&q=90)
-  
-
-英美期油一度跌近1%或以上，觸及約1星期低位，其後回升。美元偏軟支撐油價表現，但市場對美國經濟放緩、關稅拖累全球經濟表現等擔憂加劇，限制油價全日升幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795344-20250312.htm)
-
----
-
-# 歐洲股市低收逾1%　憂美國關稅威脅拖累經濟
-
-![歐洲主要股市跌逾1%，市場憂慮美國貿易政策或會抑制經濟增長。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795343_1_20250312054440.jpg&q=90)
-  
-
-歐洲主要股市跌逾1%，美國威脅對加拿大鋼鋁進一步加徵關稅，市場憂慮美國貿易政策或會抑制經濟增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795343-20250312.htm)
-
----
-
-# 美股連跌兩日　道指低收478點　標普500指數跌約0.8%
-
-![美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795342_1_20250312053710.jpg&q=90)
-  
-
-美股連續兩日向下，3大指數創半年收市新低，但跌幅低於上個交易日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795342-20250312.htm)
 
 ---
