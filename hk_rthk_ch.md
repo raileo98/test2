@@ -1,4 +1,4 @@
-# 普京視察庫爾斯克地區　烏軍奪取當地部分領土後首次
+# 普京視察庫爾斯克地區　俄方稱已奪回八成六被烏方控制土地
 
 ![普京視察庫爾斯克州，與總參謀長格拉西莫夫交談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795486_1_20250313035651.jpg&q=90)
   
