@@ -1,3 +1,27 @@
+# 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
+
+![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。他說，「極限施壓註定撞上南牆」，打關稅戰、貿易戰損人更害己，禁限投資如同殺雞取卵，「以台制華」只會引火焚身，又指「外資撤離中國論」宣告破產。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
+
+---
+
 # 全國兩會︳中醫藥管理局讚港中醫醫院標準高　兩地合作前景廣闊
 
 ![衞炳江表示，正密鑼緊鼓準備香港中醫醫院開幕，進度符合預期。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795361_2_20250312092301.jpg&q=85)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795055-20250310.htm)
-
----
-
-# 全國兩會｜施榮懷稱香港國際金融航運中心地位得益於國家改革開放
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795050_1_20250310091931.jpg&q=90)
-  
-
-全國政協常委施榮懷表示，香港國際金融、航運、貿易中心地位的形成，得益於國家改革開放和發展進步，並在回歸後在香港實施「一國兩制」。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795050-20250310.htm)
 
 ---

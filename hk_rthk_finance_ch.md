@@ -1,3 +1,26 @@
+# 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
+
+  
+
+財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm)
+
+---
+
 # 植田和男：長期利率取決於市場對經濟及物價走勢看法
 
 ![植田和男表示，長期利率變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795363_1_20250312091557.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795217-20250311.htm)
-
----
-
-# 港股低開逾500點後跌幅收窄
-
-![港股低開逾500點後，恒生指數跌幅逐步收窄，較早時報23512點，跌271點，跌幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795214_1_20250311100409.jpg&q=20)
-  
-
-港股低開逾500點，恒生指數開市報23274點，隨後跌幅逐步收窄，較早時報23512點，跌271點，跌幅1.14%。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm)
 
 ---

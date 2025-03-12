@@ -1,3 +1,50 @@
+# 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
+
+  
+
+財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm)
+
+---
+
+# 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
+
+![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。他說，「極限施壓註定撞上南牆」，打關稅戰、貿易戰損人更害己，禁限投資如同殺雞取卵，「以台制華」只會引火焚身，又指「外資撤離中國論」宣告破產。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
+
+---
+
 # 植田和男：長期利率取決於市場對經濟及物價走勢看法
 
 ![植田和男表示，長期利率變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795363_1_20250312091557.jpg&q=90)
@@ -1389,56 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm)
-
----
-
-# 杜特爾特被捕　質疑當局逮捕自己法理依據
-
-![杜特爾特被菲律賓警方逮捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795288_1_20250311182302.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特被菲律賓警方逮捕。現任總統辦公室表示，是執行國際刑事法院的逮捕令，杜特爾特的健康狀況良好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm)
-
----
-
-# 全國兩會｜張素心稱要紮實做好國產晶片把技術做得更好
-
-![張素心說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_1_20250311191036.jpg&q=80)
-![劉繼忠表示，天問三號火星採樣任務的進展很順利。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_2_20250311191036.jpg&q=75)
-![賴如鑫被問到將來會否有國防新科技在香港展出時說，不接受採訪。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_3_20250311191036.jpg&q=80)
-![董軍沒有回應有關今年國防預算增幅的提問。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_4_20250311191036.jpg&q=75)
-  
-
-全國人大代表、半導體企業華虹集團前董事長張素心，在北京出席全國兩會期間接受本台訪問時說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm)
 
 ---

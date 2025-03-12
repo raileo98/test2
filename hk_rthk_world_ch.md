@@ -1,3 +1,27 @@
+# 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
+
+![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。他說，「極限施壓註定撞上南牆」，打關稅戰、貿易戰損人更害己，禁限投資如同殺雞取卵，「以台制華」只會引火焚身，又指「外資撤離中國論」宣告破產。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
+
+---
+
 # 美國眾議院通過法案避免聯邦政府「關門」
 
 ![美國眾議院通過一項法案，避免聯邦政府「關門」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795357_1_20250312085524.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
-
----
-
-# 外交部：美方徵收港口費等措施損人害己　促立即停止錯誤做法
-
-![毛寧說，徵收港口費等措施損人害己，推高全球的海運成本，擾亂全球產供鏈穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795120_1_20250310163621.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美國正考慮對在中國建造或註冊的船隻徵收港口停靠費時表示，中方敦促美方尊重事實和多邊規則，立即停止錯誤做法，中方將採取必要措施捍衛自身的合法權益。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm)
 
 ---

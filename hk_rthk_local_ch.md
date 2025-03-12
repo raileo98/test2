@@ -1,3 +1,26 @@
+# 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
+
+  
+
+財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm)
+
+---
+
 # 全國兩會︳中醫藥管理局讚港中醫醫院標準高　兩地合作前景廣闊
 
 ![衞炳江表示，正密鑼緊鼓準備香港中醫醫院開幕，進度符合預期。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795361_2_20250312092301.jpg&q=85)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm)
-
----
-
-# 麥萃才相信外賣平台面對挑戰包括假日不留港消費市民增加
-
-![戶戶送Deliveroo宣布撤出香港市場。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795148_1_20250310192201.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場。浸會大學會計、經濟及金融學系副教授麥萃才相信，當中涉及的挑戰包括因為疫情過去，假日時多了市民不留港消費；即使在香港，外出吃飯亦很方便。加上早前有內地外賣平台進駐香港，提供了不少優惠活動；而本港工資水平較高，送外賣需時，未必容易聘請到送餐員，導致營運成本高居不下。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795148-20250310.htm)
 
 ---

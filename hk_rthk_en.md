@@ -1,3 +1,27 @@
+# Australia says US steel tariffs 'entirely unjustified'
+
+![Vapour pours from a steel mill chimney in the industrial town of Port Kembla, about 80 km south of Sydney. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795366_1_20250312092156.jpg&q=90)
+  
+
+Washington's looming tariffs on steel and aluminium are "entirely unjustified", Australian Prime Minister Anthony Albanese said on Wednesday after failing to secure a last-minute exemption.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
+
+---
+
 # HA to cut medication dispensed to patients
 
 ![The Hospital Authority's chief pharmacist William Chui said around one-fifth of patients do not finish their medication. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795358_1_20250312090613.jpg&q=20)
@@ -1413,30 +1437,5 @@ US President Donald Trump declined on Sunday to rule out the possibility that th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
-
----
-
-# Shai outguns Jokic as Thunder roll past Nuggets
-
-![Shai Gilgeous-Alexander put up 40 points in Oklahoma City's win over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_1_20250310082123.jpg&q=85)
-![Three-time NBA MVP Nikola Jokic finished one assist shy of a triple-double in the defeat. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_2_20250310082123.jpg&q=90)
-  
-
-Shai Gilgeous-Alexander outdueled MVP rival Nikola Jokic with a 40-point performance as the Oklahoma City Thunder produced a late barrage to defeat the Denver Nuggets 127-103.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm)
 
 ---

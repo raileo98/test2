@@ -1,3 +1,27 @@
+# Australia says US steel tariffs 'entirely unjustified'
+
+![Vapour pours from a steel mill chimney in the industrial town of Port Kembla, about 80 km south of Sydney. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795366_1_20250312092156.jpg&q=90)
+  
+
+Washington's looming tariffs on steel and aluminium are "entirely unjustified", Australian Prime Minister Anthony Albanese said on Wednesday after failing to secure a last-minute exemption.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
+
+---
+
 # US stocks finish lower after volatile trading day
 
 ![Days of back-and-forth on tariff hikes against some of the United States' closest trading partners have worn heavily on markets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795347_1_20250312061323.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Hang Seng Index gained 204.32 points, or 0.89 percent, to open at 23,238 poi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793195-20250226.htm)
-
----
-
-# 'Disney's good performance is welcome news'
-
-![The Vocational Training Council’s Dennis Wong says Hong Kong Disneyland should keep innovating to attract new customers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793187_1_20250226085255.jpg&q=55)
-  
-
-A hospitality expert on Wednesday said Hong Kong Disneylands’s performance is welcome news, after the amusement park reported records in profit and attendance.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793187-20250226.htm)
 
 ---
