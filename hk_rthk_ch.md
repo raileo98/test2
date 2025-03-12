@@ -1,3 +1,27 @@
+# 阿拉伯五國外長與美國特使舉行會議討論加沙重建問題
+
+![流離失所的巴勒斯坦人在加沙城一個球場的帳篷營地棲身。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795488_1_20250313052930.jpg&q=60)
+  
+
+卡塔爾在首都多哈主持阿拉伯五國外長與美國中東問題特使的會議，重點討論加沙地帶重建問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm)
+
+---
+
 # 伊朗外長確認收到特朗普信件
 
 ![阿拉格齊在社交網站發文，確認收到特朗普的信件。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795487_1_20250313051239.jpg&q=90)
@@ -51,7 +75,7 @@
 ![白宮宣布派遣特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795485_1_20250313033739.jpg&q=90)
   
 
-美國白宮宣布派遣特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。
+美國白宮宣布派遣中東問題特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。
 
   
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm)
-
----
-
-# 日股收市靠穩
-
-![日經平均指數收市報36819點，升25點，升幅0.07%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795412_1_20250312144106.jpg&q=90)
-  
-
-日本股市收市靠穩，日經平均指數報36819點，升25點，升幅0.07%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm)
 
 ---
