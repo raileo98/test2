@@ -1,3 +1,50 @@
+# 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
+
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍，下午在北京會見香港科技大學校董會主席沈向洋、校長葉玉如等人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
+
+---
+
+# 教育局：無證據顯示與考察團膳食有關　安全起見要求停用涉事餐廳
+
+![教育局表示，在相關的招標及報價文件清楚列明對團餐、餐廳環境衛生等的要求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795468_1_20250312222617.jpg&q=80)
+  
+
+先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育局表示，據內地相關部門初步調查所得，個案較大機會由團友間的生活接觸或暴露於病例的嘔吐物造成傳播，暫時沒有證據顯示與考察團安排的膳食有關，但現階段為安全起見，已立即要求承辦機構停用涉事餐廳，並要求所有為公民與社會發展科內地考察交流團提供膳食的餐廳暫停供應生冷食品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm)
+
+---
+
 # 政府稱臨床試驗與臨床服務是兩碼子事　未完成試驗不能成臨床服務
 
 ![政府說，在醫療器械或藥物硏發上，臨床試驗與臨床服務是兩碼子事，未完成臨床試驗便不能成為臨床服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795462_1_20250312214403.jpg&q=80)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795292-20250311.htm)
-
----
-
-# 港鐵今年或凍結票價　有議員料減票價機會不大
-
-![金澤培表示，估計今年港鐵票價可能凍結。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795290_1_20250311190056.jpg&q=85)
-  
-
-港鐵行政總裁金澤培表示，估計今年港鐵票價可能凍結。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795290-20250311.htm)
-
----
-
-# 陳茂波籲人工智能等企業來港上市
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795291_1_20250311184725.jpg&q=80)
-  
-
-財政司司長陳茂波說，香港在數據同人才方面都有優勢，呼籲人工智能等公司來港上市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795291-20250311.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
+
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍，下午在北京會見香港科技大學校董會主席沈向洋、校長葉玉如等人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
+
+---
+
 # 全國兩會｜趙樂際會見採訪全國人大會議的傳媒代表
 
 ![趙樂際在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病後，首次公開露面。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795466_1_20250312215548.jpg&q=85)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795111-20250310.htm)
-
----
-
-# 全國兩會｜文化和旅遊部料有更多文化產業或產品引入香港
-
-![李群希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795097_1_20250310141516.jpg&q=90)
-  
-
-在北京，文化和旅遊部副部長、國家文物局局長李群接受本台訪問說，香港近年大力投入文化工作，啟用近三年的香港故宮文化博物館廣受歡迎，希望未來有更多文物展覽在港舉行，進一步增進港人對中華民族的認同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795097-20250310.htm)
 
 ---

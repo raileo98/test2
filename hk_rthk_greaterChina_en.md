@@ -1,3 +1,27 @@
+# Zhao Leji meets reporters after respiratory illness
+
+![Zhao Leji, centre, meets media representatives in Beijing after suffering a respiratory infection. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795469_1_20250312221345.jpg&q=85)
+  
+
+Zhao Leji, chairman of the National People's Congress (NPC) Standing Committee, on Wednesday met journalists in Beijing after suffering from a respiratory infection.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm)
+
+---
+
 # China to host talks on Iranian nuclear issue
 
 ![The Foreign Ministry says China, Russia and Iran will hold talks on Friday on the Iranian nuclear issue and other topics of mutual interest. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795432_1_20250312165659.jpg&q=80)
@@ -1413,29 +1437,5 @@ China on Wednesday said it will aim for economic growth of around 5 percent in 2
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794288-20250305.htm)
-
----
-
-# China's Liu Jiakun wins Pritzker Prize
-
-![Liu lives and works in his birth city of Chengdu, where he prioritises the use of local materials and traditional building techniques. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794280_1_20250305083557.jpg&q=90)
-  
-
-The Pritzker Prize, dubbed the 'Nobel' for architecture, was awarded on Tuesday to China's Liu Jiakun, for designs that celebrate "everyday lives".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794280-20250305.htm)
 
 ---
