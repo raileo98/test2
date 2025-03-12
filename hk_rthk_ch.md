@@ -1,3 +1,26 @@
+# 醫管局本月24日起每次最多向病人配發約6個月藥物以減少浪費
+
+  
+
+醫管局在本月24日起更改配藥安排，包括每次最多只會向病人配發24個星期、即相當於大約6個月的藥物，希望減少浪費。未來的最終目標是每次最多向病人處方8星期藥物，但要社區藥房配合。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm)
+
+---
+
 # 元朗游泳池4月10日至15日暫時關閉
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm)
-
----
-
-# 多兩中學韶關交流有師生腸胃炎累計52人不適　曾到相同餐廳用膳
-
-![再多兩間參與廣東韶關交流團的中學師生，出現腸胃炎徵狀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795309_1_20250311212434.jpg&q=80)
-  
-
-再多兩間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。3間學校、共52名師生於本月3日至10日期間出現急性腸胃炎徵狀，16人已求醫，全部毋須入院。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm)
 
 ---

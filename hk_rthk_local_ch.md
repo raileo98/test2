@@ -1,3 +1,26 @@
+# 醫管局本月24日起每次最多向病人配發約6個月藥物以減少浪費
+
+  
+
+醫管局在本月24日起更改配藥安排，包括每次最多只會向病人配發24個星期、即相當於大約6個月的藥物，希望減少浪費。未來的最終目標是每次最多向病人處方8星期藥物，但要社區藥房配合。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm)
+
+---
+
 # 元朗游泳池4月10日至15日暫時關閉
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795214-20250311.htm)
-
----
-
-# 學者指兩至三間外送平台已飽和　餐飲業稱有競爭但可找到平衡點
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795213_1_20250311111459.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場，平台將繼續運行至4月7日。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795213-20250311.htm)
 
 ---
