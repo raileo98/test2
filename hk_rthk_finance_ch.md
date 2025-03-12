@@ -1,3 +1,27 @@
+# 日立：今年加薪6.2%　豐田：薪酬加幅與去年持平
+
+![豐田表示，整體員工加薪幅度將與去年持平，並會發放相當於7.6個月薪酬的獎金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795406_1_20250312135259.jpg&q=90)
+  
+
+日本一年一度被稱為「春鬥」的大型企業年度勞資談判周三結束，多家大型企業同意工會提出的加薪要求，連續3年大幅加薪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm)
+
+---
+
 # 分析指美國經濟硬著陸風險未見急升　料今年中開始減息
 
 ![投資者預料聯儲局5月減息機會升至近一半，估計年內有機會減息3次，每次0.25厘。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795405_1_20250312134223.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
-
----
-
-# 全國兩會｜全國人大會議舉行閉幕會
-
-![閉幕會應出席代表2929人，實出席2884人，缺席45人，出席人數符合法定人數。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795248_1_20250311154533.jpg&q=75)
-  
-
-十四屆全國人大三次會議下午3時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人在主席台就座。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm)
 
 ---

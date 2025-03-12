@@ -1,3 +1,73 @@
+# 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
+
+  
+
+個人資料私隱專員公署表示，外賣平台「戶戶送」宣布將會結束香港業務，事件可能影響客戶及送遞員在個人資料私隱方面的權益。公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶，包括接手業務的營運者，以符合《私隱條例》的規定處理、刪除或轉移客戶及送遞員的個人資料，確保客戶及送遞員的個人資料不會被濫用、外洩或流入不法分子手中，被用作詐騙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
+
+---
+
+# 學生交流團腸胃炎事件懷疑涉事韶關餐廳否認提前準備食物
+
+  
+
+衞生防護中心公布先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。3間學校、共52名師生出現急性腸胃炎徵狀。流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm)
+
+---
+
+# 日立：今年加薪6.2%　豐田：薪酬加幅與去年持平
+
+![豐田表示，整體員工加薪幅度將與去年持平，並會發放相當於7.6個月薪酬的獎金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795406_1_20250312135259.jpg&q=90)
+  
+
+日本一年一度被稱為「春鬥」的大型企業年度勞資談判周三結束，多家大型企業同意工會提出的加薪要求，連續3年大幅加薪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm)
+
+---
+
 # 分析指美國經濟硬著陸風險未見急升　料今年中開始減息
 
 ![投資者預料聯儲局5月減息機會升至近一半，估計年內有機會減息3次，每次0.25厘。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795405_1_20250312134223.jpg&q=75)
@@ -1364,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795326-20250311.htm)
-
----
-
-# 資深藝人夏春秋逝世終年93歲
-
-![資深藝人夏春秋逝世，終年93歲。（香港演藝人協會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795325_1_20250311230205.jpg&q=90)
-  
-
-資深藝人夏春秋逝世，終年93歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm)
-
----
-
-# 4學校參與安徽黃山考察團13師生腸胃炎　當中9人感染諾如病毒
-
-![中心相信，有關爆發個案由諾如病毒經人傳人或受污染環境傳播，並不涉及當地食肆。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795324_1_20250311230355.jpg&q=80)
-  
-
-4間學校的師生參與同一個安徽黃山考察團，期間有13名師生出現急性腸胃炎徵狀，10人曾到醫院求醫，9名學生對諾如病毒呈陽性反應。衞生防護中心相信，有關爆發個案由諾如病毒經人傳人或受污染環境傳播，並不涉及當地食肆。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm)
-
----
-
-# 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
-
-![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=90)
-  
-
-美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
 
 ---
