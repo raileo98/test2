@@ -1,3 +1,27 @@
+# 杜特爾特被移交國際刑事法院羈押
+
+![載有杜特爾特的飛機當地周三下午，抵達荷蘭鹿特丹海牙機場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795482_1_20250313015609.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特被送到荷蘭海牙後，已移交國際刑事法院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm)
+
+---
+
 # 美國恢復對烏克蘭軍事援助和情報共享
 
 ![波蘭外長西科爾斯基（右）在華沙與烏克蘭外長瑟比加會面後共同會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795481_1_20250313012629.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795175-20250311.htm)
-
----
-
-# 美烏代表團周二於沙特會談　據報烏方將提出部分停火
-
-![澤連斯基抵達沙特訪問，他早前已經表示，不會出席與美方代表團在周二的會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795174_1_20250311062549.jpg&q=90)
-  
-
-由烏克蘭高級官員組成的代表團，星期二將在沙特阿拉伯與美方代表團舉行會談，是上月底烏克蘭總統澤連斯基和美國總統特朗普在白宮激烈爭吵後，雙方首次會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795174-20250311.htm)
 
 ---

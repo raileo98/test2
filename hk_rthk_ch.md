@@ -1,3 +1,27 @@
+# 杜特爾特被移交國際刑事法院羈押
+
+![載有杜特爾特的飛機當地周三下午，抵達荷蘭鹿特丹海牙機場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795482_1_20250313015609.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特被送到荷蘭海牙後，已移交國際刑事法院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm)
+
+---
+
 # 美國恢復對烏克蘭軍事援助和情報共享
 
 ![波蘭外長西科爾斯基（右）在華沙與烏克蘭外長瑟比加會面後共同會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795481_1_20250313012629.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
-
----
-
-# 學生交流團腸胃炎事件懷疑涉事韶關餐廳否認提前準備食物
-
-![流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795407_1_20250312150058.jpg&q=80)
-  
-
-先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm)
 
 ---
