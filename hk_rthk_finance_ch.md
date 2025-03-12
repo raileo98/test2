@@ -1,3 +1,74 @@
+# 日股收市靠穩
+
+![日經平均指數收市報36819點，升25點，升幅0.07%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795412_1_20250312144106.jpg&q=90)
+  
+
+日本股市收市靠穩，日經平均指數報36819點，升25點，升幅0.07%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm)
+
+---
+
+# 韓股高收逾1%
+
+![首爾綜合指數收市報2574點，升37點，升幅1.47%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795413_1_20250312144253.jpg&q=85)
+  
+
+南韓股市收市升逾1%，首爾綜合指數報2574點，升37點，升幅1.47%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm)
+
+---
+
+# 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
+
+  
+
+交通諮詢委員會討論由電車公司提出的加價申請，以及聽取港鐵公司構建鐵路科技生態圈的工作和進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
+
+---
+
 # 台股高收約1%
 
 ![加權指數收市報22278點，升207點，升幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795408_1_20250312141732.jpg&q=90)
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm)
-
----
-
-# 全國兩會｜小鵬汽車於人型機器人上或投入上千億元人民幣
-
-![何小鵬相信，十多年後人形機器人市場規模或將與新能源汽車相若。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795241_2_20250311181002.jpg&q=75)
-  
-
-全國人大代表、小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm)
-
----
-
-# 全國兩會｜小鵬汽車冀旗下飛行汽車成全球首款規模化量產交付
-
-![何小鵬稱分體式飛行汽車去年完成全球首次公開飛行，全面進入適航審定階段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795252_1_20250311152140.jpg&q=90)
-  
-
-全國人大代表、小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm)
-
----
-
-# 內地股市午後轉　滬股全日升逾0.4%
-
-![內地股市下午轉強，上證綜合指數收市報3379點，升13點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795251_1_20250311151313.jpg&q=90)
-  
-
-內地股市下午轉強，扭轉早前跌勢。軍工、白酒及養殖相關股份向好；工程機械及醫療服務等股份表現較遜色。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795251-20250311.htm)
 
 ---

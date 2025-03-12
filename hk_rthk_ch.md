@@ -1,3 +1,50 @@
+# 韓股高收逾1%
+
+![首爾綜合指數收市報2574點，升37點，升幅1.47%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795413_1_20250312144253.jpg&q=85)
+  
+
+南韓股市收市升逾1%，首爾綜合指數報2574點，升37點，升幅1.47%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm)
+
+---
+
+# 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
+
+  
+
+交通諮詢委員會討論由電車公司提出的加價申請，以及聽取港鐵公司構建鐵路科技生態圈的工作和進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
+
+---
+
 # 公司註冊處資料外洩影響10.9萬人　私隱公署促全面檢視系統
 
   

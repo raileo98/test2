@@ -1,3 +1,26 @@
+# 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
+
+  
+
+交通諮詢委員會討論由電車公司提出的加價申請，以及聽取港鐵公司構建鐵路科技生態圈的工作和進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
+
+---
+
 # 公司註冊處資料外洩影響10.9萬人　私隱公署促全面檢視系統
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795235-20250311.htm)
-
----
-
-# 黃家和料兩外賣平台短期內競爭白熱化　鄺家麒預計不一下子減優惠
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795234_1_20250311130828.jpg&q=80)
-  
-
-外賣平台戶戶送Deliveroo撤出香港市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795234-20250311.htm)
 
 ---
