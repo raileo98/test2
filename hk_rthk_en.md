@@ -1,3 +1,51 @@
+# US Education Department to cut half its staff
+
+![The US Department of Education said affected employees will be placed on administrative leave from March 21. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795376_1_20250312104000.jpg&q=90)
+  
+
+The US Department of Education said on Tuesday it would lay off nearly half its staff, a possible precursor to closing altogether, as government agencies scrambled to meet US President Donald Trump's deadline to submit plans for a second round of mass layoffs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm)
+
+---
+
+# Maradona's medical team on trial over his death
+
+![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=85)
+  
+
+Seven Argentines went on trial on Tuesday accused of homicide for their alleged role in what prosecutors called the "horror theatre" of football legend Diego Maradona's death four years ago.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm)
+
+---
+
 # 'Growth target signals China's intent to beat tariffs'
 
 ![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=30)
@@ -1389,53 +1437,5 @@ Lawmaker and National People's Congress delegate Priscilla Leung on Monday said 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm)
-
----
-
-# Freed scammers still trapped in Myanmar
-
-![China repatriates its citizens freed from scam centres on to a chartered flight at Mae Sot International Airport on February 20, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795054_1_20250310092617.jpg&q=90)
-  
-
-The first major global effort to crack down on the fast-growing industry of scamming is turning into a growing humanitarian crisis.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm)
-
----
-
-# 7-Eleven explores sell-offs with Couche-Tard
-
-![Seven & i operates some 85,000 convenience stores worldwide. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795045_1_20250310090227.jpg&q=90)
-  
-
-The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore store sell-offs with Alimentation Couche-Tard (ACT) to address antitrust concerns ahead of a potential merger.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm)
 
 ---

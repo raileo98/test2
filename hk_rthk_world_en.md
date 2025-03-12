@@ -1,3 +1,51 @@
+# US Education Department to cut half its staff
+
+![The US Department of Education said affected employees will be placed on administrative leave from March 21. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795376_1_20250312104000.jpg&q=90)
+  
+
+The US Department of Education said on Tuesday it would lay off nearly half its staff, a possible precursor to closing altogether, as government agencies scrambled to meet US President Donald Trump's deadline to submit plans for a second round of mass layoffs.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm)
+
+---
+
+# Maradona's medical team on trial over his death
+
+![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=85)
+  
+
+Seven Argentines went on trial on Tuesday accused of homicide for their alleged role in what prosecutors called the "horror theatre" of football legend Diego Maradona's death four years ago.
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm)
+
+---
+
 # Australia says US steel tariffs 'entirely unjustified'
 
 ![Vapour pours from a steel mill chimney in the industrial town of Port Kembla, about 80 km south of Sydney. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795366_1_20250312092156.jpg&q=90)
@@ -1387,53 +1435,5 @@ The United States has "paused" intelligence sharing with Ukraine after a dramati
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794449-20250305.htm)
-
----
-
-# World's most accurate clock goes on sale for US$3.3mn
-
-![Japan's Shimadzu Corporation is aiming to sell 10 of its clocks over the next three years. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794440_1_20250305213618.jpg&q=75)
-  
-
-Resembling a squat, wide fridge, the world's most accurate clock went on sale for US$3.3 million in Japan on Wednesday.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794440-20250305.htm)
-
----
-
-# Rain offers hope in Japan's worst wildfire in 50 years
-
-![The wildfire broke out on February 26, and firefighting efforts including Japan Self-Defense Forces, have continued while thousands have evacuated their homes. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794373_1_20250305144046.jpg&q=90)
-  
-
-Wet weather looked poised to offer relief Wednesday as Japan battled its worst wildfire in half a century in a northern region hit by record-low rainfall.
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794373-20250305.htm)
 
 ---

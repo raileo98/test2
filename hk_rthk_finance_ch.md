@@ -1,3 +1,26 @@
+# 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
+
+  
+
+勞工及福利局局長孫玉菡表示，輸入一般勞工的補充勞工優化計劃推行一年半以來，直至上月底，已批出約51000個名額，當中以飲食業最多，佔超過兩萬人，其中廚師有約一萬人，侍應有8500人，洗碗工約有2500人。至於發展局處理輸入建造業的特定行業計劃，有大約12000個申請配額，已批核約9000多個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm)
+
+---
+
 # 日股反覆靠穩　半日升逾百點
 
 ![日經指數曾高見36956點，半日收報36898點，升105點，升幅0.29%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795375_1_20250312103731.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795231-20250311.htm)
-
----
-
-# 滬股半日跌約0.5%　創業板指數跌近0.8%
-
-![上證指數半日收報3350點，跌15點，跌幅0.47%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795224_1_20250311113344.jpg&q=90)
-  
-
-內地股市向下，工程機械、汽車產業鏈股份下跌；軍工、國資雲概念股逆市上升。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795224-20250311.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
+
+  
+
+勞工及福利局局長孫玉菡表示，輸入一般勞工的補充勞工優化計劃推行一年半以來，直至上月底，已批出約51000個名額，當中以飲食業最多，佔超過兩萬人，其中廚師有約一萬人，侍應有8500人，洗碗工約有2500人。至於發展局處理輸入建造業的特定行業計劃，有大約12000個申請配額，已批核約9000多個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm)
+
+---
+
+# 慢病共治計劃將擴至普通科門診　當局料一年6千至1萬名額足應付
+
+  
+
+本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，為指定合資格弱勢社群，提供預防篩查及護理服務，包括綜援受助人、75歲或以上長者生活津貼受惠人，或持有有效醫療費用減免證明書的人士。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm)
+
+---
+
 # 國台辦：解決台灣問題基礎更雄厚　有力塑造祖國必然統一大勢
 
 ![陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795379_1_20250312105404.jpg&q=80)
@@ -48,7 +94,7 @@
 
 # 陳虹秀暴動罪成　孫玉菡相信社工註冊局法依處理社工續牌申請
 
-![孫玉菡相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795378_1_20250312105003.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795378_1_20250312105003.jpg&q=85)
   
 
 勞工及福利局局長孫玉菡表示，社工的註冊或續期需要跟隨《社會工作者註冊條例》要求，條例訂明如果犯上指明罪行，社工註冊局要按法律要求要履行職責，相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀，若法律上有要求不給予續牌，要跟法律做。
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm)
-
----
-
-# 外交部：英方應尊重中方在南海領土主權和海洋權益
-
-![毛寧說，作為域外國家，英方應尊重中方在南海的領土主權和海洋權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795300_1_20250311194238.jpg&q=90)
-  
-
-在北京，外交部回應英國外相林德偉指中國正在南海採取破壞穩定的危險行為的言論，發言人毛寧說，南海是目前世界上最安全、最自由的海上通道之一。作為域外國家，英方應當尊重中方在南海的領土主權和海洋權益，停止挑動矛盾、搬弄是非。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm)
-
----
-
-# 李強向奧地利新任總理施托克爾致賀電
-
-![李強表示，奧地利是中國在歐洲的重要夥伴。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795299_1_20250311192827.jpg&q=90)
-  
-
-國務院總理李強向施托克爾致賀電，祝賀他就任奧地利總理。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm)
 
 ---

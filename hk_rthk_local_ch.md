@@ -1,6 +1,52 @@
+# 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
+
+  
+
+勞工及福利局局長孫玉菡表示，輸入一般勞工的補充勞工優化計劃推行一年半以來，直至上月底，已批出約51000個名額，當中以飲食業最多，佔超過兩萬人，其中廚師有約一萬人，侍應有8500人，洗碗工約有2500人。至於發展局處理輸入建造業的特定行業計劃，有大約12000個申請配額，已批核約9000多個。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm)
+
+---
+
+# 慢病共治計劃將擴至普通科門診　當局料一年6千至1萬名額足應付
+
+  
+
+本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，為指定合資格弱勢社群，提供預防篩查及護理服務，包括綜援受助人、75歲或以上長者生活津貼受惠人，或持有有效醫療費用減免證明書的人士。
+
+  
+
+
+---
+
+原始網址 Original URL：
+<https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm>
+
+© rthk.hk
+
+電子郵件 Email:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm)
+
+---
+
 # 陳虹秀暴動罪成　孫玉菡相信社工註冊局法依處理社工續牌申請
 
-![孫玉菡相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795378_1_20250312105003.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795378_1_20250312105003.jpg&q=85)
   
 
 勞工及福利局局長孫玉菡表示，社工的註冊或續期需要跟隨《社會工作者註冊條例》要求，條例訂明如果犯上指明罪行，社工註冊局要按法律要求要履行職責，相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀，若法律上有要求不給予續牌，要跟法律做。
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795163-20250310.htm)
-
----
-
-# 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
-
-![盧寵茂與正在訪問香港的世界衞生組織西太平洋區域主任（前排右二）會面，就公共衞生相關議題作交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795156_1_20250310211737.jpg&q=85)
-  
-
-醫務衞生局局長盧寵茂今日與正在訪問香港的世界衞生組織西太平洋區域主任Saia Ma’u Piukala醫生會面，就公共衞生相關議題作交流。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm)
-
----
-
-# 廣華醫院有護士懷疑被非禮　一名男病人被捕
-
-![院方接獲報告後，隨即報警，警方及後在急症室拘捕一名男病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795155_1_20250310211632.jpg&q=80)
-  
-
-廣華醫院發生護士懷疑被非禮的事件，院方表示，今日上午一名護士在急症室護士站工作期間，懷疑被人非禮。院方接獲報告後，隨即報警，警方及後在急症室拘捕一名男病人。
-
-  
-
-
----
-
-原始網址 Original URL：
-<https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm>
-
-© rthk.hk
-
-電子郵件 Email:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795155-20250310.htm)
 
 ---
