@@ -1,3 +1,27 @@
+# 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
+
+![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」引述知情人士報道，沃爾瑪因為要求一些中國供應商大幅降價，企圖將美國對華加徵關稅的負擔，轉嫁給中國供應商和消費者，昨日被商務部等部門約談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
+
+---
+
 # 中國將於星期五舉行伊朗核問題中俄伊北京會晤
 
 ![外交部發言人說，三方將會就伊朗核問題及其他共同關心的問題交換意見。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795419_1_20250312152300.jpg&q=80)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795079-20250310.htm)
-
----
-
-# 全國兩會｜王靈桂指目前赤字對香港不算甚麼　中央將續推利港措施
-
-![王靈桂說，香港在全球發達經濟體當中並不弱。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795068_1_20250310105925.jpg&q=90)
-  
-
-在北京，全國政協委員、港澳辦副主任王靈桂被問到本港經濟情況及特區政府面對財赤問題時表示，香港在全球發達經濟體當中並不弱，去年經濟增長有百分之二點幾，認為目前赤字數目對香港這麼大的經濟體而言應該不算甚麼，也不是問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm)
 
 ---

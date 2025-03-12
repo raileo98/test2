@@ -1,3 +1,27 @@
+# Watchdog launches compliance check on Deliveroo
+
+![The privacy watchdog says that Deliveroo’s closure may affect the personal data of its customers and riders. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795435_1_20250312173023.jpg&q=90)
+  
+
+Hong Kong’s privacy watchdog said on Wednesday it launched a compliance check on Deliveroo to ensure the personal data of its customers and food couriers will not be leaked.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm)
+
+---
+
 # Three men arrested over Disneyland burglary
 
 ![Sources say the electronic items missing from the Hong Kong Disneyland warehouse are worth around HK$3 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795429_1_20250312163825.jpg&q=85)
@@ -1413,29 +1437,5 @@ Russia said on Monday it was expelling two British "diplomats" on suspicion of c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm)
-
----
-
-# Hang Seng Index closes down 1.85pc
-
-![The Hang Seng Index has closed lower, ending the day at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795139_1_20250310175233.jpg&q=80)
-  
-
-Local shares sank on Monday on a mixed day for equity markets, amid escalating global trade tensions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm)
 
 ---

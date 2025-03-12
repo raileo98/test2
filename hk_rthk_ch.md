@@ -1,3 +1,50 @@
+# 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
+
+![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」引述知情人士報道，沃爾瑪因為要求一些中國供應商大幅降價，企圖將美國對華加徵關稅的負擔，轉嫁給中國供應商和消費者，昨日被商務部等部門約談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
+
+---
+
+# 旅發局邀泰國演員台灣歌手參演宣傳片　介紹本港綠色旅遊資源
+
+  
+
+旅發局於社交平台推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm)
+
+---
+
 # 人民幣兌美元曾升至近4個月高位　收市跌近140點子
 
 ![人民幣兌美元一度升至近4個月新高，收市報7.2445兌1美元，較上日收市跌139點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795438_1_20250312173655.jpg&q=85)

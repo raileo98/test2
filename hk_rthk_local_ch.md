@@ -1,3 +1,26 @@
+# 旅發局邀泰國演員台灣歌手參演宣傳片　介紹本港綠色旅遊資源
+
+  
+
+旅發局於社交平台推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm)
+
+---
+
 # 香港快運去年由盈轉虧　林紹波稱屬短期問題長遠有信心有盈利
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795269-20250311.htm)
-
----
-
-# 黃大仙下邨火警女住戶死亡　初步調查指煙頭意外點燃床墊所致
-
-![消防及警方經初步調查，相信上址一間睡房有煙頭意外點燃床墊引致火警。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795268_1_20250311165457.jpg&q=80)
-  
-
-黃大仙下邨早上發生火警，一名女住戶死亡，消防及警方經初步調查，相信上址一間睡房有煙頭意外點燃床墊引致火警。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795268-20250311.htm)
 
 ---

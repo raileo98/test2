@@ -1,3 +1,27 @@
+# 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
+
+![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
+  
+
+央視旗下社交平台「玉淵譚天」引述知情人士報道，沃爾瑪因為要求一些中國供應商大幅降價，企圖將美國對華加徵關稅的負擔，轉嫁給中國供應商和消費者，昨日被商務部等部門約談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
+
+---
+
 # 菲國副總統赴荷蘭　較早時稱隨父到當地出席國際刑事法院聆訊
 
 ![杜特爾特對自己被拘留提出質疑。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795434_1_20250312172831.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
-
----
-
-# 盧寵茂晤世衞西太平洋區域主任　稱積極支持世衞應對公共衞生挑戰
-
-![盧寵茂與正在訪問香港的世界衞生組織西太平洋區域主任（前排右二）會面，就公共衞生相關議題作交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795156_1_20250310211737.jpg&q=90)
-  
-
-醫務衞生局局長盧寵茂今日與正在訪問香港的世界衞生組織西太平洋區域主任Saia Ma’u Piukala醫生會面，就公共衞生相關議題作交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795156-20250310.htm)
 
 ---
