@@ -1,3 +1,50 @@
+# 中國將於星期五舉行伊朗核問題中俄伊北京會晤
+
+![外交部發言人說，三方將會就伊朗核問題及其他共同關心的問題交換意見。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795419_1_20250312152300.jpg&q=80)
+  
+
+中國將於星期五舉行伊朗核問題中俄伊北京會晤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm)
+
+---
+
+# 巴基斯坦軍方指武裝份子以列車乘客做人盾　部分人質被帶到山區
+
+  
+
+巴基斯坦軍方官員說，遇襲客運列車上的155名被挾持人員，已被安全部隊救出，但仍有大量人質在武裝份子手上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm)
+
+---
+
 # 格陵蘭自治議會選舉　倡緩慢獨立的反對黨民主黨得票最多
 
 ![格陵蘭自治議會選舉完成點票，親商界的反對黨民主黨得票最多。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795399_1_20250312131026.jpg&q=85)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
-
----
-
-# 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
-
-![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
-  
-
-南韓聯合參謀本部表示，北韓下午向西部海域方向發射多枚型號不明的彈道導彈，飛行距離60至100公里，推斷可能是近程彈道導彈。韓方與美方緊密合作，保持高度戒備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm)
-
----
-
-# 特朗普︰與四組買家商討洽售TikTok料很快達成協議
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795128_1_20250310182615.jpg&q=90)
-  
-
-美國總統特朗普說，他的團隊就短片分享平台TikTok出售事宜，和四組不同買家接觸，又說很快就會達成協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795128-20250310.htm)
 
 ---

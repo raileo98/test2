@@ -1,3 +1,27 @@
+# 中國將於星期五舉行伊朗核問題中俄伊北京會晤
+
+![外交部發言人說，三方將會就伊朗核問題及其他共同關心的問題交換意見。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795419_1_20250312152300.jpg&q=80)
+  
+
+中國將於星期五舉行伊朗核問題中俄伊北京會晤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm)
+
+---
+
 # 學生交流團腸胃炎事件懷疑涉事韶關餐廳否認提前準備食物
 
 ![流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795407_1_20250312150058.jpg&q=80)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795068-20250310.htm)
-
----
-
-# 金融科技周及StartmeupHK創業節11月舉行
-
-![慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795066_1_20250310110740.jpg&q=90)
-  
-
-投資推廣署宣布，為慶祝香港金融科技周和StartmeupHK創業節踏入10周年慶典，兩項活動將於11月3至7日在會展中心及其他地點聯合舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795066-20250310.htm)
 
 ---

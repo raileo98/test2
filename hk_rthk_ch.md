@@ -1,3 +1,50 @@
+# 中國將於星期五舉行伊朗核問題中俄伊北京會晤
+
+![外交部發言人說，三方將會就伊朗核問題及其他共同關心的問題交換意見。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795419_1_20250312152300.jpg&q=80)
+  
+
+中國將於星期五舉行伊朗核問題中俄伊北京會晤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm)
+
+---
+
+# 巴基斯坦軍方指武裝份子以列車乘客做人盾　部分人質被帶到山區
+
+  
+
+巴基斯坦軍方官員說，遇襲客運列車上的155名被挾持人員，已被安全部隊救出，但仍有大量人質在武裝份子手上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm)
+
+---
+
 # 恒指跌幅曾擴大至逾400點　科指跌逾3%
 
 ![港股下午沽壓加大。恒生指數曾跌約420點，科技指數較早時跌3.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795420_1_20250312152503.jpg&q=75)
