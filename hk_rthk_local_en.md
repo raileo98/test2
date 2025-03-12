@@ -1,4 +1,4 @@
-# Eateries in relation to gastroenteritis cluster banned
+# Eateries related to gastroenteritis cluster banned
 
 ![More than 50 students and teachers contracted gastroenteritis after dining at the same restaurants during an exchange trip in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795473_1_20250312224524.jpg&q=80)
   

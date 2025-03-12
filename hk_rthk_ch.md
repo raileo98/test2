@@ -1,3 +1,27 @@
+# 招商局置地去年轉蝕18.5億元人民幣
+
+![招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795477_1_20250312231031.jpg&q=90)
+  
+
+招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm)
+
+---
+
 # 美國上周原油庫存增幅少過預期
 
 ![美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795472_1_20250312224429.jpg&q=85)
