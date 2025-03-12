@@ -1,5 +1,30 @@
+# 警方瓦解家庭式販毒集團拘4名非華裔男女　檢逾千萬元毒品
+
+![警方檢獲約24公斤的懷疑海洛英、氯胺酮、冰毒、大麻花及搖頭丸，市值超過1400萬元。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795426_1_20250312161246.jpg&q=80)
+  
+
+警方拘捕4名非華裔男女，涉嫌「販運危險藥物」、「非法入境」等，檢獲約24公斤的懷疑海洛英、氯胺酮、冰毒、大麻花及搖頭丸，市值超過1400萬元。警方相信已經瓦解一個家庭式經營的販毒集團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm)
+
+---
+
 # 接連有內地交流團師生不適　朱國強促教育局嚴肅處理
 
+![朱國強促請教育局嚴肅處理，如果證實承辦單位安排上有疏忽，或到訪衛生環境欠佳的餐廳，應該負上責任。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795425_1_20250312161205.jpg&q=80)
   
 
 先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，以及中學生主題式內地交流計劃，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
@@ -47,6 +72,7 @@
 
 # 迪士尼貨倉遭爆竊失價值300萬元電子設備　3名男子被捕
 
+![香港迪士尼樂園回覆查詢時表示，案件不涉及香港迪士尼員工，會全力協助警方調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795418_1_20250312161008.jpg&q=85)
   
 
 警方接獲迪士尼樂園職員報案，懷疑被人盜去一批電子器材。警方拘捕3名男子，包括一名28歲本身是貨倉職員的電腦技術員、回收公司負責人及工人，他們分別涉嫌爆竊及處理贓物。香港迪士尼樂園回覆查詢時表示，案件不涉及香港迪士尼員工，會全力協助警方調查。
@@ -70,6 +96,7 @@
 
 # 民主思路公布一國兩制指數微跌　逾48%受訪者不滿意立法會表現
 
+![民主思路召集人湯家驊（左）表示，立法會議員的角色應以理性監督為核心，以建設性態度提出意見。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795415_1_20250312160917.jpg&q=80)
   
 
 民主思路發布新一輪「一國兩制」指數，最新為6.14分，較上一輪微跌 0.5%。
@@ -93,6 +120,7 @@
 
 # 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
 
+![張仁良表示，委員知悉電車公司面對其他公共交通工具的激烈競爭，乘客量仍未能回復至疫情前的水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795414_1_20250312161112.jpg&q=80)
   
 
 交通諮詢委員會討論由電車公司提出的加價申請，以及聽取港鐵公司構建鐵路科技生態圈的工作和進展。
@@ -1407,31 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795247-20250311.htm)
-
----
-
-# 劉凱旋稱香港多方面營商新機遇可有效賦能四川企業國際化
-
-![劉凱旋希望透過拜訪及活動推廣，使四川企業充分了解香港在「一國兩制」下的獨特優勢。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_1_20250311143951.jpg&q=80)
-![劉凱旋（右六）說，香港始終擔當四川與全球市場的「聯繫人」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_2_20250311143951.jpg&q=85)
-![劉凱旋（右）會見四川省商務廳副廳長梁勇（左）時，就兩地產供鏈國際合作等主題交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795240_3_20250311143951.jpg&q=90)
-  
-
-投資推廣署署長劉凱旋昨日起訪問四川成都三日，向當地政府部門、企業和當地傳媒宣傳香港的營商新機遇，促進川港兩地在產業鏈和創新鏈方面優勢互補，升級發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
 
 ---
