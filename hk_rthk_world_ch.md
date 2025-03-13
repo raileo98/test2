@@ -1,4 +1,4 @@
-# QS排名：香港6個學科位居全球前十
+# QS排名香港有六個大學學科位居前十　港大牙科排第二
 
 ![香港有6個學科排名位居全球前10名，包括第2位的港大牙科。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795523_1_20250313100349.jpg&q=85)
   

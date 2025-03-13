@@ -1,3 +1,27 @@
+# Hong Kong stocks open flat in early trading
+
+![The Hang Seng Index rose 0.07 percent at the starting of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795517_1_20250313101303.jpg&q=75)
+  
+
+The Hang Seng Index gained 16.02 points, or 0.07 per cent, to open at 23,616.33 on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm)
+
+---
+
 # China, EU vow countermeasures against US steel tariffs
 
 ![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
@@ -1414,29 +1438,5 @@ A catering sector representative on Tuesday said he was concerned restaurants wo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm)
-
----
-
-# 'Snooker hiccup not a problem for National Games'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=90)
-  
-
-A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
 
 ---

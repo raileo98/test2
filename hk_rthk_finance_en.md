@@ -1,3 +1,27 @@
+# Hong Kong stocks open flat in early trading
+
+![The Hang Seng Index rose 0.07 percent at the starting of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795517_1_20250313101303.jpg&q=75)
+  
+
+The Hang Seng Index gained 16.02 points, or 0.07 per cent, to open at 23,616.33 on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm)
+
+---
+
 # China, EU vow countermeasures against US steel tariffs
 
 ![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm)
-
----
-
-# HKEX posts record annual profit on rising turnover
-
-![Hong Kong Exchanges and Clearing (HKEX) posted a record profit for 2024. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793473_1_20250227143726.jpg&q=90)
-  
-
-Hong Kong Exchanges and Clearing (HKEX), which operates the city's stock exchange, posted its best-ever annual profit, revenue, and income during 2024 - on the back of the rising market turnover and new listings especially during the fourth quarter of last year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793473-20250227.htm)
 
 ---
