@@ -1,3 +1,26 @@
+# 取消配子或胚胎儲存期限制　林哲玄憂變相鼓勵延遲生育
+
+  
+
+人類生殖科技管理局建議修訂實務守則，取消供自用的精子、卵子或胚胎的10年儲存期法律限制。醫療衞生界立法會議員林哲玄認為，有關建議能幫助部分有需要的婦女，但他擔心或會變相鼓勵女性延遲生育，增加生育風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm)
+
+---
+
 # 一名詐騙集團女主腦承認洗黑錢及串謀詐騙　判囚48個月
 
 ![22歲詐騙集團女主腦，在區域法院判監48個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795617_1_20250313212536.jpg&q=90)
@@ -1422,29 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm)
-
----
-
-# 香港快運去年由盈轉虧　林紹波稱屬短期問題長遠有信心有盈利
-
-![國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795439_1_20250312181118.jpg&q=90)
-  
-
-國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm)
 
 ---

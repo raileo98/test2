@@ -1,3 +1,26 @@
+# 取消配子或胚胎儲存期限制　林哲玄憂變相鼓勵延遲生育
+
+  
+
+人類生殖科技管理局建議修訂實務守則，取消供自用的精子、卵子或胚胎的10年儲存期法律限制。醫療衞生界立法會議員林哲玄認為，有關建議能幫助部分有需要的婦女，但他擔心或會變相鼓勵女性延遲生育，增加生育風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm)
+
+---
+
 # 美股初段下跌　英特爾急升約17%
 
 ![道瓊斯指數較早時報41296點，跌54點，跌幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795621_1_20250313214445.jpg&q=90)
