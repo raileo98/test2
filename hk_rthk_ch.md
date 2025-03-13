@@ -1,3 +1,27 @@
+# 太古去年盈利跌85%
+
+![太古公司去年盈利43.2億元，按年跌85%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795544_1_20250313125620.jpg&q=90)
+  
+
+太古公司去年盈利43.2億元，按年跌85%。每股太古A股派發第二次中期息2.1元，B股每股派0.42 元，兩者按年增5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm)
+
+---
+
 # 專家：如有感染諾如病毒學生在旅遊巴上嘔吐或造成車內傳播
 
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm)
-
----
-
-# 平安好醫生去年轉賺8100萬元人民幣
-
-![平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795463_1_20250312213415.jpg&q=90)
-  
-
-平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm)
 
 ---

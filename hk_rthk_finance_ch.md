@@ -1,3 +1,27 @@
+# 太古去年盈利跌85%
+
+![太古公司去年盈利43.2億元，按年跌85%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795544_1_20250313125620.jpg&q=90)
+  
+
+太古公司去年盈利43.2億元，按年跌85%。每股太古A股派發第二次中期息2.1元，B股每股派0.42 元，兩者按年增5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm)
+
+---
+
 # 九龍倉去年虧損逾32億元
 
 ![九龍倉去年股東應佔虧損32.24億元，前一年則盈利9.45億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795539_1_20250313123124.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm)
-
----
-
-# 國泰冀今年底前最多增聘4000名員工
-
-![國泰航空計劃今年底前，增加最多4000名員工，總數增至約3.4萬人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795398_1_20250312125855.jpg&q=90)
-  
-
-國泰航空去年燃油對沖收益3500萬元，按年大減近95%。扣除對沖收益後，燃油成本淨額升13%至282.6億元。去年耗油量增加約22%至3510萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm)
 
 ---
