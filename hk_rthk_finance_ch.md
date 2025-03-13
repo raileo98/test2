@@ -46,31 +46,6 @@
 
 ---
 
-# 西營盤舊贊育醫院主樓及上環廣福祠將被列為古蹟
-
-![西營盤舊贊育醫院主樓樓高四層，設有地庫，採用新古典主義建築風格，糅合中式元素，有紅磚外牆、圓柱及刻有前清官員的題字。（ 香港文化古蹟資源中心）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_1_20250313110927.jpg&q=75)
-![廣福祠建於高台之上，青磚和花崗石門口的匾額和楹聯保存完好，位於前廳正脊上的石灣陶塑屹立至今。（東華三院）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_2_20250313110927.jpg&q=80)
-  
-
-古物諮詢委員會下午開會，議程包括討論當局計劃根據法例，將西營盤舊贊育醫院主樓及上環廣福祠宣布為古蹟。古物古蹟辦事處的文件指出有關業主及管理部門已同意當局的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm)
-
----
-
 # 美國企業債與國債利差創近半年高位　市場對經濟衰退憂慮升溫
 
 ![美國垃圾級別企業債利差擴大至322點子，創去年9月後新高，反映投資者對持有風險較高的垃圾債意願降低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795522_2_20250313100826.jpg&q=85)
@@ -92,30 +67,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm)
-
----
-
-# QS排名香港有六個大學學科位居前十　港大牙科排第二
-
-![香港有6個學科排名位居全球前10名，包括第2位的港大牙科。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795523_1_20250313100349.jpg&q=85)
-  
-
-國際高等教育資訊機構(QS)最新世界大學學科排名，香港9間院校共231學科，其中68%排名上升，是全球進步最大的地區；另有6科排名位居前10位，較去年增2科，排名最高的為港大牙科，位列第2位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm)
 
 ---
 
@@ -1437,5 +1388,53 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
+
+---
+
+# 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
+
+![孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795393_1_20250312131149.jpg&q=85)
+  
+
+勞工及福利局局長孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意，到今年中有約1萬張簽證到期，會以相關基數分析及公布情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
+
+---
+
+# 港股半日跌158點　汽車股逆市造好
+
+![恒生指數高開後反覆向下，早段最多升約180點，中午報23623點，跌158點，跌幅0.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795388_1_20250312120913.jpg&q=90)
+  
+
+港股高開77點後反覆向下，連跌4日。恒生指數開市後最多升約180點，高見23962點，中午報23623點，跌158點，跌幅0.67%，半日主板成交額逾1362億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm)
 
 ---
