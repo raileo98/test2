@@ -1,3 +1,27 @@
+# 恒指低收137點　連跌5日　科指跌近2%
+
+![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
+  
+
+港股連跌5個交易日，恒生指數午後一度失守23200點，跌逾400點，創逾1個星期低位，其後跌幅收窄，收市報23462點，跌137點，跌幅近0.6%，主板成交額進一步縮減至約2338億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
+
+---
+
 # 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
-
----
-
-# 工行設立800億元人民幣科技創新基金　加大支持硬科技及民企
-
-![工行設立800億元人民幣科技創新基金，持續加大對硬科技、民營經濟支持。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795423_1_20250312155243.jpg&q=90)
-  
-
-工商銀行表示，設立總規模達800億元人民幣科技創新基金，將定位為「耐心資本」，以股為主、股債貸保聯動，持續加大對硬科技、民營經濟支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm)
 
 ---

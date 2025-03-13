@@ -1,3 +1,27 @@
+# 恒指低收137點　連跌5日　科指跌近2%
+
+![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
+  
+
+港股連跌5個交易日，恒生指數午後一度失守23200點，跌逾400點，創逾1個星期低位，其後跌幅收窄，收市報23462點，跌137點，跌幅近0.6%，主板成交額進一步縮減至約2338億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
+
+---
+
 # 古諮會通過舊贊育醫院主樓及上環廣福祠列為法定古蹟
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm)
-
----
-
-# 港股半日跌158點　汽車股逆市造好
-
-![恒生指數高開後反覆向下，早段最多升約180點，中午報23623點，跌158點，跌幅0.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795388_1_20250312120913.jpg&q=90)
-  
-
-港股高開77點後反覆向下，連跌4日。恒生指數開市後最多升約180點，高見23962點，中午報23623點，跌158點，跌幅0.67%，半日主板成交額逾1362億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm)
 
 ---
