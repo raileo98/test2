@@ -1,3 +1,27 @@
+# QS排名：香港6個學科位居全球前十
+
+![香港有6個學科排名位居全球前10名，包括第2位的港大牙科。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795523_1_20250313100349.jpg&q=85)
+  
+
+國際高等教育資訊機構(QS)最新世界大學學科排名，香港9間院校共257學科上榜，其中63%即181科排名上升，是全球進步最大的地區；另有6科排名位居前10位，較去年增2科，排名最高的繼續為港大牙科，位列第2位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm)
+
+---
+
 # 卡尼明天宣誓就任加國總理　料內閣人數削近半
 
 ![卡尼將在當地星期五宣誓就任加拿大總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795514_1_20250313091515.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
-
----
-
-# 菲律賓警方根據國際刑事法院逮捕令拘捕前總統杜特爾特
-
-![大批警員在機場的入境大堂等候杜特爾特返菲律賓。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795226_1_20250311124328.jpg&q=90)
-  
-
-菲律賓總統辦公室表示，警方對已返抵首都馬尼拉國際機場的前總統杜特爾特，執行國際刑事法院的逮捕令。他已被拘留，健康狀況良好。杜特爾特的前法律顧問表示逮捕是非法，又指警方不容許律師在機場與杜特爾特會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 林緯遜料交流團學生出發前或已染腸胃炎　鄧飛稱現時相關指引足夠
+
+  
+
+先後有三間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。感染及傳染病醫學會會長林緯遜於本台節目《千禧年代》表示，諾如病毒今年在全球多個地點的活躍度明顯增加，有學生於抵步就出現腸胃炎徵狀，他們在香港出發前感染並不出奇，建議如果有學生在旅遊巴上嘔吐，可打開車窗，令空氣對流，盡量保持空氣流通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm)
+
+---
+
 # 韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡
 
 ![韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795511_1_20250313085848.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
-
----
-
-# 外交部：美方徵收港口費等措施損人害己　促立即停止錯誤做法
-
-![毛寧說，徵收港口費等措施損人害己，推高全球的海運成本，擾亂全球產供鏈穩定。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795120_1_20250310163621.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美國正考慮對在中國建造或註冊的船隻徵收港口停靠費時表示，中方敦促美方尊重事實和多邊規則，立即停止錯誤做法，中方將採取必要措施捍衛自身的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm)
 
 ---

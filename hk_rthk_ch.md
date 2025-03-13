@@ -1,3 +1,170 @@
+# 美國企業債與國債利差創近半年高位　市場對經濟衰退憂慮升溫
+
+![美國垃圾級別企業債利差擴大至322點子，創去年9月後新高，反映投資者對持有風險較高的垃圾債意願降低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795522_2_20250313100826.jpg&q=85)
+  
+
+美國企業債與國債孳息率之間的利差創下約6個月高位，又一跡象表明投資者對美國經濟衰退及全球貿易戰的憂慮加深。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm)
+
+---
+
+# QS排名：香港6個學科位居全球前十
+
+![香港有6個學科排名位居全球前10名，包括第2位的港大牙科。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795523_1_20250313100349.jpg&q=85)
+  
+
+國際高等教育資訊機構(QS)最新世界大學學科排名，香港9間院校共257學科上榜，其中63%即181科排名上升，是全球進步最大的地區；另有6科排名位居前10位，較去年增2科，排名最高的繼續為港大牙科，位列第2位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm)
+
+---
+
+# 滬深股市初段微跌
+
+![內地股市早段微跌，上證指數較早時報3369點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795520_1_20250313093736.jpg&q=90)
+  
+
+內地股市早段微跌，上證指數較早時報3369點，跌2點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm)
+
+---
+
+# 人行逆回購操作359億元人民幣　淨回籠686億元
+
+![人行公開市場開展359億元人民幣7天期逆回購操作，單日淨回籠686億元，連續9日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795518_1_20250313092703.jpg&q=80)
+  
+
+人民銀行公開市場開展359億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨回籠686億元，連續9日淨回籠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm)
+
+---
+
+# 林緯遜料交流團學生出發前或已染腸胃炎　鄧飛稱現時相關指引足夠
+
+  
+
+先後有三間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。感染及傳染病醫學會會長林緯遜於本台節目《千禧年代》表示，諾如病毒今年在全球多個地點的活躍度明顯增加，有學生於抵步就出現腸胃炎徵狀，他們在香港出發前感染並不出奇，建議如果有學生在旅遊巴上嘔吐，可打開車窗，令空氣對流，盡量保持空氣流通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm)
+
+---
+
+# 港股競價時段升16點　科指升約0.4%
+
+![恒生指數競價時段報23616點，升16點，升幅0.07%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795516_1_20250313092217.jpg&q=40)
+  
+
+港股輕微高開，恒生指數競價時段報23616點，升16點，升幅0.07%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm)
+
+---
+
+# 人民幣兌美元中間價回落32點子
+
+![人民幣兌美元中間價再度回落，報7.1728兌1美元，較昨日中間價跌32點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795515_1_20250313091801.jpg&q=80)
+  
+
+人民幣兌美元中間價再度回落，報7.1728兌1美元，較昨日中間價跌32點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm)
+
+---
+
 # 卡尼明天宣誓就任加國總理　料內閣人數削近半
 
 ![卡尼將在當地星期五宣誓就任加拿大總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795514_1_20250313091515.jpg&q=80)
@@ -1271,173 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
-
----
-
-# 克宮發言人稱俄方不會於停火30日問題操之過急　要先獲美方信息
-
-![佩斯科夫說在必要情況下，可以快速組織俄美總統會晤。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795450_1_20250312212017.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫說，俄方正認真研究美國與烏克蘭有關俄烏戰事的公布，俄方不會在停火30日的問題上操之過急，首先需要從美方獲取信息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm)
-
----
-
-# 華僑銀行：日本大型企業加薪幅度符合預期　料央行今年或加息兩次
-
-![華僑銀行香港經濟師姜靜認為，日本大型企業加薪幅度符合預期，預期今年將加息兩次，將基準利率從目前的0.5厘上調至1厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795448_1_20250312192459.jpg&q=90)
-  
-
-日本一年一度被稱為「春鬥」的大型企業勞資談判結束，多間大型企業同意工會提出的加薪要求，連續3年大幅加薪。工會要求今年平均加薪6.09%，高於去年的5.85%，為32年來首次突破6%的水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm)
-
----
-
-# 拉加德：貿易和國防等衝擊或加劇歐元區通脹波動
-
-![拉加德稱歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795441_1_20250312175133.jpg&q=90)
-  
-
-歐洲央行總裁拉加德表示，歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動，並加大物價上升更持久的風險。歐洲央行難以就以上因素發出前瞻指引，但必須加倍努力以實現2%的通脹目標，尤其會留意穩定通脹預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm)
-
----
-
-# 國泰：年內突破100個航點大關
-
-![國泰：向合資格員工派發逾10星期工資分享成果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795446_1_20250312190534.jpg&q=90)
-  
-
-國泰航空行政總裁林紹波表示，年內班次及運力會繼續增加，集團經已宣布11個新航點，年內會突破100個航點大關，強調會繼續擴大全球網絡和提升服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
-
----
-
-# 甯漢豪：今年落實措施降低工程建造成本
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795444_1_20250312182911.jpg&q=80)
-  
-
-發展局局長甯漢豪表示，今年會落實具體措施，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm)
-
----
-
-# 中醫醫院公營服務收費料與公立醫院看齊
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795443_1_20250312183326.jpg&q=90)
-  
-
-由浸會大學承辦的香港中醫醫院，預計年底開始投入運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm)
-
----
-
-# 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
-
-![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
-  
-
-央視旗下社交平台「玉淵譚天」引述知情人士報道，沃爾瑪因為要求一些中國供應商大幅降價，企圖將美國對華加徵關稅的負擔，轉嫁給中國供應商和消費者，昨日被商務部等部門約談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
 
 ---

@@ -1,3 +1,123 @@
+# 美國企業債與國債利差創近半年高位　市場對經濟衰退憂慮升溫
+
+![美國垃圾級別企業債利差擴大至322點子，創去年9月後新高，反映投資者對持有風險較高的垃圾債意願降低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795522_2_20250313100826.jpg&q=85)
+  
+
+美國企業債與國債孳息率之間的利差創下約6個月高位，又一跡象表明投資者對美國經濟衰退及全球貿易戰的憂慮加深。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm)
+
+---
+
+# 滬深股市初段微跌
+
+![內地股市早段微跌，上證指數較早時報3369點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795520_1_20250313093736.jpg&q=90)
+  
+
+內地股市早段微跌，上證指數較早時報3369點，跌2點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm)
+
+---
+
+# 人行逆回購操作359億元人民幣　淨回籠686億元
+
+![人行公開市場開展359億元人民幣7天期逆回購操作，單日淨回籠686億元，連續9日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795518_1_20250313092703.jpg&q=80)
+  
+
+人民銀行公開市場開展359億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨回籠686億元，連續9日淨回籠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm)
+
+---
+
+# 港股競價時段升16點　科指升約0.4%
+
+![恒生指數競價時段報23616點，升16點，升幅0.07%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795516_1_20250313092217.jpg&q=40)
+  
+
+港股輕微高開，恒生指數競價時段報23616點，升16點，升幅0.07%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm)
+
+---
+
+# 人民幣兌美元中間價回落32點子
+
+![人民幣兌美元中間價再度回落，報7.1728兌1美元，較昨日中間價跌32點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795515_1_20250313091801.jpg&q=80)
+  
+
+人民幣兌美元中間價再度回落，報7.1728兌1美元，較昨日中間價跌32點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm)
+
+---
+
 # 台股初段升約1%
 
 ![台灣加權指數較早時報22489點，升210點，升幅0.95%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795513_1_20250313090601.jpg&q=90)
@@ -139,6 +259,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm)
+
+---
+
+# 特朗普稱愛爾蘭以稅收等優惠政策搶走美國製藥等公司
+
+![特朗普在白宮會見到訪的愛爾蘭總理馬丁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795497_1_20250313064152.jpg&q=90)
+  
+
+美國總統特朗普在白宮會見到訪的愛爾蘭總理馬丁時，對兩國貿易不平衡表示不滿，稱愛爾蘭「佔美國便宜」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm)
 
 ---
 
@@ -310,6 +454,30 @@
 
 ---
 
+# 特朗普威脅將對歐盟進一步加徵關稅
+
+![特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795483_1_20250313023537.jpg&q=90)
+  
+
+美國對進口鋼鋁徵收25%關稅的措施已經生效，總統特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm)
+
+---
+
 # 招商局置地去年轉蝕18.5億元人民幣
 
 ![招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795477_1_20250312231031.jpg&q=90)
@@ -379,6 +547,31 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm)
+
+---
+
+# 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
+
+![夏寶龍下午在北京會見香港科技大學管理層。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_1_20250312223922.jpg&q=90)
+![夏寶龍說，科大在培養優秀專業人才、推動產學研協同創新等方面，取得優異成績。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_2_20250312223922.jpg&q=90)
+  
+
+中央港澳辦、國務院港澳辦主任夏寶龍，下午在北京會見香港科技大學校董會主席沈向洋、校長葉玉如等人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
 
 ---
 
@@ -1243,197 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
-
----
-
-# 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
-
-![孫玉菡表示，輸入一般勞工的補充勞工優化計劃直至上月底，已批出的廚師有約一萬人，侍應有8500人，洗碗工約有2500人。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795381_1_20250312121348.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡表示，輸入一般勞工的補充勞工優化計劃推行一年半以來，直至上月底，已批出約51000個名額，當中以飲食業最多，佔超過兩萬人，其中廚師有約一萬人，侍應有8500人，洗碗工約有2500人。至於發展局處理輸入建造業的特定行業計劃，有大約12000個申請配額，已批核約9000多個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm)
-
----
-
-# 日股反覆靠穩　半日升逾百點
-
-![日經指數曾高見36956點，半日收報36898點，升105點，升幅0.29%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795375_1_20250312103731.jpg&q=90)
-  
-
-日股反覆向上，但未能突破37000點水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795375-20250312.htm)
-
----
-
-# 下年度公務員司法人員退休金開支預算近520億元　料退休人數升
-
-![公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795374_1_20250312104552.jpg&q=90)
-  
-
-公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元，較修訂預算增加17億2千多萬元 ，主要由於預計會退休的人數上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm)
-
----
-
-# 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795373_1_20250312104203.jpg&q=80)
-  
-
-財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm)
-
----
-
-# 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
-
-![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
-  
-
-中國駐美大使謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。他說，「極限施壓註定撞上南牆」，打關稅戰、貿易戰損人更害己，禁限投資如同殺雞取卵，「以台制華」只會引火焚身，又指「外資撤離中國論」宣告破產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
-
----
-
-# 植田和男：長期利率取決於市場對經濟及物價走勢看法
-
-![植田和男表示，長期利率變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795363_1_20250312091557.jpg&q=90)
-  
-
-日本央行總裁植田和男在國會回答質詢時表示，自去年以來，長期利率出現上升趨勢，長息變動取決於市場，反映市場對經濟及物價走勢、海外利率變化看法。他又說，不認為央行與市場看法存在很大分歧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795363-20250312.htm)
-
----
-
-# 人行逆回購1754億元人民幣　淨回籠規模增至逾千億元
-
-![人行公開市場開展1754億元人民幣7天期逆回購，單日淨回籠規模增至1778億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795368_1_20250312092738.jpg&q=75)
-  
-
-人民銀行公開市場開展1754億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，公開市場單日淨回籠1778億元，連續8日淨回籠，規模遠多於前兩日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795368-20250312.htm)
-
----
-
-# 滬深股市偏軟
-
-![內地股市初段偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795369_1_20250312093830.jpg&q=90)
-  
-
-滬深股市偏軟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm)
 
 ---
