@@ -1,3 +1,27 @@
+# 港交所已於去年實現碳中和
+
+![香港交易所宣布去年已實現碳中和，是交易所氣候行動重要里程碑，亦為香港上市公司樹立重要榜樣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795579_1_20250313170636.jpg&q=90)
+  
+
+香港交易所宣布，已於去年實現碳中和，是交易所氣候行動重要里程碑，兌現推動全球淨零轉型的承諾，為香港上市公司樹立重要榜樣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm)
+
+---
+
 # 人民幣兌美元收市微升
 
 ![人民幣收市報7.2427兌1美元，較上日收市升18點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795580_1_20250313171256.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
-
----
-
-# 工行設立800億元人民幣科技創新基金　加大支持硬科技及民企
-
-![工行設立800億元人民幣科技創新基金，持續加大對硬科技、民營經濟支持。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795423_1_20250312155243.jpg&q=90)
-  
-
-工商銀行表示，設立總規模達800億元人民幣科技創新基金，將定位為「耐心資本」，以股為主、股債貸保聯動，持續加大對硬科技、民營經濟支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm)
 
 ---

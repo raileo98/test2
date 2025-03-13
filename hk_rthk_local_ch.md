@@ -1,3 +1,27 @@
+# 港交所已於去年實現碳中和
+
+![香港交易所宣布去年已實現碳中和，是交易所氣候行動重要里程碑，亦為香港上市公司樹立重要榜樣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795579_1_20250313170636.jpg&q=90)
+  
+
+香港交易所宣布，已於去年實現碳中和，是交易所氣候行動重要里程碑，兌現推動全球淨零轉型的承諾，為香港上市公司樹立重要榜樣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm)
+
+---
+
 # 恒指低收137點　連跌5日　科指跌近2%
 
 ![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm)
-
----
-
-# 口岸爆炸案辯方質疑當年技術能否擷取不同型號手機通訊群組資料
-
-![口岸爆炸案，高等法院踏入第68天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795391_2_20250313095943.jpg&q=90)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第68天審訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795391-20250312.htm)
 
 ---
