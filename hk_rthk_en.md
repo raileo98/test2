@@ -1,3 +1,27 @@
+# Pro-Palestinian protesters fill NY's Trump Tower
+
+![Police officers detain a protester inside Trump Tower during a rally against the ICE detention of Palestinian activist and Columbia University graduate student Mahmoud Khalil. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795650_1_20250314053853.jpg&q=90)
+  
+
+Scores of people poured into the lobby of Trump Tower in New York City on Thursday to protest the arrest and detention of Columbia University student Mahmoud Khalil, whom the Trump administration aims to deport over his pro-Palestinian activism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm)
+
+---
+
 # Putin agrees to ceasefire but raises 'questions'
 
 ![Putin makes his first comments on the plan, saying he's "for" the proposed ceasefire, but he has "serious questions" about how it would work. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795644_1_20250314025202.jpg&q=90)
@@ -1415,29 +1439,5 @@ Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
-
----
-
-# US stocks finish lower after volatile trading day
-
-![Days of back-and-forth on tariff hikes against some of the United States' closest trading partners have worn heavily on markets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795347_1_20250312061323.jpg&q=90)
-  
-
-Wall Street stocks finished lower on Tuesday on uncertainty surrounding President Donald Trump's tariff threats, just one day after taking a dramatic plunge on the back of recession fears.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
 
 ---

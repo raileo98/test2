@@ -1,3 +1,27 @@
+# 國際刑事法院稱杜特爾特將於周五首次出庭
+
+![國際刑事法院表示，菲律賓前總統杜特爾特將於星期五首次出庭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795649_1_20250314053630.jpg&q=90)
+  
+
+國際刑事法院表示，菲律賓前總統杜特爾特將於星期五首次出庭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm)
+
+---
+
 # 特朗普認為吞併格陵蘭是會發生　格陵蘭自治政府總理稱已受夠
 
 ![特朗普在白宮與北約秘書長呂特會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795648_1_20250314043951.jpg&q=90)
@@ -1417,29 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm)
-
----
-
-# 周大福公布首席財務官變動　優化財務領導架構
-
-![周大福珠寶宣布，葉家盈4月1日起接任首席財務官，鄭炳熙專注於策略監督，優化財務領導架構。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795582_1_20250313172523.jpg&q=90)
-  
-
-周大福珠寶宣布，鄭炳熙將於4月1日起卸任首席財務官職務，由葉家盈接任。鄭炳熙仍繼續擔任執行董事、聯席公司秘書，及策略和改革委員會成員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm)
 
 ---
