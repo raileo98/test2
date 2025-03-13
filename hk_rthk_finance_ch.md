@@ -1,3 +1,27 @@
+# 丘應樺稱孤立主義和保護主義帶來不確定性　互相合作尤其重要
+
+![投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺在酒會致歡迎辭。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795609_1_20250313201128.jpg&q=80)
+  
+
+投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺致辭時表示，香港與伊比利亞美洲的經濟體已建立密切聯繫，雙方貨物貿易總值在去年錄得14.4%的強勁增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm)
+
+---
+
 # 實德環球料去年度綜合溢利按年減少約4至5成
 
 ![實德環球預計去年度綜合溢利按年減少最多一半。圖為集團旗艦投資項目十六浦。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795600_1_20250313190739.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
-
----
-
-# 華僑銀行：日本大型企業加薪幅度符合預期　料央行今年或加息兩次
-
-![華僑銀行香港經濟師姜靜認為，日本大型企業加薪幅度符合預期，預期今年將加息兩次，將基準利率從目前的0.5厘上調至1厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795448_1_20250312192459.jpg&q=90)
-  
-
-日本一年一度被稱為「春鬥」的大型企業勞資談判結束，多間大型企業同意工會提出的加薪要求，連續3年大幅加薪。工會要求今年平均加薪6.09%，高於去年的5.85%，為32年來首次突破6%的水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm)
 
 ---

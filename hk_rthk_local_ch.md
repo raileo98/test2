@@ -1,3 +1,75 @@
+# O．PARK1廚餘儲存缸滲漏須維修　服務由O．PARK2處理
+
+![環保署說，會因應O．PARK1維修工作的進展及最新情況，主動聯絡受影響的廚餘生產者及運送者，確保相關廚餘運送工作繼續有序進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795610_1_20250313201348.jpg&q=90)
+  
+
+環保署表示，位於大嶼山小蠔灣的有機資源回收中心第一期O．PARK1，一個廚餘儲存缸出現滲漏，需要緊急維修。現時O．PARK1需暫停接收廚餘，相關廚餘會由其他設施接收和處理，包括位於北區沙嶺的有機資源回收中心第二期O．PARK2。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm)
+
+---
+
+# 丘應樺稱孤立主義和保護主義帶來不確定性　互相合作尤其重要
+
+![投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺在酒會致歡迎辭。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795609_1_20250313201128.jpg&q=80)
+  
+
+投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺致辭時表示，香港與伊比利亞美洲的經濟體已建立密切聯繫，雙方貨物貿易總值在去年錄得14.4%的強勁增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm)
+
+---
+
+# 兩款源自法國樽裝果醬及塗抹醬產品或含霉菌須回收
+
+![兩款源自法國的樽裝果醬及塗抹醬產品可能含霉菌，食物安全中心呼籲市民不要食用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795608_1_20250313201453.jpg&q=80)
+  
+
+食物安全中心呼籲市民不要食用兩款源自法國的樽裝果醬及塗抹醬產品，因為可能含霉菌。業界如持有受影響批次的產品，應立即停止使用或出售。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm)
+
+---
+
 # 機場東消防局舉行開幕典禮　機場4消防局與洗消救援設施全面運作
 
 ![為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_1_20250313193819.jpg&q=90)
@@ -1373,77 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm)
-
----
-
-# 涉多區公園後巷盜取銅水管轉售　警方拘5人渉22宗案件
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795431_1_20250312170829.jpg&q=90)
-  
-
-警方昨日拘捕5人，涉嫌在多區盜取銅水管，總值超過1百萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795431-20250312.htm)
-
----
-
-# 恒指低收181點　連跌4日　科指跌2%
-
-![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
-  
-
-港股先高後低，連跌4個交易日。恒生指數早段曾升180點，高見23962點，尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，全日主板成交額近2785億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
-
----
-
-# 警方瓦解家庭式販毒集團拘4名非華裔男女　檢逾千萬元毒品
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795426_1_20250312161246.jpg&q=80)
-  
-
-警方拘捕4名非華裔男女，涉嫌「販運危險藥物」、「非法入境」等，檢獲約24公斤的懷疑海洛英、氯胺酮、冰毒、大麻花及搖頭丸，市值超過1400萬元。警方相信已經瓦解一個家庭式經營的販毒集團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm)
 
 ---

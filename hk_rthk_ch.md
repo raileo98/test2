@@ -1,3 +1,75 @@
+# O．PARK1廚餘儲存缸滲漏須維修　服務由O．PARK2處理
+
+![環保署說，會因應O．PARK1維修工作的進展及最新情況，主動聯絡受影響的廚餘生產者及運送者，確保相關廚餘運送工作繼續有序進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795610_1_20250313201348.jpg&q=90)
+  
+
+環保署表示，位於大嶼山小蠔灣的有機資源回收中心第一期O．PARK1，一個廚餘儲存缸出現滲漏，需要緊急維修。現時O．PARK1需暫停接收廚餘，相關廚餘會由其他設施接收和處理，包括位於北區沙嶺的有機資源回收中心第二期O．PARK2。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm)
+
+---
+
+# 丘應樺稱孤立主義和保護主義帶來不確定性　互相合作尤其重要
+
+![投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺在酒會致歡迎辭。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795609_1_20250313201128.jpg&q=80)
+  
+
+投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺致辭時表示，香港與伊比利亞美洲的經濟體已建立密切聯繫，雙方貨物貿易總值在去年錄得14.4%的強勁增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm)
+
+---
+
+# 兩款源自法國樽裝果醬及塗抹醬產品或含霉菌須回收
+
+![兩款源自法國的樽裝果醬及塗抹醬產品可能含霉菌，食物安全中心呼籲市民不要食用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795608_1_20250313201453.jpg&q=80)
+  
+
+食物安全中心呼籲市民不要食用兩款源自法國的樽裝果醬及塗抹醬產品，因為可能含霉菌。業界如持有受影響批次的產品，應立即停止使用或出售。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm)
+
+---
+
 # 美國中東問題特使抵莫斯科　討論俄烏臨時停火30日建議
 
 ![美國中東問題特使威特科夫將與俄方討論美國提出俄烏臨時停火30日的建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795607_1_20250313195204.jpg&q=90)
