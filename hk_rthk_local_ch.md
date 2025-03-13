@@ -1,3 +1,26 @@
+# 當局擬修訂實務守則　自用配子或胚胎儲存期法律限制擬予以取消
+
+  
+
+人類生殖科技管理局就《生殖科技及胚胎研究實務守則》的建議修訂諮詢持份者，初步建議包括有關供儲自用的配子或胚胎的儲存期法律限制，不論儲存者的性別、年齡、醫學情況，均予以取消。管理局修訂相應執行措施，同時確保市民在無醫學原因的情況下進行非必要及長期的配子或胚胎儲存前，充分了解醫療風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm)
+
+---
+
 # 西九龍公路近奧海城對開輕型貨車撞消防車　貨車司機送院後不治
 
   
@@ -115,6 +138,7 @@
 
 # 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_1_20250313152706.jpg&q=85)
   
 
 香港花卉展明日起至本月23日在維園舉行，今年主題花是秋英，以「綻放英姿」為主題，估計入場人次與往年相若，有約65萬人次，當中約5%至10%是遊客。康文署預算整體開支較去年少，約5000萬元。
@@ -1405,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm)
-
----
-
-# 陳虹秀暴動罪成　孫玉菡相信社工註冊局法依處理社工續牌申請
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795378_1_20250312105003.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡表示，社工的註冊或續期需要跟隨《社會工作者註冊條例》要求，條例訂明如果犯上指明罪行，社工註冊局要按法律要求要履行職責，相信註冊局會依法依規處理續牌申請，包括被裁定暴動罪成的陳虹秀，若法律上有要求不給予續牌，要跟法律做。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm)
 
 ---
