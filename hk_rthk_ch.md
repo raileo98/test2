@@ -1,3 +1,27 @@
+# 周大福：優化財務領導架構　鄭炳熙下月卸任首席財務官
+
+![周大福珠寶宣布，鄭炳熙4月1日起卸任首席財務官，以專注於策略監督，優化財務領導架構。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795582_1_20250313172523.jpg&q=90)
+  
+
+周大福珠寶宣布，鄭炳熙將於4月1日起卸任首席財務官職務，但仍繼續擔任執行董事、聯席公司秘書，及策略和改革委員會成員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm)
+
+---
+
 # 港交所已於去年實現碳中和
 
 ![香港交易所宣布去年已實現碳中和，是交易所氣候行動重要里程碑，亦為香港上市公司樹立重要榜樣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795579_1_20250313170636.jpg&q=90)

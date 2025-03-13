@@ -1,3 +1,27 @@
+# HK stocks end in the red for fifth consecutive day
+
+![Local stocks give up  0.58 percent on Thursday. (File Photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795583_1_20250313175018.jpg&q=75)
+  
+
+Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.58 percent to close at 23,462.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm)
+
+---
+
 # Cryopreservation break in works for cancer patients
 
 ![The Council on Human Reproductive Technology is suggesting people be allowed to store gametes or embryos for as long as they want. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_2_20250313170514.jpg&q=90)
@@ -1414,29 +1438,5 @@ The Centre for Health Protection (CHP) on Tuesday said it is investigating a clu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm)
-
----
-
-# South Africa bus crash toll climbs to 16
-
-![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=75)
-  
-
-A bus overturned in an area of Johannesburg near South Africa's main airport early on Tuesday, killing at least 16 people, city officials said, with dozens more injured.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm)
 
 ---

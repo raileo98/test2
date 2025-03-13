@@ -1,3 +1,27 @@
+# HK stocks end in the red for fifth consecutive day
+
+![Local stocks give up  0.58 percent on Thursday. (File Photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795583_1_20250313175018.jpg&q=75)
+  
+
+Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.58 percent to close at 23,462.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm)
+
+---
+
 # Intel hires Malaysian veteran to head reboot
 
 ![Tan Lip Bu rejoins Intel as chief executive on Tuesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795538_1_20250313134923.jpg&q=90)
@@ -1411,29 +1435,5 @@ Wall Street stocks tumbled on Thursday, extending a rough period as disappointme
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm)
-
----
-
-# 'SAR debt still at very manageable level'
-
-![Christopher Hui says the ratio of government debt to GDP is less than 17 percent. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793524_1_20250227181644.jpg&q=80)
-  
-
-The Secretary for Financial Services and the Treasury Christopher Hui said the SAR's debt is still "at a very manageable level", and that the government has maintained close contact with global credit rating agencies relating to its financial position.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
 
 ---
