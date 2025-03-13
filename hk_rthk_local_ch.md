@@ -1,3 +1,26 @@
+# 中大醫學院研發技術助更準確分辨患鼻咽癌高風險人士可提高存活率
+
+  
+
+中大醫學院團隊的研究發現，透過次世代DNA測序技術，可成功識別出一系列鼻咽癌癌细胞釋放的血漿EB病毒DNA分子特徵，有助更準確分辨患鼻咽癌的高風險人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm)
+
+---
+
 # 本港大學共6科列十大　QS指香港的大學續保持世界領先地位
 
   
@@ -1414,29 +1437,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm)
-
----
-
-# 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
-
-![公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795409_1_20250312150209.jpg&q=80)
-  
-
-個人資料私隱專員公署表示，外賣平台「戶戶送」宣布將會結束香港業務，事件可能影響客戶及送遞員在個人資料私隱方面的權益。公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶，包括接手業務的營運者，以符合《私隱條例》的規定處理、刪除或轉移客戶及送遞員的個人資料，確保客戶及送遞員的個人資料不會被濫用、外洩或流入不法分子手中，被用作詐騙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
 
 ---
