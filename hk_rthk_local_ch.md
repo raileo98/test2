@@ -1,7 +1,34 @@
-# 教育局稱天主教博智小學和鴨脷洲街坊學校今年「派0班」
+# 一名詐騙集團女主腦承認洗黑錢及串謀詐騙　判囚48個月
 
-![教育局表示，2025年度小一派位下，有兩所資助小學未能獲批開辦資助小一班級，分別為黃大仙區的天主教博智小學和南區的鴨脷洲街坊學校。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795613_1_20250313211005.jpg&q=80)
+![22歲詐騙集團女主腦，在區域法院判監48個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795617_1_20250313212536.jpg&q=90)
   
+
+一名假冒PayMe職員的22歲詐騙集團女主腦，在區域法院判監48個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm)
+
+---
+
+# 新學年兩小學獲「派0班」包括天主教博智小學和鴨脷洲街坊學校
+
+![教育局表示，2025年度小一派位下，有兩所資助小學未能獲批開辦資助小一班級，分別為黃大仙區的天主教博智小學和南區的鴨脷洲街坊學校。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795613_2_20250313212255.jpg&q=90)
+  
+
+教育局表示，2025/26學年有兩間小學獲派的學生人數少於16人，未能獲資助開辦小一，分別是黃大仙的天主教博智小學，及南區的鴨脷洲街坊學校。
+
   
 
 
@@ -1419,29 +1446,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm)
-
----
-
-# 教育局修訂「派0班」小學發展規劃　取消特別視學安排
-
-![教育局表示，預計未來學額和學校數目會隨學齡人口變化相應減少，將採取「軟著陸」策略，適度有序地減少學校數目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795437_1_20250312181038.jpg&q=80)
-  
-
-教育局表示，預計2025至2031年6歲小一適齡人口將會由48600名降至37500名，學齡人口結構性下降的趨勢將繼續維持，就「派0班」的小學發展規劃作修訂，取消特別視學安排，方案選項由4個減至3個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm)
 
 ---

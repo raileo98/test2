@@ -1,3 +1,51 @@
+# 外管局：加強外匯市場逆周期調節　保持人民幣匯率基本穩定
+
+![外匯管理局表示，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795619_1_20250313212922.jpg&q=85)
+  
+
+國家外匯管理局召開黨組擴大會議指出，今年要防範外部風險衝擊，完善跨境資金流動監測預警體系，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定，維護國際收支基本平衡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm)
+
+---
+
+# 金管總局：今年加快制定與房地產發展新模式相適應融資制度出台
+
+![國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，堅決做好保交房工作。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795618_1_20250313212344.jpg&q=80)
+  
+
+國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，持續推進城市房地產融資協調機制擴圍增效，堅決做好保交房工作；並推出有針對性的金融支持措施，助力實施提振消費專項行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm)
+
+---
+
 # 何厚鏵：愛國力量要堅定支持行政長官和特區依法施政
 
 ![何厚鏵在全國兩會精神傳達會上表示，作為澳門愛團力量，政治站位要高一點。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_1_20250313202151.jpg&q=90)
@@ -1394,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm)
-
----
-
-# 全國兩會｜李登海稱習近平講話提出民營經濟遵循原則增強民企信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795199_1_20250311085216.jpg&q=90)
-  
-
-國家主席習近平上月在北京出席民營企業座談會，並發表重要講話，有超過30名民企代表參與，當中包括山東登海種業公司名譽董事長李登海。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795199-20250311.htm)
-
----
-
-# 美媒指中美正就元首會晤前期磋商　形容若成事將是「生日峰會」
-
-![報道形容若會面成事將會是「生日峰會」，因為兩國元首都是在6月出生。 圖為習近平與特朗普幾年前會面的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795201_1_20250311090032.jpg&q=90)
-  
-
-美國華爾街日報引述知情人士報道，北京與華盛頓方面正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
 
 ---

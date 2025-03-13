@@ -1,3 +1,75 @@
+# 外管局：加強外匯市場逆周期調節　保持人民幣匯率基本穩定
+
+![外匯管理局表示，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795619_1_20250313212922.jpg&q=85)
+  
+
+國家外匯管理局召開黨組擴大會議指出，今年要防範外部風險衝擊，完善跨境資金流動監測預警體系，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定，維護國際收支基本平衡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm)
+
+---
+
+# 金管總局：今年加快制定與房地產發展新模式相適應融資制度出台
+
+![國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，堅決做好保交房工作。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795618_1_20250313212344.jpg&q=80)
+  
+
+國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，持續推進城市房地產融資協調機制擴圍增效，堅決做好保交房工作；並推出有針對性的金融支持措施，助力實施提振消費專項行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm)
+
+---
+
+# 一名詐騙集團女主腦承認洗黑錢及串謀詐騙　判囚48個月
+
+![22歲詐騙集團女主腦，在區域法院判監48個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795617_1_20250313212536.jpg&q=90)
+  
+
+一名假冒PayMe職員的22歲詐騙集團女主腦，在區域法院判監48個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm)
+
+---
+
 # 美國上周首次申領失業救濟人數減至22萬人　少過預期
 
 ![美國上星期首次申領失業救濟人數按星期減少2000人，減至22萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795616_1_20250313211429.jpg&q=90)
@@ -70,10 +142,13 @@
 
 ---
 
-# 教育局稱天主教博智小學和鴨脷洲街坊學校今年「派0班」
+# 新學年兩小學獲「派0班」包括天主教博智小學和鴨脷洲街坊學校
 
-![教育局表示，2025年度小一派位下，有兩所資助小學未能獲批開辦資助小一班級，分別為黃大仙區的天主教博智小學和南區的鴨脷洲街坊學校。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795613_1_20250313211005.jpg&q=80)
+![教育局表示，2025年度小一派位下，有兩所資助小學未能獲批開辦資助小一班級，分別為黃大仙區的天主教博智小學和南區的鴨脷洲街坊學校。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795613_2_20250313212255.jpg&q=90)
   
+
+教育局表示，2025/26學年有兩間小學獲派的學生人數少於16人，未能獲資助開辦小一，分別是黃大仙的天主教博智小學，及南區的鴨脷洲街坊學校。
+
   
 
 
