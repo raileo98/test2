@@ -1,3 +1,27 @@
+# 'Students may have contracted gastroenteritis in HK'
+
+![Dr Wilson Lam says hand sanitisers are ineffective in dealing with norovirus. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795536_1_20250313121837.jpg&q=90)
+  
+
+The chairman of the Hong Kong Society for Infectious Diseases on Thursday said it would "not be surprising" if some students might have already caught norovirus – which can cause gastroenteritis – before departing for an exchange trip on the mainland.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm)
+
+---
+
 # Eateries related to gastroenteritis cluster banned
 
 ![More than 50 students and teachers contracted gastroenteritis after dining at the same restaurants during an exchange trip in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795473_1_20250312224524.jpg&q=80)
@@ -1412,29 +1436,5 @@ A Beijing official on Friday said that it'll be the right thing to do to keep im
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
-
----
-
-# 'Let's bring key international events to Kai Tak'
-
-![Liu Guoliang says this year's World Table Tennis finals may be held in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794723_2_20250307131416.jpg&q=90)
-  
-
-The Kai Tak Sports Park will promote sports development and exchanges between Hong Kong and the mainland, according to senior Chinese sports officials attending the "Two Sessions" in Beijing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
 
 ---

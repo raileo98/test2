@@ -1,3 +1,51 @@
+# 'Students may have contracted gastroenteritis in HK'
+
+![Dr Wilson Lam says hand sanitisers are ineffective in dealing with norovirus. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795536_1_20250313121837.jpg&q=90)
+  
+
+The chairman of the Hong Kong Society for Infectious Diseases on Thursday said it would "not be surprising" if some students might have already caught norovirus – which can cause gastroenteritis – before departing for an exchange trip on the mainland.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm)
+
+---
+
+# Intel hires Malaysian veteran to head reboot
+
+![Tan Lip Bu returns to Intel as chief executive on Tuesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795538_1_20250313124518.jpg&q=90)
+  
+
+Struggling chipmaker Intel has hired former board member and semiconductor industry veteran Tan Lip Bu as the latest in a succession of chief executives to attempt to turn around a once-dominant company that helped define Silicon Valley.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm)
+
+---
+
 # Two air force pilots charged over S Korea bombing
 
 ![Officials inspect an area with damaged buildings in the aftermath of the accidental bombing in Pocheon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795521_1_20250313095556.jpg&q=80)
@@ -1390,53 +1438,5 @@ The third annual session of the 14th National People’s Congress (NPC) conclude
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm)
-
----
-
-# Beijing hopes for 'just solution' to Ukraine war
-
-![Foreign Ministry spokeswoman Mao Ning says China supports all efforts that contribute to a peaceful resolution of the Ukraine crisis. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795258_1_20250311160751.jpg&q=90)
-  
-
-China said on Tuesday it hoped a "just and lasting solution" can be found to the three-year war between Ukraine and Russia, ahead of talks that will involve Ukrainian and US officials in Saudi Arabia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm)
-
----
-
-# Arab nations condemn Israel's Gaza electricity cut
-
-![The Southern Gaza Desalination plant has stopped working after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795253_1_20250311152458.jpg&q=80)
-  
-
-Saudi Arabia, Qatar and Jordan on Tuesday condemned Israel's decision to cut electricity supply to the war-battered Gaza Strip, calling in separate statements for the international community to take action.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm)
 
 ---

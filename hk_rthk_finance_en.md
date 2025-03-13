@@ -1,3 +1,27 @@
+# Intel hires Malaysian veteran to head reboot
+
+![Tan Lip Bu returns to Intel as chief executive on Tuesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795538_1_20250313124518.jpg&q=90)
+  
+
+Struggling chipmaker Intel has hired former board member and semiconductor industry veteran Tan Lip Bu as the latest in a succession of chief executives to attempt to turn around a once-dominant company that helped define Silicon Valley.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm)
+
+---
+
 # Hong Kong stocks open flat in early trading
 
 ![The Hang Seng Index rose 0.07 percent at the starting of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795517_1_20250313101303.jpg&q=75)
@@ -1411,29 +1435,5 @@ The Secretary for Financial Services and the Treasury Christopher Hui said the S
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793524-20250227.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.3 percent at 23,718. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793499_1_20250227170354.jpg&q=75)
-  
-
-Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.3 percent at 23,718.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793499-20250227.htm)
 
 ---
