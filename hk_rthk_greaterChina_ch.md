@@ -1,3 +1,27 @@
+# 張國清在河北雄安新區調研　強調國資央企積極參與雄安新區建設
+
+![張國清在河北雄安新區調研。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795620_1_20250313214333.jpg&q=90)
+  
+
+中共中央政治局委員、國務院副總理張國清在河北調研中央企業支持雄安新區建設發展有關工作。他強調，要深入貫徹習近平總書記關於高標準高質量推進雄安新區建設的重要講話精神，落實黨中央、國務院決策部署，充分發揮中央企業獨特優勢作用，以更大力度、更實舉措支持雄安新區高標準規劃建設、高質量發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm)
+
+---
+
 # 外管局：加強外匯市場逆周期調節　保持人民幣匯率基本穩定
 
 ![外匯管理局表示，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795619_1_20250313212922.jpg&q=85)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm)
-
----
-
-# 全國兩會｜十四屆全國人大三次會議下午閉幕
-
-![為期七天的十四屆全國人大三次會議今日下午閉幕。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795204_2_20250311094947.jpg&q=75)
-  
-
-為期七天的十四屆全國人大三次會議今日下午閉幕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795204-20250311.htm)
 
 ---

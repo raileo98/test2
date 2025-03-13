@@ -1,3 +1,27 @@
+# 張國清在河北雄安新區調研　強調國資央企積極參與雄安新區建設
+
+![張國清在河北雄安新區調研。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795620_1_20250313214333.jpg&q=90)
+  
+
+中共中央政治局委員、國務院副總理張國清在河北調研中央企業支持雄安新區建設發展有關工作。他強調，要深入貫徹習近平總書記關於高標準高質量推進雄安新區建設的重要講話精神，落實黨中央、國務院決策部署，充分發揮中央企業獨特優勢作用，以更大力度、更實舉措支持雄安新區高標準規劃建設、高質量發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm)
+
+---
+
 # 外管局：加強外匯市場逆周期調節　保持人民幣匯率基本穩定
 
 ![外匯管理局表示，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795619_1_20250313212922.jpg&q=85)
@@ -386,7 +410,7 @@
 
 # 羅淑佩稱透過舉辦文化藝術表演活動　吸引遊客並促進文化旅遊融合
 
-![羅淑佩出席M+博物館的畢加索作品展覽，她說，當局希望透過舉辦國際文化藝術展覽和表演活動，吸引遊客，促進文化和旅遊業融合。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795604_1_20250313202949.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795604_1_20250313202949.jpg&q=90)
   
 
 文化體育及旅遊局長羅淑佩表示，香港今個月舉行多場盛事，除了啟德體育園開幕典禮，亦舉辦了世界格蘭披治桌球大獎賽、LIV Golf 香港站賽事，吸引全球各地參賽者和遊客來港，之後亦會有ComplexCon、Art Central、巴塞爾藝術展、香港國際七人欖球賽等。
