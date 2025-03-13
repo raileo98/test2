@@ -1,3 +1,27 @@
+# 太古地產去年收入下跌2%
+
+![太古地產去年內地投資物業租金收入升7%，零售物業租金收入升7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795548_1_20250313133600.jpg&q=90)
+  
+
+太古地產去年收入144.28億元，按年下跌2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm)
+
+---
+
 # 港股下午初段跌約200點
 
 ![恒生指數較早時報23418點，跌181點，跌幅0.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795547_1_20250313130455.jpg&q=10)
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm)
-
----
-
-# 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
-
-![夏寶龍下午在北京會見香港科技大學管理層。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_1_20250312223922.jpg&q=90)
-![夏寶龍說，科大在培養優秀專業人才、推動產學研協同創新等方面，取得優異成績。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_2_20250312223922.jpg&q=90)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍，下午在北京會見香港科技大學校董會主席沈向洋、校長葉玉如等人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
 
 ---

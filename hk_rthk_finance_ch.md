@@ -1,3 +1,27 @@
+# 太古地產去年收入下跌2%
+
+![太古地產去年內地投資物業租金收入升7%，零售物業租金收入升7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795548_1_20250313133600.jpg&q=90)
+  
+
+太古地產去年收入144.28億元，按年下跌2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm)
+
+---
+
 # 港股下午初段跌約200點
 
 ![恒生指數較早時報23418點，跌181點，跌幅0.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795547_1_20250313130455.jpg&q=10)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm)
-
----
-
-# 分析指美國經濟硬著陸風險未見急升　料今年中開始減息
-
-![投資者預料聯儲局5月減息機會升至近一半，估計年內有機會減息3次，每次0.25厘。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795405_1_20250312134223.jpg&q=75)
-  
-
-美國勞工統計局公布，1月職位空缺774萬個，多於預期；上周五公布的2月非農業新增職位亦較預期少，市場擔心數據反映經濟正步入衰退。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795405-20250312.htm)
 
 ---
