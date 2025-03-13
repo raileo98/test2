@@ -1,3 +1,27 @@
+# Student activist fights his deportation from the US
+
+![Pro-Palestinian protestors rally in support of Mahmoud Khalil outside of court in New York. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795530_1_20250313114045.jpg&q=85)
+  
+
+A US judge on Wednesday extended his order blocking federal authorities from deporting a detained Columbia University student, in a case that has become a flashpoint of the Trump administration's pledge to deport some pro-Palestinian college activists.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm)
+
+---
+
 # China, EU vow countermeasures against US steel tariffs
 
 ![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
@@ -1411,29 +1435,5 @@ EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in B
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm)
-
----
-
-# Trump sends new warning to Hamas over Gaza hostages
-
-![The US President's warning came hours after his administration revealed it held unprecedented direct talks with Hamas, focused on American hostages. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794601_1_20250306185235.jpg&q=90)
-  
-
-Hamas said on Thursday that Donald Trump's threats would encourage Israel to disregard the fragile ceasefire, after the US president said that unless hostages are freed, the people of Gaza would be "DEAD".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794601-20250306.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Macau girl injured in Taiwan mall blast dies
+
+![The suspected gas explosion on February 13 hit the food court of the Shin Kong Mitsukoshi department store in Taichung. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795531_1_20250313114111.jpg&q=90)
+  
+
+Macau health authorities on Thursday said that a two-year-old girl from the SAR who was seriously injured in a shopping mall blast in Taichung has died.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm)
+
+---
+
 # China, EU vow countermeasures against US steel tariffs
 
 ![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
@@ -1413,29 +1437,5 @@ Premier Li Qiang on Wednesday said Beijing would continue to fully implement the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794323-20250305.htm)
-
----
-
-# China to foster more breakthroughs in technology
-
-![China will work to combine digital technologies with its manufacturing and market strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794321_1_20250305102235.jpg&q=90)
-  
-
-China on Wednesday said it will boost support for the application of AI models to foster more breakthroughs in technology.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794321-20250305.htm)
 
 ---
