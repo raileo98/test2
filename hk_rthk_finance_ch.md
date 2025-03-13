@@ -1,3 +1,27 @@
+# 美國2月最終需求PPI及核心指數按年增速放緩
+
+![美國2月最終需求生產物價指數(PPI)及核心PPI，分別按年升3.2%和3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795614_1_20250313210514.jpg&q=85)
+  
+
+美國2月反映上游成本的最終需求生產物價指數(PPI)及核心PPI，按年升幅都由1月所創的近兩年高位放緩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm)
+
+---
+
 # 丘應樺稱孤立主義和保護主義帶來不確定性　互相合作尤其重要
 
 ![投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺在酒會致歡迎辭。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795609_1_20250313201128.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm)
-
----
-
-# 去年詐騙案逾4.4萬宗　金管局推新一輪防騙公眾教育短片
-
-![短片中騙徒「嗱喳蕉」外表善良可愛，一旦得逞便露出猙獰面目，騙取市民信任和金錢。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795449_1_20250312201311.jpg&q=90)
-  
-
-金管局今日推出新一輪「撳LINK中『蕉』」防騙公眾教育短片系列，以誇張手法呈現騙徒真面目，提醒市民時刻警惕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
 
 ---

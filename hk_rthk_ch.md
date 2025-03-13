@@ -1,3 +1,72 @@
+# 特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅
+
+![特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795615_1_20250313211302.jpg&q=90)
+  
+
+美國總統特朗普威脅，會對來自歐盟的葡萄酒、香檳及酒精產品徵收200%關稅，除非歐盟停止向美國威士忌徵收50%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm)
+
+---
+
+# 美國2月最終需求PPI及核心指數按年增速放緩
+
+![美國2月最終需求生產物價指數(PPI)及核心PPI，分別按年升3.2%和3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795614_1_20250313210514.jpg&q=85)
+  
+
+美國2月反映上游成本的最終需求生產物價指數(PPI)及核心PPI，按年升幅都由1月所創的近兩年高位放緩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm)
+
+---
+
+# 教育局稱天主教博智小學和鴨脷洲街坊學校今年「派0班」
+
+![教育局表示，2025年度小一派位下，有兩所資助小學未能獲批開辦資助小一班級，分別為黃大仙區的天主教博智小學和南區的鴨脷洲街坊學校。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795613_1_20250313211005.jpg&q=80)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795613-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795613-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795613-20250313.htm)
+
+---
+
 # 工貿署優化兩項支援中小企基金　鼓勵提升競爭力爭取外地市場
 
 ![簡稱「BUD專項基金」的「發展品牌、升級轉型及拓展內銷市場專項基金」，將由現時每間企業每6個月只可遞交一項申請，放寬至每3個月可遞交一項。（「BUD專項基金」網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795612_1_20250313205234.jpg&q=90)

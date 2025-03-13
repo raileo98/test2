@@ -1,3 +1,27 @@
+# 特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅
+
+![特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795615_1_20250313211302.jpg&q=90)
+  
+
+美國總統特朗普威脅，會對來自歐盟的葡萄酒、香檳及酒精產品徵收200%關稅，除非歐盟停止向美國威士忌徵收50%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm)
+
+---
+
 # 美國中東問題特使抵莫斯科　討論俄烏臨時停火30日建議
 
 ![美國中東問題特使威特科夫將與俄方討論美國提出俄烏臨時停火30日的建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795607_1_20250313195204.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm)
-
----
-
-# 李強向奧地利新任總理施托克爾致賀電
-
-![李強表示，奧地利是中國在歐洲的重要夥伴。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795299_1_20250311192827.jpg&q=90)
-  
-
-國務院總理李強向施托克爾致賀電，祝賀他就任奧地利總理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm)
 
 ---
