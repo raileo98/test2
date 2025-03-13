@@ -1,3 +1,51 @@
+# 日股收市偏軟
+
+![日經平均指數收市報36790點，跌29點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795552_1_20250313143421.jpg&q=90)
+  
+
+日本股市先升後回，未能企穩37000點關口以上收市。日經平均指數收市報36790點，跌29點，跌幅0.08%。指數今早曾高見37326點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm)
+
+---
+
+# 台股低收逾1%
+
+![台灣加權指數收市報21961點，跌316點，跌幅1.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795551_1_20250313143133.jpg&q=90)
+  
+
+台灣股市跌逾1%，加權指數收市報21961點，跌316點，跌幅1.42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm)
+
+---
+
 # 平安好醫生已全面接入DeepSeek冀提升診斷效率
 
 ![平安好醫生稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_1_20250313140503.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
-
----
-
-# 台股高收約1%
-
-![加權指數收市報22278點，升207點，升幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795408_1_20250312141732.jpg&q=90)
-  
-
-台灣股市造好。加權指數收市報22278點，升207點，升幅0.94%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795408-20250312.htm)
-
----
-
-# 私隱專員公署協助接手戶戶送業務營運者合法轉移個人資料
-
-![公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795409_1_20250312150209.jpg&q=80)
-  
-
-個人資料私隱專員公署表示，外賣平台「戶戶送」宣布將會結束香港業務，事件可能影響客戶及送遞員在個人資料私隱方面的權益。公署已根據既定程序展開循規審查，以取得更多與事件有關的資料，並協助相關商戶，包括接手業務的營運者，以符合《私隱條例》的規定處理、刪除或轉移客戶及送遞員的個人資料，確保客戶及送遞員的個人資料不會被濫用、外洩或流入不法分子手中，被用作詐騙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
 
 ---

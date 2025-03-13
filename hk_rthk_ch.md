@@ -1,3 +1,51 @@
+# 日股收市偏軟
+
+![日經平均指數收市報36790點，跌29點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795552_1_20250313143421.jpg&q=90)
+  
+
+日本股市先升後回，未能企穩37000點關口以上收市。日經平均指數收市報36790點，跌29點，跌幅0.08%。指數今早曾高見37326點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm)
+
+---
+
+# 台股低收逾1%
+
+![台灣加權指數收市報21961點，跌316點，跌幅1.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795551_1_20250313143133.jpg&q=90)
+  
+
+台灣股市跌逾1%，加權指數收市報21961點，跌316點，跌幅1.42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm)
+
+---
+
 # 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
 
   
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm)
-
----
-
-# 美國上周原油庫存增幅少過預期
-
-![美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795472_1_20250312224429.jpg&q=85)
-  
-
-美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期的200.1萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm)
-
----
-
-# 道指轉跌逾300點
-
-![道瓊斯指數轉跌逾300點，較早時報41113點，跌319點，跌幅0.77%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795474_1_20250312225118.jpg&q=90)
-  
-
-美股3大指數初段上升，受通脹放緩數據支持，其後個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm)
 
 ---
