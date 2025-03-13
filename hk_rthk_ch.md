@@ -1,3 +1,27 @@
+# 美財長：除金屬和汽車關稅　其他商品所可進行關稅談判
+
+![貝森特強調，政府關注的是整體市場表現和美國人的中長期收益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795637_1_20250314003017.jpg&q=90)
+  
+
+美國財長貝森特表示，除了金屬和可能的汽車關稅外，其他所有東西都可以進行關稅談判，如果貿易夥伴想加速談判，貿易盈餘國家將會受到最大打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm)
+
+---
+
 # 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
 
 ![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm)
-
----
-
-# 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
-  
-
-全國政協副主席梁振英說，國務院總理李強的政府工作報告中提及，要支持香港「深化國際交往合作」。梁振英認為，深化國際交往合作不只經貿方面，亦包括文化、體育、藝術、教育等，而由他擔任主席的共享基金會過去7年在海外所做的人道主義醫療、公共衛生援助，共包括8個國家、7個服務類別，他希望可啟發本港年輕人思考未來事業發展方向。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm)
 
 ---
