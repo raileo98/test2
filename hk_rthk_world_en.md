@@ -1,3 +1,27 @@
+# Two air force pilots charged over S Korea bombing
+
+![Officials inspect an area with damaged buildings in the aftermath of the accidental bombing in Pocheon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795521_1_20250313095556.jpg&q=80)
+  
+
+South Korean military investigators charged two air force pilots on Thursday with criminal negligence over an accidental bombing of a village last week during a training exercise, which injured at least 29 people and caused extensive property damage.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm)
+
+---
+
 # Student activist fights his deportation from the US
 
 ![Pro-Palestinian protestors rally in support of Mahmoud Khalil outside of court in New York. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795530_1_20250313114045.jpg&q=85)
@@ -1411,29 +1435,5 @@ Global sea ice cover fell to a historic low in February when the world continued
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794625-20250306.htm)
-
----
-
-# EU leaders, Zelensky, gather for crisis Ukraine talks
-
-![Thursday's summit brings all 27 EU leaders together for the first time. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794604_1_20250306190444.jpg&q=90)
-  
-
-EU leaders gathered with Ukrainian President Volodymyr Zelensky on Thursday in Brussels in search of unity on bolstering Ukraine and Europe's defences, after US President Donald Trump upended traditional US alliances and retracted wartime backing for Kyiv.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794604-20250306.htm)
 
 ---

@@ -1,3 +1,98 @@
+# 港股半日跌173點　科指跌逾2%
+
+![港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795534_1_20250313120805.jpg&q=85)
+  
+
+港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%，半日主板成交額逾1215億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm)
+
+---
+
+# 74人涉非法賭檔及販毒等被捕　警方籲業主留意物業勿作不法用途
+
+  
+
+警方港島總區過去10天進行反三合會行動，拘捕74人，搗破5個賣淫場所、6個賭檔，檢取一批賭具及超過25萬元現金。在7個反毒品行動中，檢獲包括霹靂可卡因、冰毒、氯胺酮及太空油毒品等，市值超過160萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm)
+
+---
+
+# 房屋署接納申訴專員改善建議　將繼續優化現有打擊車輛違泊措施
+
+![房屋署職員會持續透過日常監察、突擊巡查，督促及確保承辦商能有效執行各項工作包括道路管制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795532_1_20250313121512.jpg&q=90)
+  
+
+申訴專員公署發表有關屋邨違例泊車的主動調查報告，房署發言人表示，十分重視公共屋邨的道路管理工作，持續加強管理和引入不同設備以提升執管效能，例如引入不同的創新科技，包括物聯網感應器和人工智能，以打擊違泊行為 ，同時透過宣傳和教育向居民傳遞守法意識，希望保持屋邨道路，特別是緊急車輛通道暢通無阻，並適時檢討有關措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm)
+
+---
+
+# 個別公共屋邨緊急通道有車輛違泊　申訴專員提出12項改善建議
+
+![申訴專員公布就房屋署處理公共屋邨違例泊車問題的主動調查行動報告。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795533_1_20250313121409.jpg&q=60)
+  
+
+申訴專員陳積志完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有違泊車輛，甚至個別屋邨有違泊車輛停泊在緊急通道，並提出12項改善建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm)
+
+---
+
 # 滬股半日跌逾0.4%　深證成指跌1%
 
 ![內地股市3大指數半日下跌，上證指數半日報3357點，跌14點，跌幅0.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795529_1_20250313113720.jpg&q=90)
@@ -24,7 +119,7 @@
 
 # 中大研發測序技術識別鼻咽癌癌细胞血漿EB病毒DNA分子特徵
 
-![中大醫學院團隊有關研究已於國際醫學期刊《癌細胞》發表。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795527_1_20250313111923.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795527_1_20250313111923.jpg&q=80)
   
 
 中大醫學院團隊研究發現透過以次世代DNA測序技術，可成功識別出一系列鼻咽癌癌细胞釋放的血漿EB病毒DNA分子特徵，有助更準確分辨出患鼻咽癌的高風險人士，有關研究已於國際醫學期刊《癌細胞》發表。
@@ -1344,101 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm)
-
----
-
-# 美國上月通脹率放緩至2.8%　核心通脹率創近4年最低
-
-![美國2月消費物價指數(CPI)按月升0.2%，按年升2.8%，兩者升幅均較1月放緩，亦低過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795458_1_20250312205505.jpg&q=90)
-  
-
-美國上月通脹放緩，美國勞工部公布，2月消費物價指數(CPI)按月升0.2%，低過市場預期的0.3%；按年升2.8%，是去年11月以來最低，亦低過預期的2.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm)
-
----
-
-# 美情報總監指已恢復分享情報　烏克蘭擬建團隊制定停火路線圖
-
-![瑟比加強調烏克蘭是最希望結束衝突、並實現公正與持久和平的國家。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795457_1_20250312212946.jpg&q=90)
-  
-
-美國國家情報總監加巴德宣布，根據總統特朗普的指示，目前已恢復與烏克蘭的情報分享。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm)
-
----
-
-# 威院獲中國國際醫院評審認證　盧寵茂與深圳官員見證
-
-![威爾斯親王醫院成功通過《國際醫院評審認證標準（中國）》的評審認證。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795456_1_20250312212737.jpg&q=75)
-  
-
-​醫務衞生局局長盧寵茂和深圳市委常委、市政府黨組成員陳清及其率領的代表團，出席「威爾斯親王醫院獲中國國際醫院評審認證授牌儀式」，見證該醫院成為香港特別行政區第二間成功通過《國際醫院評審認證標準（中國）》（2021版）評審認證的醫院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm)
-
----
-
-# 杜特爾特前往海牙途中　飛機短暫停留迪拜
-
-![杜特爾特正被押解前往法院所在地荷蘭海牙。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795452_1_20250312204246.jpg&q=90)
-  
-
-被國際刑事法院指控違反人類罪的菲律賓前總統杜特爾特，正被押解前往法院所在地荷蘭海牙，飛機一度停留阿聯酋迪拜。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm)
 
 ---

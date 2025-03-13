@@ -1,3 +1,27 @@
+# 港股半日跌173點　科指跌逾2%
+
+![港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795534_1_20250313120805.jpg&q=85)
+  
+
+港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%，半日主板成交額逾1215億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm)
+
+---
+
 # 滬股半日跌逾0.4%　深證成指跌1%
 
 ![內地股市3大指數半日下跌，上證指數半日報3357點，跌14點，跌幅0.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795529_1_20250313113720.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
-
----
-
-# 港股半日跌158點　汽車股逆市造好
-
-![恒生指數高開後反覆向下，早段最多升約180點，中午報23623點，跌158點，跌幅0.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795388_1_20250312120913.jpg&q=90)
-  
-
-港股高開77點後反覆向下，連跌4日。恒生指數開市後最多升約180點，高見23962點，中午報23623點，跌158點，跌幅0.67%，半日主板成交額逾1362億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm)
 
 ---

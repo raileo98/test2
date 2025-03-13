@@ -1,6 +1,101 @@
+# 港股半日跌173點　科指跌逾2%
+
+![港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795534_1_20250313120805.jpg&q=85)
+  
+
+港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%，半日主板成交額逾1215億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm)
+
+---
+
+# 74人涉非法賭檔及販毒等被捕　警方籲業主留意物業勿作不法用途
+
+  
+
+警方港島總區過去10天進行反三合會行動，拘捕74人，搗破5個賣淫場所、6個賭檔，檢取一批賭具及超過25萬元現金。在7個反毒品行動中，檢獲包括霹靂可卡因、冰毒、氯胺酮及太空油毒品等，市值超過160萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm)
+
+---
+
+# 房屋署接納申訴專員改善建議　將繼續優化現有打擊車輛違泊措施
+
+![房屋署職員會持續透過日常監察、突擊巡查，督促及確保承辦商能有效執行各項工作包括道路管制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795532_1_20250313121512.jpg&q=90)
+  
+
+申訴專員公署發表有關屋邨違例泊車的主動調查報告，房署發言人表示，十分重視公共屋邨的道路管理工作，持續加強管理和引入不同設備以提升執管效能，例如引入不同的創新科技，包括物聯網感應器和人工智能，以打擊違泊行為 ，同時透過宣傳和教育向居民傳遞守法意識，希望保持屋邨道路，特別是緊急車輛通道暢通無阻，並適時檢討有關措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm)
+
+---
+
+# 個別公共屋邨緊急通道有車輛違泊　申訴專員提出12項改善建議
+
+![申訴專員公布就房屋署處理公共屋邨違例泊車問題的主動調查行動報告。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795533_1_20250313121409.jpg&q=60)
+  
+
+申訴專員陳積志完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有違泊車輛，甚至個別屋邨有違泊車輛停泊在緊急通道，並提出12項改善建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm)
+
+---
+
 # 中大研發測序技術識別鼻咽癌癌细胞血漿EB病毒DNA分子特徵
 
-![中大醫學院團隊有關研究已於國際醫學期刊《癌細胞》發表。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795527_1_20250313111923.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795527_1_20250313111923.jpg&q=80)
   
 
 中大醫學院團隊研究發現透過以次世代DNA測序技術，可成功識別出一系列鼻咽癌癌细胞釋放的血漿EB病毒DNA分子特徵，有助更準確分辨出患鼻咽癌的高風險人士，有關研究已於國際醫學期刊《癌細胞》發表。
@@ -1341,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm)
-
----
-
-# 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
-
-![葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795317_1_20250311223158.jpg&q=90)
-  
-
-全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
-
----
-
-# 星島料去年度虧損擴大至約8500萬元
-
-![星島新聞集團預計，去年度將錄得虧損約8500萬元，按年擴大73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795310_1_20250311211242.jpg&q=85)
-  
-
-星島新聞集團預計，去年度將錄得虧損約8500萬元，較前年度約4900萬元虧損擴大73%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795310-20250311.htm)
-
----
-
-# 多兩中學韶關交流有師生腸胃炎累計52人不適　曾到相同餐廳用膳
-
-![再多兩間參與廣東韶關交流團的中學師生，出現腸胃炎徵狀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795309_1_20250311212434.jpg&q=80)
-  
-
-再多兩間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。3間學校、共52名師生於本月3日至10日期間出現急性腸胃炎徵狀，16人已求醫，全部毋須入院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm)
-
----
-
-# 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
-
-![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=80)
-  
-
-為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
 
 ---

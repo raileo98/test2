@@ -1,3 +1,27 @@
+# Two air force pilots charged over S Korea bombing
+
+![Officials inspect an area with damaged buildings in the aftermath of the accidental bombing in Pocheon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795521_1_20250313095556.jpg&q=80)
+  
+
+South Korean military investigators charged two air force pilots on Thursday with criminal negligence over an accidental bombing of a village last week during a training exercise, which injured at least 29 people and caused extensive property damage.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm)
+
+---
+
 # Macau girl injured in Taiwan mall blast dies
 
 ![The suspected gas explosion on February 13 hit the food court of the Shin Kong Mitsukoshi department store in Taichung. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795531_1_20250313114111.jpg&q=90)
@@ -1414,29 +1438,5 @@ Saudi Arabia, Qatar and Jordan on Tuesday condemned Israel's decision to cut ele
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm)
-
----
-
-# Man jailed for three months over fake qualifications
-
-![The Shatin Court says the defendant was being unrealistic in seeking a community service order for his crime. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795242_1_20250311143749.jpg&q=90)
-  
-
-A mainland man was jailed for three months on Tuesday, after pleading guilty to using fake academic qualifications to gain a spot in a Chinese University (CUHK) postgraduate programme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm)
 
 ---
