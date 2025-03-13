@@ -1,3 +1,27 @@
+# Two primary schools face primary one class ban
+
+![Price Memorial Catholic Primary School in Wong Tai Sin and Aplichau Kaifong Primary School in Southern District are banned from running primary one classes in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795622_1_20250313214543.jpg&q=90)
+  
+
+Two primary schools will not receive grants from the Education Bureau to operate primary one classes in the coming academic year, because they failed to enrol the minimum 16 pupils required to form a class.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm)
+
+---
+
 # Angus Ng knocked out of All England Open by Loh
 
 ![Angus Ng remains winless against Loh, having been beaten in each of their five meetings. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795625_1_20250313220623.jpg&q=90)
@@ -1415,29 +1439,5 @@ Ukraine endorsed an American proposal for a 30-day ceasefire and agreed to immed
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm)
-
----
-
-# Ex-Philippine president Duterte bound for The Hague
-
-![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=90)
-  
-
-A plane carrying former Filipino president Rodrigo Duterte left the Philippine capital bound for The Hague on Tuesday following his arrest on an International Criminal Court (ICC) warrant stemming from his deadly crackdown on drugs, Manila said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm)
 
 ---
