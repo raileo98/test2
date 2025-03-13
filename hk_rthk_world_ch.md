@@ -1,3 +1,27 @@
+# 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
+
+![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
+  
+
+美國對進口鋼鋁徵收25%的關稅政策按計劃正式生效。在北京，商務部新聞發言人何詠前說，此前中方已經就美國宣布調整鋼鋁232措施表態，中方一貫認為美國232措施是以國家安全為名實施的單邊主義和保護主義行為，中方與其他很多國家一起，對此措施表示堅決反對，敦促美方盡快取消鋼鋁232措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
+
+---
+
 # 俄駐英大使稱俄方將考慮美國所提出停火建議　達協議後才完全停火
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm)
-
----
-
-# 本港暫停從波蘭及英國個別地區進口禽肉及禽類產品
-
-![中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795280_1_20250311181032.jpg&q=80)
-  
-
-食物安全中心宣布，因應世界動物衞生組織通報，指波蘭大波蘭省Chodzież區及英國德文郡Torbay區爆發高致病性H5N1禽流感，中心指示業界暫停從上述地區進口禽肉及包括禽蛋的禽類產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm)
 
 ---

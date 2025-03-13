@@ -1,3 +1,27 @@
+# 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
+
+![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
+  
+
+美國對進口鋼鋁徵收25%的關稅政策按計劃正式生效。在北京，商務部新聞發言人何詠前說，此前中方已經就美國宣布調整鋼鋁232措施表態，中方一貫認為美國232措施是以國家安全為名實施的單邊主義和保護主義行為，中方與其他很多國家一起，對此措施表示堅決反對，敦促美方盡快取消鋼鋁232措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
+
+---
+
 # 商務部：中美相關主管部門一直保持溝通
 
 ![商務部稱，中方與美方相關主管部門一直保持溝通。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795573_1_20250313161008.jpg&q=75)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm)
-
----
-
-# 清遠和佛山旅行團再多兩名團友感染退伍軍人病
-
-![中心接獲首宗通報後調查和跟進，聯絡與首名感染者參加同一團，及參與另外兩個行程及入住酒店相同的旅行團人士，並發現最新兩宗個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795147_1_20250310191613.jpg&q=80)
-  
-
-「領華旅遊社」清遠和佛山旅行團，再有兩名男團友感染退伍軍人病，連同之前已經公布的6宗個案，相關旅行團至今已有8人感染退伍軍人病。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm)
 
 ---
