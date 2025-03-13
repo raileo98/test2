@@ -1,3 +1,28 @@
+# 歐霸盃曼聯與熱刺均晉級8強
+
+![般奴費蘭迪斯「連中三元」，帶領曼聯晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795661_1_20250314071839.jpg&q=90)
+![熱刺總比數反勝阿爾克馬爾晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795661_2_20250314071839.jpg&q=90)
+  
+
+歐霸盃16強次回合，兩支英超球隊曼聯和熱刺都晉級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795661-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795661-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795661-20250314.htm)
+
+---
+
 # 友邦去年純利升近82%　稅後營運溢利創新高
 
 ![友邦保險去年純利68.4億美元，按年升近82%，稅後營運溢利升12%至66.05億美元創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795660_1_20250314065244.jpg&q=65)
@@ -1417,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm)
-
----
-
-# 中大醫學院研發技術助更準確分辨患鼻咽癌高風險人士可提高存活率
-
-![中大醫學院團隊指出，及早找出鼻咽癌早期患者，不單可減少治療副作用，還可大幅提高存活率。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795596_1_20250313185056.jpg&q=90)
-  
-
-中大醫學院團隊的研究發現，透過次世代DNA測序技術，可成功識別出一系列鼻咽癌癌细胞釋放的血漿EB病毒DNA分子特徵，有助更準確分辨患鼻咽癌的高風險人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm)
 
 ---
