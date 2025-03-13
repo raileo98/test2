@@ -1,3 +1,51 @@
+# Push to lift time cap on cryopreservation
+
+![The Council on Human Reproductive Technology is suggesting people be allows to store gametes or embryos for as long as they want. (File photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_1_20250313164700.jpg&q=80)
+  
+
+The government launched on Thursday a consultation on lifting the storage period limitation for frozen eggs, sperm or embryos.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm)
+
+---
+
+# Driver dies after crashing into fire engine
+
+![The fatal traffic accident occurred near Olympian City. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795576_1_20250313161524.jpg&q=80)
+  
+
+A driver, who was behind the wheel of a light goods vehicle travelling along the West Kowloon Highway on Thursday, died after crashing into a fire engine in Tai Kok Tsui.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm)
+
+---
+
 # Govt urged to tackle illegal parking in public estates
 
 ![The Office of the Ombudsman says it has found long-term cases of illegal parking in some public estates. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795562_1_20250313152553.jpg&q=60)
@@ -1388,53 +1436,5 @@ Hong Kong Customs intensified enforcement at the international airport and uncov
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm)
-
----
-
-# Six more HK people released from Myanmar scam farms
-
-![Chris Tang said he was in Thailand to help coordinate the rescue of six Hong Kong people held in scam farms. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794791_1_20250307184642.jpg&q=80)
-  
-
-Security minister Chris Tang said on Friday that six more Hongkongers trapped in scam farms in Myanmar have been rescued in a joint operation by the Security Bureau and authorities from the mainland, Thailand and Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794791-20250307.htm)
-
----
-
-# NSL provisions can be amended: legal scholar
-
-![Albert Chen says the Committee for Safeguarding National Security can decide to change the rules on its own, without seeking approval from the National People's Congress. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794748_1_20250307162745.jpg&q=80)
-  
-
-Legal scholar and Chinese People's Political Consultative Conference (CPPCC) member Albert Chen on Friday said the National Security Law can be amended, and that won't have retroactive effect.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm)
 
 ---
