@@ -1,3 +1,27 @@
+# 特朗普：普京聲明有希望但不完整　澤連斯基斥俄試圖拖延停火
+
+![特朗普說，願意與普京見面或交談，強調必須盡快達成停火協議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795647_1_20250314042123.jpg&q=90)
+  
+
+俄羅斯總統普京表示，支持與烏克蘭停火30日的提議，但有很多問題需要商討和解決。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm)
+
+---
+
 # 英國首相宣布將廢除英格蘭國民保健署
 
 ![施紀賢表示，廢除英格蘭國民保健署可以減少官僚主義。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795646_1_20250314033605.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm)
-
----
-
-# 美國向加國鋼鋁產品加倍徵稅　白宮：特朗普尚未與卡尼交談
-
-![萊維特說，特朗普的電話始終對希望與他交談的領導人保持開放。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795332_1_20250312023548.jpg&q=90)
-  
-
-美國總統特朗普宣布，將對從加拿大進口的鋼鋁產品，額外徵收25%的關稅，令關稅水平提高至50%，當地周三生效，以報復加拿大安大略省對輸送到美國的電力徵收附加費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm)
 
 ---

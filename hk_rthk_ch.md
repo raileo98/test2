@@ -1,3 +1,27 @@
+# 特朗普：普京聲明有希望但不完整　澤連斯基斥俄試圖拖延停火
+
+![特朗普說，願意與普京見面或交談，強調必須盡快達成停火協議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795647_1_20250314042123.jpg&q=90)
+  
+
+俄羅斯總統普京表示，支持與烏克蘭停火30日的提議，但有很多問題需要商討和解決。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm)
+
+---
+
 # 英國首相宣布將廢除英格蘭國民保健署
 
 ![施紀賢表示，廢除英格蘭國民保健署可以減少官僚主義。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795646_1_20250314033605.jpg&q=90)
@@ -1417,29 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm)
-
----
-
-# 人民幣兌美元收市微升
-
-![人民幣收市報7.2427兌1美元，較上日收市升18點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795580_1_20250313171256.jpg&q=90)
-  
-
-人民幣兌美元收市微升，報7.2427兌1美元，較上日收市升18點子。中間價則微跌至7.1728兌1美元，與市場預測偏離逾710點子，反映監管延續過濾舉措穩定市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm)
 
 ---
