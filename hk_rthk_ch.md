@@ -1,3 +1,27 @@
+# 英國首相宣布將廢除英格蘭國民保健署
+
+![施紀賢表示，廢除英格蘭國民保健署可以減少官僚主義。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795646_1_20250314033605.jpg&q=90)
+  
+
+英國首相施紀賢宣布，將會廢除英格蘭醫療服務的執行機構英格蘭國民保健署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm)
+
+---
+
 # 普京晤盧卡申科同意擴大各領域合作　準備反制北約敵對行動
 
 ![普京與盧卡申科在儀式上交換文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795645_1_20250314031431.jpg&q=90)
@@ -1417,29 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm)
-
----
-
-# 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
-
-![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
-  
-
-美國對進口鋼鋁徵收25%的關稅政策按計劃正式生效。在北京，商務部新聞發言人何詠前說，此前中方已經就美國宣布調整鋼鋁232措施表態，中方一貫認為美國232措施是以國家安全為名實施的單邊主義和保護主義行為，中方與其他很多國家一起，對此措施表示堅決反對，敦促美方盡快取消鋼鋁232措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
 
 ---

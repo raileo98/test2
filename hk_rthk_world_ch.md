@@ -1,3 +1,27 @@
+# 英國首相宣布將廢除英格蘭國民保健署
+
+![施紀賢表示，廢除英格蘭國民保健署可以減少官僚主義。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795646_1_20250314033605.jpg&q=90)
+  
+
+英國首相施紀賢宣布，將會廢除英格蘭醫療服務的執行機構英格蘭國民保健署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm)
+
+---
+
 # 普京晤盧卡申科同意擴大各領域合作　準備反制北約敵對行動
 
 ![普京與盧卡申科在儀式上交換文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795645_1_20250314031431.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795332-20250312.htm)
-
----
-
-# 以色列與黎巴嫩同意談判陸路邊界問題
-
-![以色列稱，各方同意成立三個小組討論以黎陸路邊界問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795331_1_20250312021002.jpg&q=80)
-  
-
-以色列、黎巴嫩、美國和法國四方代表在黎巴嫩南部納庫拉舉行會談，討論以色列與黎巴嫩的陸地邊界問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm)
 
 ---
