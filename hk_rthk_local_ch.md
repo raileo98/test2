@@ -1,3 +1,49 @@
+# 西九龍公路致命交通意外　輕型貨車車頭損毀嚴重
+
+  
+
+西九龍公路往葵涌方向、大角咀奧海城對開發生致命交通意外，一名輕型貨車司機死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm)
+
+---
+
+# 林琳支持取消配子或胚胎儲存期限制　賦予自主權並及早規劃
+
+  
+
+人類生殖科技管理局建議修訂《生殖科技及胚胎研究實務守則》，不論儲存者的性別、年齡、醫學情況，取消配子或胚胎的儲存期限制。民建聯立法會議員林琳表示支持，認為不僅賦予女性更多生育自主權，協助有意生育的女性及需要醫學幫助的夫婦及早規劃，同時不用增加政府財政負擔，是一項具前瞻性的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm)
+
+---
+
 # 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
 
 ![梁振英認為，港人應充分認識及付諸實行，就算不涉及港澳，香港亦應深入了解認識，出力為國家作貢獻。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm)
-
----
-
-# 4千車手參與周日單車百萬行　受封路影響三屋苑住戶已獲發行車證
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795386_1_20250312135210.jpg&q=85)
-  
-
-單車百萬行周日舉行，活動的路線覆蓋青沙公路、藍灣隧道、汀九橋及昂船洲大橋的行車線，預計有4000名單車手參加。警方會執行人群管理及交通特別管制措施，駕駛人士亦要預留額外行車時間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795386-20250312.htm)
-
----
-
-# 10億元大嶼山保育基金至今批出1.3億元　正接受新一輪申請
-
-![基金總額有10億元，目的在於推展大嶼山的保育及相關項目，提高社區的保育意識，促進社區人士參與實踐保育理念。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795384_1_20250312121551.jpg&q=90)
-  
-
-土木工程拓展署可持續大嶼辦事處公布，2023至2024年度大嶼山保育基金批出3個項目，涉及總金額約850萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
 
 ---

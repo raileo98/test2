@@ -1,3 +1,27 @@
+# China urges diplomatic Iran nuclear solution
+
+![Foreign Ministry spokeswoman Mao Ning says all parties should maintain calm and restraint to avoid escalating the Iran nuclear situation. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795572_1_20250313155832.jpg&q=90)
+  
+
+China called on Thursday for a "diplomatic" resolution to the Iran nuclear issue as it prepared to host diplomats from Tehran and Moscow for talks in Beijing.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm)
+
+---
+
 # Govt urged to tackle illegal parking in public estates
 
 ![The Office of the Ombudsman says it has found long-term cases of illegal parking in some public estates. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795562_1_20250313152553.jpg&q=60)
@@ -1414,29 +1438,5 @@ A senior member of a leading national think tank on Tuesday said the annual "Two
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
-
----
-
-# HSI flat after Wall Street rout
-
-![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=65)
-  
-
-Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down one point to close at 23,782.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm)
 
 ---
