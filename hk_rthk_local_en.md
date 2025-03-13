@@ -1,6 +1,6 @@
 # Push to lift time cap on cryopreservation
 
-![The Council on Human Reproductive Technology is suggesting people be allows to store gametes or embryos for as long as they want. (File photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_1_20250313164700.jpg&q=80)
+![The Council on Human Reproductive Technology is suggesting people be allowed to store gametes or embryos for as long as they want. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_2_20250313170514.jpg&q=90)
   
 
 The government launched on Thursday a consultation on lifting the storage period limitation for frozen eggs, sperm or embryos.

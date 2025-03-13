@@ -24,6 +24,8 @@
 
 # 古諮會通過舊贊育醫院主樓及上環廣福祠列為法定古蹟
 
+![舊贊育醫院於1922年啟用，是本港第一所華人婦女產科醫院，樓高4層，設有地庫，採用新古典主義建築風格，糅合中式元素。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_1_20250313170038.jpg&q=75)
+![廣福祠又稱「百姓廟」，建於1895年，主要為來自內地但在港離世的華工，提供地方安放神主牌，同時收容病人、無依者及長者，提供診治服務。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_2_20250313170038.jpg&q=80)
   
 
 古物諮詢委員會通過，將西營盤舊贊育醫院主樓，以及上環廣福祠，列為法定古蹟。古諮會下午開會，多名委員都表示這兩座建築物具有歷史文化價值，贊成列為法定古蹟。
@@ -526,6 +528,9 @@
 # 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
 
 ![香港花卉展明日起至本月23日在維園舉行。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_3_20250313154543.jpg&q=40)
+![花展有多個大型園林造景以環遊世界為主題。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_4_20250313165940.jpg&q=50)
+![花展每個園圃加設燈帶、裝飾燈、燈籠及燈柱等。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_5_20250313165940.jpg&q=55)
+![花展特別擺放全運會的大型海報和吉祥物打卡點。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_6_20250313165940.jpg&q=75)
 ![香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_1_20250313152706.jpg&q=85)
   
 
