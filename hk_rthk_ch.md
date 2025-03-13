@@ -1,3 +1,27 @@
+# 油價低收近2%　結束兩日升勢
+
+![英美期油低收近2%，結束兩日升勢，倫敦布蘭特期油再度失守每桶70美元水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795655_1_20250314055207.jpg&q=90)
+  
+
+英美期油低收近2%，結束兩日升勢。市場憂慮美國與其他國家的關稅戰，可能打擊全球原油需求，俄烏停火亦存在不確定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795655-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795655-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795655-20250314.htm)
+
+---
+
 # 英股全日升1點　德法股市再度回軟
 
 ![歐洲股市個別發展，英國股市全日升1點，德法股市分別跌約0.5%及逾0.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795652_1_20250314054603.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm)
-
----
-
-# M+博物館周六起展出畢加索60多件作品　展期至7月13日
-
-![有關展覽的展期由周六至7月13日。（M+博物館社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795590_1_20250313182229.jpg&q=90)
-  
-
-M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索藝術館的60多件西班牙藝術家畢加索作品，同場亦展示約130件出自30位亞洲及海外亞洲藝術家之手的M+藏品，以及其他博物館、基金會及私人收藏借出的精選藏品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm)
 
 ---
