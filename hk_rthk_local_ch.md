@@ -1,3 +1,26 @@
+# 羅淑佩稱透過舉辦文化藝術表演活動　吸引遊客並促進文化旅遊融合
+
+  
+
+文代體育及旅遊局長羅淑佩表示，香港今個月舉行多場盛事，除了啟德體育園開幕典禮，亦舉辦了世界格蘭披治桌球大獎賽、LIV Golf 香港站賽事，吸引全球各地參賽者和遊客來港，之後亦會有ComplexCon、Art Central、巴塞爾藝術展、香港國際七人欖球賽等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm)
+
+---
+
 # 西九龍公路致命車禍　44歲輕型貨車司機死亡
 
 ![44歲輕型貨車司機，送院搶救後不治。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795599_1_20250313185853.jpg&q=40)
@@ -1421,29 +1444,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm)
-
----
-
-# 迪士尼貨倉遭爆竊失價值300萬元電子設備　3名男子被捕
-
-![香港迪士尼樂園回覆查詢時表示，案件不涉及香港迪士尼員工，會全力協助警方調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795418_1_20250312161008.jpg&q=85)
-  
-
-警方接獲迪士尼樂園職員報案，懷疑被人盜去一批電子器材。警方拘捕3名男子，包括一名28歲本身是貨倉職員的電腦技術員、回收公司負責人及工人，他們分別涉嫌爆竊及處理贓物。香港迪士尼樂園回覆查詢時表示，案件不涉及香港迪士尼員工，會全力協助警方調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm)
 
 ---

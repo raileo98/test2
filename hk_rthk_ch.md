@@ -1,3 +1,27 @@
+# 微博去年少賺12%　經調整盈利升6%
+
+![微博去年度盈利按年減少12%至3億美元，經調整盈利升6%至近4.8億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795584_1_20250313175116.jpg&q=90)
+  
+
+微博去年度盈利3億美元，按年減少12%。每股普通股或每股美國存託股派息0.82美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm)
+
+---
+
 # 楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作
 
 ![楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795603_1_20250313192514.jpg&q=90)
