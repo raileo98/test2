@@ -1,3 +1,50 @@
+# 日股半日升約1%
+
+![日經指數半日收報37173點，升354點，升幅0.96%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795524_1_20250313103708.jpg&q=90)
+  
+
+日股造好，重上37000點水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm)
+
+---
+
+# 西營盤舊贊育醫院主樓及上環廣福祠將被列為古蹟
+
+  
+
+古物諮詢委員會下午開會，議程包括討論當局計劃根據法例，將西營盤舊贊育醫院主樓及上環廣福祠宣布為古蹟。古物古蹟辦事處的文件指出有關業主及管理部門已同意當局的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm)
+
+---
+
 # 美國企業債與國債利差創近半年高位　市場對經濟衰退憂慮升溫
 
 ![美國垃圾級別企業債利差擴大至322點子，創去年9月後新高，反映投資者對持有風險較高的垃圾債意願降低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795522_2_20250313100826.jpg&q=85)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm)
-
----
-
-# 滬股半日跌4點　創業板指數於2200點爭持
-
-![上證指數半日收報3375點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795385_1_20250312114128.jpg&q=85)
-  
-
-內地股市反覆向下，半日收市變動不大。算力概念、影視、雲遊戲、通信服務股造好；豬肉、白酒、工程機械、機場航運股下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795385-20250312.htm)
-
----
-
-# 10億元大嶼山保育基金至今批出1.3億元　正接受新一輪申請
-
-![基金總額有10億元，目的在於推展大嶼山的保育及相關項目，提高社區的保育意識，促進社區人士參與實踐保育理念。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795384_1_20250312121551.jpg&q=90)
-  
-
-土木工程拓展署可持續大嶼辦事處公布，2023至2024年度大嶼山保育基金批出3個項目，涉及總金額約850萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
 
 ---

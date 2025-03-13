@@ -1,3 +1,74 @@
+# 日股半日升約1%
+
+![日經指數半日收報37173點，升354點，升幅0.96%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795524_1_20250313103708.jpg&q=90)
+  
+
+日股造好，重上37000點水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm)
+
+---
+
+# 杜特爾特抵海牙國際刑事法院　稱會繼續服務菲律賓
+
+![杜特爾特被送到拘留所。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795526_1_20250313105151.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特被送到荷蘭海牙後，已移交國際刑事法院，再轉送到拘留所。他未來幾天將首次出庭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795526-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795526-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795526-20250313.htm)
+
+---
+
+# 西營盤舊贊育醫院主樓及上環廣福祠將被列為古蹟
+
+  
+
+古物諮詢委員會下午開會，議程包括討論當局計劃根據法例，將西營盤舊贊育醫院主樓及上環廣福祠宣布為古蹟。古物古蹟辦事處的文件指出有關業主及管理部門已同意當局的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm)
+
+---
+
 # 美國企業債與國債利差創近半年高位　市場對經濟衰退憂慮升溫
 
 ![美國垃圾級別企業債利差擴大至322點子，創去年9月後新高，反映投資者對持有風險較高的垃圾債意願降低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795522_2_20250313100826.jpg&q=85)
@@ -1367,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm)
-
----
-
-# 李嘉誠基金會贈治肝儀器　港大醫學院稱已於瑪麗醫院臨床試驗
-
-![醫學院表示，研究團隊可透過與港怡醫院共同管理的「臨床試驗中心」，運用另一同類型儀器作臨床試驗，期望讓更多病人受惠。（港怡醫院圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795453_1_20250312211141.jpg&q=90)
-  
-
-李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，將為相關私院病人提供治療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm)
-
----
-
-# 梁振英稱大灣區規劃中九個內地城市和兩特區合作還有很多工作要做
-
-![梁振英說，香港可以利用自身在專業服務業上的優勢，為國家的產品提供專業的第三方獨立檢測認證服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795451_1_20250312203821.jpg&q=80)
-  
-
-全國政協副主席、前行政長官梁振英表示，在粵港澳大灣區規劃中，九個內地城市和兩個特區的合作，還有大量空間、很多工作需要做。首要是需要身體力行解決一些情況，廣東九個城市和兩個特區的人流、物流、資金流、信息流，如今仍然未能更好地流通，不僅是香港與澳門特區，廣東九個城市都要有更強的改革開放意識，處理人流、物流、資金流、信息流方面的工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm)
-
----
-
-# 去年詐騙案逾4.4萬宗　金管局推新一輪防騙公眾教育短片
-
-![短片中騙徒「嗱喳蕉」外表善良可愛，一旦得逞便露出猙獰面目，騙取市民信任和金錢。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795449_1_20250312201311.jpg&q=90)
-  
-
-金管局今日推出新一輪「撳LINK中『蕉』」防騙公眾教育短片系列，以誇張手法呈現騙徒真面目，提醒市民時刻警惕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 西營盤舊贊育醫院主樓及上環廣福祠將被列為古蹟
+
+  
+
+古物諮詢委員會下午開會，議程包括討論當局計劃根據法例，將西營盤舊贊育醫院主樓及上環廣福祠宣布為古蹟。古物古蹟辦事處的文件指出有關業主及管理部門已同意當局的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm)
+
+---
+
 # QS排名香港有六個大學學科位居前十　港大牙科排第二
 
 ![香港有6個學科排名位居全球前10名，包括第2位的港大牙科。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795523_1_20250313100349.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm)
-
----
-
-# 「戶戶送」將撤出香港　消委會暫接6宗投訴涉及1800元
-
-![消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795303_1_20250311203715.jpg&q=90)
-  
-
-戶戶送Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台Foodpanda，及結束其他業務，現有客戶和送遞員會被轉至Foodpanda。消委會表示，截至今日下午5時，共接獲6宗相關投訴，涉及金額1800元，金額最高一宗為534元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795303-20250311.htm)
 
 ---
