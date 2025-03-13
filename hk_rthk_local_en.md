@@ -1,3 +1,27 @@
+# Two primary schools face primary one class ban
+
+![Price Memorial Catholic Primary School in Wong Tai Sin and Aplichau Kaifong Primary School in Southern District are banned from running primary one classes in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795622_1_20250313214543.jpg&q=90)
+  
+
+Two primary schools will not receive grants from the Education Bureau to operate primary one classes in the coming academic year, because they failed to enrol the minimum 16 pupils required to form a class.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm)
+
+---
+
 # Civil service job cuts won't save much: Legco
 
 ![The Legislative Council Secretariat says civil service job cuts may not save much money. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795601_1_20250313190933.jpg&q=90)
@@ -1413,29 +1437,5 @@ Deputy Secretary for Justice Horace Cheung on Saturday said the government will 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm)
-
----
-
-# CE pledges to promote women's rights
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794879_1_20250308122828.jpg&q=90)
-  
-
-Chief Executive John Lee praised the contribution of women to society and pledged that the government is committed to promoting women's rights.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm)
 
 ---
