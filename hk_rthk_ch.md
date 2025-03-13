@@ -1,3 +1,26 @@
+# 梁振英：香港貫徹落實「一國兩制」對台灣已起示範作用
+
+  
+
+全國政協副主席、前行政長官梁振英表示，香港貫徹落實「一國兩制」，特區政府亦按照《基本法》的規定施政，對台灣已起了示範作用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm)
+
+---
+
 # 女網紅一度抱走小袋熊惹各界批評　澳洲總理揶揄為何不抱走小鱷魚
 
   

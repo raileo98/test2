@@ -1,3 +1,26 @@
+# 梁振英：香港貫徹落實「一國兩制」對台灣已起示範作用
+
+  
+
+全國政協副主席、前行政長官梁振英表示，香港貫徹落實「一國兩制」，特區政府亦按照《基本法》的規定施政，對台灣已起了示範作用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm)
+
+---
+
 # 運輸及物流局稱香港註冊船舶的總註冊噸位處近10年高位
 
 ![運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795628_1_20250313223454.jpg&q=80)
@@ -1422,29 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
-
----
-
-# 甯漢豪：今年落實措施降低工程建造成本
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795444_1_20250312182911.jpg&q=80)
-  
-
-發展局局長甯漢豪表示，今年會落實具體措施，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm)
 
 ---
