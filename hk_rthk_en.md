@@ -1,3 +1,27 @@
+# 6 HK university courses make top 10 in global ranking
+
+![HKU’s dentistry course sits at the number-two spot when compared with its global peers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795543_1_20250313124205.jpg&q=75)
+  
+
+Nearly 70 percent of local university courses have seen their global rankings rise, compared to last year’s results.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm)
+
+---
+
 # Cancer devices donated by Li require clinical trials
 
 ![HKU says 40 patients have been treated with the donated device over the past six months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795541_1_20250313123550.jpg&q=75)
@@ -1414,29 +1438,5 @@ Social worker Jackie Chen was on Tuesday convicted of rioting in Wan Chai during
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm)
-
----
-
-# 'No plans for a comprehensive tax-regime review'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795259_1_20250311161557.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Tuesday said the government does not plan to conduct a comprehensive review on the SAR's tax regime in the near term, despite calls to introduce new sources of revenue to tackle the city’s deficit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm)
 
 ---
