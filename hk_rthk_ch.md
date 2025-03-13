@@ -1,3 +1,51 @@
+# 鄭新聰冀澳門做好經濟適度多元發展等四項工作
+
+![澳門舉行全國兩會精神傳達會。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795636_1_20250314001727.jpg&q=80)
+  
+
+澳門中聯辦主任鄭新聰希望，澳門未來做好包括經濟適度多元發展、堅定維護國家安全和穩定澳門大局，著力提升政府治理能力和水平，以及更好服務國家發展大局的四項工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm)
+
+---
+
+# 岑浩輝強調會將兩會精神轉化為實際行動　不斷開創澳門發展新局面
+
+![岑浩輝相信，國家進一步全面深化改革，擴大高水平對外開放，將為澳門帶來新的發展機遇。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795635_1_20250314001419.jpg&q=90)
+  
+
+澳門行政長官岑浩輝強調，會將兩會精神轉化為實際行動，在參與和助力中國式現代化建設中，不斷開創澳門發展新局面，為強國建設、民族復興作出更大貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm)
+
+---
+
 # 道指跌幅擴大至逾400點
 
 ![道瓊斯指數較早時報40932點，跌418點，跌幅1.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795633_1_20250313234245.jpg&q=90)
@@ -1394,53 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm)
-
----
-
-# 西藏自治區原黨委書記吳英杰涉受賄將於北京第三中級人民法院審理
-
-![西藏自治區原黨委書記吳英杰涉嫌受賄案，將於北京市第三中級人民法院審理。（微博圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795566_1_20250313160015.jpg&q=90)
-  
-
-西藏自治區原黨委書記吳英杰涉嫌受賄案，將於北京市第三中級人民法院審理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm)
-
----
-
-# 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
-
-![梁振英說，香港年輕人一代無論是職業發展的行業或地理範圍上的選擇，與其他地方的同齡人相比，條件都更為優越。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795565_1_20250313155011.jpg&q=80)
-  
-
-全國政協副主席梁振英說，內地發展非常迅速，以法律行業為例，香港律師會已有117年歷史，內地的法律行業發展則是近20年的事，但發展速度驚人，並適用於電動車、機械人、電影等領域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm)
 
 ---

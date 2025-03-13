@@ -1,3 +1,51 @@
+# 鄭新聰冀澳門做好經濟適度多元發展等四項工作
+
+![澳門舉行全國兩會精神傳達會。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795636_1_20250314001727.jpg&q=80)
+  
+
+澳門中聯辦主任鄭新聰希望，澳門未來做好包括經濟適度多元發展、堅定維護國家安全和穩定澳門大局，著力提升政府治理能力和水平，以及更好服務國家發展大局的四項工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm)
+
+---
+
+# 岑浩輝強調會將兩會精神轉化為實際行動　不斷開創澳門發展新局面
+
+![岑浩輝相信，國家進一步全面深化改革，擴大高水平對外開放，將為澳門帶來新的發展機遇。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795635_1_20250314001419.jpg&q=90)
+  
+
+澳門行政長官岑浩輝強調，會將兩會精神轉化為實際行動，在參與和助力中國式現代化建設中，不斷開創澳門發展新局面，為強國建設、民族復興作出更大貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm)
+
+---
+
 # 張國清在河北雄安新區調研　強調國資央企積極參與雄安新區建設
 
 ![張國清在河北雄安新區調研。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795620_1_20250313214333.jpg&q=90)
@@ -1394,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795240-20250311.htm)
-
----
-
-# 全國兩會｜有民企高層稱習近平講話如定心丸　提供報效國家的平台
-
-![李登海建議，加快修改種業公司注冊標準。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795233_1_20250311131810.jpg&q=75)
-  
-
-國家主席習近平上月在北京人民大會堂，出席民營企業座談會並發表重要講話，是中央時隔6年多再度召開民營企業座談會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795233-20250311.htm)
-
----
-
-# 全國兩會｜牧原實業秦英林稱民營經濟促進法明確民企重要地位
-
-![秦英林說，首次通過立法明確民營經濟在社會主義市場經濟中的重要地位，充分體現中央對民營經濟的高度重視和關心支持。（人民網圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795205_2_20250311100923.jpg&q=90)
-  
-
-全國人大常委會會議上月底二審《民營經濟促進法》草案，日前發表的人大常委會工作報告提出，今後一年的任務包括制定有關法律。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795205-20250311.htm)
 
 ---
