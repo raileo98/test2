@@ -1,3 +1,98 @@
+# 友邦去年純利升近82%　稅後營運溢利創新高
+
+  
+
+友邦保險去年純利68.4億美元，按年升近82%。稅後營運溢利升12%至66.05億美元，創新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795660-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795660-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795660-20250314.htm)
+
+---
+
+# 美元指數一度重上104　10年債息先升後回
+
+![美元指數一度重上104以上，觸及104.08，升近0.5%，創約1星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795659_1_20250314060857.jpg&q=90)
+  
+
+美元指數一度重上104以上，觸及104.08，升近0.5%，創約1星期新高，尾市報103.85。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795659-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795659-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795659-20250314.htm)
+
+---
+
+# 港股美國預託證券大多造好　ATMXJ升近1%至逾2%
+
+![ATMXJ的ADR比本港昨日收市價升近1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795658_1_20250314060145.jpg&q=90)
+  
+
+港股美國預託證券(ADR)大多造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795658-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795658-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795658-20250314.htm)
+
+---
+
+# 金價創新高　迫近3000美元關口
+
+![現貨金較早時升約2%，觸及每盎司2989.31美元，創新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795657_1_20250314055621.jpg&q=80)
+  
+
+金價創新高，迫近每盎司3000美元關口。關稅措施不確定增加，加上市場預料聯儲局今年仍有減息空間，利好金價表現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795657-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795657-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795657-20250314.htm)
+
+---
+
 # 油價低收近2%　結束兩日升勢
 
 ![英美期油低收近2%，結束兩日升勢，倫敦布蘭特期油再度失守每桶70美元水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795655_1_20250314055207.jpg&q=90)
@@ -1338,101 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm)
-
----
-
-# 金價曾升0.8%　創半個月新高
-
-![現貨金企穩每盎司2900美元水平，高見2940.64美元，升0.8%，創半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795492_1_20250313055857.jpg&q=90)
-  
-
-金價持續上升，受避險資金支撐。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795492-20250313.htm)
-
----
-
-# 英美期油高收2%或以上　連升兩日
-
-![英美期油高收2%或以上，連升兩日，倫敦布蘭特期油重上每桶70美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795491_1_20250313055515.jpg&q=90)
-  
-
-油價連升兩日，數據顯示美國上星期原油庫存增幅少於預期，成品油庫存則下跌，但投資者仍憂慮美國經濟放緩、關稅影響全球經濟增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795491-20250313.htm)
-
----
-
-# 英法德股市反彈　英股升逾0.5%　結束6日跌勢
-
-![英國富時100指數收報8540點，升44點，升幅0.53%，結束6日跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795490_1_20250313054651.jpg&q=90)
-  
-
-歐洲股市普遍升近1%或以上，西班牙股市跌約0.6%。市場憧憬俄烏有望停火，加上美國通脹數據低於預期，亦有利投資情緒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795490-20250313.htm)
-
----
-
-# 道指低收82點　納指及標普500指數反彈
-
-![美股個別發展，道指低收0.2%，納指及標普500指數分別反彈逾1.2%及約0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795489_1_20250313053840.jpg&q=90)
-  
-
-美股3大指數個別發展，道指連跌3個交易日，標普500指數及納指都反彈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795489-20250313.htm)
 
 ---

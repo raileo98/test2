@@ -1,3 +1,98 @@
+# 友邦去年純利升近82%　稅後營運溢利創新高
+
+  
+
+友邦保險去年純利68.4億美元，按年升近82%。稅後營運溢利升12%至66.05億美元，創新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795660-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795660-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795660-20250314.htm)
+
+---
+
+# 美元指數一度重上104　10年債息先升後回
+
+![美元指數一度重上104以上，觸及104.08，升近0.5%，創約1星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795659_1_20250314060857.jpg&q=90)
+  
+
+美元指數一度重上104以上，觸及104.08，升近0.5%，創約1星期新高，尾市報103.85。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795659-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795659-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795659-20250314.htm)
+
+---
+
+# 港股美國預託證券大多造好　ATMXJ升近1%至逾2%
+
+![ATMXJ的ADR比本港昨日收市價升近1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795658_1_20250314060145.jpg&q=90)
+  
+
+港股美國預託證券(ADR)大多造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795658-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795658-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795658-20250314.htm)
+
+---
+
+# 金價創新高　迫近3000美元關口
+
+![現貨金較早時升約2%，觸及每盎司2989.31美元，創新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795657_1_20250314055621.jpg&q=80)
+  
+
+金價創新高，迫近每盎司3000美元關口。關稅措施不確定增加，加上市場預料聯儲局今年仍有減息空間，利好金價表現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795657-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795657-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795657-20250314.htm)
+
+---
+
 # 油價低收近2%　結束兩日升勢
 
 ![英美期油低收近2%，結束兩日升勢，倫敦布蘭特期油再度失守每桶70美元水平。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795655_1_20250314055207.jpg&q=90)
@@ -1345,101 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795596-20250313.htm)
-
----
-
-# 本港大學共6科列十大　QS指香港的大學續保持世界領先地位
-
-![QS最新「世界大學學科排名」，本港以港大牙醫學科排名最高，位列全球第二。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795594_1_20250313185324.jpg&q=90)
-  
-
-國際高等教育資訊機構QS公布最新「世界大學學科排名」，本港大學排名整體上升，合共有6個學科位列十大，以港大牙醫學科排名最高，位列全球第二。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm)
-
----
-
-# 中大以DNA測序技術辨別出患鼻咽癌高風險人士
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795593_1_20250313183632.jpg&q=90)
-  
-
-中大研究團隊在2013至2016年，為逾2萬名沒有任何鼻咽癌徵狀的中年男士，進行「血漿EB病毒DNA測試」，找出34名鼻咽癌患者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm)
-
----
-
-# 個別屋邨有車違泊於緊急通道　房署接納申訴公署所提改善建議
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795592_1_20250313183931.jpg&q=85)
-  
-
-申訴專員公署完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有車輛違泊，個別屋邨甚至有違泊車輛停泊在緊急通道，形容情況並不理想，提出12項改善建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm)
-
----
-
-# 前私隱專員吳斌辭世　現任私隱專員鍾麗玲深切哀悼
-
-![鍾麗玲表示，與私隱專員公署員工向吳斌的家人致以誠懇慰問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795591_1_20250313181320.jpg&q=75)
-  
-
-個人資料私隱專員鍾麗玲表示，對前私隱專員吳斌辭世表示深切哀悼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm)
 
 ---
