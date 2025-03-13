@@ -1,3 +1,27 @@
+# Civil service job cuts won't save much: Legco
+
+![The Legislative Council Secretariat says civil service job cuts may not save much money. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795601_1_20250313190933.jpg&q=90)
+  
+
+The government's plan to cut 10,000 civil service positions over two years may not translate into substantial manpower savings, according to a research brief released by the Legislative Council Secretariat on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm)
+
+---
+
 # 'No cryopreservation time limit helps the infertile'
 
 ![An expert has expressed doubts on whether the proposed amendments on cryopreservation can help lift Hong Kong's declining birth rate. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795595_1_20250313182427.jpg&q=85)
@@ -1413,29 +1437,5 @@ Chief Executive John Lee praised the contribution of women to society and pledge
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794879-20250308.htm)
-
----
-
-# New scheme aims to remove poorly managed buildings
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794870_1_20250308113054.jpg&q=90)
-  
-
-There's hope that a new scheme can help eliminate poorly managed, so-called "three-nil buildings" - which are blocks that lack owners’ corporations, property management services, or resident organizations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm)
 
 ---

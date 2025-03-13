@@ -1,3 +1,27 @@
+# 美國中東問題特使抵莫斯科　討論俄烏臨時停火30日建議
+
+![美國中東問題特使威特科夫將與俄方討論美國提出俄烏臨時停火30日的建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795607_1_20250313195204.jpg&q=90)
+  
+
+美國中東問題特使威特科夫抵達俄羅斯首都莫斯科，將與俄方討論美國提出俄烏臨時停火30日的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm)
+
+---
+
 # 機場東消防局舉行開幕典禮　機場4消防局與洗消救援設施全面運作
 
 ![為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_1_20250313193819.jpg&q=90)
