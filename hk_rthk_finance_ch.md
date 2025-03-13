@@ -1,3 +1,27 @@
+# 平安好醫生已全面接入DeepSeek冀提升診斷效率
+
+![平安好醫生稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_1_20250313140503.jpg&q=90)
+  
+
+平安好醫生去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。公司表示，自主研發的「平安醫博通」醫療大模型接入DeepSeek大模型，並與字節跳動旗下AI工具「豆包」等進行合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm)
+
+---
+
 # 太古地產去年收入下跌2%
 
 ![太古地產去年內地投資物業租金收入升7%，零售物業租金收入升7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795548_1_20250313133600.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
-
----
-
-# 日立：今年加薪6.2%　豐田：薪酬加幅與去年持平
-
-![豐田表示，整體員工加薪幅度將與去年持平，並會發放相當於7.6個月薪酬的獎金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795406_1_20250312135259.jpg&q=90)
-  
-
-日本一年一度被稱為「春鬥」的大型企業年度勞資談判周三結束，多家大型企業同意工會提出的加薪要求，連續3年大幅加薪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795406-20250312.htm)
 
 ---

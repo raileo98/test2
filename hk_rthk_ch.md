@@ -1,3 +1,50 @@
+# 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
+
+  
+
+香港花卉展明日起至本月23日在維園舉行，今年主題花是秋英，以「綻放英姿」為主題，估計入場人次與往年相若，有約65萬人次，當中約5%至10%是遊客。康文署預算整體開支較去年少，約5000萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm)
+
+---
+
+# 平安好醫生已全面接入DeepSeek冀提升診斷效率
+
+![平安好醫生稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_1_20250313140503.jpg&q=90)
+  
+
+平安好醫生去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。公司表示，自主研發的「平安醫博通」醫療大模型接入DeepSeek大模型，並與字節跳動旗下AI工具「豆包」等進行合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm)
+
+---
+
 # 太古地產去年收入下跌2%
 
 ![太古地產去年內地投資物業租金收入升7%，零售物業租金收入升7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795548_1_20250313133600.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm)
-
----
-
-# 巴基斯坦火車乘客被挾持事件據報現場所有武裝份子被擊斃
-
-![官員說安全部隊已救出大批一度被武裝份子挾持的人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795476_1_20250312225726.jpg&q=90)
-  
-
-新華社引述巴基斯坦軍方官員報道，當地安全部隊在營救遇襲客運列車上人質的行動中，擊斃現場所有武裝份子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm)
-
----
-
-# 加拿大周四起對298億加元美國貨加徵25%關稅
-
-![勒布朗強調，當加拿大的鋼鋁行業受到美國政策的攻擊時，不會袖手旁觀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795470_1_20250312224105.jpg&q=90)
-  
-
-加拿大宣布，星期四起對總值298億加元的美國商品加徵25%報復性關稅，回應美國對進口鋼鋁徵收25%關稅的措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm)
 
 ---

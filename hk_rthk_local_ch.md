@@ -1,3 +1,26 @@
+# 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
+
+  
+
+香港花卉展明日起至本月23日在維園舉行，今年主題花是秋英，以「綻放英姿」為主題，估計入場人次與往年相若，有約65萬人次，當中約5%至10%是遊客。康文署預算整體開支較去年少，約5000萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm)
+
+---
+
 # 港股下午初段跌約200點
 
 ![恒生指數較早時報23418點，跌181點，跌幅0.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795547_1_20250313130455.jpg&q=10)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795352-20250312.htm)
-
----
-
-# 資深藝人夏春秋逝世終年93歲
-
-![資深藝人夏春秋逝世，終年93歲。（香港演藝人協會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795325_1_20250311230205.jpg&q=90)
-  
-
-資深藝人夏春秋逝世，終年93歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm)
 
 ---
