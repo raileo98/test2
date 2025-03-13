@@ -1,3 +1,27 @@
+# 七國集團召開外長會議　加國外長稱希望烏克蘭實現公正持久和平
+
+![與會者在會前大合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795639_1_20250314012055.jpg&q=90)
+  
+
+七國集團外長一連兩日在加拿大魁北克舉行會議，聚焦俄烏戰事及貿易戰等議題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm)
+
+---
+
 # 普京稱同意與烏臨時停火建議惟須討論細節　或與特朗普通電話
 
 ![普京說，停火的建議正確，但要透過停火實現長久和平，消除衝突根源。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795638_1_20250314005435.jpg&q=90)
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm)
-
----
-
-# 林琳支持取消配子或胚胎儲存期限制　賦予女性自主權夫婦及早規劃
-
-![林琳認為，修訂不僅賦予女性更多生育自主權，同時不用增加政府財政負擔，是一項具前瞻性的建議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795570_1_20250313162142.jpg&q=90)
-  
-
-人類生殖科技管理局建議修訂《生殖科技及胚胎研究實務守則》，不論儲存者的性別、年齡、醫學情況，取消配子或胚胎的儲存期限制。民建聯立法會議員林琳表示支持，認為不僅賦予女性更多生育自主權，協助有意生育的女性及需要醫學幫助的夫婦及早規劃，同時不用增加政府財政負擔，是一項具前瞻性的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm)
 
 ---

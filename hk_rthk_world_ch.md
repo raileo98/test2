@@ -1,3 +1,27 @@
+# 七國集團召開外長會議　加國外長稱希望烏克蘭實現公正持久和平
+
+![與會者在會前大合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795639_1_20250314012055.jpg&q=90)
+  
+
+七國集團外長一連兩日在加拿大魁北克舉行會議，聚焦俄烏戰事及貿易戰等議題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm)
+
+---
+
 # 普京稱同意與烏臨時停火建議惟須討論細節　或與特朗普通電話
 
 ![普京說，停火的建議正確，但要透過停火實現長久和平，消除衝突根源。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795638_1_20250314005435.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
-
----
-
-# 杜特爾特據報正被帶往海牙國際刑事法院　律師入稟法院尋求阻止
-
-![杜特爾特的女兒說，父親被帶上飛機，但不知道被帶往何處。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795315_1_20250311221658.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特被菲律賓警方逮捕。現任總統辦公室表示，是執行國際刑事法院的逮捕令，杜特爾特的健康狀況良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm)
 
 ---
