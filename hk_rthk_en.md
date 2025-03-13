@@ -1,3 +1,27 @@
+# Pakistan starts counting toll of train siege
+
+![An injured passenger is wheeled into a hospital in Quetta on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795561_1_20250313151752.jpg&q=90)
+  
+
+The bodies of at least 25 people, including 21 hostages, killed in a train siege by separatist gunmen in Pakistan were retrieved from the site yesterday ahead of the first funerals, officials said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm)
+
+---
+
 # 6 HK university courses make top 10 in global ranking
 
 ![HKU’s dentistry course sits at the number-two spot when compared with its global peers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795543_1_20250313124205.jpg&q=75)
@@ -1414,29 +1438,5 @@ The judiciary said on Tuesday it will start webcasting some proceedings at Hong 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm)
-
----
-
-# Social worker convicted of rioting
-
-![Social worker Jackie Chen is found guilty of rioting at the District Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795265_1_20250311164432.jpg&q=80)
-  
-
-Social worker Jackie Chen was on Tuesday convicted of rioting in Wan Chai during the 2019 protests, following a retrial.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm)
 
 ---

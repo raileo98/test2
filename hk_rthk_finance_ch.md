@@ -1,3 +1,27 @@
+# 內地股市連跌兩日　深股及創業板指數跌1%
+
+![深證成份指數收市報10736點，跌107點，跌幅0.99%，連跌兩日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795559_1_20250313151137.jpg&q=85)
+  
+
+滬深股市連跌兩日，人型機械人、人工智能概念、半導體等股份下跌；煤炭和電力股上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795559-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795559-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795559-20250313.htm)
+
+---
+
 # 全國兩會｜李慧琼料民營經濟愈來愈旺盛　陳勇籲時刻警惕維護國安
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm)
-
----
-
-# 日股收市靠穩
-
-![日經平均指數收市報36819點，升25點，升幅0.07%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795412_1_20250312144106.jpg&q=90)
-  
-
-日本股市收市靠穩，日經平均指數報36819點，升25點，升幅0.07%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795412-20250312.htm)
 
 ---

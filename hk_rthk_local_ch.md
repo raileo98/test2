@@ -1,3 +1,26 @@
+# 西九龍公路近奧海城對開輕型貨車撞消防車　貨車司機送院後不治
+
+  
+
+西九龍公路近大角咀奧海城對開，下午約2時發生致命交通意外，一輛輕型貨車撞向一輛消防車，輕型貨車司機一度被困，由消防救出，昏迷送往廣華醫院，搶救後不治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm)
+
+---
+
 # 時任懲教助理涉詐騙儲蓄互助社及財務機構貸款 　明天於法院答辯
 
   
@@ -357,7 +380,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795519_1_20250313101825.jpg&q=90)
   
 
-先後有三間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。感染及傳染病醫學會會長林緯遜於本台節目《千禧年代》表示，諾如病毒今年在全球多個地點的活躍度明顯增加，有學生於抵埗就出現腸胃炎徵狀，他們在香港出發前感染並不出奇，建議如果有學生在旅遊巴上嘔吐，可打開車窗，令空氣對流，盡量保持空氣流通。
+先後有學校參與廣東韶關及安徽黃山的交流團後，多名師生出現急性腸胃炎徵狀。感染及傳染病醫學會會長林緯遜於本台節目《千禧年代》表示，諾如病毒今年在全球多個地點的活躍度明顯增加，有學生於抵步就出現腸胃炎徵狀， 他們在香港出發前感染並不出奇，建議如果有學生在旅遊巴上嘔吐，可打開車窗，令空氣對流，盡量保持空氣流通。
 
   
 
@@ -1406,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795378-20250312.htm)
-
----
-
-# 下年度公務員司法人員退休金開支預算近520億元　料退休人數升
-
-![公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795374_1_20250312104552.jpg&q=90)
-  
-
-公務員事務局表示，在2025至26年度開支預算草案中，涉及公務員及司法人員的退休金達到519億9310萬元，較修訂預算增加17億2千多萬元 ，主要由於預計會退休的人數上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm)
 
 ---
