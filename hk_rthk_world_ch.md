@@ -1,3 +1,27 @@
+# 美國中東問題特使抵莫斯科　俄方稱獲知美烏會談信息後會確定立場
+
+![美國中東問題特使威特科夫將與俄方討論美國提出俄烏臨時停火30日的建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795629_1_20250313224924.jpg&q=90)
+  
+
+美國中東問題特使威特科夫抵達俄羅斯首都莫斯科，將與俄方討論美國提出俄烏臨時停火30日的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm)
+
+---
+
 # 特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅
 
 ![特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795615_1_20250313211302.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795301-20250311.htm)
-
----
-
-# 外交部：英方應尊重中方在南海領土主權和海洋權益
-
-![毛寧說，作為域外國家，英方應尊重中方在南海的領土主權和海洋權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795300_1_20250311194238.jpg&q=90)
-  
-
-在北京，外交部回應英國外相林德偉指中國正在南海採取破壞穩定的危險行為的言論，發言人毛寧說，南海是目前世界上最安全、最自由的海上通道之一。作為域外國家，英方應當尊重中方在南海的領土主權和海洋權益，停止挑動矛盾、搬弄是非。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm)
 
 ---

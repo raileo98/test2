@@ -1,3 +1,27 @@
+# 美國中東問題特使抵莫斯科　俄方稱獲知美烏會談信息後會確定立場
+
+![美國中東問題特使威特科夫將與俄方討論美國提出俄烏臨時停火30日的建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795629_1_20250313224924.jpg&q=90)
+  
+
+美國中東問題特使威特科夫抵達俄羅斯首都莫斯科，將與俄方討論美國提出俄烏臨時停火30日的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm)
+
+---
+
 # 世茂集團：境外債務重組計劃獲高等法院批准
 
 ![世茂集團表示，境外債務重組計劃已獲高等法院批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795623_1_20250313215134.jpg&q=90)
