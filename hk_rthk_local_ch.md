@@ -1,3 +1,50 @@
+# 【影片速遞】香港花卉展覽3.14至3.23維園舉行
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_1_20250313183642.jpg&q=60)
+  
+
+康文署主辦的香港花卉展覽，明天起至本月23日在維園舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm)
+
+---
+
+# 傳染病專家指倘染諾如病毒學生在旅遊巴嘔吐　或車內造成傳播
+
+  
+
+多間中學有師生到內地交流後，出現腸胃炎徵狀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm)
+
+---
+
 # 中大醫學院研發技術助更準確分辨患鼻咽癌高風險人士可提高存活率
 
   
@@ -46,6 +93,7 @@
 
 # 中大以DNA測序技術辨別出患鼻咽癌高風險人士
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795593_1_20250313183632.jpg&q=90)
   
 
 中大研究團隊在2013至2016年，為逾2萬名沒有任何鼻咽癌徵狀的中年男士，進行「血漿EB病毒DNA測試」，找出34名鼻咽癌患者。
@@ -67,8 +115,9 @@
 
 ---
 
-# 個別屋邨有車違泊於緊急通道　房署接納申訴公署所提出改善建議
+# 個別屋邨有車違泊於緊急通道　房署接納申訴公署所提改善建議
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795592_1_20250313183931.jpg&q=85)
   
 
 申訴專員公署完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有車輛違泊，個別屋邨甚至有違泊車輛停泊在緊急通道，形容情況並不理想，提出12項改善建議。
@@ -500,11 +549,10 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 
 # 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
 
-![香港花卉展明日起至本月23日在維園舉行。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_3_20250313154543.jpg&q=40)
+![花展將展出由「港版草間彌生」94歲的藝術家花婆婆在不同家具上繪畫「花」的家具藝術品。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_8_20250313183641.jpg&q=75)
 ![花展有多個大型園林造景以環遊世界為主題。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_4_20250313165940.jpg&q=50)
 ![花展每個園圃加設燈帶、裝飾燈、燈籠及燈柱等。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_5_20250313165940.jpg&q=55)
 ![花展特別擺放全運會的大型海報和吉祥物打卡點。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_6_20250313165940.jpg&q=75)
-![香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_1_20250313152706.jpg&q=85)
   
 
 香港花卉展明日起至本月23日在維園舉行，今年主題花是秋英，以「綻放英姿」為主題，估計入場人次與往年相若，有約65萬人次，當中約5%至10%是遊客。康文署預算整體開支較去年少，約5000萬元。
@@ -1389,53 +1437,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm)
-
----
-
-# 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
-
-![張仁良表示，委員知悉電車公司面對其他公共交通工具的激烈競爭，乘客量仍未能回復至疫情前的水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795414_1_20250312161112.jpg&q=80)
-  
-
-交通諮詢委員會討論由電車公司提出的加價申請，以及聽取港鐵公司構建鐵路科技生態圈的工作和進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
-
----
-
-# 公司註冊處資料外洩影響10.9萬人　私隱公署促全面檢視系統
-
-![私隱專員公署已建議公司註冊處對載有個人資料的系統進行定期及全面的檢視。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795411_1_20250312150301.jpg&q=80)
-  
-
-個人資料私隱專員公署完成對公司註冊處資料外洩事故的調查，並發表調查結果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795411-20250312.htm)
 
 ---

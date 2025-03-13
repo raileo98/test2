@@ -1,3 +1,27 @@
+# 人行：今年將擇機降準降息　研究創設新結構性貨幣政策工具
+
+![人行黨委召開擴大會議，指出今年將擇機降準降息，並研究創設新的結構性貨幣政策工具。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795589_1_20250313175730.jpg&q=75)
+  
+
+人民銀行黨委召開擴大會議，指出今年將根據國內外經濟金融形勢和金融市場運行情況，擇機降準降息，並研究創設新的結構性貨幣政策工具，重點支持科技創新領域投融資、促進消費和穩定外貿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm)
+
+---
+
 # 財政預算案2025 | 立法會研究料公務員凍薪可節省87億元
 
 ![立法會《研究簡報》分析「強化版」整合計劃下的多項主要措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795588_1_20250313182505.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm)
-
----
-
-# 國泰：年內突破100個航點大關
-
-![國泰：向合資格員工派發逾10星期工資分享成果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795446_1_20250312190534.jpg&q=90)
-  
-
-國泰航空行政總裁林紹波表示，年內班次及運力會繼續增加，集團經已宣布11個新航點，年內會突破100個航點大關，強調會繼續擴大全球網絡和提升服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
 
 ---

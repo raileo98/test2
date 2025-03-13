@@ -1,3 +1,74 @@
+# 人行：今年將擇機降準降息　研究創設新結構性貨幣政策工具
+
+![人行黨委召開擴大會議，指出今年將擇機降準降息，並研究創設新的結構性貨幣政策工具。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795589_1_20250313175730.jpg&q=75)
+  
+
+人民銀行黨委召開擴大會議，指出今年將根據國內外經濟金融形勢和金融市場運行情況，擇機降準降息，並研究創設新的結構性貨幣政策工具，重點支持科技創新領域投融資、促進消費和穩定外貿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm)
+
+---
+
+# 【影片速遞】香港花卉展覽3.14至3.23維園舉行
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_1_20250313183642.jpg&q=60)
+  
+
+康文署主辦的香港花卉展覽，明天起至本月23日在維園舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm)
+
+---
+
+# 傳染病專家指倘染諾如病毒學生在旅遊巴嘔吐　或車內造成傳播
+
+  
+
+多間中學有師生到內地交流後，出現腸胃炎徵狀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm)
+
+---
+
 # 中大醫學院研發技術助更準確分辨患鼻咽癌高風險人士可提高存活率
 
   
@@ -46,6 +117,7 @@
 
 # 中大以DNA測序技術辨別出患鼻咽癌高風險人士
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795593_1_20250313183632.jpg&q=90)
   
 
 中大研究團隊在2013至2016年，為逾2萬名沒有任何鼻咽癌徵狀的中年男士，進行「血漿EB病毒DNA測試」，找出34名鼻咽癌患者。
@@ -67,8 +139,9 @@
 
 ---
 
-# 個別屋邨有車違泊於緊急通道　房署接納申訴公署所提出改善建議
+# 個別屋邨有車違泊於緊急通道　房署接納申訴公署所提改善建議
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795592_1_20250313183931.jpg&q=85)
   
 
 申訴專員公署完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有車輛違泊，個別屋邨甚至有違泊車輛停泊在緊急通道，形容情況並不理想，提出12項改善建議。
@@ -164,6 +237,7 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 
 # 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
 
+![外長王毅在北京同老撾外長通沙萬舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795587_1_20250313183621.jpg&q=90)
   
 
 中共中央政治局委員、外長王毅在北京同老撾外長通沙萬舉行會談。
@@ -208,7 +282,7 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 
 ---
 
-# 周大福：優化財務領導架構　鄭炳熙下月卸任首席財務官
+# 周大福公布首席財務官變動　優化財務領導架構
 
 ![周大福珠寶宣布，葉家盈4月1日起接任首席財務官，鄭炳熙專注於策略監督，優化財務領導架構。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795582_1_20250313172523.jpg&q=90)
   
@@ -450,6 +524,7 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 
 # 普京赴庫爾斯克州聽取匯報　要求俄軍盡快徹底奪回該區
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795569_1_20250313183645.jpg&q=90)
   
 
 俄羅斯總統普京昨日身穿迷彩軍服，視察庫爾斯克州一個軍事指揮中心，聽取北方集團軍匯報軍事行動進展。
@@ -833,11 +908,10 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 
 # 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
 
-![香港花卉展明日起至本月23日在維園舉行。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_3_20250313154543.jpg&q=40)
+![花展將展出由「港版草間彌生」94歲的藝術家花婆婆在不同家具上繪畫「花」的家具藝術品。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_8_20250313183641.jpg&q=75)
 ![花展有多個大型園林造景以環遊世界為主題。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_4_20250313165940.jpg&q=50)
 ![花展每個園圃加設燈帶、裝飾燈、燈籠及燈柱等。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_5_20250313165940.jpg&q=55)
 ![花展特別擺放全運會的大型海報和吉祥物打卡點。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_6_20250313165940.jpg&q=75)
-![香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_1_20250313152706.jpg&q=85)
   
 
 香港花卉展明日起至本月23日在維園舉行，今年主題花是秋英，以「綻放英姿」為主題，估計入場人次與往年相若，有約65萬人次，當中約5%至10%是遊客。康文署預算整體開支較去年少，約5000萬元。

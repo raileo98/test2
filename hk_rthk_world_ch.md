@@ -1,5 +1,6 @@
 # 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
 
+![外長王毅在北京同老撾外長通沙萬舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795587_1_20250313183621.jpg&q=90)
   
 
 中共中央政治局委員、外長王毅在北京同老撾外長通沙萬舉行會談。
@@ -94,6 +95,7 @@
 
 # 普京赴庫爾斯克州聽取匯報　要求俄軍盡快徹底奪回該區
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795569_1_20250313183645.jpg&q=90)
   
 
 俄羅斯總統普京昨日身穿迷彩軍服，視察庫爾斯克州一個軍事指揮中心，聽取北方集團軍匯報軍事行動進展。
