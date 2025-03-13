@@ -1,3 +1,26 @@
+# 全國兩會｜李慧琼料民營經濟愈來愈旺盛　陳勇籲時刻警惕維護國安
+
+  
+
+民建聯舉辦「全國兩會精神分享會」，由全國人大常委李慧琼、港區全國人大代表召集人陳勇、全國人大代表黃英豪、朱立威、黃冰芬，及全國政協委員呂堅主講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm)
+
+---
+
 # 韓股近乎平收
 
 ![首爾綜合指數收市報2573點，跌1點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795553_1_20250313143607.jpg&q=90)

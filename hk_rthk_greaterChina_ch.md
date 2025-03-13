@@ -1,3 +1,26 @@
+# 全國兩會｜李慧琼料民營經濟愈來愈旺盛　陳勇籲時刻警惕維護國安
+
+  
+
+民建聯舉辦「全國兩會精神分享會」，由全國人大常委李慧琼、港區全國人大代表召集人陳勇、全國人大代表黃英豪、朱立威、黃冰芬，及全國政協委員呂堅主講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm)
+
+---
+
 # 香港承辦全運會保齡球項目甄選賽下月展開
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm)
-
----
-
-# 外交部：聯合國稱台灣為「中國台灣省」的立場一貫　有案可查
-
-![毛寧說，中方將採取一切必要措施捍衛國家主權和領土完整。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795119_1_20250310162532.jpg&q=90)
-  
-
-在北京，外長王毅日前表示，台灣地區在聯合國的唯一稱謂就是「中國台灣省」，從來不是一個國家，今後亦絕無可能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm)
 
 ---
