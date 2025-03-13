@@ -1,3 +1,27 @@
+# 太古地產去年盈轉虧　全年蝕約7.7億元
+
+![太古地產去年虧損7.66億元，前一年則盈利26.37億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795537_1_20250313122001.jpg&q=90)
+  
+
+太古地產去年虧損7.66億元，前一年則盈利26.37億元，年內錄得投資物業公平值虧損近63億元，按年增加逾43%。派第2次中期息每股0.76元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795537-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795537-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795537-20250313.htm)
+
+---
+
 # 港股半日跌173點　科指跌逾2%
 
 ![港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795534_1_20250313120805.jpg&q=85)
@@ -24,6 +48,7 @@
 
 # 74人涉非法賭檔及販毒等被捕　警方籲業主留意物業勿作不法用途
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795535_1_20250313122354.jpg&q=85)
   
 
 警方港島總區過去10天進行反三合會行動，拘捕74人，搗破5個賣淫場所、6個賭檔，檢取一批賭具及超過25萬元現金。在7個反毒品行動中，檢獲包括霹靂可卡因、冰毒、氯胺酮及太空油毒品等，市值超過160萬元。
@@ -189,7 +214,7 @@
 
 ---
 
-# 西營盤舊贊育醫院主樓及上環廣福祠將被列為古蹟
+# 西營盤舊贊育醫院主樓及上環廣福祠擬列為古蹟
 
 ![西營盤舊贊育醫院主樓樓高四層，設有地庫，採用新古典主義建築風格，糅合中式元素，有紅磚外牆、圓柱及刻有前清官員的題字。（ 香港文化古蹟資源中心）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_1_20250313110927.jpg&q=75)
 ![廣福祠建於高台之上，青磚和花崗石門口的匾額和楹聯保存完好，位於前廳正脊上的石灣陶塑屹立至今。（東華三院）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_2_20250313110927.jpg&q=80)
@@ -315,7 +340,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795519_1_20250313101825.jpg&q=90)
   
 
-先後有三間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。感染及傳染病醫學會會長林緯遜於本台節目《千禧年代》表示，諾如病毒今年在全球多個地點的活躍度明顯增加，有學生於抵步就出現腸胃炎徵狀，他們在香港出發前感染並不出奇，建議如果有學生在旅遊巴上嘔吐，可打開車窗，令空氣對流，盡量保持空氣流通。
+先後有三間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。感染及傳染病醫學會會長林緯遜於本台節目《千禧年代》表示，諾如病毒今年在全球多個地點的活躍度明顯增加，有學生於抵埗就出現腸胃炎徵狀，他們在香港出發前感染並不出奇，建議如果有學生在旅遊巴上嘔吐，可打開車窗，令空氣對流，盡量保持空氣流通。
 
   
 
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm)
-
----
-
-# 國常會：已明確全年經濟社會發展目標　各部門要細化措施加快落實
-
-![李強主持召開國常會指出，政府工作報告明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795459_1_20250312210430.jpg&q=90)
-  
-
-國務院總理李強主持召開國常會指出，最新審議通過的政府工作報告，明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實，與各種不確定因素搶時間並靠前發力，亦要做好政策儲備，確保需要時能夠及時推出，盡快見效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm)
 
 ---
