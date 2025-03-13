@@ -1,4 +1,27 @@
-# 立法會前廳交流會將由黃偉綸帶領　以事務委員會為基礎分組討論
+# 時任懲教助理涉詐騙儲蓄互助社及財務機構貸款 　明天於法院答辯
+
+  
+
+廉署落案起訴一名懲教署時任懲教助理，控告他涉嫌藉隱瞞個人債務，在3年內先後多次詐騙懲教署儲蓄互助社及3間財務機構，向他批出貸款超過150萬元。被告獲准保釋，案件明日在東區裁判法院答辯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795558-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795558-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795558-20250313.htm)
+
+---
+
+# 本月26日立法會前廳交流會由黃偉綸帶領以事務委員會作分組討論
 
   
 
@@ -1407,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795374-20250312.htm)
-
----
-
-# 陳茂波：香港擁有雄厚基礎科研實力　享優先進入內地市場先機
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795373_1_20250312104203.jpg&q=80)
-  
-
-財政司司長陳茂波表示，香港將會成為全球領先的金融和創科中心。粵港澳大灣區各城市優勢互補，是創科的強勢區域，北部都會區將有300公頃土地預留作創科發展，將會是很多科技公司的落戶點，深港河套區將成為創新政策的試驗田，包括人員、資本、貨物和數據等關鍵生產要素的暢通流動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795373-20250312.htm)
 
 ---
