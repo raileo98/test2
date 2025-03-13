@@ -1,3 +1,27 @@
+# Putin agrees to ceasefire but raises 'questions'
+
+![Putin makes his first comments on the plan, saying he's "for" the proposed ceasefire, but he has "serious questions" about how it would work. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795644_1_20250314025202.jpg&q=90)
+  
+
+Russian President Vladimir Putin said on Thursday he had "serious questions" about Washington's plan for a 30-day ceasefire in Ukraine, but Moscow was ready to discuss it with US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm)
+
+---
+
 # Two primary schools face primary one class ban
 
 ![Price Memorial Catholic Primary School in Wong Tai Sin and Aplichau Kaifong Primary School in Southern District are banned from running primary one classes in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795622_1_20250313214543.jpg&q=90)
@@ -1415,29 +1439,5 @@ Wall Street stocks finished lower on Tuesday on uncertainty surrounding Presiden
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
-
----
-
-# Ukraine backs ceasefire as US ends aid freeze
-
-![US Secretary of State Marco Rubio speaks with the media following meetings with a Ukrainian delegation in Jeddah. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795341_1_20250312052757.jpg&q=90)
-  
-
-Ukraine endorsed an American proposal for a 30-day ceasefire and agreed to immediate negotiations with Russia in crunch talks in Jeddah on Tuesday after three years of grinding military conflict.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm)
 
 ---

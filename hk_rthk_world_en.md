@@ -1,3 +1,27 @@
+# Putin agrees to ceasefire but raises 'questions'
+
+![Putin makes his first comments on the plan, saying he's "for" the proposed ceasefire, but he has "serious questions" about how it would work. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795644_1_20250314025202.jpg&q=90)
+  
+
+Russian President Vladimir Putin said on Thursday he had "serious questions" about Washington's plan for a 30-day ceasefire in Ukraine, but Moscow was ready to discuss it with US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm)
+
+---
+
 # Pakistan starts counting toll of train siege
 
 ![An injured passenger is wheeled into a hospital in Quetta on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795561_1_20250313151752.jpg&q=90)
@@ -1411,29 +1435,5 @@ Elon Musk's SpaceX saw mixed results in the latest test launch of its Starship m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794668-20250307.htm)
-
----
-
-# Trump backs off Mexico, Canada tariffs
-
-![US President Donald Trump said after a phone call with Mexican President Claudia Sheinbaum that fresh tariffs targeting Mexico would not apply to trade that falls under an existing regional pact. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794641_1_20250307042023.jpg&q=90)
-  
-
-US President Donald Trump on Thursday unveiled a temporary rollback to steep tariffs targeting Canada and Mexico, providing some reprieve to companies and consumers after blowback on financial markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794641-20250307.htm)
 
 ---
