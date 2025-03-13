@@ -1,3 +1,27 @@
+# Push to lift time cap on cryopreservation
+
+![The Council on Human Reproductive Technology is suggesting people be allows to store gametes or embryos for as long as they want. (File photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_1_20250313164700.jpg&q=80)
+  
+
+The government launched on Thursday a consultation on lifting the storage period limitation for frozen eggs, sperm or embryos.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm)
+
+---
+
 # Driver dies after crashing into fire engine
 
 ![The fatal traffic accident occurred near Olympian City. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795576_1_20250313161524.jpg&q=80)
@@ -1414,29 +1438,5 @@ A bus overturned in an area of Johannesburg near South Africa's main airport ear
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm)
-
----
-
-# Man United announce plans for new 100,000-seat stadium
-
-![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=90)
-  
-
-Manchester United on Tuesday announced plans to build a new 100,000-capacity stadium that co-owner Jim Ratcliffe said would be the "world's greatest" football ground.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm)
 
 ---
