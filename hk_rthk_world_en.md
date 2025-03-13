@@ -1,3 +1,51 @@
+# Duterte in custody of International Criminal Court
+
+![Supporters of former Philippine President Rodrigo Duterte wait for his arrival at the Scheveningen Prison in The Hague, Netherlands. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795510_1_20250313085050.jpg&q=90)
+  
+
+Former Philippine President Rodrigo Duterte was turned over on Wednesday to the custody of the International Criminal Court, following his arrest on a warrant accusing him of crimes against humanity over deadly anti-drugs crackdowns he oversaw while in office.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm)
+
+---
+
+# Nasa launches SPHEREx to study universe's origin
+
+![The megaphone-shaped telescope will collect data on more than 450 million galaxies, as well as more than 100 million stars in the Milky Way during its planned two-year mission. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795461_1_20250312212209.jpg&q=85)
+  
+
+A Nasa telescope was launched into space from California on Tuesday for a mission to explore the origins of the universe and to search the Milky Way galaxy for hidden reservoirs of water, a key ingredient for life.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm)
+
+---
+
 # SpaceX scrubs launch of ISS replacement crew mission
 
 ![SpaceX called off the flight over a last-minute technical issue with the rocket's launchpad. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795503_1_20250313075135.jpg&q=90)
@@ -1387,53 +1435,5 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
-
----
-
-# Rare cyclone approaches Australian coast
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794517_1_20250306120635.jpg&q=85)
-  
-
-Early wind and rain from a rare tropical cyclone began lashing part of eastern Australia on Thursday as schools were closed, public transport was stopped and desperate residents got around shortages of sandbags by buying potting mix.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794517-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794517-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794517-20250306.htm)
-
----
-
-# SKorea military jet misdrops bombs, injuring civilians
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794511_1_20250306113111.jpg&q=75)
-  
-
-South Korea's Air Force on Thursday said one of its fighter jets had accidentally dropped eight bombs in the wrong place during a training exercise, resulting in civilians being injured.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794511-20250306.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 台股初段升約1%
+
+![台灣加權指數較早時報22489點，升210點，升幅0.95%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795513_1_20250313090601.jpg&q=90)
+  
+
+台股初段造好，加權指數較早時報22489點，升210點，升幅0.95%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm)
+
+---
+
 # 新秀麗去年盈利跌約13%
 
 ![新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795509_1_20250313082824.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795369-20250312.htm)
-
----
-
-# 人民幣兌美元中間價升穿7.17　創近1星期新高
-
-![人民幣中間價報7.1696兌1美元，較昨日中間價升45點子，創近1星期高位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795365_1_20250312091823.jpg&q=80)
-  
-
-人民幣中間價突破7.17兌1美元關口，報7.1696，較昨日中間價升45點子，創近1星期高位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm)
 
 ---

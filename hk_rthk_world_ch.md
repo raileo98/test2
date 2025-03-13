@@ -1,3 +1,51 @@
+# 卡尼明天宣誓就任加國總理　料內閣人數削近半
+
+![卡尼將在當地星期五宣誓就任加拿大總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795514_1_20250313091515.jpg&q=80)
+  
+
+加拿大新當選總理的自由黨黨魁卡尼，將在當地星期五早上宣誓就任，結束杜魯多超過9年的總理生涯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm)
+
+---
+
+# 韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡
+
+![韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795511_1_20250313085848.jpg&q=90)
+  
+
+韓聯社報道，一艘疑似走私煤炭的北韓貨船上月在西部海域與一艘中國船隻相撞後沉沒，造成近20名北韓船員死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm)
+
+---
+
 # 《環看天下》：杜特爾特被捕送往海牙　國際刑事法院管轄權惹爭議
 
 ![杜特爾特抵達荷蘭前向支持發表短片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795506_1_20250313081534.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795226-20250311.htm)
-
----
-
-# 美官員指烏克蘭須作領土讓步　澤連斯基冀烏美會談有實質成果
-
-![澤連斯基強調烏克蘭的談判立場完全具建設性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795216_1_20250311103456.jpg&q=90)
-  
-
-美國及烏克蘭代表團將在沙特阿拉伯港口城市吉達，就俄烏戰事舉行會談。美方官員說在未來可能達成的任何和平協議中，烏克蘭都必須作出領土讓步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795216-20250311.htm)
-
----
-
-# 311大地震14周年　災區有悼念遇難者活動
-
-![有民眾上午到海邊悼念當年地震及海嘯遇難者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795212_1_20250311100258.jpg&q=90)
-  
-
-日本311大地震14周年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm)
 
 ---

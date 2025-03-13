@@ -1,5 +1,30 @@
+# 韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡
+
+![韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795511_1_20250313085848.jpg&q=90)
+  
+
+韓聯社報道，一艘疑似走私煤炭的北韓貨船上月在西部海域與一艘中國船隻相撞後沉沒，造成近20名北韓船員死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm)
+
+---
+
 # 台中氣爆事件傷重2歲女童　上周在澳門醫院離世
 
+![上月中發生氣爆的台中新光三越損毀嚴重，事件中傷重的澳門女童至上周不治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795504_1_20250313084746.jpg&q=90)
   
 
 在上月台中氣爆事件中重傷的2歲澳門女童不治，令事件的死亡人數增至5人，另外30多人受傷。
@@ -1416,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795120-20250310.htm)
-
----
-
-# 外交部：反對泛化國家安全概念　將堅定維護中國企業合法權益
-
-![毛寧表示，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795113_1_20250310160037.jpg&q=90)
-  
-
-路透社引述消息人士報道，美國政府考慮以國家安全理由，禁止政府設備使用中國人工智能模型DeepSeek。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795113-20250310.htm)
 
 ---

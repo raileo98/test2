@@ -1,3 +1,75 @@
+# 卡尼明天宣誓就任加國總理　料內閣人數削近半
+
+![卡尼將在當地星期五宣誓就任加拿大總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795514_1_20250313091515.jpg&q=80)
+  
+
+加拿大新當選總理的自由黨黨魁卡尼，將在當地星期五早上宣誓就任，結束杜魯多超過9年的總理生涯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm)
+
+---
+
+# 台股初段升約1%
+
+![台灣加權指數較早時報22489點，升210點，升幅0.95%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795513_1_20250313090601.jpg&q=90)
+  
+
+台股初段造好，加權指數較早時報22489點，升210點，升幅0.95%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm)
+
+---
+
+# 韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡
+
+![韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795511_1_20250313085848.jpg&q=90)
+  
+
+韓聯社報道，一艘疑似走私煤炭的北韓貨船上月在西部海域與一艘中國船隻相撞後沉沒，造成近20名北韓船員死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm)
+
+---
+
 # 新秀麗去年盈利跌約13%
 
 ![新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795509_1_20250313082824.jpg&q=90)
@@ -96,6 +168,7 @@
 
 # 台中氣爆事件傷重2歲女童　上周在澳門醫院離世
 
+![上月中發生氣爆的台中新光三越損毀嚴重，事件中傷重的澳門女童至上周不治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795504_1_20250313084746.jpg&q=90)
   
 
 在上月台中氣爆事件中重傷的2歲澳門女童不治，令事件的死亡人數增至5人，另外30多人受傷。
@@ -1366,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
-
----
-
-# 旅發局邀泰國演員台灣歌手參演宣傳片　介紹本港綠色旅遊資源
-
-![旅發局推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。（旅發局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795442_1_20250312181152.jpg&q=90)
-  
-
-旅發局於社交平台推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm)
-
----
-
-# 人民幣兌美元曾升至近4個月高位　收市跌近140點子
-
-![人民幣兌美元一度升至近4個月新高，收市報7.2445兌1美元，較上日收市跌139點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795438_1_20250312173655.jpg&q=85)
-  
-
-人民幣兌美元一度升至近4個月新高，高見7.2158兌1美元，但其後轉跌，收市報7.2445兌1美元，較上日收市跌139點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm)
-
----
-
-# 香港快運去年由盈轉虧　林紹波稱屬短期問題長遠有信心有盈利
-
-![國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795439_1_20250312181118.jpg&q=90)
-  
-
-國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm)
 
 ---
