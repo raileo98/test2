@@ -1,3 +1,27 @@
+# 比利時調查歐洲議會議員涉貪案　檢察官稱賄賂行為據報令華為受益
+
+![當地傳媒報道，華為的說客涉嫌賄賂現任或前任歐洲議會議員。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795642_1_20250314014959.jpg&q=90)
+  
+
+比利時執法部門拘捕多人，涉嫌與賄賂歐洲議會議員的案件有關，檢察官說，有關賄賂行為據稱令中國電訊設備商華為受益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm)
+
+---
+
 # 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
 
 ![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm)
-
----
-
-# 商務部：中美相關主管部門一直保持溝通
-
-![商務部稱，中方與美方相關主管部門一直保持溝通。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795573_1_20250313161008.jpg&q=75)
-  
-
-在北京，商務部新聞發言人何咏前表示，中方與美方相關主管部門一直保持溝通。中方一貫主張，對於經貿領域的分歧和爭議，中美雙方應秉持積極合作的態度，通過平等對話加強溝通，尋找雙方都能接受的解決方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
 
 ---

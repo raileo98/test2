@@ -1,3 +1,27 @@
+# 比利時調查歐洲議會議員涉貪案　檢察官稱賄賂行為據報令華為受益
+
+![當地傳媒報道，華為的說客涉嫌賄賂現任或前任歐洲議會議員。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795642_1_20250314014959.jpg&q=90)
+  
+
+比利時執法部門拘捕多人，涉嫌與賄賂歐洲議會議員的案件有關，檢察官說，有關賄賂行為據稱令中國電訊設備商華為受益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm)
+
+---
+
 # 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
 
 ![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
@@ -1411,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm)
-
----
-
-# 菲總統證實杜特爾特正被送往海牙
-
-![總統小馬可斯召開記者會，證實載著杜特爾特的飛機已於晚上大約11時起飛。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_2_20250312025249.jpg&q=90)
-![支持者在馬尼拉集會聲援杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795327_3_20250312025249.jpg&q=85)
-  
-
-菲律賓前總統杜特爾特被捕後，正被送往國際刑事法院總部所在地荷蘭海牙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm)
 
 ---
