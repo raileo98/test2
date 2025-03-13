@@ -71,6 +71,30 @@
 
 ---
 
+# QS排名香港有六個大學學科位居前十　港大牙科排第二
+
+![香港有6個學科排名位居全球前10名，包括第2位的港大牙科。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795523_1_20250313100349.jpg&q=85)
+  
+
+國際高等教育資訊機構(QS)最新世界大學學科排名，香港9間院校共231學科，其中68%排名上升，是全球進步最大的地區；另有6科排名位居前10位，較去年增2科，排名最高的為港大牙科，位列第2位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm)
+
+---
+
 # 滬深股市初段微跌
 
 ![內地股市早段微跌，上證指數較早時報3369點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795520_1_20250313093736.jpg&q=90)
@@ -164,6 +188,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm)
+
+---
+
+# 卡尼明天宣誓就任加國總理　料內閣人數削近半
+
+![卡尼將在當地星期五宣誓就任加拿大總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795514_1_20250313091515.jpg&q=80)
+  
+
+加拿大新當選總理的自由黨黨魁卡尼，將在當地星期五早上宣誓就任，結束杜魯多超過9年的總理生涯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm)
 
 ---
 
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
-
----
-
-# 港股半日跌158點　汽車股逆市造好
-
-![恒生指數高開後反覆向下，早段最多升約180點，中午報23623點，跌158點，跌幅0.67%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795388_1_20250312120913.jpg&q=90)
-  
-
-港股高開77點後反覆向下，連跌4日。恒生指數開市後最多升約180點，高見23962點，中午報23623點，跌158點，跌幅0.67%，半日主板成交額逾1362億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795388-20250312.htm)
-
----
-
-# 第3屆「裕澤香江」高峰論壇3月26日舉行　探討人工智能等議題
-
-![許正宇表示第3屆「裕澤香江」高峰論壇本月26日舉行，當周亦有多場國際頂級峰會在港舉行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795383_1_20250312113651.jpg&q=80)
-  
-
-財經事務及庫務局局長許正宇在網誌《財庫論》表示，第3屆「裕澤香江」高峰論壇將於本月26日舉行，主題為「香港---為全球，向世界」，體現面對瞬息萬變的國際形勢及貿易摩擦加劇，香港作為內地與國際之間「超級聯繫人」和「超級增值人」的角色更為關鍵，論壇亦會探討科技與人工智能、慈善傳承、工藝傳承與文化創新等議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795383-20250312.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Thunder down Celtics to secure playoff berth
+
+![Shai Gilgeous-Alexander was the star for Oklahoma City yet again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795528_1_20250313112112.jpg&q=90)
+  
+
+Shai Gilgeous-Alexander scored 34 points as the Oklahoma City Thunder punched their ticket to the playoffs with an impressive 118-112 victory over the reigning champion Boston Celtics in a potential NBA Finals sneak preview.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm)
+
+---
+
 # Hong Kong stocks open flat in early trading
 
 ![The Hang Seng Index rose 0.07 percent at the starting of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795517_1_20250313101303.jpg&q=75)
@@ -1414,29 +1438,5 @@ Former Philippine president Rodrigo Duterte was arrested by police at Manila's i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm)
-
----
-
-# 'Restaurants may need to pay more to delivery firms'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795218_1_20250311104506.jpg&q=90)
-  
-
-A catering sector representative on Tuesday said he was concerned restaurants would need to pay higher fees for using delivery platforms in future.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm)
 
 ---

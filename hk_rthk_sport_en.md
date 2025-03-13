@@ -1,3 +1,27 @@
+# Thunder down Celtics to secure playoff berth
+
+![Shai Gilgeous-Alexander was the star for Oklahoma City yet again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795528_1_20250313112112.jpg&q=90)
+  
+
+Shai Gilgeous-Alexander scored 34 points as the Oklahoma City Thunder punched their ticket to the playoffs with an impressive 118-112 victory over the reigning champion Boston Celtics in a potential NBA Finals sneak preview.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm)
+
+---
+
 # Axelsen suffers shock defeat at All England Open
 
 ![Axelsen was unable to hold on for the victory despite dominating the second set. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795505_1_20250313081101.jpg&q=90)
@@ -1424,29 +1448,5 @@ World MotoGP champion Jorge Martin will miss the first race of the season this w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793024-20250225.htm)
-
----
-
-# NZ into Champions Trophy semis; hosts Pakistan out
-
-![New Zealand’s Rachin Ravindra celebrates after scoring a century against Bangladesh. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793008_1_20250225053556.jpg&q=90)
-  
-
-Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Trophy semi-finals with a five-wicket win over Bangladesh, as hosts Pakistan were sent crashing out of the tournament.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm)
 
 ---
