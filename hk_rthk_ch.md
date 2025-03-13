@@ -1,3 +1,74 @@
+# 港股下午初段跌約200點
+
+![恒生指數較早時報23418點，跌181點，跌幅0.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795547_1_20250313130455.jpg&q=10)
+  
+
+港股下午初段持續下跌，恒生指數較早時報23418點，跌181點，跌幅0.77%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm)
+
+---
+
+# 市場料內地2月新增人民幣貸款按月或大減逾70%
+
+![內地2月新增人民幣貸款預測中位數近1.3萬億元人民幣，較今年1月的逾5.1萬億元減少逾70%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795546_1_20250313130150.jpg&q=85)
+  
+
+內地下周公布今年首兩個月經濟運行數據，預計人民銀行在之前將公布2月新增貸款及社會融資規模增量等金融統計數據。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795546-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795546-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795546-20250313.htm)
+
+---
+
+# 新鴻基公司料去年扭虧　盈利最多4億元
+
+  
+
+新鴻基公司發盈喜，預計去年度由虧轉盈，賺不超過4億元，前年虧損4.71億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795545-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795545-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795545-20250313.htm)
+
+---
+
 # 香港承辦全運會保齡球項目甄選賽下月展開
 
   
@@ -1366,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
-
----
-
-# 教育局：無證據顯示與考察團膳食有關　安全起見要求停用涉事餐廳
-
-![教育局表示，在相關的招標及報價文件清楚列明對團餐、餐廳環境衛生等的要求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795468_1_20250312222617.jpg&q=80)
-  
-
-先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育局表示，據內地相關部門初步調查所得，個案較大機會由團友間的生活接觸或暴露於病例的嘔吐物造成傳播，暫時沒有證據顯示與考察團安排的膳食有關，但現階段為安全起見，已立即要求承辦機構停用涉事餐廳，並要求所有為公民與社會發展科內地考察交流團提供膳食的餐廳暫停供應生冷食品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm)
-
----
-
-# 加拿大減息0.25厘　利率下調至2.75厘
-
-![加拿大央行公布減息0.25厘，將利率下調至2.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795467_1_20250312225629.jpg&q=90)
-  
-
-加拿大央行公布減息0.25厘，將利率下調至2.75厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm)
-
----
-
-# 全國兩會｜趙樂際會見採訪全國人大會議的傳媒代表
-
-![趙樂際在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病後，首次公開露面。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795466_1_20250312215548.jpg&q=85)
-  
-
-全國人大委員長趙樂際下午在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病、缺席全國人大會議閉幕會後，首次公開露面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm)
 
 ---

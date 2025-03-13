@@ -1,3 +1,27 @@
+# Cancer devices donated by Li require clinical trials
+
+![HKU says 40 patients have been treated with the donated device over the past six months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795541_1_20250313123550.jpg&q=75)
+  
+
+Health officials said on Wednesday medical devices donated by a tycoon for treating liver cancer are still under clinical trials and require careful evaluation before wider use in public healthcare.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm)
+
+---
+
 # 'Students may have contracted gastroenteritis in HK'
 
 ![Dr Wilson Lam says hand sanitisers are ineffective in dealing with norovirus. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795536_1_20250313121837.jpg&q=90)
@@ -1414,29 +1438,5 @@ Financial Secretary Paul Chan on Tuesday said the government does not plan to co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm)
-
----
-
-# NPC concludes annual session with call for unity
-
-![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=75)
-  
-
-The third annual session of the 14th National People’s Congress (NPC) concluded in Beijing on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm)
 
 ---

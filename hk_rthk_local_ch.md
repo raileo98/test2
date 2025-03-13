@@ -1,3 +1,27 @@
+# 港股下午初段跌約200點
+
+![恒生指數較早時報23418點，跌181點，跌幅0.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795547_1_20250313130455.jpg&q=10)
+  
+
+港股下午初段持續下跌，恒生指數較早時報23418點，跌181點，跌幅0.77%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm)
+
+---
+
 # 香港承辦全運會保齡球項目甄選賽下月展開
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795325-20250311.htm)
-
----
-
-# 4學校參與安徽黃山考察團13師生腸胃炎　當中9人感染諾如病毒
-
-![中心相信，有關爆發個案由諾如病毒經人傳人或受污染環境傳播，並不涉及當地食肆。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795324_1_20250311230355.jpg&q=80)
-  
-
-4間學校的師生參與同一個安徽黃山考察團，期間有13名師生出現急性腸胃炎徵狀，10人曾到醫院求醫，9名學生對諾如病毒呈陽性反應。衞生防護中心相信，有關爆發個案由諾如病毒經人傳人或受污染環境傳播，並不涉及當地食肆。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm)
 
 ---
