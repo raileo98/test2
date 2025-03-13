@@ -1,3 +1,27 @@
+# 《環看天下》：杜特爾特被捕送往海牙　國際刑事法院管轄權惹爭議
+
+![杜特爾特抵達荷蘭前向支持發表短片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795506_1_20250313081534.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特日前外遊返國後，在馬尼拉機場被捕，之後被押送往國際刑事法院所在的荷蘭海牙 ，不排除面臨審訊。杜特爾特被控涉嫌早年在包括總統任期內，犯下「危害人類罪」，在全國嚴厲掃毒行動中，造成多人死亡。杜特爾特否認指控。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm)
+
+---
+
 # 特朗普稱愛爾蘭以稅收等優惠政策搶走美國製藥等公司
 
 ![特朗普在白宮會見到訪的愛爾蘭總理馬丁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795497_1_20250313064152.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795212-20250311.htm)
-
----
-
-# 美媒指中美正就元首會晤前期磋商　形容若成事將是「生日峰會」
-
-![報道形容若會面成事將會是「生日峰會」，因為兩國元首都是在6月出生。 圖為習近平與特朗普幾年前會面的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795201_1_20250311090032.jpg&q=90)
-  
-
-美國華爾街日報引述知情人士報道，北京與華盛頓方面正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
 
 ---

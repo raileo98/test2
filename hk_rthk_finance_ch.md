@@ -1,3 +1,75 @@
+# 新秀麗去年盈利跌約13%
+
+![新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795509_1_20250313082824.jpg&q=90)
+  
+
+新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm)
+
+---
+
+# 韓股初段升約0.7%
+
+![首爾綜合指數較早時報2591點，升16點，升幅0.65%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795508_1_20250313081730.jpg&q=90)
+  
+
+南韓股市早段上升，首爾綜合指數較早時報2591點，升16點，升幅0.65%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm)
+
+---
+
+# 日股初段升逾1%　重上37000點
+
+![日經指數重上37000點，較早時報37243點，升424點，升幅1.15%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795507_1_20250313081639.jpg&q=85)
+  
+
+日股初段造好，重上37000點以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm)
+
+---
+
 # OPEC維持全球石油需求預測　上月多國產量超出配額
 
 ![石油輸出國組織維持全球石油需求增長預測，又指隨著貿易政策不斷出台，貿易擔憂將加劇波動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795502_1_20250313074414.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795365-20250312.htm)
-
----
-
-# 港股競價時段升77點　科指重上6000點
-
-![恒生指數競價時段報23859點，升77點，升幅0.32%；科技指數重上6000點水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795367_1_20250312092253.jpg&q=75)
-  
-
-港股開市靠穩，恒生指數競價時段報23859點，升77點，升幅0.32%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795367-20250312.htm)
-
----
-
-# 台股初段升約百點
-
-![加權指數較早時報22162點，升91點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795362_1_20250312090531.jpg&q=90)
-  
-
-台股初段靠穩，加權指數較早時報22162點，升91點，升幅0.42%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795362-20250312.htm)
-
----
-
-# 甯漢豪：今年落實措施降低建造成本　由政府中央採購部分建築材料
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795359_1_20250312092418.jpg&q=90)
-  
-
-發展局局長甯漢豪表示，今年會落實具體措施對症下藥，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm)
 
 ---

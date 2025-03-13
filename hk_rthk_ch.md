@@ -1,3 +1,99 @@
+# 新秀麗去年盈利跌約13%
+
+![新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795509_1_20250313082824.jpg&q=90)
+  
+
+新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm)
+
+---
+
+# 韓股初段升約0.7%
+
+![首爾綜合指數較早時報2591點，升16點，升幅0.65%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795508_1_20250313081730.jpg&q=90)
+  
+
+南韓股市早段上升，首爾綜合指數較早時報2591點，升16點，升幅0.65%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm)
+
+---
+
+# 日股初段升逾1%　重上37000點
+
+![日經指數重上37000點，較早時報37243點，升424點，升幅1.15%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795507_1_20250313081639.jpg&q=85)
+  
+
+日股初段造好，重上37000點以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm)
+
+---
+
+# 《環看天下》：杜特爾特被捕送往海牙　國際刑事法院管轄權惹爭議
+
+![杜特爾特抵達荷蘭前向支持發表短片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795506_1_20250313081534.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特日前外遊返國後，在馬尼拉機場被捕，之後被押送往國際刑事法院所在的荷蘭海牙 ，不排除面臨審訊。杜特爾特被控涉嫌早年在包括總統任期內，犯下「危害人類罪」，在全國嚴厲掃毒行動中，造成多人死亡。杜特爾特否認指控。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm)
+
+---
+
 # 台中氣爆事件傷重2歲女童　上周在澳門醫院離世
 
   
@@ -1342,101 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm)
-
----
-
-# 教育局修訂「派0班」小學發展規劃　取消特別視學安排
-
-![教育局表示，預計未來學額和學校數目會隨學齡人口變化相應減少，將採取「軟著陸」策略，適度有序地減少學校數目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795437_1_20250312181038.jpg&q=80)
-  
-
-教育局表示，預計2025至2031年6歲小一適齡人口將會由48600名降至37500名，學齡人口結構性下降的趨勢將繼續維持，就「派0班」的小學發展規劃作修訂，取消特別視學安排，方案選項由4個減至3個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795437-20250312.htm)
-
----
-
-# 林紹波相信運力進一步提升　今年長途機票價格下降
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795436_1_20250312181003.jpg&q=80)
-  
-
-國泰航空去年盈利近98.9億元，按年上升1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm)
-
----
-
-# 菲國副總統赴荷蘭　較早時稱隨父到當地出席國際刑事法院聆訊
-
-![杜特爾特對自己被拘留提出質疑。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795434_1_20250312172831.jpg&q=90)
-  
-
-菲律賓副總統辦公室說，副總統莎拉今早啟程前往荷蘭阿姆斯特丹。她昨晚已表示將跟隨父親、前總統杜特爾特前往荷蘭海牙，參加國際刑事法院的聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm)
-
----
-
-# 海關拘17歲深圳抵港男子　涉藏懷疑太空油毒品煙彈及電子煙
-
-![海關昨日在羅湖管制站拘捕一名17歲由深圳抵港旅客，在他身上搜出，兩支懷疑含有「太空油毒品」的電子煙及一支電子煙裝置。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795433_1_20250312172205.jpg&q=80)
-  
-
-海關昨日在羅湖管制站拘捕一名17歲由深圳抵港旅客，在他身上搜出4粒懷疑「太空油毒品」煙彈、兩支懷疑含有「太空油毒品」的電子煙及一支電子煙裝置，被捕男子報稱無業，正保釋候查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795433-20250312.htm)
 
 ---

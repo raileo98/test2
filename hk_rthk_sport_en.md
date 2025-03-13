@@ -1,3 +1,27 @@
+# Axelsen suffers shock defeat at All England Open
+
+![Axelsen was unable to hold on for the victory despite dominating the second set. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795505_1_20250313081101.jpg&q=90)
+  
+
+Former badminton world number one Viktor Axelsen suffered a shock first-round defeat to Chinese Taipei's Lin Chun-yi at the All England Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm)
+
+---
+
 # Real, Arsenal to clash in Champions League quarters
 
 ![Kylian Mbappé celebrates with teammates after Real Madrid's penalty shoot-out victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_1_20250313074046.jpg&q=90)
@@ -1424,29 +1448,5 @@ Rachin Ravindra struck a superb 112 to lead New Zealand into the Champions Troph
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793008-20250225.htm)
-
----
-
-# Central and Wan Chai road closures for triathlon test
-
-![The 15th National Games Triathlon Test Event is set to take place at Central Harbourfront and Victoria Harbour on March 1 and 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1792964_1_20250224173206.jpg&q=80)
-  
-
-Drivers are urged to steer clear of certain roads in Central and Wan Chai because of an upcoming triathlon test event.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm](https://news.rthk.hk/rthk/en/component/k2/1792964-20250224.htm)
 
 ---

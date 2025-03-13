@@ -1,3 +1,27 @@
+# Axelsen suffers shock defeat at All England Open
+
+![Axelsen was unable to hold on for the victory despite dominating the second set. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795505_1_20250313081101.jpg&q=90)
+  
+
+Former badminton world number one Viktor Axelsen suffered a shock first-round defeat to Chinese Taipei's Lin Chun-yi at the All England Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm)
+
+---
+
 # SpaceX scrubs launch of ISS replacement crew mission
 
 ![SpaceX called off the flight over a last-minute technical issue with the rocket's launchpad. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795503_1_20250313075135.jpg&q=90)
@@ -1414,29 +1438,5 @@ Protesters in New York and rights groups expressed outrage on Monday over the ar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm)
-
----
-
-# Hang Seng Index sees sell-off after Wall Street rout
-
-![The Hang Seng Index open over 2 percent lower. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795211_1_20250311095307.jpg&q=75)
-  
-
-Hong Kong's Hang Seng Index fell 508.63 points, or 2.14 percent, to open at 23,274.86 points on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm)
 
 ---
