@@ -1,3 +1,26 @@
+# 普京赴庫爾斯克州聽取匯報　要求俄軍盡快徹底奪回該區
+
+  
+
+俄羅斯總統普京昨日身穿迷彩軍服，視察庫爾斯克州一個軍事指揮中心，聽取北方集團軍匯報軍事行動進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm)
+
+---
+
 # 外交部：中方冀早日就伊朗核問題將重啟對話談判勢頭轉化為現實
 
 ![毛寧說，中方希望早日就伊朗核問題將重啟對話談判的勢頭轉化為現實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795567_1_20250313154005.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
-
----
-
-# 中美據報擬磋商習近平與特朗普6月會面　中方稱沒信息可發布
-
-![中美據報就習近平與特朗普6月會面進行前期磋商。圖為兩人2019年在日本大阪出席二十國集團峰會期間會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795267_1_20250311164357.jpg&q=90)
-  
-
-美國傳媒報道，中美正就國家主席習近平與美國總統特朗普在今年6月會面，進行前期磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm)
 
 ---
