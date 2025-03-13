@@ -1,3 +1,27 @@
+# US stocks slump after new Trump tariff threat
+
+![Before trading began, Washington unleashed the threat of a 200 percent tariff on wine, champagne and other alcoholic beverages from the European Union. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795654_1_20250314054827.jpg&q=90)
+  
+
+Wall Street stocks closed sharply lower on Thursday on a fresh wave of tariff threats by US President Donald Trump, and despite producer inflation remaining flat.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm)
+
+---
+
 # HK stocks end in the red for fifth consecutive day
 
 ![Local stocks give up  0.58 percent on Thursday. (File Photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795583_1_20250313175018.jpg&q=75)
@@ -1411,29 +1435,5 @@ Hong Kong stocks opened lower on Friday, the final trading of February, after ea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm)
-
----
-
-# US stocks fall as Nvidia results hit AI shares
-
-![The Dow Jones Industrial Average finished down 0.5 percent at 43,239. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793576_1_20250228055119.jpg&q=90)
-  
-
-Wall Street stocks tumbled on Thursday, extending a rough period as disappointment with Nvidia earnings and fresh tariff rhetoric from US President Donald Trump pressured the market.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793576-20250228.htm)
 
 ---

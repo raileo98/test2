@@ -1,3 +1,27 @@
+# US stocks slump after new Trump tariff threat
+
+![Before trading began, Washington unleashed the threat of a 200 percent tariff on wine, champagne and other alcoholic beverages from the European Union. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795654_1_20250314054827.jpg&q=90)
+  
+
+Wall Street stocks closed sharply lower on Thursday on a fresh wave of tariff threats by US President Donald Trump, and despite producer inflation remaining flat.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm)
+
+---
+
 # Pro-Palestinian protesters fill NY's Trump Tower
 
 ![Police officers detain a protester inside Trump Tower during a rally against the ICE detention of Palestinian activist and Columbia University graduate student Mahmoud Khalil. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795650_1_20250314053853.jpg&q=90)
@@ -1414,30 +1438,5 @@ Paris Saint-Germain produced a historic turnaround to progress to the Champions 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm)
-
----
-
-# Barca sink Benfica; reach Champions League last eight
-
-![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=90)
-![Raphina scored twice in the first half for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_2_20250312061710.jpg&q=90)
-  
-
-Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the Champions League quarter-finals 4-1 on aggregate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
 
 ---

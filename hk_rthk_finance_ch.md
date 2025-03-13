@@ -1,3 +1,51 @@
+# 英股全日升1點　德法股市再度回軟
+
+![歐洲股市個別發展，英國股市全日升1點，德法股市分別跌約0.5%及逾0.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795652_1_20250314054603.jpg&q=90)
+  
+
+歐洲股市個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795652-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795652-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795652-20250314.htm)
+
+---
+
+# 美股低收逾1%至約2%　標普500指數跌入調整區
+
+![美股3大指數低收逾1%至約2%，創逾半年新低，標普500指數跌入調整區。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795651_1_20250314054126.jpg&q=90)
+  
+
+美股3大指數低收逾1%至約2%，創逾半年新低。標普500指數自2月觸及的紀錄高位回吐逾10%，確認跌入調整區；而納指上周已跌入回調區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795651-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795651-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795651-20250314.htm)
+
+---
+
 # 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
 
 ![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm)
-
----
-
-# 招商局置地去年轉蝕18.5億元人民幣
-
-![招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795477_1_20250312231031.jpg&q=90)
-  
-
-招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm)
-
----
-
-# 美國上周原油庫存增幅少過預期
-
-![美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795472_1_20250312224429.jpg&q=85)
-  
-
-美國能源信息署(EIA)公布，美國上星期原油庫存增加144.8萬桶，增幅少過市場預期的200.1萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm)
 
 ---

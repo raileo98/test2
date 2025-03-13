@@ -1,3 +1,75 @@
+# 英股全日升1點　德法股市再度回軟
+
+![歐洲股市個別發展，英國股市全日升1點，德法股市分別跌約0.5%及逾0.6%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795652_1_20250314054603.jpg&q=90)
+  
+
+歐洲股市個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795652-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795652-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795652-20250314.htm)
+
+---
+
+# 美股低收逾1%至約2%　標普500指數跌入調整區
+
+![美股3大指數低收逾1%至約2%，創逾半年新低，標普500指數跌入調整區。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795651_1_20250314054126.jpg&q=90)
+  
+
+美股3大指數低收逾1%至約2%，創逾半年新低。標普500指數自2月觸及的紀錄高位回吐逾10%，確認跌入調整區；而納指上周已跌入回調區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795651-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795651-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795651-20250314.htm)
+
+---
+
+# 葡萄牙總統宣布解散議會並提前在5月舉行議會選舉
+
+![德索薩發表全國電視講話，指提前大選是一條沒人預計到、亦沒人希望的路。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795653_1_20250314054623.jpg&q=90)
+  
+
+葡萄牙總統德索薩宣布解散議會，並在5月18日提前舉行議會選舉，將會是葡萄牙在不足4年內，第三次提前大選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm)
+
+---
+
 # 國際刑事法院稱杜特爾特將於周五首次出庭
 
 ![國際刑事法院表示，菲律賓前總統杜特爾特將於星期五首次出庭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795649_1_20250314053630.jpg&q=90)
@@ -1369,77 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm)
-
----
-
-# 財政預算案2025 | 立法會研究料公務員凍薪可節省87億元
-
-![立法會《研究簡報》分析「強化版」整合計劃下的多項主要措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795588_1_20250313182505.jpg&q=85)
-  
-
-立法會秘書處發表有關新一份財政預算案的《研究簡報》，分析了「強化版」整合計劃下的多項主要措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm)
-
----
-
-# 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
-
-![外長王毅在北京同老撾外長通沙萬舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795587_1_20250313183621.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京同老撾外長通沙萬舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm)
-
----
-
-# 太古地產料本港寫字樓需求將持續偏軟
-
-![彭國邦（右2）估計，新供應陸續推出，寫字樓難以於2026、2027年之前完全復蘇。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795586_1_20250313184757.jpg&q=90)
-  
-
-太古地產去年虧損7.66億元，前一年則盈利26.37億元，年內錄得投資物業公平值虧損近63億元，按年增加逾43%。派第2次中期息每股0.76元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm)
 
 ---

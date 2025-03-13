@@ -1,3 +1,27 @@
+# 葡萄牙總統宣布解散議會並提前在5月舉行議會選舉
+
+![德索薩發表全國電視講話，指提前大選是一條沒人預計到、亦沒人希望的路。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795653_1_20250314054623.jpg&q=90)
+  
+
+葡萄牙總統德索薩宣布解散議會，並在5月18日提前舉行議會選舉，將會是葡萄牙在不足4年內，第三次提前大選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm)
+
+---
+
 # 國際刑事法院稱杜特爾特將於周五首次出庭
 
 ![國際刑事法院表示，菲律賓前總統杜特爾特將於星期五首次出庭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795649_1_20250314053630.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm)
-
----
-
-# 馬克龍呼籲為烏克蘭確定可靠安全保障
-
-![馬克龍與歐洲及北約國家的軍方首腦會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795338_1_20250312035223.jpg&q=90)
-  
-
-法國總統馬克龍呼籲歐洲和北約的軍事首腦制定一項計劃，以便在實現俄烏停火的情況下以「可靠的安全保障」 保護烏克蘭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795338-20250312.htm)
 
 ---
