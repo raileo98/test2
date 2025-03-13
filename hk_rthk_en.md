@@ -1,3 +1,27 @@
+# Govt urged to tackle illegal parking in public estates
+
+![The Office of the Ombudsman says it has found long-term cases of illegal parking in some public estates. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795562_1_20250313152553.jpg&q=60)
+  
+
+The Office of the Ombudsman on Thursday urged the Housing Department to step up efforts to tackle illegal parking in public housing estates.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm)
+
+---
+
 # Pakistan starts counting toll of train siege
 
 ![An injured passenger is wheeled into a hospital in Quetta on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795561_1_20250313151752.jpg&q=90)
@@ -1414,29 +1438,5 @@ Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm)
-
----
-
-# HK's top court to webcast some hearings from April
-
-![The judiciary says people, including the media, must not record the Court of Final Appeal's online webcasts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795261_1_20250311162436.jpg&q=80)
-  
-
-The judiciary said on Tuesday it will start webcasting some proceedings at Hong Kong's top court from April 1, as part of a pilot scheme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm)
 
 ---

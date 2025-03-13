@@ -1,3 +1,27 @@
+# Govt urged to tackle illegal parking in public estates
+
+![The Office of the Ombudsman says it has found long-term cases of illegal parking in some public estates. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795562_1_20250313152553.jpg&q=60)
+  
+
+The Office of the Ombudsman on Thursday urged the Housing Department to step up efforts to tackle illegal parking in public housing estates.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm)
+
+---
+
 # 6 HK university courses make top 10 in global ranking
 
 ![HKU’s dentistry course sits at the number-two spot when compared with its global peers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795543_1_20250313124205.jpg&q=75)
@@ -1412,29 +1436,5 @@ Legal scholar and Chinese People's Political Consultative Conference (CPPCC) mem
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794748-20250307.htm)
-
----
-
-# 'Ding tells HK to promote internationalisation'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794744_1_20250307160338.jpg&q=90)
-  
-
-Chinese People's Political Consultative Conference (CPPCC) Standing Committee member Henry Tang on Friday said Hong Kong should leverage its advantages and further promote internationalisation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm)
 
 ---

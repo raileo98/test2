@@ -1,3 +1,26 @@
+# 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
+
+  
+
+全國政協副主席梁振英說，國務院總理李強的政府工作報告中提及，要支持香港「深化國際交往合作」。梁振英認為，深化國際交往合作不只經貿方面，亦包括文化、體育、藝術、教育等，而由他擔任主席的共享基金會過去7年在海外所做的人道主義醫療、公共衛生援助，共包括8個國家、7個服務類別，他希望可啟發本港年輕人思考未來事業發展方向。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm)
+
+---
+
 # 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
 
   
@@ -209,6 +232,7 @@
 
 # 香港承辦全運會保齡球項目甄選賽下月展開
 
+![粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795542_1_20250313154353.jpg&q=65)
   
 
 粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。
@@ -232,6 +256,7 @@
 
 # 專家：如有感染諾如病毒學生在旅遊巴上嘔吐或造成車內傳播
 
+![林偉遜（左）認為，如果有學生感染諾如病毒並在旅遊巴上嘔吐，有可能在車內造成傳播；鄧飛（右）表示，現時學校前往交流既相關指引足夠同清晰。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795540_1_20250313154326.jpg&q=90)
   
 
 多間中學有師生到內地交流後，出現腸胃炎徵狀。
@@ -1404,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795384-20250312.htm)
-
----
-
-# 補充勞工優化計劃已批出約5.1萬個名額　飲食業最多佔2萬人
-
-![孫玉菡表示，輸入一般勞工的補充勞工優化計劃直至上月底，已批出的廚師有約一萬人，侍應有8500人，洗碗工約有2500人。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795381_1_20250312121348.jpg&q=90)
-  
-
-勞工及福利局局長孫玉菡表示，輸入一般勞工的補充勞工優化計劃推行一年半以來，直至上月底，已批出約51000個名額，當中以飲食業最多，佔超過兩萬人，其中廚師有約一萬人，侍應有8500人，洗碗工約有2500人。至於發展局處理輸入建造業的特定行業計劃，有大約12000個申請配額，已批核約9000多個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm)
 
 ---
