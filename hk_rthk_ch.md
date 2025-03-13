@@ -1,3 +1,74 @@
+# 實德環球料去年度綜合溢利按年減少約4至5成
+
+![實德環球預計去年度綜合溢利按年減少最多一半。圖為集團旗艦投資項目十六浦。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795600_1_20250313190739.jpg&q=80)
+  
+
+實德環球預計，去年度綜合溢利將按年減少約40%至50%，前年度綜合溢利約1.69億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm)
+
+---
+
+# 林定國稱香港政府面臨對國安法律不實評論　成功駁斥誤導性言論
+
+![林定國說，當局成功駁斥了大量誤導性或誣衊的言論，捍衛了政府的聲譽和國家安全法律的正當性。（林定國社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795605_1_20250313193534.jpg&q=90)
+  
+
+律政司司長林定國表示，律政司邀請前刑事檢控專員江樂士，為政府律師擔任國家安全教育專題研習班第六講的嘉賓，從清除錯誤認知和釐清事實的角度出發，提醒要警惕外界對《香港國安法》和《維護國家安全條例》兩部法律可能存在的誤解和誤讀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm)
+
+---
+
+# 羅淑佩稱透過舉辦文化藝術表演活動　吸引遊客並促進文化旅遊融合
+
+  
+
+文代體育及旅遊局長羅淑佩表示，香港今個月舉行多場盛事，除了啟德體育園開幕典禮，亦舉辦了世界格蘭披治桌球大獎賽、LIV Golf 香港站賽事，吸引全球各地參賽者和遊客來港，之後亦會有ComplexCon、Art Central、巴塞爾藝術展、香港國際七人欖球賽等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm)
+
+---
+
 # 微博去年少賺12%　經調整盈利升6%
 
 ![微博去年度盈利按年減少12%至3億美元，經調整盈利升6%至近4.8億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795584_1_20250313175116.jpg&q=90)

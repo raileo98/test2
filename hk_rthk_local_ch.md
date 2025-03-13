@@ -1,3 +1,27 @@
+# 林定國稱香港政府面臨對國安法律不實評論　成功駁斥誤導性言論
+
+![林定國說，當局成功駁斥了大量誤導性或誣衊的言論，捍衛了政府的聲譽和國家安全法律的正當性。（林定國社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795605_1_20250313193534.jpg&q=90)
+  
+
+律政司司長林定國表示，律政司邀請前刑事檢控專員江樂士，為政府律師擔任國家安全教育專題研習班第六講的嘉賓，從清除錯誤認知和釐清事實的角度出發，提醒要警惕外界對《香港國安法》和《維護國家安全條例》兩部法律可能存在的誤解和誤讀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm)
+
+---
+
 # 羅淑佩稱透過舉辦文化藝術表演活動　吸引遊客並促進文化旅遊融合
 
   
@@ -1420,29 +1444,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm)
-
----
-
-# 恒指跌幅曾擴大至逾400點　科指跌逾3%
-
-![港股下午沽壓加大。恒生指數曾跌約420點，科技指數較早時跌3.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795420_1_20250312152503.jpg&q=75)
-  
-
-港股下午沽壓加大。恒生指數曾跌約420點，較早時報23390點，跌391點，跌幅1.65%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm)
 
 ---

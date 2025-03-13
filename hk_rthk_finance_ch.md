@@ -1,3 +1,27 @@
+# 實德環球料去年度綜合溢利按年減少約4至5成
+
+![實德環球預計去年度綜合溢利按年減少最多一半。圖為集團旗艦投資項目十六浦。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795600_1_20250313190739.jpg&q=80)
+  
+
+實德環球預計，去年度綜合溢利將按年減少約40%至50%，前年度綜合溢利約1.69億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm)
+
+---
+
 # 微博去年少賺12%　經調整盈利升6%
 
 ![微博去年度盈利按年減少12%至3億美元，經調整盈利升6%至近4.8億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795584_1_20250313175116.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795448-20250312.htm)
-
----
-
-# 拉加德：貿易和國防等衝擊或加劇歐元區通脹波動
-
-![拉加德稱歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795441_1_20250312175133.jpg&q=90)
-  
-
-歐洲央行總裁拉加德表示，歐元區經濟正面臨貿易、國防和氣候問題帶來的異常衝擊，可能加劇通脹波動，並加大物價上升更持久的風險。歐洲央行難以就以上因素發出前瞻指引，但必須加倍努力以實現2%的通脹目標，尤其會留意穩定通脹預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm)
 
 ---
