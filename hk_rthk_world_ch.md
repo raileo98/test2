@@ -1,3 +1,27 @@
+# 中國駐泰大使：中方全力協調查找解救電詐網賭失聯被困人員
+
+![韓志強稱，中方全力協調查找解救電詐網賭失聯被困人員。（中國駐泰國大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795564_1_20250313152754.jpg&q=90)
+  
+
+中國駐泰國大使韓志強表示，中方對泰方採取強而有力措施摧毀電詐團夥、維護中國及各國公民生命財產安全表示讚賞。中方將繼續深化同包括泰國在內的相關國家之間的執法合作，加大力度打擊電詐網賭、人口販賣等跨境違法犯罪活動，全力協調查找解救失聯、被困人員，切實維護人民群眾生命財產安全和合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm)
+
+---
+
 # 謝展寰稱香港能成為世界各地氫能及其他綠色技術示範中心
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm)
-
----
-
-# 日本311大地震14周年　逾2萬福島居民仍未能返回家園
-
-![日本311大地震14周年，東京街上有民眾默哀悼念死難者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795255_1_20250311152845.jpg&q=90)
-  
-
-日本311大地震14周年，在岩手、宮城、福島3縣，民眾從清晨就開始悼念遇難者，全國多處亦有悼念活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm)
 
 ---

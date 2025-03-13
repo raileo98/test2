@@ -1,3 +1,27 @@
+# 中國駐泰大使：中方全力協調查找解救電詐網賭失聯被困人員
+
+![韓志強稱，中方全力協調查找解救電詐網賭失聯被困人員。（中國駐泰國大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795564_1_20250313152754.jpg&q=90)
+  
+
+中國駐泰國大使韓志強表示，中方對泰方採取強而有力措施摧毀電詐團夥、維護中國及各國公民生命財產安全表示讚賞。中方將繼續深化同包括泰國在內的相關國家之間的執法合作，加大力度打擊電詐網賭、人口販賣等跨境違法犯罪活動，全力協調查找解救失聯、被困人員，切實維護人民群眾生命財產安全和合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm)
+
+---
+
 # 全國兩會｜李慧琼料民營經濟愈來愈旺盛　陳勇籲時刻警惕維護國安
 
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795136-20250310.htm)
-
----
-
-# 全國兩會｜中山大學高等研究院落戶香港正開展課程註冊及評審
-
-![高松認為，校方在港設立機構，為大灣區建設世界重要人才中心和創新高地貢獻力量。（央視資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795122_1_20250310173057.jpg&q=90)
-  
-
-中山大學高等研究院去年10月落戶香港科學園，全國人大代表、中山大學校長高松表示，這是內地高校在港首個綜合研究機構，正開展課程註冊和評審，待相關辦學程序申辦完成後，研究院將先開展研究生招生，希望在不遠的時間內，按照非本地課程教育和專上院校教育模式在港招生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795122-20250310.htm)
 
 ---
