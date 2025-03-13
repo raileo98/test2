@@ -1,3 +1,27 @@
+# 普京晤盧卡申科同意擴大各領域合作　準備反制北約敵對行動
+
+![普京與盧卡申科在儀式上交換文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795645_1_20250314031431.jpg&q=90)
+  
+
+俄羅斯總統普京與到訪的白俄羅斯總統盧卡申科會談，雙方同意擴大經貿、安全等各領域合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm)
+
+---
+
 # 法國稱不會屈服於美方對酒類產品關稅威脅　加國就鋼鋁關稅提申訴
 
 ![特朗普說，不會改變4月2日起對所有貿易夥伴徵收全面對等關稅的想法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795643_1_20250314024427.jpg&q=90)
@@ -1417,29 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
-
----
-
-# 恒指低收137點　連跌5日　科指跌近2%
-
-![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
-  
-
-港股連跌5個交易日，恒生指數午後一度失守23200點，跌逾400點，創逾1個星期低位，其後跌幅收窄，收市報23462點，跌137點，跌幅近0.6%，主板成交額進一步縮減至約2338億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
 
 ---

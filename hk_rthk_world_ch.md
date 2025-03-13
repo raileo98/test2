@@ -1,3 +1,27 @@
+# 普京晤盧卡申科同意擴大各領域合作　準備反制北約敵對行動
+
+![普京與盧卡申科在儀式上交換文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795645_1_20250314031431.jpg&q=90)
+  
+
+俄羅斯總統普京與到訪的白俄羅斯總統盧卡申科會談，雙方同意擴大經貿、安全等各領域合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm)
+
+---
+
 # 法國稱不會屈服於美方對酒類產品關稅威脅　加國就鋼鋁關稅提申訴
 
 ![特朗普說，不會改變4月2日起對所有貿易夥伴徵收全面對等關稅的想法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795643_1_20250314024427.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795331-20250312.htm)
-
----
-
-# 法國召集逾30國軍方首腦開會　商討向烏克蘭派遣部隊
-
-![法國召集30多個國家的軍方首腦在巴黎舉行會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795330_1_20250312014357.jpg&q=90)
-  
-
-法國召集30多個國家的軍方首腦在巴黎舉行會議，討論若烏克蘭與俄羅斯達成停火協議，各國願意為烏克蘭的安全保障作出貢獻，特別是為烏克蘭組建一支國際安全部隊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm)
 
 ---
