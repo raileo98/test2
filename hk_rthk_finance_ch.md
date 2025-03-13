@@ -48,6 +48,7 @@
 
 # 太古地產料本港寫字樓需求將持續偏軟
 
+![彭國邦（右2）估計，新供應陸續推出，寫字樓難以於2026、2027年之前完全復蘇。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795586_1_20250313184757.jpg&q=90)
   
 
 太古地產去年虧損7.66億元，前一年則盈利26.37億元，年內錄得投資物業公平值虧損近63億元，按年增加逾43%。派第2次中期息每股0.76元。
@@ -186,31 +187,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
-
----
-
-# 古諮會通過舊贊育醫院主樓及上環廣福祠列為法定古蹟
-
-![舊贊育醫院於1922年啟用，是本港第一所華人婦女產科醫院，樓高4層，設有地庫，採用新古典主義建築風格，糅合中式元素。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_1_20250313170038.jpg&q=75)
-![廣福祠又稱「百姓廟」，建於1895年，主要為來自內地但在港離世的華工，提供地方安放神主牌，同時收容病人、無依者及長者，提供診治服務。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_2_20250313170038.jpg&q=80)
-  
-
-古物諮詢委員會通過，將西營盤舊贊育醫院主樓，以及上環廣福祠，列為法定古蹟。古諮會下午開會，多名委員都表示這兩座建築物具有歷史文化價值，贊成列為法定古蹟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm)
 
 ---
 
@@ -1435,5 +1411,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795441-20250312.htm)
+
+---
+
+# 國泰：年內突破100個航點大關
+
+![國泰：向合資格員工派發逾10星期工資分享成果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795446_1_20250312190534.jpg&q=90)
+  
+
+國泰航空行政總裁林紹波表示，年內班次及運力會繼續增加，集團經已宣布11個新航點，年內會突破100個航點大關，強調會繼續擴大全球網絡和提升服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
 
 ---

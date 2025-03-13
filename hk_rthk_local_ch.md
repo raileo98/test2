@@ -1,3 +1,26 @@
+# 西九龍公路致命車禍　輕型貨車司機死亡
+
+  
+
+西九龍公路發生致命車禍，44歲輕型貨車司機死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795599-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795599-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795599-20250313.htm)
+
+---
+
 # 【影片速遞】香港花卉展覽3.14至3.23維園舉行
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_1_20250313183642.jpg&q=60)
@@ -213,6 +236,7 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 
 # 太古地產料本港寫字樓需求將持續偏軟
 
+![彭國邦（右2）估計，新供應陸續推出，寫字樓難以於2026、2027年之前完全復蘇。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795586_1_20250313184757.jpg&q=90)
   
 
 太古地產去年虧損7.66億元，前一年則盈利26.37億元，年內錄得投資物業公平值虧損近63億元，按年增加逾43%。派第2次中期息每股0.76元。
@@ -1413,29 +1437,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795418-20250312.htm)
-
----
-
-# 民主思路公布一國兩制指數微跌　逾48%受訪者不滿意立法會表現
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795415_1_20250312160917.jpg&q=80)
-  
-
-民主思路發布新一輪「一國兩制」指數，最新為6.14分，較上一輪微跌 0.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795415-20250312.htm)
 
 ---

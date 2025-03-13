@@ -97,7 +97,7 @@ A driver, who was behind the wheel of a light goods vehicle travelling along the
 
 # China urges diplomatic Iran nuclear solution
 
-![Foreign Ministry spokeswoman Mao Ning says all parties should maintain calm and restraint to avoid escalating the Iran nuclear situation. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795572_1_20250313155832.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795572_1_20250313155832.jpg&q=90)
   
 
 China called on Thursday for a "diplomatic" resolution to the Iran nuclear issue as it prepared to host diplomats from Tehran and Moscow for talks in Beijing.
