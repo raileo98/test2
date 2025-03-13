@@ -1,3 +1,27 @@
+# 普京稱同意與烏臨時停火建議惟須討論細節　或與特朗普通電話
+
+![普京說，停火的建議正確，但要透過停火實現長久和平，消除衝突根源。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795638_1_20250314005435.jpg&q=90)
+  
+
+俄羅斯總統普京表示，俄方同意與烏克蘭臨時停火30日的建議，但很多細節問題仍需討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm)
+
+---
+
 # 美財長：除金屬和汽車關稅　其他商品所可進行關稅談判
 
 ![貝森特強調，政府關注的是整體市場表現和美國人的中長期收益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795637_1_20250314003017.jpg&q=90)
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm)
-
----
-
-# 普京赴庫爾斯克州聽取匯報　要求俄軍盡快徹底奪回該區
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795569_1_20250313183645.jpg&q=90)
-  
-
-俄羅斯總統普京昨日身穿迷彩軍服，視察庫爾斯克州一個軍事指揮中心，聽取北方集團軍匯報軍事行動進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 普京稱同意與烏臨時停火建議惟須討論細節　或與特朗普通電話
+
+![普京說，停火的建議正確，但要透過停火實現長久和平，消除衝突根源。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795638_1_20250314005435.jpg&q=90)
+  
+
+俄羅斯總統普京表示，俄方同意與烏克蘭臨時停火30日的建議，但很多細節問題仍需討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm)
+
+---
+
 # 美財長：除金屬和汽車關稅　其他商品所可進行關稅談判
 
 ![貝森特強調，政府關注的是整體市場表現和美國人的中長期收益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795637_1_20250314003017.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795315-20250311.htm)
-
----
-
-# 巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件
-
-![巴基斯坦武裝分子挾持火車乘客作人質　內政部長譴責事件](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795322_1_20250311223658.jpg&q=90)
-  
-
-巴基斯坦一列載有400多人的火車在西南部俾路支省受到襲擊，武裝分子挾持乘客做人質，聲稱當中包括軍方人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm)
 
 ---
