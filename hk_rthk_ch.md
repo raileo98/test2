@@ -1,5 +1,123 @@
+# 本港大學共6科列十大　QS指香港的大學續保持世界領先地位
+
+  
+
+國際高等教育資訊機構QS公布最新「世界大學學科排名」，本港大學排名整體上升，合共有6個學科位列十大，以港大牙醫學科排名最高，位列全球第二。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm)
+
+---
+
+# 中大以DNA測序技術辨別出患鼻咽癌高風險人士
+
+  
+
+中大研究團隊在2013至2016年，為逾2萬名沒有任何鼻咽癌徵狀的中年男士，進行「血漿EB病毒DNA測試」，找出34名鼻咽癌患者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm)
+
+---
+
+# 個別屋邨有車違泊於緊急通道　房署接納申訴公署所提出改善建議
+
+  
+
+申訴專員公署完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有車輛違泊，個別屋邨甚至有違泊車輛停泊在緊急通道，形容情況並不理想，提出12項改善建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm)
+
+---
+
+# 前私隱專員吳斌辭世　現任私隱專員鍾麗玲深切哀悼
+
+![鍾麗玲表示，與私隱專員公署員工向吳斌的家人致以誠懇慰問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795591_1_20250313181320.jpg&q=75)
+  
+
+個人資料私隱專員鍾麗玲表示，對前私隱專員吳斌辭世表示深切哀悼。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm)
+
+---
+
+# M+博物館周六起展出畢加索60多件作品　展期至7月13日
+
+![有關展覽的展期由周六至7月13日。（M+博物館社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795590_1_20250313182229.jpg&q=90)
+  
+
+M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索藝術館的60多件西班牙藝術家畢加索作品，同場亦展示約130件出自30位亞洲及海外亞洲藝術家之手的M+藏品，以及其他博物館、基金會及私人收藏借出的精選藏品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm)
+
+---
+
 # 立法會研究指如市場工資升3%　公務員凍薪料可節省約87億元
 
+![立法會《研究簡報》分析「強化版」整合計劃下的多項主要措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795588_1_20250313182505.jpg&q=85)
   
 
 立法會秘書處發表有關新一份財政預算案的《研究簡報》，分析了「強化版」整合計劃下的多項主要措施。
@@ -44,7 +162,7 @@
 
 ---
 
-# 太古地產：本港寫字樓需求將持續偏軟
+# 太古地產料本港寫字樓需求將持續偏軟
 
   
 

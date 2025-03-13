@@ -1,5 +1,123 @@
-# 立法會研究指如市場工資升3%　公務員凍薪料可節省約87億元
+# 本港大學共6科列十大　QS指香港的大學續保持世界領先地位
 
+  
+
+國際高等教育資訊機構QS公布最新「世界大學學科排名」，本港大學排名整體上升，合共有6個學科位列十大，以港大牙醫學科排名最高，位列全球第二。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795594-20250313.htm)
+
+---
+
+# 中大以DNA測序技術辨別出患鼻咽癌高風險人士
+
+  
+
+中大研究團隊在2013至2016年，為逾2萬名沒有任何鼻咽癌徵狀的中年男士，進行「血漿EB病毒DNA測試」，找出34名鼻咽癌患者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795593-20250313.htm)
+
+---
+
+# 個別屋邨有車違泊於緊急通道　房署接納申訴公署所提出改善建議
+
+  
+
+申訴專員公署完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有車輛違泊，個別屋邨甚至有違泊車輛停泊在緊急通道，形容情況並不理想，提出12項改善建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795592-20250313.htm)
+
+---
+
+# 前私隱專員吳斌辭世　現任私隱專員鍾麗玲深切哀悼
+
+![鍾麗玲表示，與私隱專員公署員工向吳斌的家人致以誠懇慰問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795591_1_20250313181320.jpg&q=75)
+  
+
+個人資料私隱專員鍾麗玲表示，對前私隱專員吳斌辭世表示深切哀悼。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm)
+
+---
+
+# M+博物館周六起展出畢加索60多件作品　展期至7月13日
+
+![有關展覽的展期由周六至7月13日。（M+博物館社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795590_1_20250313182229.jpg&q=90)
+  
+
+M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索藝術館的60多件西班牙藝術家畢加索作品，同場亦展示約130件出自30位亞洲及海外亞洲藝術家之手的M+藏品，以及其他博物館、基金會及私人收藏借出的精選藏品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm)
+
+---
+
+# 財政預算案2025 | 立法會研究料公務員凍薪可節省87億元
+
+![立法會《研究簡報》分析「強化版」整合計劃下的多項主要措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795588_1_20250313182505.jpg&q=85)
   
 
 立法會秘書處發表有關新一份財政預算案的《研究簡報》，分析了「強化版」整合計劃下的多項主要措施。
@@ -21,7 +139,7 @@
 
 ---
 
-# 太古地產：本港寫字樓需求將持續偏軟
+# 太古地產料本港寫字樓需求將持續偏軟
 
   
 
@@ -1320,125 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795409-20250312.htm)
-
----
-
-# 學生交流團腸胃炎事件懷疑涉事韶關餐廳否認提前準備食物
-
-![流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795407_1_20250312150058.jpg&q=80)
-  
-
-先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm)
-
----
-
-# 港股午後初段偏軟
-
-![恒指較早時報23725點，跌56點；科技指數跌0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795402_1_20250312133140.jpg&q=85)
-  
-
-港股持續偏軟，恒生指數較早時報23725點，跌56點，跌幅0.24%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795402-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795402-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795402-20250312.htm)
-
----
-
-# 香港快運去年轉蝕4億元　短途票價正常化令收益率受壓
-
-![香港快運去年業績由盈轉虧，虧損4億元，受短期營運問題影響，短途市場票價迅速正常化亦令收益率受壓。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795400_1_20250312130859.jpg&q=90)
-  
-
-國泰航空旗下香港快運業績由盈轉虧，虧損4億元，而前年盈利4.33億元。短期營運問題導致錄得虧損，去年全年平均有5架空中巴士A320neo型飛機，因為涉及整個業界的普惠發動機問題而停飛，影響了飛機使用率及營運效率。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm)
-
----
-
-# 國泰冀今年底前最多增聘4000名員工
-
-![國泰航空計劃今年底前，增加最多4000名員工，總數增至約3.4萬人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795398_1_20250312125855.jpg&q=90)
-  
-
-國泰航空去年燃油對沖收益3500萬元，按年大減近95%。扣除對沖收益後，燃油成本淨額升13%至282.6億元。去年耗油量增加約22%至3510萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm)
-
----
-
-# 國泰航空去年盈利升1%　普通股股東應佔溢利升近6%
-
-![國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795396_1_20250312124629.jpg&q=90)
-  
-
-國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。期內，撇除非經常性項目，基本溢利91.4億元，按年升逾19%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
 
 ---

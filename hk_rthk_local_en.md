@@ -1,4 +1,29 @@
-# Cryopreservation break in works for cancer patients
+# Picasso's legacy lives on in new HK exhibition
+
+![The exhibition will be open to the public at the M+ West Gallery from March 15 to July 13. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795585_1_20250313175146.jpg&q=90)
+![Doryun Chong said this exhibition marks the first major showcase of Picasso's masterpieces in the SAR in over a decade. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795585_2_20250313175146.jpg&q=90)
+  
+
+An upcoming exhibition dedicated to Spanish artist Pablo Picasso is set to bring a vibrant intercultural and intergenerational experience to Hong Kong as part of this year's French May Arts Festival.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm)
+
+---
+
+# Cryopreservation break for those with fertility fears
 
 ![The Council on Human Reproductive Technology is suggesting people be allowed to store gametes or embryos for as long as they want. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_2_20250313170514.jpg&q=90)
   
@@ -1412,29 +1437,5 @@ The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm)
-
----
-
-# Customs cracks down on illicit cigarette smuggling
-
-![Over the past two weeks, Customs intercepted 20 illicit cigarette smuggling cases at the airport, arresting 13 men and eight women. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794825_1_20250308014937.jpg&q=80)
-  
-
-Hong Kong Customs intensified enforcement at the international airport and uncovered multiple cases of illicit cigarette smuggling involving air passengers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794825-20250308.htm)
 
 ---
