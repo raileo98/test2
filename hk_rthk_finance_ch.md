@@ -46,6 +46,30 @@
 
 ---
 
+# 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
+
+![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
+  
+
+美國對進口鋼鋁徵收25%的關稅政策按計劃正式生效。在北京，商務部新聞發言人何詠前說，此前中方已經就美國宣布調整鋼鋁232措施表態，中方一貫認為美國232措施是以國家安全為名實施的單邊主義和保護主義行為，中方與其他很多國家一起，對此措施表示堅決反對，敦促美方盡快取消鋼鋁232措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
+
+---
+
 # 恒指低收137點　連跌5日　科指跌近2%
 
 ![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
@@ -67,6 +91,55 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
+
+---
+
+# 古諮會通過舊贊育醫院主樓及上環廣福祠列為法定古蹟
+
+![舊贊育醫院於1922年啟用，是本港第一所華人婦女產科醫院，樓高4層，設有地庫，採用新古典主義建築風格，糅合中式元素。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_1_20250313170038.jpg&q=75)
+![廣福祠又稱「百姓廟」，建於1895年，主要為來自內地但在港離世的華工，提供地方安放神主牌，同時收容病人、無依者及長者，提供診治服務。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_2_20250313170038.jpg&q=80)
+  
+
+古物諮詢委員會通過，將西營盤舊贊育醫院主樓，以及上環廣福祠，列為法定古蹟。古諮會下午開會，多名委員都表示這兩座建築物具有歷史文化價值，贊成列為法定古蹟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm)
+
+---
+
+# 商務部：中美相關主管部門一直保持溝通
+
+![商務部稱，中方與美方相關主管部門一直保持溝通。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795573_1_20250313161008.jpg&q=75)
+  
+
+在北京，商務部新聞發言人何咏前表示，中方與美方相關主管部門一直保持溝通。中方一貫主張，對於經貿領域的分歧和爭議，中美雙方應秉持積極合作的態度，通過平等對話加強溝通，尋找雙方都能接受的解決方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
 
 ---
 
@@ -1363,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795438-20250312.htm)
-
----
-
-# 香港快運去年由盈轉虧　林紹波稱屬短期問題長遠有信心有盈利
-
-![國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795439_1_20250312181118.jpg&q=90)
-  
-
-國泰旗下廉航香港快運，去年業積由盈轉虧，虧損4億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795439-20250312.htm)
-
----
-
-# 林紹波相信運力進一步提升　今年長途機票價格下降
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795436_1_20250312181003.jpg&q=80)
-  
-
-國泰航空去年盈利近98.9億元，按年上升1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795436-20250312.htm)
-
----
-
-# 恒指低收181點　連跌4日　科指跌2%
-
-![恒指尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，連跌4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795427_1_20250312161756.jpg&q=80)
-  
-
-港股先高後低，連跌4個交易日。恒生指數早段曾升180點，高見23962點，尾市跌幅一度擴大至約420點，收市報23600點，跌181點，跌幅近0.8%，全日主板成交額近2785億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
 
 ---
