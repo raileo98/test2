@@ -384,7 +384,7 @@
 
 # 平安好醫生已全面接入DeepSeek冀提升診斷效率
 
-![平安好醫生稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_1_20250313140503.jpg&q=90)
+![李斗（中）稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_2_20250313193928.jpg&q=90)
   
 
 平安好醫生去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。公司表示，自主研發的「平安醫博通」醫療大模型接入DeepSeek大模型，並與字節跳動旗下AI工具「豆包」等進行合作。

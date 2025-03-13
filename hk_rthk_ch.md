@@ -1,3 +1,28 @@
+# 機場東消防局舉行開幕典禮　機場4消防局與洗消救援設施全面運作
+
+![為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_1_20250313193819.jpg&q=90)
+![消防處說，機場內4間消防局與洗消及救援設施已全面運作。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_2_20250313193819.jpg&q=90)
+  
+
+消防處表示，為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm)
+
+---
+
 # 實德環球料去年度綜合溢利按年減少約4至5成
 
 ![實德環球預計去年度綜合溢利按年減少最多一半。圖為集團旗艦投資項目十六浦。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795600_1_20250313190739.jpg&q=80)
@@ -1111,7 +1136,7 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 
 # 平安好醫生已全面接入DeepSeek冀提升診斷效率
 
-![平安好醫生稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_1_20250313140503.jpg&q=90)
+![李斗（中）稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_2_20250313193928.jpg&q=90)
   
 
 平安好醫生去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。公司表示，自主研發的「平安醫博通」醫療大模型接入DeepSeek大模型，並與字節跳動旗下AI工具「豆包」等進行合作。

@@ -1,3 +1,28 @@
+# 機場東消防局舉行開幕典禮　機場4消防局與洗消救援設施全面運作
+
+![為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_1_20250313193819.jpg&q=90)
+![消防處說，機場內4間消防局與洗消及救援設施已全面運作。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_2_20250313193819.jpg&q=90)
+  
+
+消防處表示，為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm)
+
+---
+
 # 林定國稱香港政府面臨對國安法律不實評論　成功駁斥誤導性言論
 
 ![林定國說，當局成功駁斥了大量誤導性或誣衊的言論，捍衛了政府的聲譽和國家安全法律的正當性。（林定國社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795605_1_20250313193534.jpg&q=90)
@@ -1420,29 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795426-20250312.htm)
-
----
-
-# 接連有內地交流團師生不適　朱國強促教育局嚴肅處理
-
-![朱國強促請教育局嚴肅處理，如果證實承辦單位安排上有疏忽，或到訪衛生環境欠佳的餐廳，應該負上責任。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795425_1_20250312161205.jpg&q=80)
-  
-
-先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795425-20250312.htm)
 
 ---
