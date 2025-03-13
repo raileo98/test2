@@ -1,3 +1,27 @@
+# 道指跌幅擴大至逾400點
+
+![道瓊斯指數較早時報40932點，跌418點，跌幅1.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795633_1_20250313234245.jpg&q=90)
+  
+
+美股跌幅擴大，道瓊斯指數跌逾400點，較早時報40932點，跌418點，跌幅1.01%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm)
+
+---
+
 # 兩小學「派0班」　張勇邦稱數目較預期少冀政府和學界想可行方法
 
 ![張勇邦說，想改善「派0班」情況，需要有整體套配措施配合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795632_1_20250313231642.jpg&q=80)
