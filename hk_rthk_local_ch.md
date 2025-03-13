@@ -1,3 +1,26 @@
+# 專家：如有感染諾如病毒學生在旅遊巴上嘔吐或造成車內傳播
+
+  
+
+多間中學有師生到內地交流後，出現腸胃炎徵狀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm)
+
+---
+
 # 港股半日跌173點　科指跌逾2%
 
 ![港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795534_1_20250313120805.jpg&q=85)
@@ -118,7 +141,7 @@
 
 ---
 
-# 西營盤舊贊育醫院主樓及上環廣福祠擬列為古蹟
+# 古諮會將討論舊贊育醫院主樓及上環廣福祠列為古蹟
 
 ![西營盤舊贊育醫院主樓樓高四層，設有地庫，採用新古典主義建築風格，糅合中式元素，有紅磚外牆、圓柱及刻有前清官員的題字。（ 香港文化古蹟資源中心）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_1_20250313110927.jpg&q=75)
 ![廣福祠建於高台之上，青磚和花崗石門口的匾額和楹聯保存完好，位於前廳正脊上的石灣陶塑屹立至今。（東華三院）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_2_20250313110927.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
-
----
-
-# 旺角瘋狂駕駛案　有私家車撞向警方衝鋒車及另外3輛私家車
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795318_1_20250311223222.jpg&q=75)
-  
-
-旺角有人駕駛私家車涉嫌瘋狂駕駛，撞到一輛警方衝鋒車及三輛私家車，無人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795318-20250311.htm)
 
 ---

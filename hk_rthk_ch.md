@@ -1,3 +1,50 @@
+# 專家：如有感染諾如病毒學生在旅遊巴上嘔吐或造成車內傳播
+
+  
+
+多間中學有師生到內地交流後，出現腸胃炎徵狀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm)
+
+---
+
+# 九龍倉去年虧損逾32億元
+
+![九龍倉去年股東應佔虧損32.24億元，前一年則盈利9.45億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795539_1_20250313123124.jpg&q=90)
+  
+
+九龍倉去年股東應佔虧損32.24億元，前一年則盈利9.45億元，扣除投資物業重估減值近60億元及其他非現金項目，基礎盈利近28億元，減少逾21%，主要因為內地發展物業確認入帳銷售額減少，以及應佔減值撥備增加。派發第二次中期息每股0.2元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm)
+
+---
+
 # 太古地產去年盈轉虧　全年蝕約7.7億元
 
 ![太古地產去年虧損7.66億元，前一年則盈利26.37億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795537_1_20250313122001.jpg&q=90)
@@ -214,7 +261,7 @@
 
 ---
 
-# 西營盤舊贊育醫院主樓及上環廣福祠擬列為古蹟
+# 古諮會將討論舊贊育醫院主樓及上環廣福祠列為古蹟
 
 ![西營盤舊贊育醫院主樓樓高四層，設有地庫，採用新古典主義建築風格，糅合中式元素，有紅磚外牆、圓柱及刻有前清官員的題字。（ 香港文化古蹟資源中心）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_1_20250313110927.jpg&q=75)
 ![廣福祠建於高台之上，青磚和花崗石門口的匾額和楹聯保存完好，位於前廳正脊上的石灣陶塑屹立至今。（東華三院）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_2_20250313110927.jpg&q=80)
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm)
-
----
-
-# 龍湖集團料去年度盈利按年跌約20%
-
-![龍湖集團預計，去年度盈利按年跌約20%，主要由於地產開發業務的結算收入，及結算毛利率下跌所致。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795460_1_20250312211225.jpg&q=90)
-  
-
-龍湖集團預計，去年度盈利按年跌約20%，主要由於地產開發業務的結算收入，及結算毛利率下跌所致。前年度盈利為128.5億元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795460-20250312.htm)
-
----
-
-# 政府稱臨床試驗與臨床服務是兩碼子事　未完成試驗不能成臨床服務
-
-![政府說，在醫療器械或藥物硏發上，臨床試驗與臨床服務是兩碼子事，未完成臨床試驗便不能成為臨床服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795462_1_20250312214403.jpg&q=80)
-  
-
-李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部採用組織碎化技術治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，將為相關私院病人提供治療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 九龍倉去年虧損逾32億元
+
+![九龍倉去年股東應佔虧損32.24億元，前一年則盈利9.45億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795539_1_20250313123124.jpg&q=90)
+  
+
+九龍倉去年股東應佔虧損32.24億元，前一年則盈利9.45億元，扣除投資物業重估減值近60億元及其他非現金項目，基礎盈利近28億元，減少逾21%，主要因為內地發展物業確認入帳銷售額減少，以及應佔減值撥備增加。派發第二次中期息每股0.2元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm)
+
+---
+
 # 太古地產去年盈轉虧　全年蝕約7.7億元
 
 ![太古地產去年虧損7.66億元，前一年則盈利26.37億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795537_1_20250313122001.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795398-20250312.htm)
-
----
-
-# 國泰航空去年盈利升1%　普通股股東應佔溢利升近6%
-
-![國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795396_1_20250312124629.jpg&q=90)
-  
-
-國泰航空去年盈利近98.9億元，按年升1%。普通股股東應佔溢利96.1億元，按年升近6%。期內，撇除非經常性項目，基本溢利91.4億元，按年升逾19%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
 
 ---
