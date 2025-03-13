@@ -1,5 +1,30 @@
+# 中大研發測序技術識別鼻咽癌癌细胞血漿EB病毒DNA分子特徵
+
+  
+
+中大醫學院團隊研究發現透過以次世代DNA測序技術，可成功識別出一系列鼻咽癌癌细胞釋放的血漿EB病毒DNA分子特徵，有助更準確分辨出患鼻咽癌的高風險人士，有關研究已於國際醫學期刊《癌細胞》發表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm)
+
+---
+
 # 西營盤舊贊育醫院主樓及上環廣福祠將被列為古蹟
 
+![西營盤舊贊育醫院主樓樓高四層，設有地庫，採用新古典主義建築風格，糅合中式元素，有紅磚外牆、圓柱及刻有前清官員的題字。（ 香港文化古蹟資源中心）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_1_20250313110927.jpg&q=75)
+![廣福祠建於高台之上，青磚和花崗石門口的匾額和楹聯保存完好，位於前廳正脊上的石灣陶塑屹立至今。（東華三院）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_2_20250313110927.jpg&q=80)
   
 
 古物諮詢委員會下午開會，議程包括討論當局計劃根據法例，將西營盤舊贊育醫院主樓及上環廣福祠宣布為古蹟。古物古蹟辦事處的文件指出有關業主及管理部門已同意當局的建議。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
-
----
-
-# 警試點計劃威靈頓街設臨時過海的士站　的士大使協助乘客記錄資料
-
-![警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795305_1_20250311205648.jpg&q=85)
-  
-
-警方表示，「蘭桂坊的士大使計劃」去年4月起實施至今，已於蘭桂坊、山頂及花園道纜車站，協助超過6萬名市民及遊客乘搭的士。警方將推行試點計劃，本月15至16日，以及本月22至23日，一連兩個週末，由午夜零時30分至清晨5時，於威靈頓街32號對開，設置臨時過海的士站。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795305-20250311.htm)
 
 ---

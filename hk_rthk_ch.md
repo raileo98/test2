@@ -1,3 +1,26 @@
+# 中大研發測序技術識別鼻咽癌癌细胞血漿EB病毒DNA分子特徵
+
+  
+
+中大醫學院團隊研究發現透過以次世代DNA測序技術，可成功識別出一系列鼻咽癌癌细胞釋放的血漿EB病毒DNA分子特徵，有助更準確分辨出患鼻咽癌的高風險人士，有關研究已於國際醫學期刊《癌細胞》發表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm)
+
+---
+
 # 日股半日升約1%
 
 ![日經指數半日收報37173點，升354點，升幅0.96%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795524_1_20250313103708.jpg&q=90)
@@ -48,6 +71,8 @@
 
 # 西營盤舊贊育醫院主樓及上環廣福祠將被列為古蹟
 
+![西營盤舊贊育醫院主樓樓高四層，設有地庫，採用新古典主義建築風格，糅合中式元素，有紅磚外牆、圓柱及刻有前清官員的題字。（ 香港文化古蹟資源中心）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_1_20250313110927.jpg&q=75)
+![廣福祠建於高台之上，青磚和花崗石門口的匾額和楹聯保存完好，位於前廳正脊上的石灣陶塑屹立至今。（東華三院）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_2_20250313110927.jpg&q=80)
   
 
 古物諮詢委員會下午開會，議程包括討論當局計劃根據法例，將西營盤舊贊育醫院主樓及上環廣福祠宣布為古蹟。古物古蹟辦事處的文件指出有關業主及管理部門已同意當局的建議。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm)
-
----
-
-# 機艙內發生爭執互擲物品　本港及內地女子准簽保及守行為
-
-![控方改控兩人普通襲擊罪後，兩人各獲准以1500元簽保守行為2年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795454_2_20250313101621.jpg&q=90)
-  
-
-一名本港及一名內地女子在國泰航空航班上，因兒童哭喊事端，初生口角，繼而互擲水樽軟墊等。兩人同被控在飛機上作出擾亂秩序的行為罪，在西九龍裁判法院再訊，控方改控兩人普通襲擊罪後，兩人各獲准以1500元簽保守行為2年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm)
 
 ---
