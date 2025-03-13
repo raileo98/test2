@@ -1,3 +1,26 @@
+# 立法會前廳交流會將由黃偉綸帶領　以事務委員會為基礎分組討論
+
+  
+
+立法會本月26日將舉行前廳交流會，由財政司副司長黃偉綸帶領，並會採用優化安排，以事務委員會為基礎分組進行討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm)
+
+---
+
 # 謝展寰稱香港能成為世界各地氫能及其他綠色技術示範中心
 
   
