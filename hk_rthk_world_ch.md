@@ -1,3 +1,27 @@
+# 敘利亞過渡時期總統簽署憲法宣言　確定敘利亞過渡階段為期5年
+
+![沙拉簽署憲法宣言。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795641_1_20250314012336.jpg&q=90)
+  
+
+敘利亞過渡時期總統沙拉簽署憲法宣言，確定敘利亞的過渡階段為期5年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm)
+
+---
+
 # 比利時調查歐洲議會議員涉貪案　檢察官稱賄賂行為據報令華為受益
 
 ![當地傳媒報道，華為的說客涉嫌賄賂現任或前任歐洲議會議員。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795642_1_20250314014959.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm)
-
----
-
-# 烏克蘭外長：烏美會談具有「建設性氣氛」
-
-![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795328_1_20250312004312.jpg&q=90)
-  
-
-美國與烏克蘭官員在沙特阿拉伯城市吉達會談。有份參加會談的烏克蘭外長瑟比加在社交媒體說，烏方視吉達會談為推動和平和發展烏美戰略伙伴關係的重要機遇，會談的「建設性氣氛」將證明烏方可以利用這個機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795328-20250312.htm)
 
 ---

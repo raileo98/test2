@@ -1,3 +1,27 @@
+# 敘利亞過渡時期總統簽署憲法宣言　確定敘利亞過渡階段為期5年
+
+![沙拉簽署憲法宣言。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795641_1_20250314012336.jpg&q=90)
+  
+
+敘利亞過渡時期總統沙拉簽署憲法宣言，確定敘利亞的過渡階段為期5年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm)
+
+---
+
 # 比利時調查歐洲議會議員涉貪案　檢察官稱賄賂行為據報令華為受益
 
 ![當地傳媒報道，華為的說客涉嫌賄賂現任或前任歐洲議會議員。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795642_1_20250314014959.jpg&q=90)
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm)
-
----
-
-# 俄駐英大使稱俄方將考慮美國所提出停火建議　達協議後才完全停火
-
-![美烏代表團日前在沙特會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795574_1_20250313185809.jpg&q=85)
-  
-
-俄羅斯駐英國大使克林接受美國報章訪問時說，俄方將考慮美國提出的烏克蘭停火建議，但只有在達成全面和平協議後，才會完全停止軍事行動，俄羅斯非常謹慎看待有關倡議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm)
 
 ---
