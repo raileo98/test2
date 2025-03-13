@@ -1,3 +1,27 @@
+# 教育局成立學生內地考察專責小組　適時優化交流考察活動安排
+
+![蔡若蓮召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。（蔡若蓮社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795626_1_20250313220902.jpg&q=90)
+  
+
+教育局局長蔡若蓮表示，局方非常重視有同學在參加內地交流團出現腸胃炎徵狀的事件，今日她再召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。教育局亦已成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，適時優化交流考察活動安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm)
+
+---
+
 # 取消配子或胚胎儲存期限制　林哲玄憂變相鼓勵延遲生育
 
   
@@ -1421,29 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm)
-
----
-
-# 旅發局邀泰國演員台灣歌手參演宣傳片　介紹本港綠色旅遊資源
-
-![旅發局推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。（旅發局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795442_1_20250312181152.jpg&q=90)
-  
-
-旅發局於社交平台推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm)
 
 ---

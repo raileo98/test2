@@ -1,3 +1,27 @@
+# Angus Ng knocked out of All England Open by Loh
+
+![Angus Ng remains winless against Loh, having been beaten in each of their five meetings. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795625_1_20250313220623.jpg&q=90)
+  
+
+Hong Kong, China badminton star Angus Ng was sent packing at the All England Open in Birmingham, losing to Singapore's Loh Kean Yew in straight games in the round of 16 on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm)
+
+---
+
 # Civil service job cuts won't save much: Legco
 
 ![The Legislative Council Secretariat says civil service job cuts may not save much money. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795601_1_20250313190933.jpg&q=90)
@@ -1415,29 +1439,5 @@ A plane carrying former Filipino president Rodrigo Duterte left the Philippine c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm)
-
----
-
-# Separatists attack train in Pakistan carrying hundreds
-
-![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=80)
-  
-
-Pakistani insurgents attacked a passenger train in a tunnel and claimed to have taken over 100 hostages on Tuesday, as authorities struggled to reach the remote area. The fate of the estimated 500 people aboard was not immediately clear.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm)
 
 ---

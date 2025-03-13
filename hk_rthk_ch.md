@@ -1,3 +1,27 @@
+# 教育局成立學生內地考察專責小組　適時優化交流考察活動安排
+
+![蔡若蓮召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。（蔡若蓮社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795626_1_20250313220902.jpg&q=90)
+  
+
+教育局局長蔡若蓮表示，局方非常重視有同學在參加內地交流團出現腸胃炎徵狀的事件，今日她再召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。教育局亦已成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，適時優化交流考察活動安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm)
+
+---
+
 # 取消配子或胚胎儲存期限制　林哲玄憂變相鼓勵延遲生育
 
   
