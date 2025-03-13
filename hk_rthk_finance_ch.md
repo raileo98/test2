@@ -1,3 +1,26 @@
+# 新鴻基公司料去年扭虧　盈利最多4億元
+
+  
+
+新鴻基公司發盈喜，預計去年度由虧轉盈，賺不超過4億元，前年虧損4.71億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795545-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795545-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795545-20250313.htm)
+
+---
+
 # 太古去年盈利跌85%
 
 ![太古公司去年盈利43.2億元，按年跌85%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795544_1_20250313125620.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795401-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795401-20250312.htm)
-
----
-
-# 香港快運去年轉蝕4億元　短途票價正常化令收益率受壓
-
-![香港快運去年業績由盈轉虧，虧損4億元，受短期營運問題影響，短途市場票價迅速正常化亦令收益率受壓。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795400_1_20250312130859.jpg&q=90)
-  
-
-國泰航空旗下香港快運業績由盈轉虧，虧損4億元，而前年盈利4.33億元。短期營運問題導致錄得虧損，去年全年平均有5架空中巴士A320neo型飛機，因為涉及整個業界的普惠發動機問題而停飛，影響了飛機使用率及營運效率。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795400-20250312.htm)
 
 ---

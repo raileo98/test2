@@ -1,3 +1,26 @@
+# 香港承辦全運會保齡球項目甄選賽下月展開
+
+  
+
+粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm)
+
+---
+
 # 太古去年盈利跌85%
 
 ![太古公司去年盈利43.2億元，按年跌85%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795544_1_20250313125620.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm)
-
----
-
-# 美股初段上升　美國上月通脹放緩
-
-![道瓊斯指數較早時報41564點，升130點，升幅0.32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795465_1_20250312213826.jpg&q=90)
-  
-
-美國上月通脹放緩，美股在開市初段上升，大型科技股向上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm)
 
 ---

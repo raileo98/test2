@@ -1,3 +1,26 @@
+# 香港承辦全運會保齡球項目甄選賽下月展開
+
+  
+
+粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm)
+
+---
+
 # 林緯遜料交流團學生出發前或已染腸胃炎　鄧飛稱現時相關指引足夠
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795519_1_20250313101825.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795119-20250310.htm)
-
----
-
-# 全國兩會｜廈門航空稱C919飛機進入國際市場是時間問題
-
-![趙東說，C919飛機進入國際市場是時間問題，要取得不同認證，有一定過程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795121_1_20250310173033.jpg&q=80)
-  
-
-國家自主研發的C919飛機，據報已交付逾10架，執飛18條航線覆蓋北京、上海、廣州等城市。財政預算案亦提出，香港將助力國家自主研發的C919飛機打進國際市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795121-20250310.htm)
 
 ---

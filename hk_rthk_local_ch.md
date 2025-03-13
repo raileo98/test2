@@ -1,3 +1,26 @@
+# 香港承辦全運會保齡球項目甄選賽下月展開
+
+  
+
+粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm)
+
+---
+
 # 專家：如有感染諾如病毒學生在旅遊巴上嘔吐或造成車內傳播
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795324-20250311.htm)
-
----
-
-# 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=80)
-  
-
-港區全國人大代表團出席全國人大會議後，由北京返抵本港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
 
 ---
