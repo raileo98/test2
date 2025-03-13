@@ -1,3 +1,27 @@
+# 滬股半日跌逾0.4%　深證成指跌1%
+
+![內地股市3大指數半日下跌，上證指數半日報3357點，跌14點，跌幅0.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795529_1_20250313113720.jpg&q=90)
+  
+
+內地股市3大指數半日下跌，人形機器人、自動化設備、人工智能概念、存儲晶片股都跌；煤炭、黃金、銀行、電力股向上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm)
+
+---
+
 # 中大研發測序技術識別鼻咽癌癌细胞血漿EB病毒DNA分子特徵
 
 ![中大醫學院團隊有關研究已於國際醫學期刊《癌細胞》發表。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795527_1_20250313111923.jpg&q=80)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm)
-
----
-
-# 梁振英稱實現雙碳戰略體現中國應對全球氣變及保護生存環境責任
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795455_1_20250312220034.jpg&q=65)
-  
-
-全國政協副主席、香港再出發大聯盟總召集人梁振英表示，中國正致力於在最短時間內實現人類歷史上最大幅度的減碳目標，形容這是一場全球性的綠色征程，每個人都身處其中，共同見證並參與應對全球氣候變化的挑戰，推動構建人類命運共同體的時代變革。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm)
 
 ---
