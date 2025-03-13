@@ -1,3 +1,27 @@
+# 'No cryopreservation time limit helps the infertile'
+
+![An expert has expressed doubts on whether the proposed amendments on cryopreservation can help lift Hong Kong's declining birth rate. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795595_1_20250313182427.jpg&q=85)
+  
+
+A population expert on Thursday welcomed the government's proposed amendments to lift the storage period limits for frozen gametes and embryos, saying it would be helpful for those who are infertile.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm)
+
+---
+
 # Picasso's legacy lives on in new HK exhibition
 
 ![The exhibition will be open to the public at the M+ West Gallery from March 15 to July 13. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795585_1_20250313175146.jpg&q=90)
@@ -1413,29 +1437,5 @@ There's hope that a new scheme can help eliminate poorly managed, so-called "thr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794870-20250308.htm)
-
----
-
-# 'HK can't stop residential and industrial land sale'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794857_1_20250308102609.jpg&q=90)
-  
-
-The Secretary for Development Bernadette Linn on Saturday said Hong Kong is not in a position to stop selling residential and industrial land.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794857-20250308.htm)
 
 ---
