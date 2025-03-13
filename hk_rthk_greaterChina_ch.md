@@ -1,3 +1,50 @@
+# 外交部：中方冀早日就伊朗核問題將重啟對話談判勢頭轉化為現實
+
+![毛寧說，中方希望早日就伊朗核問題將重啟對話談判的勢頭轉化為現實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795567_1_20250313154005.jpg&q=90)
+  
+
+中方將於明天舉行伊朗核問題中俄伊北京會晤。外交部發言人毛寧表示，作為聯合國安理會的常任理事國和伊朗核問題全面協議的參與方，中國一貫主張通過政治外交途徑妥善解決伊朗核問題，維護國際核不擴散機制，促進中東地區的和平穩定。北京會晤是中方最新的外交努力，目的是加強溝通協調，為早日恢復對話談判創造條件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm)
+
+---
+
+# 西藏自治區原黨委書記吳英杰涉受賄將於北京第三中級人民法院審理
+
+  
+
+西藏自治區原黨委書記吳英杰涉嫌受賄案，將於北京市第三中級人民法院審理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm)
+
+---
+
 # 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
 
   
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795144-20250310.htm)
-
----
-
-# 內地2月乘用車市場零售按年升26%　新能源車按年升近80%
-
-![中國乘聯會公布，內地2月狹義乘用車市場零售按年增加26%，新能源車按年升近80%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795127_1_20250310171219.jpg&q=90)
-  
-
-中國乘用車市場信息聯席會公布，內地2月狹義乘用車市場零售138.6萬輛，按年增加26%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795127-20250310.htm)
-
----
-
-# 南韓稱北韓發射多枚導彈　分析指朝方此舉或對韓美軍演表達抗議
-
-![在首爾，有民眾關注有關北韓試射導彈的報道。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795132_1_20250310172428.jpg&q=90)
-  
-
-南韓聯合參謀本部表示，北韓下午向西部海域方向發射多枚型號不明的彈道導彈，飛行距離60至100公里，推斷可能是近程彈道導彈。韓方與美方緊密合作，保持高度戒備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795132-20250310.htm)
 
 ---

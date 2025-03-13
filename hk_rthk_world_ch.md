@@ -1,3 +1,27 @@
+# 外交部：中方冀早日就伊朗核問題將重啟對話談判勢頭轉化為現實
+
+![毛寧說，中方希望早日就伊朗核問題將重啟對話談判的勢頭轉化為現實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795567_1_20250313154005.jpg&q=90)
+  
+
+中方將於明天舉行伊朗核問題中俄伊北京會晤。外交部發言人毛寧表示，作為聯合國安理會的常任理事國和伊朗核問題全面協議的參與方，中國一貫主張通過政治外交途徑妥善解決伊朗核問題，維護國際核不擴散機制，促進中東地區的和平穩定。北京會晤是中方最新的外交努力，目的是加強溝通協調，為早日恢復對話談判創造條件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm)
+
+---
+
 # 中國駐泰大使：中方全力協調查找解救電詐網賭失聯被困人員
 
 ![韓志強稱，中方全力協調查找解救電詐網賭失聯被困人員。（中國駐泰國大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795564_1_20250313152754.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm)
-
----
-
-# 俄羅斯莫斯科州遭大規模無人機襲擊1死3傷
-
-![莫斯科州遭受無人機襲擊，有住宅大廈受損。 （路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795262_1_20250311162626.jpg&q=80)
-  
-
-俄羅斯莫斯科州州長沃羅比約夫說，當地星期二凌晨4時開始，莫斯科州遭受大規模無人機襲擊，已造成1人死亡，3人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795262-20250311.htm)
 
 ---
