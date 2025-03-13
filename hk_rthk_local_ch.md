@@ -1,3 +1,26 @@
+# 謝展寰稱香港能成為世界各地氫能及其他綠色技術示範中心
+
+  
+
+由機電署主辦及中國氫能聯盟協辦的國際氫能發展論壇在香港科學園舉行開幕禮，由中聯辦教育科技部副部長葉水球、環境及生態局局長謝展寰、機電署署長潘國英、投資推廣署署長劉凱旋和中國氫能聯盟秘書長劉瑋擔任開幕嘉賓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm)
+
+---
+
 # 全國兩會｜李慧琼料民營經濟愈來愈旺盛　陳勇籲時刻警惕維護國安
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm)
-
----
-
-# 甯漢豪：今年落實措施降低建造成本　由政府中央採購部分建築材料
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795359_1_20250312092418.jpg&q=90)
-  
-
-發展局局長甯漢豪表示，今年會落實具體措施對症下藥，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795359-20250312.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 謝展寰稱香港能成為世界各地氫能及其他綠色技術示範中心
+
+  
+
+由機電署主辦及中國氫能聯盟協辦的國際氫能發展論壇在香港科學園舉行開幕禮，由中聯辦教育科技部副部長葉水球、環境及生態局局長謝展寰、機電署署長潘國英、投資推廣署署長劉凱旋和中國氫能聯盟秘書長劉瑋擔任開幕嘉賓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm)
+
+---
+
 # 杜特爾特抵海牙國際刑事法院　稱會繼續服務菲律賓
 
 ![杜特爾特被送到拘留所。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795526_1_20250313105151.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795255-20250311.htm)
-
----
-
-# 日本東京街頭一名女子遇襲身亡　疑兇被捕
-
-![日本東京街頭一名女子遇襲身亡　疑兇被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795243_1_20250311144208.jpg&q=90)
-  
-
-日本東京街頭發生命案，一名女子遇襲身亡，疑兇當場被捕，警方正調查犯案動機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795243-20250311.htm)
 
 ---
