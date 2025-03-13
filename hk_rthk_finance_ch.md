@@ -1,3 +1,27 @@
+# 韓股近乎平收
+
+![首爾綜合指數收市報2573點，跌1點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795553_1_20250313143607.jpg&q=90)
+  
+
+南韓股市近乎平收，首爾綜合指數收市報2573點，跌1點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm)
+
+---
+
 # 日股收市偏軟
 
 ![日經平均指數收市報36790點，跌29點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795552_1_20250313143421.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795413-20250312.htm)
-
----
-
-# 交諮會討論電車加價　張仁良：知悉電車客量未回復疫情前
-
-![張仁良表示，委員知悉電車公司面對其他公共交通工具的激烈競爭，乘客量仍未能回復至疫情前的水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795414_1_20250312161112.jpg&q=80)
-  
-
-交通諮詢委員會討論由電車公司提出的加價申請，以及聽取港鐵公司構建鐵路科技生態圈的工作和進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795414-20250312.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 韓股近乎平收
+
+![首爾綜合指數收市報2573點，跌1點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795553_1_20250313143607.jpg&q=90)
+  
+
+南韓股市近乎平收，首爾綜合指數收市報2573點，跌1點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm)
+
+---
+
 # 日股收市偏軟
 
 ![日經平均指數收市報36790點，跌29點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795552_1_20250313143421.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795478-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795478-20250313.htm)
-
----
-
-# 招商局置地去年轉蝕18.5億元人民幣
-
-![招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795477_1_20250312231031.jpg&q=90)
-  
-
-招商局置地公布，去年轉蝕18.5億元人民幣，前年則錄得盈利1.3億元。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795477-20250312.htm)
 
 ---
