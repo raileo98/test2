@@ -1,3 +1,26 @@
+# 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
+
+  
+
+全國政協副主席梁振英說，內地發展非常迅速，以法律行業為例，香港律師會已有117年歷史，內地的法律行業發展則是近20年的事，但發展速度驚人，並適用於電動車、機械人、電影等領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm)
+
+---
+
 # 當局擬修訂實務守則　自用配子或胚胎儲存期法律限制擬予以取消
 
   
@@ -1405,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795381-20250312.htm)
-
----
-
-# 慢病共治計劃將擴至普通科門診　當局料一年6千至1萬名額足應付
-
-![彭飛舟指擴展計劃主要希望進一步幫助未能支付共付費用的弱勢社群，讓他們到指定普通科門診接受篩查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795380_1_20250312114254.jpg&q=90)
-  
-
-本月28日起「慢性疾病共同治理先導計劃」將分階段擴展至醫管局轄下指定普通科門診診所，為指定合資格弱勢社群，提供預防篩查及護理服務，包括綜援受助人、75歲或以上長者生活津貼受惠人，或持有有效醫療費用減免證明書的人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795380-20250312.htm)
 
 ---

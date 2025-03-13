@@ -1,3 +1,26 @@
+# 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
+
+  
+
+全國政協副主席梁振英說，內地發展非常迅速，以法律行業為例，香港律師會已有117年歷史，內地的法律行業發展則是近20年的事，但發展速度驚人，並適用於電動車、機械人、電影等領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm)
+
+---
+
 # 中國駐泰大使：中方全力協調查找解救電詐網賭失聯被困人員
 
 ![韓志強稱，中方全力協調查找解救電詐網賭失聯被困人員。（中國駐泰國大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795564_1_20250313152754.jpg&q=90)

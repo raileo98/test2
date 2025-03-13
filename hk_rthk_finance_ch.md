@@ -1,3 +1,26 @@
+# 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
+
+  
+
+全國政協副主席梁振英說，內地發展非常迅速，以法律行業為例，香港律師會已有117年歷史，內地的法律行業發展則是近20年的事，但發展速度驚人，並適用於電動車、機械人、電影等領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm)
+
+---
+
 # 內地股市連跌兩日　深股及創業板指數跌1%
 
 ![深證成份指數收市報10736點，跌107點，跌幅0.99%，連跌兩日。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795559_1_20250313151137.jpg&q=85)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795420-20250312.htm)
-
----
-
-# 內地股市反覆低收　滬指跌0.2%
-
-![上證綜合指數收市報3371點，跌7點，跌幅0.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795417_1_20250312151022.jpg&q=90)
-  
-
-滬深股市反覆低收，工程機械、農業和白酒股下跌；算力概念、影視傳媒相關股份上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795417-20250312.htm)
 
 ---
