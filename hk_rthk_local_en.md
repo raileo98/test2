@@ -49,7 +49,7 @@ The government launched on Thursday a consultation on lifting the storage period
 
 # Driver dies after crashing van into fire engine
 
-![The fatal traffic accident occurred near Olympian City. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795576_1_20250313161524.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795576_1_20250313161524.jpg&q=80)
   
 
 A driver, who was behind the wheel of a light goods vehicle travelling along the West Kowloon Highway on Thursday, died after crashing into a fire engine in Tai Kok Tsui.

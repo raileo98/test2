@@ -1,5 +1,6 @@
-# 西九龍公路致命車禍　輕型貨車司機死亡
+# 西九龍公路致命車禍　44歲輕型貨車司機死亡
 
+![44歲輕型貨車司機，送院搶救後不治。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795599_1_20250313185853.jpg&q=40)
   
 
 西九龍公路發生致命車禍，44歲輕型貨車司機死亡。
@@ -23,7 +24,8 @@
 
 # 【影片速遞】香港花卉展覽3.14至3.23維園舉行
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_1_20250313183642.jpg&q=60)
+![今屆花展，以「綻放英姿」為主題。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_2_20250313190218.jpg&q=55)
+![今年的主題花立體花牆以六簇以秋英為造型，由蘭花和康乃馨砌成，與前方近萬朵鬱金香互相襯托，為花展帶來英氣和活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_3_20250313190218.jpg&q=65)
   
 
 康文署主辦的香港花卉展覽，明天起至本月23日在維園舉行。
