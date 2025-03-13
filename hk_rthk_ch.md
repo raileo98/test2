@@ -1,3 +1,27 @@
+# 人民幣兌美元收市微升
+
+![人民幣收市報7.2427兌1美元，較上日收市升18點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795580_1_20250313171256.jpg&q=90)
+  
+
+人民幣兌美元收市微升，報7.2427兌1美元，較上日收市升18點子。中間價則微跌至7.1728兌1美元，與市場預測偏離逾710點子，反映監管延續過濾舉措穩定市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm)
+
+---
+
 # 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
 
 ![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)

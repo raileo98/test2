@@ -1,3 +1,27 @@
+# 人民幣兌美元收市微升
+
+![人民幣收市報7.2427兌1美元，較上日收市升18點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795580_1_20250313171256.jpg&q=90)
+  
+
+人民幣兌美元收市微升，報7.2427兌1美元，較上日收市升18點子。中間價則微跌至7.1728兌1美元，與市場預測偏離逾710點子，反映監管延續過濾舉措穩定市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm)
+
+---
+
 # 恒指低收137點　連跌5日　科指跌近2%
 
 ![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
@@ -19,54 +43,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
-
----
-
-# 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
-  
-
-全國政協副主席梁振英說，國務院總理李強的政府工作報告中提及，要支持香港「深化國際交往合作」。梁振英認為，深化國際交往合作不只經貿方面，亦包括文化、體育、藝術、教育等，而由他擔任主席的共享基金會過去7年在海外所做的人道主義醫療、公共衛生援助，共包括8個國家、7個服務類別，他希望可啟發本港年輕人思考未來事業發展方向。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm)
-
----
-
-# 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
-
-![梁振英說，香港年輕人一代無論是職業發展的行業或地理範圍上的選擇，與其他地方的同齡人相比，條件都更為優越。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795565_1_20250313155011.jpg&q=80)
-  
-
-全國政協副主席梁振英說，內地發展非常迅速，以法律行業為例，香港律師會已有117年歷史，內地的法律行業發展則是近20年的事，但發展速度驚人，並適用於電動車、機械人、電影等領域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm)
 
 ---
 
@@ -1435,5 +1411,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795427-20250312.htm)
+
+---
+
+# 工行設立800億元人民幣科技創新基金　加大支持硬科技及民企
+
+![工行設立800億元人民幣科技創新基金，持續加大對硬科技、民營經濟支持。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795423_1_20250312155243.jpg&q=90)
+  
+
+工商銀行表示，設立總規模達800億元人民幣科技創新基金，將定位為「耐心資本」，以股為主、股債貸保聯動，持續加大對硬科技、民營經濟支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795423-20250312.htm)
 
 ---
