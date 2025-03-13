@@ -1,3 +1,27 @@
+# 特朗普認為吞併格陵蘭是會發生　格陵蘭自治政府總理稱已受夠
+
+![特朗普在白宮與北約秘書長呂特會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795648_1_20250314043951.jpg&q=90)
+  
+
+美國總統特朗普在白宮與北約秘書長呂特會面時，被記者問到關於吞併格陵蘭的問題。特朗普回應說，他認為是將會發生的事，美國已經在格陵蘭有駐軍，或者會有越來越多美國士兵在那裡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm)
+
+---
+
 # 特朗普：普京聲明有希望但不完整　澤連斯基斥俄試圖拖延停火
 
 ![特朗普說，願意與普京見面或交談，強調必須盡快達成停火協議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795647_1_20250314042123.jpg&q=90)
@@ -1417,29 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795582-20250313.htm)
-
----
-
-# 港交所已於去年實現碳中和
-
-![香港交易所宣布去年已實現碳中和，是交易所氣候行動重要里程碑，亦為香港上市公司樹立重要榜樣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795579_1_20250313170636.jpg&q=90)
-  
-
-香港交易所宣布，已於去年實現碳中和，是交易所氣候行動重要里程碑，兌現推動全球淨零轉型的承諾，為香港上市公司樹立重要榜樣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm)
 
 ---

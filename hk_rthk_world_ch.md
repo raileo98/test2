@@ -1,3 +1,27 @@
+# 特朗普認為吞併格陵蘭是會發生　格陵蘭自治政府總理稱已受夠
+
+![特朗普在白宮與北約秘書長呂特會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795648_1_20250314043951.jpg&q=90)
+  
+
+美國總統特朗普在白宮與北約秘書長呂特會面時，被記者問到關於吞併格陵蘭的問題。特朗普回應說，他認為是將會發生的事，美國已經在格陵蘭有駐軍，或者會有越來越多美國士兵在那裡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm)
+
+---
+
 # 特朗普：普京聲明有希望但不完整　澤連斯基斥俄試圖拖延停火
 
 ![特朗普說，願意與普京見面或交談，強調必須盡快達成停火協議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795647_1_20250314042123.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795334-20250312.htm)
-
----
-
-# 美烏會談結束　烏克蘭接受與俄羅斯停火30天提議
-
-![美國和烏克蘭代表團在沙特官員主持下舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795333_1_20250312031759.jpg&q=80)
-  
-
-美國和烏克蘭代表團結束在沙特阿拉伯城市吉達舉行的會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795333-20250312.htm)
 
 ---
