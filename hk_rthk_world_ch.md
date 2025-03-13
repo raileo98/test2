@@ -1,3 +1,27 @@
+# 杜特爾特支持者聚集拘留中心外　質疑國際刑事法院被用作政治工具
+
+![支持者要求釋放杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795602_1_20250313192346.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特被送到荷蘭海牙並移交國際刑事法院。他的一批支持者在法院拘留中心外聚集，揮舞菲律賓國旗並高呼口號，要求釋放杜特爾特。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm)
+
+---
+
 # 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
 
 ![外長王毅在北京同老撾外長通沙萬舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795587_1_20250313183621.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm)
-
----
-
-# 杜特爾特被捕　質疑當局逮捕自己法理依據
-
-![杜特爾特被菲律賓警方逮捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795288_1_20250311182302.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特被菲律賓警方逮捕。現任總統辦公室表示，是執行國際刑事法院的逮捕令，杜特爾特的健康狀況良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作
+
+![楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795603_1_20250313192514.jpg&q=90)
+  
+
+國務院食安辦就「楊銘宇黃燜雞米飯厨房亂象」事件，今日向山東省食安辦、河南省食安辦發出掛牌督辦通知書，對兩地核查處置工作實行掛牌督辦。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm)
+
+---
+
+# 杜特爾特支持者聚集拘留中心外　質疑國際刑事法院被用作政治工具
+
+![支持者要求釋放杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795602_1_20250313192346.jpg&q=90)
+  
+
+菲律賓前總統杜特爾特被送到荷蘭海牙並移交國際刑事法院。他的一批支持者在法院拘留中心外聚集，揮舞菲律賓國旗並高呼口號，要求釋放杜特爾特。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm)
+
+---
+
 # 西九龍公路致命車禍　44歲輕型貨車司機死亡
 
 ![44歲輕型貨車司機，送院搶救後不治。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795599_1_20250313185853.jpg&q=40)
@@ -76,6 +124,7 @@
 
 # 傳染病專家指倘染諾如病毒學生在旅遊巴嘔吐　或車內造成傳播
 
+![林偉遜（左）認為，如果有學生感染諾如病毒並在旅遊巴上嘔吐，有可能在車內造成傳播。鄧飛（右）表示，現時學校前往交流既相關指引足夠同清晰。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795598_1_20250313192600.jpg&q=90)
   
 
 多間中學有師生到內地交流後，出現腸胃炎徵狀。
