@@ -1,3 +1,50 @@
+# 俄駐英大使稱俄方將考慮美國所提出停火建議　達協議後才完全停火
+
+  
+
+俄羅斯駐英國大使克林接受美國報章訪問時說，俄方將考慮美國提出的烏克蘭停火建議，但只有在達成全面和平協議後，才會完全停止軍事行動，俄羅斯非常謹慎看待有關倡議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm)
+
+---
+
+# 商務部：中美相關主管部門一直保持溝通
+
+![商務部稱，中方與美方相關主管部門一直保持溝通。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795573_1_20250313161008.jpg&q=75)
+  
+
+在北京，商務部新聞發言人何咏前表示，中方與美方相關主管部門一直保持溝通。中方一貫主張，對於經貿領域的分歧和爭議，中美雙方應秉持積極合作的態度，通過平等對話加強溝通，尋找雙方都能接受的解決方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
+
+---
+
 # 普京赴庫爾斯克州聽取匯報　要求俄軍盡快徹底奪回該區
 
   
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795280-20250311.htm)
-
----
-
-# 俄羅斯稱擊落337架烏克蘭無人機　莫斯科州長稱襲擊致2死多傷
-
-![莫斯科州一個停車場受到無人機襲擊，引發火警，多輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795278_1_20250311172225.jpg&q=80)
-  
-
-俄羅斯國防部表示，防空部隊一夜之間擊落337架烏克蘭無人機，在莫斯科州上空，有91架無人機被摧毀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795278-20250311.htm)
-
----
-
-# 全國兩會｜劉兆佳稱香港不能只等中央發號施令需主動籌劃發展路向
-
-![劉兆佳表示，香港與國家均面對地理遏制、圍堵及孤立，一定要突圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795275_1_20250311181306.jpg&q=90)
-  
-
-十四屆全國人大三次會議在北京閉幕，表決通過政府工作報告等多項決議草案。全國港澳研究會顧問劉兆佳認為，今年兩會重點仍以經濟發展為主軸，在受到美西方遏制及全球經濟低迷下，國家如何不依靠出口及房地產等，走向科技創新及激發內需作為動力，維持5%經濟增長的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
 
 ---

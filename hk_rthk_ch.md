@@ -1,5 +1,76 @@
+# 古諮會通過舊贊育醫院主樓及上環廣福祠列為法定古蹟
+
+  
+
+古物諮詢委員會通過，將西營盤舊贊育醫院主樓，以及上環廣福祠，列為法定古蹟。古諮會下午開會，多名委員都表示這兩座建築物具有歷史文化價值，贊成列為法定古蹟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm)
+
+---
+
+# 俄駐英大使稱俄方將考慮美國所提出停火建議　達協議後才完全停火
+
+  
+
+俄羅斯駐英國大使克林接受美國報章訪問時說，俄方將考慮美國提出的烏克蘭停火建議，但只有在達成全面和平協議後，才會完全停止軍事行動，俄羅斯非常謹慎看待有關倡議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm)
+
+---
+
+# 商務部：中美相關主管部門一直保持溝通
+
+![商務部稱，中方與美方相關主管部門一直保持溝通。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795573_1_20250313161008.jpg&q=75)
+  
+
+在北京，商務部新聞發言人何咏前表示，中方與美方相關主管部門一直保持溝通。中方一貫主張，對於經貿領域的分歧和爭議，中美雙方應秉持積極合作的態度，通過平等對話加強溝通，尋找雙方都能接受的解決方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
+
+---
+
 # 西九龍公路致命交通意外　輕型貨車車頭損毀嚴重
 
+![涉事輕型貨車車頭撞向消防車車身，輕型貨車車頭嚴重損毁，車身零件及雜物散落一地。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795571_1_20250313160454.jpg&q=65)
   
 
 西九龍公路往葵涌方向、大角咀奧海城對開發生致命交通意外，一名輕型貨車司機死亡。
@@ -21,8 +92,9 @@
 
 ---
 
-# 林琳支持取消配子或胚胎儲存期限制　賦予自主權並及早規劃
+# 林琳支持取消配子或胚胎儲存期限制　賦予女性自主權夫婦及早規劃
 
+![林琳認為，修訂不僅賦予女性更多生育自主權，同時不用增加政府財政負擔，是一項具前瞻性的建議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795570_1_20250313162142.jpg&q=90)
   
 
 人類生殖科技管理局建議修訂《生殖科技及胚胎研究實務守則》，不論儲存者的性別、年齡、醫學情況，取消配子或胚胎的儲存期限制。民建聯立法會議員林琳表示支持，認為不僅賦予女性更多生育自主權，協助有意生育的女性及需要醫學幫助的夫婦及早規劃，同時不用增加政府財政負擔，是一項具前瞻性的建議。
@@ -69,7 +141,7 @@
 
 # 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
 
-![梁振英認為，港人應充分認識及付諸實行，就算不涉及港澳，香港亦應深入了解認識，出力為國家作貢獻。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
   
 
 全國政協副主席梁振英說，國務院總理李強的政府工作報告中提及，要支持香港「深化國際交往合作」。梁振英認為，深化國際交往合作不只經貿方面，亦包括文化、體育、藝術、教育等，而由他擔任主席的共享基金會過去7年在海外所做的人道主義醫療、公共衛生援助，共包括8個國家、7個服務類別，他希望可啟發本港年輕人思考未來事業發展方向。

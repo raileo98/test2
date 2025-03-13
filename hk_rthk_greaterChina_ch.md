@@ -1,6 +1,30 @@
+# 商務部：中美相關主管部門一直保持溝通
+
+![商務部稱，中方與美方相關主管部門一直保持溝通。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795573_1_20250313161008.jpg&q=75)
+  
+
+在北京，商務部新聞發言人何咏前表示，中方與美方相關主管部門一直保持溝通。中方一貫主張，對於經貿領域的分歧和爭議，中美雙方應秉持積極合作的態度，通過平等對話加強溝通，尋找雙方都能接受的解決方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
+
+---
+
 # 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
 
-![梁振英認為，港人應充分認識及付諸實行，就算不涉及港澳，香港亦應深入了解認識，出力為國家作貢獻。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
   
 
 全國政協副主席梁振英說，國務院總理李強的政府工作報告中提及，要支持香港「深化國際交往合作」。梁振英認為，深化國際交往合作不只經貿方面，亦包括文化、體育、藝術、教育等，而由他擔任主席的共享基金會過去7年在海外所做的人道主義醫療、公共衛生援助，共包括8個國家、7個服務類別，他希望可啟發本港年輕人思考未來事業發展方向。
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795147-20250310.htm)
-
----
-
-# 中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動
-
-![外交部表示，中方呼籲敘利亞有關方面立即停止武裝衝突和敵對行動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795145_1_20250310185309.jpg&q=80)
-  
-
-在北京，外交部發言人毛寧說，中方對敘利亞境內發生武裝衝突造成大量人員傷亡感到擔憂，呼籲有關方面立即停止武裝衝突和敵對行動，切實保護平民安全，尊重並堅持包容性原則，通過對話找到符合敘利亞人民意願的重建國家方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795145-20250310.htm)
 
 ---
