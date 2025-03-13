@@ -1,3 +1,26 @@
+# 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
+
+  
+
+中共中央政治局委員、外長王毅在北京同老撾外長通沙萬舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm)
+
+---
+
 # 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
 
 ![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795288-20250311.htm)
-
----
-
-# 美國和烏克蘭代表團在沙特就俄烏戰事舉行會談
-
-![美國和烏克蘭代表團在吉達就俄烏戰事舉行會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795283_1_20250311184048.jpg&q=90)
-  
-
-美國和烏克蘭代表團在沙特阿拉伯城市吉達，就俄羅斯與烏克蘭戰事舉行會談，俄烏部分停火將是會談的主要內容。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795283-20250311.htm)
 
 ---

@@ -1,3 +1,72 @@
+# 立法會研究指如市場工資升3%　公務員凍薪料可節省約87億元
+
+  
+
+立法會秘書處發表有關新一份財政預算案的《研究簡報》，分析了「強化版」整合計劃下的多項主要措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm)
+
+---
+
+# 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
+
+  
+
+中共中央政治局委員、外長王毅在北京同老撾外長通沙萬舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm)
+
+---
+
+# 太古地產：本港寫字樓需求將持續偏軟
+
+  
+
+太古地產去年虧損7.66億元，前一年則盈利26.37億元，年內錄得投資物業公平值虧損近63億元，按年增加逾43%。派第2次中期息每股0.76元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm)
+
+---
+
 # 周大福：優化財務領導架構　鄭炳熙下月卸任首席財務官
 
 ![周大福珠寶宣布，鄭炳熙4月1日起卸任首席財務官，以專注於策略監督，優化財務領導架構。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795582_1_20250313172523.jpg&q=90)
@@ -192,7 +261,7 @@
 
 # 西九龍公路致命交通意外　輕型貨車車頭損毀嚴重
 
-![涉事輕型貨車車頭撞向消防車車身，輕型貨車車頭嚴重損毁，車身零件及雜物散落一地。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795571_1_20250313160454.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795571_1_20250313160454.jpg&q=65)
   
 
 西九龍公路往葵涌方向、大角咀奧海城對開發生致命交通意外，一名輕型貨車司機死亡。

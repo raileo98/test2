@@ -1,3 +1,26 @@
+# 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
+
+  
+
+中共中央政治局委員、外長王毅在北京同老撾外長通沙萬舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm)
+
+---
+
 # 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
 
 ![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795158-20250310.htm)
-
----
-
-# 丘應樺抵達廣州訪問　磋商深化粵港兩地經貿合作
-
-![丘應樺（左）拜會廣東省商務廳廳長張勁松（右），就深化粵港兩地的經貿合作包括招商引資交換意見。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795149_1_20250310195225.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺抵達廣州，展開訪問行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795149-20250310.htm)
 
 ---

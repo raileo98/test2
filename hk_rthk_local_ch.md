@@ -1,3 +1,49 @@
+# 立法會研究指如市場工資升3%　公務員凍薪料可節省約87億元
+
+  
+
+立法會秘書處發表有關新一份財政預算案的《研究簡報》，分析了「強化版」整合計劃下的多項主要措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm)
+
+---
+
+# 太古地產：本港寫字樓需求將持續偏軟
+
+  
+
+太古地產去年虧損7.66億元，前一年則盈利26.37億元，年內錄得投資物業公平值虧損近63億元，按年增加逾43%。派第2次中期息每股0.76元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm)
+
+---
+
 # 港交所已於去年實現碳中和
 
 ![香港交易所宣布去年已實現碳中和，是交易所氣候行動重要里程碑，亦為香港上市公司樹立重要榜樣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795579_1_20250313170636.jpg&q=90)
@@ -73,7 +119,7 @@
 
 # 西九龍公路致命交通意外　輕型貨車車頭損毀嚴重
 
-![涉事輕型貨車車頭撞向消防車車身，輕型貨車車頭嚴重損毁，車身零件及雜物散落一地。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795571_1_20250313160454.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795571_1_20250313160454.jpg&q=65)
   
 
 西九龍公路往葵涌方向、大角咀奧海城對開發生致命交通意外，一名輕型貨車司機死亡。
@@ -1394,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
-
----
-
-# 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
-
-![孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795393_1_20250312131149.jpg&q=85)
-  
-
-勞工及福利局局長孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意，到今年中有約1萬張簽證到期，會以相關基數分析及公布情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
-
----
-
-# 醫管局本月24日起每次最多向病人配發約6個月藥物以減少浪費
-
-![醫管局未來的最終目標，是每次最多向病人處方8星期藥物，但要社區藥房配合。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795392_1_20250312131120.jpg&q=85)
-  
-
-醫管局在本月24日起更改配藥安排，包括每次最多只會向病人配發24個星期、即相當於大約6個月的藥物，希望減少浪費。未來的最終目標是每次最多向病人處方8星期藥物，但要社區藥房配合。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795392-20250312.htm)
 
 ---

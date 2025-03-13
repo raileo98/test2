@@ -1,3 +1,49 @@
+# 立法會研究指如市場工資升3%　公務員凍薪料可節省約87億元
+
+  
+
+立法會秘書處發表有關新一份財政預算案的《研究簡報》，分析了「強化版」整合計劃下的多項主要措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795588-20250313.htm)
+
+---
+
+# 太古地產：本港寫字樓需求將持續偏軟
+
+  
+
+太古地產去年虧損7.66億元，前一年則盈利26.37億元，年內錄得投資物業公平值虧損近63億元，按年增加逾43%。派第2次中期息每股0.76元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795586-20250313.htm)
+
+---
+
 # 周大福：優化財務領導架構　鄭炳熙下月卸任首席財務官
 
 ![周大福珠寶宣布，鄭炳熙4月1日起卸任首席財務官，以專注於策略監督，優化財務領導架構。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795582_1_20250313172523.jpg&q=90)
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
-
----
-
-# 甯漢豪：今年落實措施降低工程建造成本
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795444_1_20250312182911.jpg&q=80)
-  
-
-發展局局長甯漢豪表示，今年會落實具體措施，降低本港工程建造成本，包括由政府中央採購部分建築材料「跨工程」使用，又會簡化行政審批程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795444-20250312.htm)
-
----
-
-# 旅發局邀泰國演員台灣歌手參演宣傳片　介紹本港綠色旅遊資源
-
-![旅發局推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。（旅發局片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795442_1_20250312181152.jpg&q=90)
-  
-
-旅發局於社交平台推出4段新宣傳短片，向遊客介紹本港的「東、南、西、北」，期望旅客以多角度探遊香港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795442-20250312.htm)
 
 ---
