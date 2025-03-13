@@ -1,3 +1,27 @@
+# 滬股半日跌逾0.4%　深證成指跌1%
+
+![內地股市3大指數半日下跌，上證指數半日報3357點，跌14點，跌幅0.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795529_1_20250313113720.jpg&q=90)
+  
+
+內地股市3大指數半日下跌，人形機器人、自動化設備、人工智能概念、存儲晶片股都跌；煤炭、黃金、銀行、電力股向上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm)
+
+---
+
 # 日股半日升約1%
 
 ![日經指數半日收報37173點，升354點，升幅0.96%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795524_1_20250313103708.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795396-20250312.htm)
-
----
-
-# 孫玉菡：截至1月底3百多張高才通簽證到期　滿意續期結果
-
-![孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795393_1_20250312131149.jpg&q=85)
-  
-
-勞工及福利局局長孫玉菡表示，截至今年1月底，有3百多張高才通簽證到期，形容對續期結果感到滿意，到今年中有約1萬張簽證到期，會以相關基數分析及公布情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795393-20250312.htm)
 
 ---
