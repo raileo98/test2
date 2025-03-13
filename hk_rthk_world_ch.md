@@ -1,3 +1,27 @@
+# 法國稱不會屈服於美方對酒類產品關稅威脅　加國就鋼鋁關稅提申訴
+
+![特朗普說，不會改變4月2日起對所有貿易夥伴徵收全面對等關稅的想法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795643_1_20250314024427.jpg&q=90)
+  
+
+美國總統特朗普警告，如果歐盟不取消對美國威士忌產品加徵關稅，美方將會對來自歐盟國家的酒類產品徵收200%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm)
+
+---
+
 # 敘利亞過渡時期總統簽署憲法宣言　確定敘利亞過渡階段為期5年
 
 ![沙拉簽署憲法宣言。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795641_1_20250314012336.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795330-20250312.htm)
-
----
-
-# 巴基斯坦武裝分子襲擊火車挾持人質　警方稱近350名乘客安全
-
-![巴基斯坦派出士兵到火車站處理人質事件。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795329_2_20250312041423.jpg&q=90)
-  
-
-巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質，聲稱人質包括休假的巴基斯坦軍人和其他安全官員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795329-20250312.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 法國稱不會屈服於美方對酒類產品關稅威脅　加國就鋼鋁關稅提申訴
+
+![特朗普說，不會改變4月2日起對所有貿易夥伴徵收全面對等關稅的想法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795643_1_20250314024427.jpg&q=90)
+  
+
+美國總統特朗普警告，如果歐盟不取消對美國威士忌產品加徵關稅，美方將會對來自歐盟國家的酒類產品徵收200%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm)
+
+---
+
 # 敘利亞過渡時期總統簽署憲法宣言　確定敘利亞過渡階段為期5年
 
 ![沙拉簽署憲法宣言。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795641_1_20250314012336.jpg&q=90)
@@ -1417,30 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
-
----
-
-# 古諮會通過舊贊育醫院主樓及上環廣福祠列為法定古蹟
-
-![舊贊育醫院於1922年啟用，是本港第一所華人婦女產科醫院，樓高4層，設有地庫，採用新古典主義建築風格，糅合中式元素。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_1_20250313170038.jpg&q=75)
-![廣福祠又稱「百姓廟」，建於1895年，主要為來自內地但在港離世的華工，提供地方安放神主牌，同時收容病人、無依者及長者，提供診治服務。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_2_20250313170038.jpg&q=80)
-  
-
-古物諮詢委員會通過，將西營盤舊贊育醫院主樓，以及上環廣福祠，列為法定古蹟。古諮會下午開會，多名委員都表示這兩座建築物具有歷史文化價值，贊成列為法定古蹟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm)
 
 ---
