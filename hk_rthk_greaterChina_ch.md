@@ -1,3 +1,27 @@
+# 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
+
+![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
+  
+
+在北京，外交部副部長馬朝旭與出席伊朗核問題中俄伊北京會晤的伊朗副外長加里布阿巴迪會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm)
+
+---
+
 # 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
 
 ![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
-
----
-
-# 全國兩會｜全國人大會議舉行閉幕會
-
-![閉幕會應出席代表2929人，實出席2884人，缺席45人，出席人數符合法定人數。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795248_1_20250311154533.jpg&q=75)
-  
-
-十四屆全國人大三次會議下午3時在北京人民大會堂舉行閉幕會。中共中央總書記、國家主席習近平、國務院總理李強等黨和國家領導人在主席台就座。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795248-20250311.htm)
 
 ---

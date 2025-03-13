@@ -1,3 +1,27 @@
+# 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
+
+![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
+  
+
+在北京，外交部副部長馬朝旭與出席伊朗核問題中俄伊北京會晤的伊朗副外長加里布阿巴迪會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm)
+
+---
+
 # 七國集團召開外長會議　加國外長稱希望烏克蘭實現公正持久和平
 
 ![與會者在會前大合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795639_1_20250314012055.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795327-20250311.htm)
-
----
-
-# 特朗普宣布對加拿大進口鋼鋁額外徵收25%關稅　總額增至50%
-
-![特朗普表示，很快會宣布受影響地區進入國家電力緊急狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795323_1_20250311225121.jpg&q=90)
-  
-
-美國總統特朗普宣布，將會對加拿大進口的所有鋼鋁產品額外徵收25%關稅，令關稅總額增至50%，當地星期三上午生效，以報復加拿大安大略省對進口到美國的電力徵收25%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795323-20250311.htm)
 
 ---

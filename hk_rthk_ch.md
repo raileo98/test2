@@ -1,3 +1,27 @@
+# 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
+
+![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
+  
+
+在北京，外交部副部長馬朝旭與出席伊朗核問題中俄伊北京會晤的伊朗副外長加里布阿巴迪會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm)
+
+---
+
 # 七國集團召開外長會議　加國外長稱希望烏克蘭實現公正持久和平
 
 ![與會者在會前大合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795639_1_20250314012055.jpg&q=90)
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
-
----
-
-# 西九龍公路致命交通意外　輕型貨車車頭損毀嚴重
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795571_1_20250313160454.jpg&q=65)
-  
-
-西九龍公路往葵涌方向、大角咀奧海城對開發生致命交通意外，一名輕型貨車司機死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm)
 
 ---
