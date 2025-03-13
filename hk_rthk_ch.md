@@ -1,3 +1,27 @@
+# 美國上周首次申領失業救濟人數減至22萬人　少過預期
+
+![美國上星期首次申領失業救濟人數按星期減少2000人，減至22萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795616_1_20250313211429.jpg&q=90)
+  
+
+美國勞工部公布，美國上星期首次申領失業救濟人數按星期減少2000人，減至22萬人，少過市場預期的22.5萬人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm)
+
+---
+
 # 特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅
 
 ![特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795615_1_20250313211302.jpg&q=90)

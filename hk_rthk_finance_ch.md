@@ -1,3 +1,27 @@
+# 美國上周首次申領失業救濟人數減至22萬人　少過預期
+
+![美國上星期首次申領失業救濟人數按星期減少2000人，減至22萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795616_1_20250313211429.jpg&q=90)
+  
+
+美國勞工部公布，美國上星期首次申領失業救濟人數按星期減少2000人，減至22萬人，少過市場預期的22.5萬人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm)
+
+---
+
 # 美國2月最終需求PPI及核心指數按年增速放緩
 
 ![美國2月最終需求生產物價指數(PPI)及核心PPI，分別按年升3.2%和3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795614_1_20250313210514.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm)
-
----
-
-# 美國上月通脹率放緩至2.8%　核心通脹率創近4年最低
-
-![美國2月消費物價指數(CPI)按月升0.2%，按年升2.8%，兩者升幅均較1月放緩，亦低過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795458_1_20250312205505.jpg&q=90)
-  
-
-美國上月通脹放緩，美國勞工部公布，2月消費物價指數(CPI)按月升0.2%，低過市場預期的0.3%；按年升2.8%，是去年11月以來最低，亦低過預期的2.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795458-20250312.htm)
 
 ---
