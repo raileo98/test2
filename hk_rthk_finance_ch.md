@@ -1,3 +1,27 @@
+# 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
+
+![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
+  
+
+國務院港澳辦網站轉載《大公報》有關長和計劃出售巴拿馬運河兩端港口等資產的評論文章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm)
+
+---
+
 # 道指跌幅擴大至逾400點
 
 ![道瓊斯指數較早時報40932點，跌418點，跌幅1.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795633_1_20250313234245.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795472-20250312.htm)
-
----
-
-# 道指轉跌逾300點
-
-![道瓊斯指數轉跌逾300點，較早時報41113點，跌319點，跌幅0.77%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795474_1_20250312225118.jpg&q=90)
-  
-
-美股3大指數初段上升，受通脹放緩數據支持，其後個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795474-20250312.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美財長：除金屬和汽車關稅　其他商品所可進行關稅談判
+
+![貝森特強調，政府關注的是整體市場表現和美國人的中長期收益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795637_1_20250314003017.jpg&q=90)
+  
+
+美國財長貝森特表示，除了金屬和可能的汽車關稅外，其他所有東西都可以進行關稅談判，如果貿易夥伴想加速談判，貿易盈餘國家將會受到最大打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm)
+
+---
+
 # 女網紅一度抱走小袋熊惹各界批評　澳洲總理揶揄為何不抱走小鱷魚
 
 ![動物保護組織說袋熊不是拍照道具或玩具。圖為保育人員照顧小袋熊的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795630_1_20250313231125.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795322-20250311.htm)
-
----
-
-# 巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質
-
-![巴基斯坦有列車遇襲　武裝分子挾持部分乘客為人質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795304_1_20250311203644.jpg&q=90)
-  
-
-巴基斯坦軍方消息人士向新華社證實，巴基斯坦西南部俾路支省境內一列載有超過400名乘客的列車遇襲，武裝分子挾持部分乘客作為人質。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795304-20250311.htm)
 
 ---

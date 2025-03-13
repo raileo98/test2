@@ -1,3 +1,27 @@
+# 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
+
+![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
+  
+
+國務院港澳辦網站轉載《大公報》有關長和計劃出售巴拿馬運河兩端港口等資產的評論文章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm)
+
+---
+
 # 兩小學「派0班」　張勇邦稱數目較預期少冀政府和學界想可行方法
 
 ![張勇邦說，想改善「派0班」情況，需要有整體套配措施配合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795632_1_20250313231642.jpg&q=80)
@@ -1422,29 +1446,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm)
-
----
-
-# 去年詐騙案逾4.4萬宗　金管局推新一輪防騙公眾教育短片
-
-![短片中騙徒「嗱喳蕉」外表善良可愛，一旦得逞便露出猙獰面目，騙取市民信任和金錢。（金管局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795449_1_20250312201311.jpg&q=90)
-  
-
-金管局今日推出新一輪「撳LINK中『蕉』」防騙公眾教育短片系列，以誇張手法呈現騙徒真面目，提醒市民時刻警惕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
 
 ---

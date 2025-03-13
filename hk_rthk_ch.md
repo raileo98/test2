@@ -1,3 +1,27 @@
+# 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
+
+![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
+  
+
+國務院港澳辦網站轉載《大公報》有關長和計劃出售巴拿馬運河兩端港口等資產的評論文章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm)
+
+---
+
 # 鄭新聰冀澳門做好經濟適度多元發展等四項工作
 
 ![澳門舉行全國兩會精神傳達會。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795636_1_20250314001727.jpg&q=80)
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm)
-
----
-
-# 外交部：中方冀早日就伊朗核問題將重啟對話談判勢頭轉化為現實
-
-![毛寧說，中方希望早日就伊朗核問題將重啟對話談判的勢頭轉化為現實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795567_1_20250313154005.jpg&q=90)
-  
-
-中方將於明天舉行伊朗核問題中俄伊北京會晤。外交部發言人毛寧表示，作為聯合國安理會的常任理事國和伊朗核問題全面協議的參與方，中國一貫主張通過政治外交途徑妥善解決伊朗核問題，維護國際核不擴散機制，促進中東地區的和平穩定。北京會晤是中方最新的外交努力，目的是加強溝通協調，為早日恢復對話談判創造條件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm)
 
 ---
