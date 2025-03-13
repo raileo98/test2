@@ -1,3 +1,51 @@
+# 世茂集團：境外債務重組計劃獲高等法院批准
+
+![世茂集團表示，境外債務重組計劃已獲高等法院批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795623_1_20250313215134.jpg&q=90)
+  
+
+世茂集團表示，尋求高等法院批准境外債務重組計劃的呈請於今日進行聆訊，而計劃已根據高等法院作出的指令獲得批准。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm)
+
+---
+
+# 東方海外去年多賺88%
+
+![東方海外去年全年盈利近25.8億美元，按年上升88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795627_1_20250313220742.jpg&q=90)
+  
+
+東方海外公布，截至去年底，全年盈利近25.8億美元，按年上升88%，派末期息每股普通股1.32美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm)
+
+---
+
 # 美股初段下跌　英特爾急升約17%
 
 ![道瓊斯指數較早時報41296點，跌54點，跌幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795621_1_20250313214445.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
-
----
-
-# 加拿大減息0.25厘　利率下調至2.75厘
-
-![加拿大央行公布減息0.25厘，將利率下調至2.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795467_1_20250312225629.jpg&q=90)
-  
-
-加拿大央行公布減息0.25厘，將利率下調至2.75厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795467-20250312.htm)
-
----
-
-# 美股初段上升　美國上月通脹放緩
-
-![道瓊斯指數較早時報41564點，升130點，升幅0.32%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795465_1_20250312213826.jpg&q=90)
-  
-
-美國上月通脹放緩，美股在開市初段上升，大型科技股向上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm)
 
 ---

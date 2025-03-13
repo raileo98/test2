@@ -1,3 +1,75 @@
+# 世茂集團：境外債務重組計劃獲高等法院批准
+
+![世茂集團表示，境外債務重組計劃已獲高等法院批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795623_1_20250313215134.jpg&q=90)
+  
+
+世茂集團表示，尋求高等法院批准境外債務重組計劃的呈請於今日進行聆訊，而計劃已根據高等法院作出的指令獲得批准。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm)
+
+---
+
+# 東方海外去年多賺88%
+
+![東方海外去年全年盈利近25.8億美元，按年上升88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795627_1_20250313220742.jpg&q=90)
+  
+
+東方海外公布，截至去年底，全年盈利近25.8億美元，按年上升88%，派末期息每股普通股1.32美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm)
+
+---
+
+# 運輸及物流局稱香港註冊船舶的總註冊噸位處近10年高位
+
+![運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795628_1_20250313223454.jpg&q=80)
+  
+
+運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四，僅次於利比里亞、巴拿馬和馬紹爾群島。海事處會繼續透過其海內外網絡，積極向各地船東及相關船務公司宣傳推廣香港船舶註冊的優勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm)
+
+---
+
 # 教育局成立學生內地考察專責小組　適時優化交流考察活動安排
 
 ![蔡若蓮召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。（蔡若蓮社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795626_1_20250313220902.jpg&q=90)
@@ -24,6 +96,7 @@
 
 # 取消配子或胚胎儲存期限制　林哲玄憂變相鼓勵延遲生育
 
+![林哲玄建議市民如情況許可，應及早生育，同時可減少與下一代的鴻溝及年齡差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795624_1_20250313223800.jpg&q=90)
   
 
 人類生殖科技管理局建議修訂實務守則，取消供自用的精子、卵子或胚胎的10年儲存期法律限制。醫療衞生界立法會議員林哲玄認為，有關建議能幫助部分有需要的婦女，但他擔心或會變相鼓勵女性延遲生育，增加生育風險。
