@@ -1,5 +1,30 @@
+# 兩小學「派0班」　張勇邦稱數目較預期少冀政府和學界想可行方法
+
+![張勇邦說，想改善「派0班」情況，需要有整體套配措施配合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795632_1_20250313231642.jpg&q=80)
+  
+
+2025/26學年有兩間資助小學的小一派位學生少於16人，按開班準則「派0班」，未能獲教育局資助開辦小一，分別是黃大仙的天主教博智小學和南區的鴨脷洲街坊學校。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm)
+
+---
+
 # 梁振英：香港貫徹落實「一國兩制」對台灣已起示範作用
 
+![梁振英說，相信《基本法》大部分條文，台灣民眾都會接受。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795631_1_20250313230723.jpg&q=80)
   
 
 全國政協副主席、前行政長官梁振英表示，香港貫徹落實「一國兩制」，特區政府亦按照《基本法》的規定施政，對台灣已起了示範作用。
@@ -1421,29 +1446,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795449-20250312.htm)
-
----
-
-# 國泰：年內突破100個航點大關
-
-![國泰：向合資格員工派發逾10星期工資分享成果。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795446_1_20250312190534.jpg&q=90)
-  
-
-國泰航空行政總裁林紹波表示，年內班次及運力會繼續增加，集團經已宣布11個新航點，年內會突破100個航點大關，強調會繼續擴大全球網絡和提升服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795446-20250312.htm)
 
 ---
