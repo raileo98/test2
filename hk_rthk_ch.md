@@ -1,3 +1,27 @@
+# 美股初段下跌　英特爾急升約17%
+
+![道瓊斯指數較早時報41296點，跌54點，跌幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795621_1_20250313214445.jpg&q=90)
+  
+
+美股在開市初段下跌。2月最終需求生產物價指數(PPI)及核心數據均低過預期，但分析估計美國關稅政策將於未來幾個月推高美國通脹。另外，上星期首次申領失業救濟人數少過預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm)
+
+---
+
 # 張國清在河北雄安新區調研　強調國資央企積極參與雄安新區建設
 
 ![張國清在河北雄安新區調研。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795620_1_20250313214333.jpg&q=90)

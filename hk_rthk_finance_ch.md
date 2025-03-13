@@ -1,3 +1,27 @@
+# 美股初段下跌　英特爾急升約17%
+
+![道瓊斯指數較早時報41296點，跌54點，跌幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795621_1_20250313214445.jpg&q=90)
+  
+
+美股在開市初段下跌。2月最終需求生產物價指數(PPI)及核心數據均低過預期，但分析估計美國關稅政策將於未來幾個月推高美國通脹。另外，上星期首次申領失業救濟人數少過預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm)
+
+---
+
 # 外管局：加強外匯市場逆周期調節　保持人民幣匯率基本穩定
 
 ![外匯管理局表示，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795619_1_20250313212922.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795465-20250312.htm)
-
----
-
-# 平安好醫生去年轉賺8100萬元人民幣
-
-![平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795463_1_20250312213415.jpg&q=90)
-  
-
-平安好醫生公布，去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795463-20250312.htm)
 
 ---
