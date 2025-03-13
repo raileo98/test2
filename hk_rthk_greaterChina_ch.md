@@ -1,3 +1,28 @@
+# 何厚鏵：愛國力量要堅定支持行政長官和特區依法施政
+
+![何厚鏵在全國兩會精神傳達會上表示，作為澳門愛團力量，政治站位要高一點。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_1_20250313202151.jpg&q=90)
+![澳門中聯辦下午舉行全國兩會精神傳達會，約240人出席。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_2_20250313202151.jpg&q=85)
+  
+
+全國政協副主席何厚鏵引用總書記習近平在《求是》雜誌發表的署名文章，希望包括澳區全國人大代表和政協委員在內的愛國力量，與新一屆特區政府必須統籌好有效市場和有為政府的關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm)
+
+---
+
 # 楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作
 
 ![楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795603_1_20250313192514.jpg&q=90)
@@ -1417,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795201-20250311.htm)
-
----
-
-# 全國兩會｜胡曉明稱桌球賽觀眾離場事件屬教訓　冀各方汲取經驗
-
-![胡曉明認為當局應善用未來數月，在香港地區舉辦更多與承辦全運會項目有關的賽事，讓市民有機會接觸，在社區更普及化。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795197_1_20250311084918.jpg&q=90)
-  
-
-全運會主場館、啟德體育園日前舉辦的桌球大獎賽，其中一晚賽事未完結就要求觀眾離場，事件引起爭議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795197-20250311.htm)
 
 ---

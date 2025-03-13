@@ -1,3 +1,28 @@
+# 何厚鏵：愛國力量要堅定支持行政長官和特區依法施政
+
+![何厚鏵在全國兩會精神傳達會上表示，作為澳門愛團力量，政治站位要高一點。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_1_20250313202151.jpg&q=90)
+![澳門中聯辦下午舉行全國兩會精神傳達會，約240人出席。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_2_20250313202151.jpg&q=85)
+  
+
+全國政協副主席何厚鏵引用總書記習近平在《求是》雜誌發表的署名文章，希望包括澳區全國人大代表和政協委員在內的愛國力量，與新一屆特區政府必須統籌好有效市場和有為政府的關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm)
+
+---
+
 # O．PARK1廚餘儲存缸滲漏須維修　服務由O．PARK2處理
 
 ![環保署說，會因應O．PARK1維修工作的進展及最新情況，主動聯絡受影響的廚餘生產者及運送者，確保相關廚餘運送工作繼續有序進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795610_1_20250313201348.jpg&q=90)
@@ -169,6 +194,7 @@
 
 # 羅淑佩稱透過舉辦文化藝術表演活動　吸引遊客並促進文化旅遊融合
 
+![羅淑佩出席M+博物館的畢加索作品展覽，她說，當局希望透過舉辦國際文化藝術展覽和表演活動，吸引遊客，促進文化和旅遊業融合。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795604_1_20250313202949.jpg&q=90)
   
 
 文代體育及旅遊局長羅淑佩表示，香港今個月舉行多場盛事，除了啟德體育園開幕典禮，亦舉辦了世界格蘭披治桌球大獎賽、LIV Golf 香港站賽事，吸引全球各地參賽者和遊客來港，之後亦會有ComplexCon、Art Central、巴塞爾藝術展、香港國際七人欖球賽等。
