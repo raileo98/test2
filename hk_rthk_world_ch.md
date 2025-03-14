@@ -1,3 +1,27 @@
+# 卡尼：未有計劃晤特朗普　加拿大永遠不會成為美國一部分
+
+![卡尼上任後召開記者會，一眾內閣成員在他身後。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795801_1_20250315023444.jpg&q=90)
+  
+
+加拿大新任總理卡尼表示，面對外國不合理的貿易行動，保護加拿大工人和家庭是新政府重點關注的事項之一，指出消極的態度不會贏得貿易戰，亦不會降低食品價格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm)
+
+---
+
 # 杜特爾特視像出席國際刑事法院聆訊　案件料最快明年初正式開審
 
 ![杜特爾特以視像方式出席聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795800_1_20250315021940.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm)
-
----
-
-# 普京視察庫爾斯克地區　俄方稱已奪回八成六被烏方控制土地
-
-![普京視察庫爾斯克州，與總參謀長格拉西莫夫交談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795486_1_20250313035651.jpg&q=90)
-  
-
-俄羅斯總統普京視察西部庫爾斯克州，這是自烏克蘭軍隊奪取當地部分領土以來，普京首次視察這個地區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 卡尼：未有計劃晤特朗普　加拿大永遠不會成為美國一部分
+
+![卡尼上任後召開記者會，一眾內閣成員在他身後。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795801_1_20250315023444.jpg&q=90)
+  
+
+加拿大新任總理卡尼表示，面對外國不合理的貿易行動，保護加拿大工人和家庭是新政府重點關注的事項之一，指出消極的態度不會贏得貿易戰，亦不會降低食品價格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm)
+
+---
+
 # 杜特爾特視像出席國際刑事法院聆訊　案件料最快明年初正式開審
 
 ![杜特爾特以視像方式出席聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795800_1_20250315021940.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm)
-
----
-
-# 石破茂發商品券給部分自民黨眾議員遭在野黨批評
-
-![石破茂分發商品券給部分自民黨眾議員，受到在野黨批評。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795730_1_20250314153635.jpg&q=90)
-  
-
-日本首相石破茂承認本月初以禮品名義，向參加聚餐並首次當選眾議員的自民黨籍議員分發每人10萬日圓的商品券。他就事件致歉，並強調不構成法律問題，但仍然受到在野黨批評。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm)
 
 ---
