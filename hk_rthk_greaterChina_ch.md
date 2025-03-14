@@ -1,3 +1,27 @@
+# 反分裂國家法座談會舉行　趙樂際稱要打擊台獨分裂遏制外部干涉
+
+![趙樂際在座談會上表示要堅定不移推進祖國統一大業。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
+  
+
+《反分裂國家法》實施20周年座談會在北京舉行，中共中央政治局常委、全國人大常委會委員長趙樂際出席並發表講話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm)
+
+---
+
 # 全國兩會｜李家超提示官員留意總理工作報告首提深化國際交往合作
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm)
-
----
-
-# 全國兩會｜自然資源部增加優質耕地比例　讓中國飯碗更穩更牢
-
-![關志鷗表示，今年政府工作報告和中央一號文件對耕地保護提出了明確要求，當局會重點做好三件事，包括要穩數量、強監管；提質量、優佈局；亦要優生態、惠民生。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795287_1_20250311184333.jpg&q=90)
-  
-
-在北京，自然資源部部長關志鷗表示，今年政府工作報告和中央一號文件對耕地保護提出了明確要求，當局會重點做好三件事，包括要穩數量、強監管；提質量、優佈局；亦要優生態、惠民生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm)
 
 ---

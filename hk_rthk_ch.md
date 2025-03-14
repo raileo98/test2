@@ -1,3 +1,27 @@
+# 反分裂國家法座談會舉行　趙樂際稱要打擊台獨分裂遏制外部干涉
+
+![趙樂際在座談會上表示要堅定不移推進祖國統一大業。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
+  
+
+《反分裂國家法》實施20周年座談會在北京舉行，中共中央政治局常委、全國人大常委會委員長趙樂際出席並發表講話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm)
+
+---
+
 # 理想上季經調整盈利按年跌逾10%　收入創新高
 
 ![理想汽車按照美國公認會計準則，上季普通股股東應佔盈利按年跌約38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795748_1_20250314170923.jpg&q=85)
@@ -94,6 +118,7 @@
 
 # 啟德智慧綠色集體運輸系統車站擬由5個增至6個　料下半年招標
 
+![運輸及物流局公布啟德智慧綠色集體運輸系統項目的優化方案，包括增設車站及微調走線等。（運輸及物流局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795747_1_20250314173705.jpg&q=90)
   
 
 政府去年展開啟德智慧綠色集體運輸系統項目的勘查研究工作，運輸及物流局公布項目的優化方案，包括增設車站及微調走線等。
@@ -117,6 +142,7 @@
 
 # 香港總商會推出人工智能驅動平台助中小企進行ESG審核及報告
 
+![丘應樺表示，該創新平台不僅符合全球綠色經濟的發展趨勢，亦強調香港在整合先進技術商業發展的領導角色。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795745_1_20250314173640.jpg&q=80)
   
 
 香港總商會推出由人工智能驅動的環境、社會及管治（ESG）自我審核及學習平台「Green360」，旨在教育企業認識實踐 ESG 最佳做法 ，以協助尤其是中小企等進行ESG審核及報告程序。
