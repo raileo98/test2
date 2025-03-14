@@ -1,3 +1,27 @@
+# 國防部：中方奉勸菲方放棄挑釁　通過對話妥處分歧
+
+![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
+  
+
+在北京，國防部新聞發言人張曉剛表示，中方奉勸菲方不要誤判形勢，立即放棄徒勞的冒險挑釁，切實回到通過對話妥處分歧的正確軌道上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm)
+
+---
+
 # 發改委經濟研究所所長：現時仍有空間適時降準和減息
 
 ![郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳。(羅煒皓攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795755_1_20250314182205.jpg&q=90)
@@ -48,7 +72,7 @@
 
 # 反分裂國家法座談會舉行　趙樂際稱要打擊台獨分裂遏制外部干涉
 
-![趙樂際在座談會上表示要堅定不移推進祖國統一大業。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
   
 
 《反分裂國家法》實施20周年座談會在北京舉行，中共中央政治局常委、全國人大常委會委員長趙樂際出席並發表講話。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
-
----
-
-# 毛寧：杜特爾特被捕是重要突發事件　中方密切關注事態發展
-
-![毛寧說，杜特爾特被捕是重要的突發事件，中方密切關注事態發展。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795297_1_20250311191448.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特在馬尼拉被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm)
 
 ---

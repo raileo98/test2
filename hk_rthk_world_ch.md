@@ -1,3 +1,27 @@
+# 國防部：中方奉勸菲方放棄挑釁　通過對話妥處分歧
+
+![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
+  
+
+在北京，國防部新聞發言人張曉剛表示，中方奉勸菲方不要誤判形勢，立即放棄徒勞的冒險挑釁，切實回到通過對話妥處分歧的正確軌道上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm)
+
+---
+
 # 回應歐盟官員涉華言論　外交部：中方反對拿中國說事
 
 ![毛寧說，美歐有責任維護以世貿組織為核心的多邊貿易體制，而不是轉嫁矛盾。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795736_1_20250314161952.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
-
----
-
-# 菲國副總統赴荷蘭　較早時稱隨父到當地出席國際刑事法院聆訊
-
-![杜特爾特對自己被拘留提出質疑。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795434_1_20250312172831.jpg&q=90)
-  
-
-菲律賓副總統辦公室說，副總統莎拉今早啟程前往荷蘭阿姆斯特丹。她昨晚已表示將跟隨父親、前總統杜特爾特前往荷蘭海牙，參加國際刑事法院的聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795434-20250312.htm)
 
 ---
