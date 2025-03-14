@@ -71,6 +71,7 @@
 
 # 第三個InnoHK創新香港研發平台開始接受申請
 
+![​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795718_1_20250314145924.jpg&q=90)
   
 
 ​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請，聚焦可持續發展、能源、先進製造及材料。歡迎從事相關領域研究的國際頂尖大學及科研機構提交建議書。
