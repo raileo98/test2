@@ -1,3 +1,26 @@
+# 47歲女子坪洲一個碼頭登船時疑失足墮海　證實不治
+
+  
+
+一名47歲女子，今早在坪洲一個碼頭登船期間懷疑失足墮海，其後被救起但證實不治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm)
+
+---
+
 # 劉國勳贊同港深西部鐵路口岸設內地一地兩檢　可騰出香港土地發展
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795722_1_20250314151018.jpg&q=90)
@@ -1417,29 +1440,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm)
-
----
-
-# 西九龍公路近奧海城對開輕型貨車撞消防車　貨車司機送院後不治
-
-![一輛輕型貨車撞向一輛消防車，輕型貨車司機一度被困，由消防救出。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795560_2_20250313185726.jpg&q=60)
-  
-
-西九龍公路近大角咀奧海城對開，下午約2時發生致命交通意外，一輛輕型貨車撞向一輛消防車，輕型貨車司機一度被困，由消防救出，昏迷送往廣華醫院，搶救後不治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm)
 
 ---
