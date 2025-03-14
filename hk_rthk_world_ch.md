@@ -1,3 +1,27 @@
+# 國防部：中方要求日方在軍事安全領域謹言慎行
+
+![張曉剛說，中方要求日方在軍事安全領域謹言慎行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795769_1_20250314193657.jpg&q=90)
+  
+
+在北京，國防部新聞發言人張曉剛說，中方要求日方深刻汲取歷史教訓，在軍事安全領域謹言慎行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm)
+
+---
+
 # 日本陸上自衛隊一名軍官因訓練事故死亡
 
 ![日本陸上自衛隊一名軍官因訓練事故死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795768_1_20250314191556.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm)
-
----
-
-# 克宮發言人稱俄方不會於停火30日問題操之過急　要先獲美方信息
-
-![佩斯科夫說在必要情況下，可以快速組織俄美總統會晤。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795450_1_20250312212017.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫說，俄方正認真研究美國與烏克蘭有關俄烏戰事的公布，俄方不會在停火30日的問題上操之過急，首先需要從美方獲取信息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 國防部：中方要求日方在軍事安全領域謹言慎行
+
+![張曉剛說，中方要求日方在軍事安全領域謹言慎行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795769_1_20250314193657.jpg&q=90)
+  
+
+在北京，國防部新聞發言人張曉剛說，中方要求日方深刻汲取歷史教訓，在軍事安全領域謹言慎行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm)
+
+---
+
 # 國防部：中方奉勸菲方放棄挑釁　通過對話妥處分歧
 
 ![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm)
-
----
-
-# 全國兩會｜西安赴港個人遊受歡迎　陝西副省長稱將加強與港合作
-
-![徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795298_1_20250311193628.jpg&q=80)
-  
-
-陝西省西安市去年3月獲納入內地赴港「個人遊」城市，全國人大代表、陝西省副省長徐明非表示，自措施落實後，「個人遊簽注」數量激增至近20萬證次，今年1月更超過3萬證次高峰，為陝西出境旅遊市場提供新選擇，激發西安居民赴港旅遊熱情，受西安居民歡迎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795298-20250311.htm)
 
 ---
