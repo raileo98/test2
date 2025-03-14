@@ -214,30 +214,6 @@ Defending champion Iga Swiatek beat Zheng Qinwen of China 6-3, 6-3, avenging her
 
 ---
 
-# US influencer visa under review after wombat outcry
-
-![Australian Prime Minister Anthony Albanese said Jones should "take a baby crocodile from its mother and see how you go there." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795670_1_20250314091432.jpg&q=90)
-  
-
-Australia is reviewing an American influencer’s visa after she posted video of her snatching a baby wombat from its mother.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm)
-
----
-
 # Johns Hopkins University to cut thousands of jobs
 
 ![President Trump signed an executive order in January demanding a freeze on all US foreign aid to allow time to assess overseas expenses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795666_1_20250314084123.jpg&q=90)
@@ -1437,5 +1413,29 @@ Development secretary Bernadette Linn said reviewing construction standards and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm)
+
+---
+
+# Social workers board 'to review applications by law'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
+  
+
+Secretary for Labour and Welfare Chris Sun said on Wednesday he believes the Social Workers Registration Board will review any renewal application as required by law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm)
 
 ---

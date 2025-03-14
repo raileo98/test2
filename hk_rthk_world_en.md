@@ -70,30 +70,6 @@ Two Japanese tourists in their 20s were detained for two weeks in China then dep
 
 ---
 
-# US influencer visa under review after wombat outcry
-
-![Australian Prime Minister Anthony Albanese said Jones should "take a baby crocodile from its mother and see how you go there." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795670_1_20250314091432.jpg&q=90)
-  
-
-Australia is reviewing an American influencer’s visa after she posted video of her snatching a baby wombat from its mother.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm)
-
----
-
 # Johns Hopkins University to cut thousands of jobs
 
 ![President Trump signed an executive order in January demanding a freeze on all US foreign aid to allow time to assess overseas expenses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795666_1_20250314084123.jpg&q=90)
@@ -1435,5 +1411,29 @@ A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warran
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm)
+
+---
+
+# 'China's diplomacy gives certainty to uncertain world'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
+  
+
+Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
 
 ---
