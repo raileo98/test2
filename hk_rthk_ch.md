@@ -1,3 +1,27 @@
+# 北海撞船事故　涉事貨船船長被控重大過失殺人
+
+![涉事運油輪嚴重損毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795814_1_20250315065710.jpg&q=85)
+  
+
+英格蘭東北部附近海域日前發生撞船意外，涉事的貨船船長被檢察部門控以重大過失殺人罪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm)
+
+---
+
 # 港股美國預託證券造好　滙控升近4%
 
 ![滙控ADR比本港昨日收市價升近4%，以港元計折合報88.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795813_1_20250315060638.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm)
-
----
-
-# 恒指高收497點　未能企穩24000點　長和跌逾6%
-
-![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
-  
-
-港股結束連續5日跌勢，恒生指數高見24113點，一度升逾650點，收市升幅收窄，報23959點，升497點，升幅2.1%，全日主板成交額2906億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm)
 
 ---

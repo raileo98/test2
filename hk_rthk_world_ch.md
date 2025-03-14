@@ -1,3 +1,27 @@
+# 北海撞船事故　涉事貨船船長被控重大過失殺人
+
+![涉事運油輪嚴重損毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795814_1_20250315065710.jpg&q=85)
+  
+
+英格蘭東北部附近海域日前發生撞船意外，涉事的貨船船長被檢察部門控以重大過失殺人罪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm)
+
+---
+
 # 普京稱俄美關係有進展　若庫爾斯克州烏軍投降會保證安全
 
 ![普京以視像方式出席俄羅斯聯邦安全會議常務委員會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795803_1_20250315042230.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm)
-
----
-
-# 特朗普稱愛爾蘭以稅收等優惠政策搶走美國製藥等公司
-
-![特朗普在白宮會見到訪的愛爾蘭總理馬丁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795497_1_20250313064152.jpg&q=90)
-  
-
-美國總統特朗普在白宮會見到訪的愛爾蘭總理馬丁時，對兩國貿易不平衡表示不滿，稱愛爾蘭「佔美國便宜」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm)
 
 ---
