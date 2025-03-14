@@ -1,3 +1,27 @@
+# 七國集團警告俄羅斯除非接受與烏停火　否則面對新制裁
+
+![七國集團外長一連兩日在加拿大魁北克舉行會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795798_1_20250315013844.jpg&q=85)
+  
+
+七國集團警告俄羅斯，除非接受與烏克蘭的停火協議，否則將面臨新的制裁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm)
+
+---
+
 # 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
 
 ![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm)
-
----
-
-# 特朗普威脅將對歐盟進一步加徵關稅
-
-![特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的懲罰性關稅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795483_1_20250313023537.jpg&q=90)
-  
-
-美國對進口鋼鋁徵收25%關稅的措施已經生效，總統特朗普說，如果歐盟推推反制計劃，他將對歐盟實施額外的關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm)
 
 ---

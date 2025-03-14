@@ -1,3 +1,27 @@
+# 七國集團警告俄羅斯除非接受與烏停火　否則面對新制裁
+
+![七國集團外長一連兩日在加拿大魁北克舉行會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795798_1_20250315013844.jpg&q=85)
+  
+
+七國集團警告俄羅斯，除非接受與烏克蘭的停火協議，否則將面臨新的制裁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm)
+
+---
+
 # 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
 
 ![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm)
-
----
-
-# 美國紐約警方拘捕逾百名進入特朗普大廈示威者
-
-![紐約警方拘捕進入特朗普大廈的示威者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795724_1_20250314150605.jpg&q=90)
-  
-
-在美國紐約市，大約150名猶太人進入曼哈頓第五大道特朗普大廈，聲援巴勒斯坦人，警方到場，拘捕示威者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm)
 
 ---
