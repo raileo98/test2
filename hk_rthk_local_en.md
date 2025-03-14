@@ -1,3 +1,28 @@
+# New AI tool helps SMEs with green transition
+
+![Algernon Yau says the platform helps Hong Kong make a key step forward in its sustainability drive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_1_20250314170438.jpg&q=80)
+![HKGCC chair Agnes Chan says that the AI-empowered tool will support small businesses to develop ESG audit without significant costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_2_20250314170438.jpg&q=90)
+  
+
+Hong Kong businesses, specially small and medium-sized ones, are set to receive a boost to enhance their environmental, social and governance practices with the launch of a new AI tool to help them comply with rules.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm)
+
+---
+
 # CK Hutchison shares down after port deal criticism
 
 ![CK Hutchison earlier agreed to sell its interests in a key Panama Canal port operator to a consortium led by BlackRock. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795749_1_20250314172048.jpg&q=80)
@@ -1412,29 +1437,5 @@ It’s a three-way tie at the top of the leaderboard of the LIV Golf Hong Kong t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm)
-
----
-
-# Robertson reaches final of World Snooker Grand Prix
-
-![Shaun Murphy, (left), congratulates Neil Robertson after a thrilling battle on the baize. Photo courtesy of the World Snooker Tour's Facebook page.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794915_1_20250308173327.jpg&q=90)
-  
-
-Two former world champions, Shaun Murphy of England and Neil Robertson of Australia, put on a show for fans at the Kai Tak Arena on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
 
 ---

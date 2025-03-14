@@ -1,3 +1,28 @@
+# New AI tool helps SMEs with green transition
+
+![Algernon Yau says the platform helps Hong Kong make a key step forward in its sustainability drive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_1_20250314170438.jpg&q=80)
+![HKGCC chair Agnes Chan says that the AI-empowered tool will support small businesses to develop ESG audit without significant costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_2_20250314170438.jpg&q=90)
+  
+
+Hong Kong businesses, specially small and medium-sized ones, are set to receive a boost to enhance their environmental, social and governance practices with the launch of a new AI tool to help them comply with rules.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm)
+
+---
+
 # CK Hutchison shares down after port deal criticism
 
 ![CK Hutchison earlier agreed to sell its interests in a key Panama Canal port operator to a consortium led by BlackRock. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795749_1_20250314172048.jpg&q=80)
@@ -1413,29 +1438,5 @@ China will host Russia and Iran for trilateral talks on Tehran's nuclear program
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm)
-
----
-
-# 'People confident about One Country, Two Systems'
-
-![Path of Democracy convenor Ronny Tong, left, says the latest figures from the One Country, Two Systems Index was "reassuring". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795430_1_20250312164449.jpg&q=90)
-  
-
-The convenor of the Path of Democracy, Ronny Tong, on Wednesday said people are confident about the One Country, Two Systems principle, despite Hong Kong facing a deficit and geopolitical tensions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm)
 
 ---

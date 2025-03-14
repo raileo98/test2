@@ -1,3 +1,27 @@
+# 和記電訊香港去年轉賺600萬元
+
+![和記電訊香港去年轉賺600萬元，前一年虧損5200萬元，維持派末期息每股5.21港仙。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795756_1_20250314175407.jpg&q=90)
+  
+
+和記電訊香港去年業績由虧轉盈，轉賺600萬元，而前一年虧損5200萬元。維持派末期息每股5.21港仙，連同中期息，全年派7.49港仙，與前年相同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm)
+
+---
+
 # 發改委經濟研究所所長：現時仍有空間適時降準和減息
 
   
