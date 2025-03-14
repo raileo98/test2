@@ -1,3 +1,27 @@
+# 道指升幅擴大至逾500點
+
+![道瓊斯指數較早時報41337點，升524點，升幅1.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795791_1_20250314230457.jpg&q=90)
+  
+
+美股3大指數升逾1%至2%，道瓊斯指數升幅擴大至逾500點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm)
+
+---
+
 # 美國3月消費者信心跌至近兩年半最低　通脹預期上升
 
 ![美國密歇根大學3月美國消費者信心指數初值為57.9，創近兩年半以來最低，低過市場預期的63.1。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795786_1_20250314220845.jpg&q=65)
@@ -1411,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm)
-
----
-
-# 道指跌幅擴大至逾400點
-
-![道瓊斯指數較早時報40932點，跌418點，跌幅1.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795633_1_20250313234245.jpg&q=90)
-  
-
-美股跌幅擴大，道瓊斯指數跌逾400點，較早時報40932點，跌418點，跌幅1.01%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm)
 
 ---

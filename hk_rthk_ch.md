@@ -1,3 +1,27 @@
+# 道指升幅擴大至逾500點
+
+![道瓊斯指數較早時報41337點，升524點，升幅1.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795791_1_20250314230457.jpg&q=90)
+  
+
+美股3大指數升逾1%至2%，道瓊斯指數升幅擴大至逾500點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm)
+
+---
+
 # 逾2200名中國涉詐犯罪嫌疑人經泰國被分批押解回國
 
 ![逾2200名中國涉詐犯罪嫌疑人經泰國被分批押解回國](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795788_1_20250314223927.jpg&q=90)
