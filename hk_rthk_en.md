@@ -1,3 +1,27 @@
+# Drop in pupil numbers 'structural and would worsen'
+
+![Christine Choi says measures are needed to ensure the stable and sustainable development of the education sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795759_1_20250314180708.jpg&q=80)
+  
+
+Education minister Christine Choi said on Friday the government was left with little choice but to change rules on how local schools can continue to operate, as Hong Kong faces a dwindling pupil population.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm)
+
+---
+
 # New AI tool helps SMEs with green transition
 
 ![HKGCC chair Agnes Chan says that the AI-empowered tool will support small businesses to develop ESG audit without significant costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_2_20250314170438.jpg&q=90)
@@ -48,7 +72,7 @@ Shares of CK Hutchison shed more than 6 percent on Friday, after the Beijing off
 
 # Lunar eclipse brings 'bloody' marvellous spectacle
 
-![The 'Blood Moon' is seen over CN Tower in Toronto, Canada. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
   
 
 Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon" during a rare total lunar eclipse in the early hours of Friday.
@@ -1413,29 +1437,5 @@ Police on Wednesday said they arrested three men who are suspected of stealing e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm)
-
----
-
-# China to host talks on Iranian nuclear issue
-
-![The Foreign Ministry says China, Russia and Iran will hold talks on Friday on the Iranian nuclear issue and other topics of mutual interest. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795432_1_20250312165659.jpg&q=80)
-  
-
-China will host Russia and Iran for trilateral talks on Tehran's nuclear programme on Friday, the Foreign Ministry said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm)
 
 ---

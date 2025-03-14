@@ -1,6 +1,6 @@
 # Lunar eclipse brings 'bloody' marvellous spectacle
 
-![The 'Blood Moon' is seen over CN Tower in Toronto, Canada. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
   
 
 Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon" during a rare total lunar eclipse in the early hours of Friday.

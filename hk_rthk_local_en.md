@@ -1,3 +1,27 @@
+# Drop in pupil numbers 'structural and would worsen'
+
+![Christine Choi says measures are needed to ensure the stable and sustainable development of the education sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795759_1_20250314180708.jpg&q=80)
+  
+
+Education minister Christine Choi said on Friday the government was left with little choice but to change rules on how local schools can continue to operate, as Hong Kong faces a dwindling pupil population.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm)
+
+---
+
 # New AI tool helps SMEs with green transition
 
 ![HKGCC chair Agnes Chan says that the AI-empowered tool will support small businesses to develop ESG audit without significant costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_2_20250314170438.jpg&q=90)
@@ -1412,29 +1436,5 @@ The director of the central government's liaison office, Zheng Yanxiong, on Satu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm)
-
----
-
-# Three-way tie after Day 2 of LIV Golf Hong Kong event
-
-![Three players finished on top after the second round of the LIV Golf Hong Kong tournament. Image courtesy of LIV Golf.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794917_1_20250308173011.jpg&q=90)
-  
-
-It’s a three-way tie at the top of the leaderboard of the LIV Golf Hong Kong tournament in Fanling going into the final round on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794917-20250308.htm)
 
 ---
