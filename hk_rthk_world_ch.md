@@ -1,3 +1,27 @@
+# 日本陸上自衛隊一名軍官因訓練事故死亡
+
+![日本陸上自衛隊一名軍官因訓練事故死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795768_1_20250314191556.jpg&q=90)
+  
+
+日本長野縣松本市的陸上自衛隊松本駐屯地發生一宗訓練事故，一名軍官被從高處墮下的機關槍擊中身亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm)
+
+---
+
 # 國防部：中方奉勸菲方放棄挑釁　通過對話妥處分歧
 
 ![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795450-20250312.htm)
-
----
-
-# 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
-
-![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
-  
-
-央視旗下社交平台「玉淵譚天」引述知情人士報道，沃爾瑪因為要求一些中國供應商大幅降價，企圖將美國對華加徵關稅的負擔，轉嫁給中國供應商和消費者，昨日被商務部等部門約談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
 
 ---

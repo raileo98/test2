@@ -1,3 +1,27 @@
+# 日本陸上自衛隊一名軍官因訓練事故死亡
+
+![日本陸上自衛隊一名軍官因訓練事故死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795768_1_20250314191556.jpg&q=90)
+  
+
+日本長野縣松本市的陸上自衛隊松本駐屯地發生一宗訓練事故，一名軍官被從高處墮下的機關槍擊中身亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm)
+
+---
+
 # 港華智慧能源去年多賺2%　末期息連特別息共19仙
 
 ![港華智慧能源末期息每股16仙；鑑於可再生能源業務業績令人鼓舞，派發特別息每股3仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795758_1_20250314180627.jpg&q=90)
@@ -22,7 +46,7 @@
 
 ---
 
-# 證監會下月恢復向中介人徵收牌照年費　表示極度失望及深切憂慮
+# 證監會下月恢復向中介人徵收牌照費　業界稱極度失望及深切憂慮
 
 ![證監會下月起恢復向所有中介人及持牌人士徵收牌照年費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795767_1_20250314184714.jpg&q=90)
   
@@ -96,6 +120,7 @@
 
 # 海關偵破4宗案件　共檢市值3.5億元走私電子貨物
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795764_1_20250314191044.jpg&q=80)
   
 
 海關在葵涌貨櫃碼頭及青衣海關驗貨場偵破4宗涉嫌利用遠洋船和內河船走私貨物的案件，檢獲大批懷疑走私電子貨物，估計市值約3億5千5百萬元。
@@ -119,6 +144,7 @@
 
 # 衞生防護中心：多個國家出現麻疹疫情　提醒外遊市民完成兩劑疫苗
 
+![衞生防護中心表示，市民接種疫苗是預防麻疹最安全有效的方法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795763_1_20250314191914.jpg&q=80)
   
 
 衞生防護中心表示，鑑於近期多個海外國家出現麻疹疫情，提醒市民外遊前應確保完成接種兩劑麻疹疫苗，以減低感染風險。香港今年暫時錄得1宗外地傳入麻疹個案，病人曾於潛伏期到過越南，目前沒有錄得其他個案。

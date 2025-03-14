@@ -1,6 +1,5 @@
 # New AI tool helps SMEs with green transition
 
-![Algernon Yau says the platform helps Hong Kong make a key step forward in its sustainability drive. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_1_20250314170438.jpg&q=80)
 ![HKGCC chair Agnes Chan says that the AI-empowered tool will support small businesses to develop ESG audit without significant costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_2_20250314170438.jpg&q=90)
   
 
