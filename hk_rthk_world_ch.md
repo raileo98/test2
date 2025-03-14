@@ -1,9 +1,32 @@
+# 律師指杜特爾特患醫療問題　法官稱醫生認為杜特爾特神志清醒
+
+  
+
+涉嫌違反人權的菲律賓前總統杜特爾特，以視像方式出席荷蘭海牙國際刑事法院首次聆訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm)
+
+---
+
 # 逾2200名中國涉詐犯罪嫌疑人經泰國被分批押解回國
 
 ![逾2200名中國涉詐犯罪嫌疑人經泰國被分批押解回國](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795788_1_20250314223927.jpg&q=90)
   
 
-再有超過2200名緬甸妙瓦底地區的中國涉詐犯罪嫌疑人，被公安機關經泰國押解回國。中緬泰聯合自2月20日開展相關工作以來，累積2876名中國涉詐犯罪嫌疑人被押解回國。
+再有超過2200名緬甸妙瓦底地區的中國涉詐犯罪嫌疑人，被公安機關經泰國押解回國。中緬泰自2月20日聯合開展相關工作以來，累積2876名中國涉詐犯罪嫌疑人被押解回國。
 
   
 
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm)
-
----
-
-# 澤連斯基：領土問題屬紅線　不會承認被俄佔土地
-
-![澤連斯基稱，為恢復領土，烏克蘭付出巨大人命傷亡，這是烏方最重要的紅線。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795479_1_20250313003849.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基強調，烏方不會承認被佔領的土地屬於俄羅斯，這是烏方的紅線。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795479-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795479-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795479-20250313.htm)
 
 ---
