@@ -1,3 +1,27 @@
+# 美國「龍」飛船升空前往國際太空站　將接回兩名滯留太空人
+
+![「龍」飛船由獵鷹9號運載火箭搭戴，從佛羅里達州甘迺迪太空中心發射升空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795817_1_20250315073751.jpg&q=90)
+  
+
+美國太空探索技術公司SpaceX的「龍」飛船從佛羅里達州發射升空，搭載4名太空人飛往國際太空站，並會接回滯留太空站9月個月的兩名太空人返回地球。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm)
+
+---
+
 # 歐元兌美元曾升穿1.09　美元指數於104得而復失
 
 ![德國財政改革有進展，歐元兌美元一度升穿1.09水平，高見1.0911。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795815_1_20250315070837.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm)
-
----
-
-# 蔡若蓮稱評估交流團風險後認為與韶關無明顯關係　已停用涉事餐廳
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795742_1_20250314171848.jpg&q=80)
-  
-
-因應有學校參加內地交流團後有師生出現腸胃炎徵狀，教育局已成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，適時優化交流考察活動安排。教育局局長蔡若蓮表示，專責小組包括教育局人員，承辦商代表及內地相關單位的負責人，除了透過面對面會議，亦會透過不同方式保持聯繫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm)
 
 ---

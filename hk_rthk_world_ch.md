@@ -1,3 +1,27 @@
+# 美國「龍」飛船升空前往國際太空站　將接回兩名滯留太空人
+
+![「龍」飛船由獵鷹9號運載火箭搭戴，從佛羅里達州甘迺迪太空中心發射升空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795817_1_20250315073751.jpg&q=90)
+  
+
+美國太空探索技術公司SpaceX的「龍」飛船從佛羅里達州發射升空，搭載4名太空人飛往國際太空站，並會接回滯留太空站9月個月的兩名太空人返回地球。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm)
+
+---
+
 # 北海撞船事故　涉事貨船船長被控重大過失殺人
 
 ![涉事運油輪嚴重損毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795814_1_20250315065710.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm)
-
----
-
-# 《環看天下》：杜特爾特被捕送往海牙　國際刑事法院管轄權惹爭議
-
-![杜特爾特抵達荷蘭前向支持發表短片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795506_1_20250313081534.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特日前外遊返國後，在馬尼拉機場被捕，之後被押送往國際刑事法院所在的荷蘭海牙 ，不排除面臨審訊。杜特爾特被控涉嫌早年在包括總統任期內，犯下「危害人類罪」，在全國嚴厲掃毒行動中，造成多人死亡。杜特爾特否認指控。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795506-20250313.htm)
 
 ---
