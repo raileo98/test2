@@ -1,3 +1,27 @@
+# 叙福樓料去年度轉蝕最多3600萬元
+
+![叙福樓預計，去年度轉蝕最多3600萬元，前年度錄得8810萬元盈利。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795793_1_20250314232113.jpg&q=85)
+  
+
+叙福樓預計，去年度轉蝕最多3600萬元，前年度錄得8810萬元盈利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm)
+
+---
+
 # 律師指杜特爾特患醫療問題　法官稱醫生認為杜特爾特神志清醒
 
   
