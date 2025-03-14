@@ -1,3 +1,73 @@
+# 友邦：增加派息及進一步股份回購反映對業務發展充滿信心
+
+![鍾家富稱友邦具有審慎、可持續及循序漸進的股息政策，疫情期間亦持續增加股息。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795707_1_20250314125740.jpg&q=90)
+  
+
+友邦首席財務總監鍾家富（Garth Jones）在分析員會議上指出，集團具有審慎、可持續及循序漸進的股息政策，疫情期間亦持續增加股息。他說，增加派息和進一步股份回購反映集團對未來業務發展充滿信心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795707-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795707-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795707-20250314.htm)
+
+---
+
+# 劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量
+
+  
+
+積金局主席劉麥嘉軒表示，積金局認同及會積極響應政府提出加大力度控制經營開支，2025/26年度的總開支預算會減2%，同時會以人工智能及精簡程序應付新增的工作量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm)
+
+---
+
+# 盧寵茂：正考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
+
+  
+
+消息指，政府將於未來數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但強調只適用於門診病人，急症及住院病人需要有關服務仍維持免費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm)
+
+---
+
 # 康體通本月17日至20日每晚11時至翌日早上6時暫停服務
 
   
@@ -1361,77 +1431,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm)
-
----
-
-# 兩小學「派0班」　張勇邦稱數目較預期少冀政府和學界想可行方法
-
-![張勇邦說，想改善「派0班」情況，需要有整體套配措施配合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795632_1_20250313231642.jpg&q=80)
-  
-
-2025/26學年有兩間資助小學的小一派位學生少於16人，按開班準則「派0班」，未能獲教育局資助開辦小一，分別是黃大仙的天主教博智小學和南區的鴨脷洲街坊學校。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm)
-
----
-
-# 梁振英：香港貫徹落實「一國兩制」對台灣已起示範作用
-
-![梁振英說，相信《基本法》大部分條文，台灣民眾都會接受。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795631_1_20250313230723.jpg&q=80)
-  
-
-全國政協副主席、前行政長官梁振英表示，香港貫徹落實「一國兩制」，特區政府亦按照《基本法》的規定施政，對台灣已起了示範作用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm)
-
----
-
-# 女網紅一度抱走小袋熊惹各界批評　澳洲總理揶揄為何不抱走小鱷魚
-
-![動物保護組織說袋熊不是拍照道具或玩具。圖為保育人員照顧小袋熊的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795630_1_20250313231125.jpg&q=90)
-  
-
-澳洲總理阿爾巴內塞加入批評美國女「網紅」瓊斯的行列，瓊斯被指作出可能傷害動物的行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795630-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795630-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795630-20250313.htm)
 
 ---

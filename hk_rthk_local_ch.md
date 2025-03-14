@@ -1,3 +1,49 @@
+# 劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量
+
+  
+
+積金局主席劉麥嘉軒表示，積金局認同及會積極響應政府提出加大力度控制經營開支，2025/26年度的總開支預算會減2%，同時會以人工智能及精簡程序應付新增的工作量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm)
+
+---
+
+# 盧寵茂：正考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
+
+  
+
+消息指，政府將於未來數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但強調只適用於門診病人，急症及住院病人需要有關服務仍維持免費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm)
+
+---
+
 # 康體通本月17日至20日每晚11時至翌日早上6時暫停服務
 
   
@@ -1393,53 +1439,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm)
-
----
-
-# 香港承辦全運會保齡球項目甄選賽下月展開
-
-![粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795542_1_20250313154353.jpg&q=65)
-  
-
-粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm)
-
----
-
-# 專家：如有感染諾如病毒學生在旅遊巴上嘔吐或造成車內傳播
-
-![林偉遜（左）認為，如果有學生感染諾如病毒並在旅遊巴上嘔吐，有可能在車內造成傳播；鄧飛（右）表示，現時學校前往交流既相關指引足夠同清晰。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795540_1_20250313154326.jpg&q=90)
-  
-
-多間中學有師生到內地交流後，出現腸胃炎徵狀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm)
 
 ---
