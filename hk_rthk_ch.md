@@ -1,3 +1,51 @@
+# 歐元兌美元曾升穿1.09　美元指數於104得而復失
+
+![德國財政改革有進展，歐元兌美元一度升穿1.09水平，高見1.0911。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795815_1_20250315070837.jpg&q=85)
+  
+
+德國財政改革有進展，國會下星期將會表決債務協議，協議包括設立5000億歐元基金，用於國防及基礎設施投資。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm)
+
+---
+
+# 英格蘭領隊杜曹：希望英軍能運用英超速度和力量
+
+![杜曹希望英格蘭能夠用到在英超的速度和力量，而不是模仿歐陸打法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795816_1_20250315071424.jpg&q=90)
+  
+
+英格蘭代領隊杜曹公布上任後第一份26人大軍名單，出戰稍後世界盃歐洲區兩場外圍賽。其中佐敦軒達臣和拉舒福特再度獲得徵召。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm)
+
+---
+
 # 北海撞船事故　涉事貨船船長被控重大過失殺人
 
 ![涉事運油輪嚴重損毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795814_1_20250315065710.jpg&q=85)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm)
-
----
-
-# 人行：精準支持科技中小企　加大消費領域金融支持
-
-![人行召開會議，要求精準支持國家重大科技任務和科技型中小企；加大對養老產業和重點消費領域金融支持。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795741_1_20250314163851.jpg&q=75)
-  
-
-人民銀行近日召開2025年信貸市場工作會議，要求培育支持科技創新金融生態，精準支持國家重大科技任務和科技型中小企業；加大對養老產業和重點消費領域金融支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm)
-
----
-
-# 蔡若蓮稱學齡人口下降屬結構性須正視　料未來幾年挑戰更大
-
-![蔡若蓮稱過去幾年已經降低開班要求，小一以一班16人劃線，她形容要求已經很寬鬆。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795740_1_20250314171306.jpg&q=80)
-  
-
-黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，按開班準則「派0班」，未能獲資助開辦小一。教育局局長蔡若蓮表示，隨著學齡人口下降，加上出生率持續下降，預計學齡人口下降屬結構性，而不是過渡性情況，當局預計到2030年下降速度會進一步加快。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm)
 
 ---
